@@ -7,3 +7,4 @@ Day 1, 2026-06-24 20:00 — Evening: banked coals, watched stars, checked tent a
 2026-06-24 21:05 — Day 1, evening: settled in the tent; quiet reflection on the first night; listening to the stream and the forest
 2026-06-24 22:05 — Day 1, 10:05 PM: Last waking hour; lying in tent listening to the stream; reflecting on tomorrow's scout; settling toward sleep.
 2026-06-24 23:06 — Day 1 — Last waking hour; lay in tent listening to stream and stars; resolved to scout the clearing edge at first light; settled toward sleep.
+2026-06-25 Day 2 06:05 — Scouted the full clearing edge at first light; chose the shelter site on the northwest rise — firm ground, pines for windbreak, south-facing light, thirty paces from stream; marked it and returned to camp with the axe ready.

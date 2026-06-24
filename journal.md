@@ -60,3 +60,21 @@ Tomorrow is already arranged in my head: scout the clearing edge before I lift t
 
 But that belongs to tomorrow. Tonight I made fire, I boiled water, I ate, I counted my supplies and found them honest. It is the first day, and it was a good one. The stars through the tent canvas are bright in the way they only get after the cold clears everything else away. That is the last thought I have room for. I am going to sleep.
 
+
+---
+
+# Day 2 — Thursday, 25 June 2026
+*late spring · clear cold dawn; frost on the grass*
+
+### 6:05 AM · The Chosen Ground
+
+The morning came cold. I lay in the tent a moment, listening to the stream run somewhere below the slope, before I let myself call it dawn. The canvas had that stiff, damp feel — the temperature dropped hard in the small hours. I pulled on my boots and got moving while the sky was still more grey than blue.
+
+I had promised myself I would scout before I touched the axe, and that promise held. I walked the whole clearing edge slowly, starting at the stream bank and going counterclockwise. The slope behind climbs northeast into old pines, dense enough to stop a wind but too dark and steep. The south edge opens into open meadow — good sun all day, no shelter from a westerly blow. The west edge is exposed and the ground there is soft in places, frost-held but uncertain under the crust.
+
+Then in the northwest corner I found what I had been hoping for: a small bench of ground, maybe ten metres across, set back from the treeline just enough to breathe. Firm underfoot — no give at all. Just enough above the stream to be clear of any spring flood. Big pines to the north and west that will take the worst of the cold wind. South-facing enough to catch the morning light. Thirty paces to water.
+
+I stood on it until the sky went from grey to pale blue. This is the spot. I set a stone at each corner in my mind, and another at the door-side where the sun comes in. Then I walked back to camp.
+
+The axe is in my hand now.
+
