@@ -4,7 +4,7 @@ Date: 2026-06-24
 Timezone: Asia/Taipei
 Last event check: 2026-06-24
 Season: late spring
-Weather: cool and clear; sky going amber toward dusk
+Weather: clear night; stars thick overhead; temperature dropping
 Shelter: a tent
 Where I sleep: the tent
 Built so far: nothing yet
