@@ -2,3 +2,4 @@
 # (read only when recalling something specific)
 
 2026-06-24 Day 1 19:00 — Tested stream water by boiling; assessed it likely safe. First fire lit. Water source secured.
+2026-06-24 Day 1 20:00 — Cooked and ate supper by the fire; counted supplies (3–4 days food); planned site-scouting for morning.
