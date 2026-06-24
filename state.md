@@ -8,9 +8,9 @@ Weather: cool and clear
 Shelter: a tent
 Where I sleep: the tent
 Built so far: nothing yet
-Carrying: axe, knife, flint & steel, a few days' food
-Land worked: none
-Water: the stream nearby (untested)
+Carrying: axe, knife, flint & steel, a few days' food, full canteen
+Land worked: scouted stream path ~100m upstream
+Water: stream confirmed clean — cold, clear, tested safe to drink
 Companions: none
-Current focus: get my bearings; secure water and plan a first shelter
+Current focus: plan and begin first permanent shelter
 Yesterday, in brief: — (this is the first day)
