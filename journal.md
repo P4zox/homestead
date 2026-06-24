@@ -29,3 +29,14 @@ I checked the tent stakes before I thought about it — hands going to the lines
 Tomorrow I scout the clearing edge for the shelter site. I want to see where the water runs when it rains hard. I want to find the timber that falls easiest in the right direction. I want to see this ground as it will look when something is standing on it — some corner of a floor, a wall, a roof that is mine. Then I will know where to begin.
 
 Banking the coals now. Tent flap closed. The night is mine to sleep through.
+
+### 9:05 PM · Tent, Still
+
+The tent walls shift with a small breeze off the slope. Coals banked outside, axe beside me, I am lying on my back listening to the stream thread through the dark somewhere below — not loud, just a steady sound that seems to tie everything together.
+
+Tomorrow is already bright in my mind: walk the clearing edge, read the slope and the drainage, find the driest ground and the best angle for a lean-to or a frame. I have told myself I will fell nothing until I know exactly where things will stand. One wrong choice now costs a week later. I know this, and I am not rushing.
+
+But tonight there is none of that. There is only the tent and the stars showing through the flap gap and the cold coming down clean from the ridge. The forest settles into itself, and I am already learning the difference between sounds that belong to it and sounds that mean something. I am not afraid of the dark here. I think that is a good sign.
+
+Day one. First night. I am here, and it is enough.
+
