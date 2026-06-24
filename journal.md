@@ -40,3 +40,14 @@ But tonight there is none of that. There is only the tent and the stars showing 
 
 Day one. First night. I am here, and it is enough.
 
+
+### 10:05 PM · Before Sleep
+
+The tent is dark now, and the coals outside have gone to ash-glow. I can hear the stream more clearly in the quiet — it runs over something smooth, a steady sound that keeps rhythm with my breathing. The cold is settling in properly, the kind that reminds you how thin a tent wall really is.
+
+I have been turning over tomorrow in my mind: the clearing edge, where the trees thin and the slope begins. I want to find a spot sheltered from the north wind but close enough to the stream that hauling water will not become its own chore. Somewhere the ground is firm and drains well.
+
+Today was only arrival. I know that. But arrival counts — every hour I did not squander. Water tested, fire made, supper eaten, stakes checked. I am still here.
+
+The stars I glimpsed through the tent door an hour ago are somewhere above the canvas now. I cannot see them, but I know they are there. That is enough for tonight. I close my eyes toward the sound of the water.
+
