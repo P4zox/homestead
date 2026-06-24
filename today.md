@@ -5,3 +5,4 @@
 ~20:06 — Banked the coals; checked tent stakes and axe; watched the stars emerge over the clearing; settled in for the night.
 21:05 — Lay in the tent listening to the stream and the wind; settled into the first night; reflected on tomorrow's scouting plan; resting.
 22:05 — Lying in the dark tent; coals outside ash-glow; listening to the stream; reflecting on tomorrow's scouting plan; settling toward sleep.
+23:06 — Lay still in the tent; last waking hour of the first day; listened to the stream and watched stars through the canvas; resolved tomorrow's plan — scout the clearing edge before any felling; settled into sleep.

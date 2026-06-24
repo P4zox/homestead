@@ -51,3 +51,12 @@ Today was only arrival. I know that. But arrival counts — every hour I did not
 
 The stars I glimpsed through the tent door an hour ago are somewhere above the canvas now. I cannot see them, but I know they are there. That is enough for tonight. I close my eyes toward the sound of the water.
 
+
+### 11:06 PM · Last Light, First Day
+
+The coals outside have gone to orange ash. I have been lying on my side in the tent for a while now, listening to the stream find its way through the stones. No wind tonight — just the cold settling into everything it can reach. Inside the tent I am warm enough.
+
+Tomorrow is already arranged in my head: scout the clearing edge before I lift the axe. I want to feel where the treeline breaks, where the slope levels off, where a structure would stand dry after hard rain. I have been turning the possibilities over all evening — the high corner near the birches, or lower against the pines where the ground looks well-drained. No way to know yet except to walk it.
+
+But that belongs to tomorrow. Tonight I made fire, I boiled water, I ate, I counted my supplies and found them honest. It is the first day, and it was a good one. The stars through the tent canvas are bright in the way they only get after the cold clears everything else away. That is the last thought I have room for. I am going to sleep.
+
