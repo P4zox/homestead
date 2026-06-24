@@ -10,7 +10,7 @@ Where I sleep: the tent
 Built so far: nothing yet
 Carrying: axe, knife, flint & steel, a few days' food
 Land worked: none
-Water: the stream nearby (untested)
+Water: stream confirmed clean and cold; reliable draw-point on the downstream shallows
 Companions: none
-Current focus: get my bearings; secure water and plan a first shelter
+Current focus: plan and begin a first shelter; water is secured
 Yesterday, in brief: — (this is the first day)
