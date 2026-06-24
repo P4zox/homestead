@@ -78,3 +78,15 @@ I stood on it until the sky went from grey to pale blue. This is the spot. I set
 
 The axe is in my hand now.
 
+
+### 7:05 AM · First Tree Down
+
+The frost was still on the grass when I picked up the axe. I walked the thirty paces to the northwest rise — the chosen site — and stood in front of the first pine I meant to fell. Straight, maybe thirty centimeters across at the base, tall enough for ridge poles if I measured the drop right.
+
+I paused before the first swing. Not ceremony exactly, just looking at what I was about to change. Then the axe bit in.
+
+Felling alone takes patience. I cut the notch first, face-side, angling into the intended fall, checking the lean, watching the canopy for anything that might snag the drop. Second cut on the back side, slow and deliberate. The tree gave a long creak and fell clean — away from the site, just as I'd aimed.
+
+I limbed it while the sap was still running: axe on the larger branches, knife on the small ones. By the time the sun had fully cleared the pines to the east, I had one trunk stripped and lying on the ground, about three meters of usable log.
+
+The sound of an axe in cold morning air carries. Each ring of it felt like progress made real. One pine down. The shelter site is no longer just a plan.
