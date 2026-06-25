@@ -250,3 +250,14 @@ The stars are bright tonight. Through the open top of the log frame I can see th
 
 The axe is good now. I will sleep with it close.
 
+
+### 11:06 PM · Into the Dark
+
+The fire has burned to coals — just enough warmth to cut the night chill. Inside the log frame I can hear the stream through the trees, that faint steady sound that has already grown familiar. Two days in and I know this clearing the way you know a new room: not well, but enough to move without thinking.
+
+I pulled the sleeping bag close and lay still inside the two-course walls. Tomorrow is already clear in my mind: check the fishing line at first light, fell more logs if the shoulders hold, forage in the afternoon if the line comes up empty. Food is the worry I go to sleep carrying — one or two days left if I am careful. I have been careful. And the line is set, and the axe is sharp.
+
+Even two courses of pine make a difference against the wind. Small shelter, but honest.
+
+I watched the open sky through the frame's unfinished roof-space until the stars blurred at the edges. The night took me quietly.
+

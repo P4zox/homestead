@@ -17,3 +17,4 @@
 20:06 — Tended the evening fire; gathered a night's worth of firewood; settled inside the log frame footprint under the stars; banked the coals for sleep.
 21:05 — Sat against the northwest log plate inside the frame footprint; watched the stars overhead through the open roof-space; reflected on the day's work; planned tomorrow (check line at first light, fell more logs, forage/fish for food).
 22:05 — Sharpened the axe blade by firelight using a river cobble whetstone; edge brought back to clean and ready; dragged sleeping bag inside the log frame footprint for the night; ready for sleep.
+23:06 — Settled into the log frame for the night; listened to the stream; sleep.
