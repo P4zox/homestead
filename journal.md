@@ -235,3 +235,18 @@ Tomorrow: check the line, fell three or four more pines for the third course, th
 
 But tonight the sky is clear and the world is quiet. There's an owl calling from somewhere in the pines behind me. The fire keeps its warmth. I feel, just now, genuinely settled here — not merely camped, but placed. This corner of the clearing has begun to be mine.
 
+
+### 10:05 PM · Axe to Stone
+
+The fire has settled to a low red pulse inside the frame. I took the axe and the whetstone — a flat river cobble with a little grit worn into one face — and sat with my back against the north wall plate, listening to the dark.
+
+Twenty-four meters of pine takes something out of a blade. I could feel it in the way the edge caught rather than bit when I tested it with my thumbnail at supper. So I worked through it slowly: long even strokes along the bevel, turning the axe after every few passes, holding the head at a low angle against the stone. The sound was a soft, steady shushing. The red coals made the steel glow faint orange at the edge when I tilted it right.
+
+There is something genuinely settling about sharpening an axe. No decision to make, only the feedback of metal against stone and the gradual emergence of an edge. I could feel it coming back under my thumb — that clean, fine resistance that means the bevel is right.
+
+The fishing line is out there in the dark pool, doing its own slow work. Tomorrow I check it at first light, then fell three or four more logs for the third course before the heat of midday. The walls need to rise. Food is thin but not desperate — one good morning on the stream or an afternoon of foraging steadies that. I have been in tighter spots before and come through them fine.
+
+The stars are bright tonight. Through the open top of the log frame I can see the whole sweep of them, the frame edges making a clean rectangle of sky. I will drag the sleeping bag inside the footprint tonight — the two courses of wall already cut the wind noticeably.
+
+The axe is good now. I will sleep with it close.
+
