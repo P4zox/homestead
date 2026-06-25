@@ -133,3 +133,14 @@ When I was done eating I walked the remaining stand looking for the ridge pole. 
 
 Six logs now. Twenty-one meters or close. One or two more wall-frame pieces and I can start fitting. I am beginning to see the cabin in the timber — which is a different feeling than just felling trees.
 
+
+### 1:04 PM · Seventh Log Falls
+
+By noon I had earned a rest. I sat on the ridge pole — the straightest thing I own — and ate half of what remained for the day, looking south over the open ground falling away from the rise. Six logs, twenty-one meters. I turned the numbers over while I chewed.
+
+Tight, but not quite enough for two full courses around the frame. So I went back in.
+
+The seventh pine was already half-chosen in my mind — I had been passing it all morning, noticing the clean run of it, the way it stood without a lean. It came down in four clean strikes. I limbed it in good time and dragged it up beside the others.
+
+Twenty-four and a half meters now. The ridge pole set apart, there is enough here to begin the wall frame properly: a sill course for the long walls, shorter pieces for the ends. I will start the notching next — this afternoon if my arms agree, first light tomorrow at the latest. I sat on the fresh wood for a moment before moving on. Warm and still. A good place to be building something.
+
