@@ -202,3 +202,12 @@ The wall needs at least three more courses before I can think about a roof, whic
 
 Fire banked, tin rinsed, light almost gone. The frame stands in the clearing, dark against the pale western sky. It is small. It will grow.
 
+
+### 7:04 PM · Line at Dusk
+
+After supper the clearing went quiet. I walked down to the stream in the fading light — not for water, I had a tin already — but for the food problem. The banks here have good root-knobs to loop twine on, and I found a fat grub curled under the bark of one of the limbed branches at the log pile. I rigged a simple line: a length of twine from the kit, the grub on a bent sliver of wood, the free end wedged under a flat stone at the water's edge. The current took the line slow and easy into a deeper pool below the bend.
+
+I stood there a moment watching the thread of twine disappear into the dark water. There is something to the act of leaving a thing out there working while you sleep — a small delegation.
+
+Walked back to the tent as the last light left the pines. The frame stood against the darkening sky — two courses, not yet a wall, but it has the outline of something now. Tomorrow: fell more logs for the third course, then check the line in the morning, forage or fish in the afternoon if it came up empty.
+
