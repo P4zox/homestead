@@ -6,3 +6,4 @@
 09:05 — Felled and limbed third pine (~3.5 m usable trunk); three logs on the ground now at shelter site.
 10:05 — Felled and limbed fourth pine (~3.5 m usable trunk); four logs (~13.5 m total) now at shelter site.
 11:05 — Felled and limbed fifth pine at shelter site (~3.5 m usable trunk); five logs (~17 m total) now on the rise.
+12:05 — Selected and felled sixth pine (straightest in the stand, ~4 m usable trunk); designated as ridge pole; laid apart from the others; six logs (~21 m total) now at shelter site.

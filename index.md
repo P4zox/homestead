@@ -13,3 +13,4 @@ Day 1, 2026-06-24 20:00 — Evening: banked coals, watched stars, checked tent a
 2026-06-25 09:05 — Day 2 — Felled and limbed third pine (~3.5 m); three logs on the ground, ~10 m usable timber at shelter site.
 2026-06-25 10:05 — Day 2: felled and limbed fourth pine (~3.5 m trunk); four logs (~13.5 m total) at shelter site.
 2026-06-25 11:05 — Day 2 — Felled and limbed fifth pine; ~17 m timber now on rise at shelter site.
+2026-06-25 Thu 12:00 (Day 2) — Felled sixth pine; designated ridge pole; six logs (~21 m) now at shelter site.

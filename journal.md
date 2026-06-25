@@ -124,3 +124,12 @@ Limbing took most of the hour. I work base to tip, one hand gripping the trunk f
 
 The pile has weight to it. Not a shelter yet, but the right materials for one are becoming real. Two or three more straight logs and I can start thinking about how they fit together.
 
+
+### 12:05 PM · Ridge Pole Found
+
+The sun caught me in the open at noon — all morning I had been in and out of tree shadows, and then suddenly the clearing was full of it. I sat against a stump and ate the last of my hard bread and some dried fish, and looked at the five logs stretched out on the rise. A quiet hour.
+
+When I was done eating I walked the remaining stand looking for the ridge pole. It matters most — the longest beam, the spine of the whole structure. I looked at the taper of a dozen trees before I found the one that seemed right: arrow-straight, maybe four meters of clean trunk before the first branch. Put the axe to it after noon and had it down in twenty minutes. Limbed it careful. Laid it apart from the others so I would know it by sight.
+
+Six logs now. Twenty-one meters or close. One or two more wall-frame pieces and I can start fitting. I am beginning to see the cabin in the timber — which is a different feeling than just felling trees.
+
