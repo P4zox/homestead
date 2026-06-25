@@ -106,3 +106,12 @@ Six to eight logs needed. Two down. The math is moving in the right direction.
 
 By nine the frost was only memory, the ground dry and the air just warm enough to sweat in. I picked the next candidate — a straight-grained pine about forty paces upslope from the first two — walked a full circle around it, checked the lean, cleared the fall line of scrub. Two clean notch cuts on the south face, then the back cut biting slow and steady through the heartwood. The tree shivered, held a beat, and came down through the gap I had made — that long whistling fall and the thud that you feel in your boots. I stood there a moment before starting on the limbs. It still stops me, that sound. An hour later the trunk was clear, rough bark peeling off in cold wet strips. Another three and a half meters lying beside the first two. Three logs on the rise now; I am beginning to see the shape of something.
 
+
+### 10:05 AM · Fourth Pine Down
+
+By mid-morning the axe work had settled into a rhythm I could trust. I chose the fourth tree — a straight pine standing twenty paces northeast of yesterday's last, clean trunk from ground up, a lean I could work with if I kept the undercut deep. The blade found its angle and I made the strokes count: undercut first, then the back-cut slow and even until the wood began to creak and the whole tree pivoted exactly where I'd asked it to. It came down clean. I limbed it right there, knocking off branches while the sap was still running, and rolled the trunk up alongside the other three on the rise.
+
+Four logs on the ground now. About thirteen and a half metres of usable timber at the site. Standing beside them, I tried to see the walls in them — and I almost can. The stack is starting to read as a thing that wants to be a cabin.
+
+My shoulders ache in the good way. The morning stayed bright and the breeze came off the pines carrying resin and something cooler underneath — the stream, probably, or just the shade that never fully lifts in that corner of the slope. I ate a little at the log, rested my hands, and looked back at the clearing. It's quieter after felling. The sky shows through where each tree was. Four gaps now, four beginnings.
+
