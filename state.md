@@ -7,10 +7,10 @@ Season: late spring
 Weather: clear morning into warm afternoon; sky open and bright
 Shelter: a tent
 Where I sleep: the tent
-Built so far: seven pines felled and limbed — ~24.5 m usable timber on the ground at shelter site; sixth log set aside as ridge pole candidate
+Built so far: seven pines felled and limbed — ~24.5 m usable timber on the ground at shelter site; sixth log set aside as ridge pole candidate; first two base logs notched and set — northeast and southwest wall plates in position, first corner of the log frame fitted
 Carrying: axe, knife, flint & steel, a few days' food, cook tin
-Land worked: clearing edge scouted; shelter site chosen — northwest rise above the stream, firm ground, pines to north and west; seven pines felled and limbed at site
+Land worked: clearing edge scouted; shelter site chosen — northwest rise above the stream, firm ground, pines to north and west; seven pines felled and limbed at site; first corner of wall frame begun
 Water: the stream nearby — boiled and tasted; clear and cold; likely safe
 Companions: none
-Current focus: begin notching and fitting the wall frame — enough timber is on the ground
+Current focus: continue notching and fitting remaining wall logs — work up from the base plates
 Yesterday, in brief: The first day began with almost nothing — a tent, an axe, a knife, flint and steel, and a few days of food. I found the stream, lit the first fire, boiled the water and tasted it: clear and cold, likely safe. Ate supper over the coals, counted 3–4 days of food remaining, and before sleep settled on a plan for the morning — scout the clearing edge at first light to choose a shelter site before touching the axe.

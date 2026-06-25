@@ -15,3 +15,4 @@ Day 1, 2026-06-24 20:00 — Evening: banked coals, watched stars, checked tent a
 2026-06-25 11:05 — Day 2 — Felled and limbed fifth pine; ~17 m timber now on rise at shelter site.
 2026-06-25 Thu 12:00 (Day 2) — Felled sixth pine; designated ridge pole; six logs (~21 m) now at shelter site.
 2026-06-25 13:04 — Day 2 — Felled seventh pine (~3.5 m); 24.5 m total on the rise; ready to begin notching the wall frame.
+2026-06-25 14:05 — Day 2 — Notched first two base logs; set them in position as northeast and southwest wall plates; first corner of the log frame is fitted.

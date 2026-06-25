@@ -144,3 +144,15 @@ The seventh pine was already half-chosen in my mind — I had been passing it al
 
 Twenty-four and a half meters now. The ridge pole set apart, there is enough here to begin the wall frame properly: a sill course for the long walls, shorter pieces for the ends. I will start the notching next — this afternoon if my arms agree, first light tomorrow at the latest. I sat on the fresh wood for a moment before moving on. Warm and still. A good place to be building something.
 
+### 2:05 PM · First Notch Cut
+
+The afternoon is warm, the light falling across the rise in long bright patches between the pines. Seven logs on the ground — that was this morning's work. Now the question is how to turn lumber into walls.
+
+I've been turning this over since I put the axe to the first tree: not the cutting, but the fitting. You can't stack rounds of pine and call it a cabin. The logs need to find each other, lock together, hold still under their own weight and the weight of what comes after. So: saddle notches. Half-rounds cut into the underside of each log, seated over the one below. Simple and very old. A log fitted right won't move in a windstorm.
+
+I spent the hour on the two heaviest logs — the ones that will sit directly on the ground and carry everything else. Measured twice with my hand-span, marked the notch positions with a scratch from the knife, then worked the axe one careful chip at a time. Crossgrain cuts, slow going. The saddle opened up by degrees. When I rolled the first log into position and lowered it over the paired log below, it settled — not perfectly, but nearly. One more pass to shave a high spot; seated again. Better.
+
+Two base logs are now in position: northeast and southwest, notched and interlocked. The frame has a beginning. It's a small thing to look at — two logs on the ground — but it's the first thing that looks like a structure rather than a pile of wood.
+
+My shoulders ache. The axe edge will need a stone before tomorrow. But the first corner fits, and that's the moment I've been working toward all day.
+
