@@ -222,3 +222,16 @@ I am tired in the good way. Both courses of the frame are set; the corners sit p
 
 The fire pops once, settles. Food for a day or two, no more than that. But the line is in the water, and morning is close.
 
+
+### 9:05 PM · Still Under Stars
+
+The coals have settled to orange-red, almost no flame. I'm sitting against the northwest plate with my knees drawn up, and the sky above the log frame is clear from edge to edge — stars from horizon to horizon where the roof will be someday.
+
+It was a full day. Both courses done, the wall standing at mid-shin, the ridge pole still set apart in the grass waiting for its turn. I'm glad of the soreness in my arms and shoulders; it means the work was real.
+
+The fishing line is out there in the stream. I keep thinking about it — the way the current moves in the bend, whether a trout would find the grub in the dark. I'll know at first light.
+
+Tomorrow: check the line, fell three or four more pines for the third course, then forage or fish properly in the afternoon if food is still short. The body needs feeding. Two days of provisions left is close enough to uncomfortable that I won't pretend otherwise.
+
+But tonight the sky is clear and the world is quiet. There's an owl calling from somewhere in the pines behind me. The fire keeps its warmth. I feel, just now, genuinely settled here — not merely camped, but placed. This corner of the clearing has begun to be mine.
+
