@@ -279,3 +279,18 @@ It is not enough to stop worrying about food. But it is something. The line prov
 
 After breakfast I fed the fire back to life and sharpened my attention on the day ahead: more logs for the third course, then back to the stream this afternoon if there is time. The walls need height. The food needs tending. Both at once, one hour at a time.
 
+
+### 7:04 AM · Into the Pines
+
+The trout is still with me when I shoulder the axe and head into the trees. The morning is cool and still — birch leaves barely moving, light slanting low through the pines and picking up the last of the ground mist.
+
+The gap in the northwest stand has grown. I have been working my way outward from that first cluster, and now I have to walk twenty extra paces before I find trees of the right profile — eight inches or so at the butt, no wind-lean, straight-grained through the first ten feet. I pick two candidates and study them: the way you study a tree before you fell it, reading what it wants to do so you can ask in the right direction.
+
+First fell: a good notch on the fall side, a long backcut on the other, and it comes down exactly where I aimed — clean, no snag, the tip just brushing the undergrowth. The second follows within half an hour, dropping into the same open patch. Good wood, both of them.
+
+The limbing is slower. Careful work, the axe close in. You have to clear every branch all the way around, and the low ones near the ground are awkward — bad angles, the edge near your own legs. But by the end each log is bare and smooth-barked, ready to be a wall. Two logs stripped clean, lying on the slope.
+
+I left them there for now — too heavy to drag alone over rough ground without a skid, and I am not willing to twist an ankle this far from help. But I found two slender poles nearby and laid them out as rails. The skid is not rigged yet, but the pieces are in place. This afternoon I will bring the logs down, if I have anything left after fishing.
+
+Nine pines felled and limbed in total. The third course is within reach.
+
