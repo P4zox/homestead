@@ -115,3 +115,12 @@ Four logs on the ground now. About thirteen and a half metres of usable timber a
 
 My shoulders ache in the good way. The morning stayed bright and the breeze came off the pines carrying resin and something cooler underneath — the stream, probably, or just the shade that never fully lifts in that corner of the slope. I ate a little at the log, rested my hands, and looked back at the clearing. It's quieter after felling. The sky shows through where each tree was. Four gaps now, four beginnings.
 
+
+### 11:05 AM · Fifth Trunk Down
+
+The axe is finding its own rhythm now. I came to the fifth pine just after mid-morning, when the light had climbed above the treeline and the clearing felt almost warm for the first time. I have learned something these past hours: the best tree to take is not the nearest one — it is the one with a clear fall lane, so the trunk does not get snarled in branches below. This one leaned east, away from the pile. I notched the west face deep, then worked the felling cut from the east. It came down clean, barely a bounce.
+
+Limbing took most of the hour. I work base to tip, one hand gripping the trunk for purchase, the axe in short looping arcs. My left shoulder is talking to me now — a dull ache that will still be there in the morning. But the log is dragged to the rise and laid alongside the others: five now, roughly parallel, close to seventeen meters of timber total.
+
+The pile has weight to it. Not a shelter yet, but the right materials for one are becoming real. Two or three more straight logs and I can start thinking about how they fit together.
+

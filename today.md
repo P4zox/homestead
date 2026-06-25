@@ -5,3 +5,4 @@
 08:05 — Felled and limbed second pine at shelter site (~3.5 m usable trunk); two logs now side by side on the rise.
 09:05 — Felled and limbed third pine (~3.5 m usable trunk); three logs on the ground now at shelter site.
 10:05 — Felled and limbed fourth pine (~3.5 m usable trunk); four logs (~13.5 m total) now at shelter site.
+11:05 — Felled and limbed fifth pine at shelter site (~3.5 m usable trunk); five logs (~17 m total) now on the rise.
