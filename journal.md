@@ -156,3 +156,12 @@ Two base logs are now in position: northeast and southwest, notched and interloc
 
 My shoulders ache. The axe edge will need a stone before tomorrow. But the first corner fits, and that's the moment I've been working toward all day.
 
+
+### 3:05 PM · Four Corners Set
+
+The afternoon settled into rhythm. I pulled two more logs from the timber pile — the third and fourth heaviest, good candidates for the remaining base plates — and worked them over until the saddle notches bit clean. The notching takes longer than it seems like it should: a shallow cut first with the axe corner to mark the width, then careful chopping to the depth, clearing the waste with the back of the blade. You have to fit, adjust, fit again. The wood does not cooperate all at once.
+
+By the middle of the hour I had the NW plate seated. By the end, the SE plate was down too. Four corners, first course closed — a rectangle now, not just two logs lying on a hillside. I stepped back and looked at it from the south: barely knee-height, raw and honest, smelling of pine sap in the afternoon sun. But it is the shape of a house. That is something.
+
+I am tired in the good way. The ridge pole is still waiting, patient in the grass. Tomorrow — or the next hour, if I have it in me — I start stacking the second course.
+
