@@ -19,3 +19,4 @@ Day 1, 2026-06-24 20:00 — Evening: banked coals, watched stars, checked tent a
 2026-06-25 15:05 — Day 2 — Notched and seated NW and SE base plates; first full course of wall frame closed — four corners, complete rectangle.
 Day 2, 2026-06-25, 16:04 — Second Course, First Lift: rolled the fifth pine up skid ramps onto the first course; notched and seated the NE-SW second-tier plate; timber running low — more felling needed tomorrow.
 2026-06-25 17:04 Day 2 — Rolled and seated spare log as NW-SE second-course plate; second full course of wall frame complete (mid-shin height, perimeter closed).
+2026-06-25 18:04 — Day 2 · Cooked supper inside the frame footprint; food supply down to 1–2 days; plan to fell logs and forage tomorrow.

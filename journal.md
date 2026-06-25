@@ -191,3 +191,14 @@ The second full course is complete now. Four corners, perimeter closed, walls ru
 
 The ridge pole is set aside and I'll need more timber before I can go higher. Tomorrow the axe comes out again. But tonight the frame stands closed, and that's enough for one day.
 
+
+### 6:04 PM · Supper by the Frame
+
+Something changed at dusk — the logs I had been rolling and notching all day stopped being work and became a shape. Two full courses around the rise, corners fitted and seated, perimeter closed at mid-shin. Not high yet, but it holds. Standing back from it in the failing light, I felt the first real satisfaction of the build.
+
+I got the fire going inside the frame footprint, which felt deliberate. Warming the ground before there is a floor to warm. Boiled water in the cook tin, added the last of the dried rations. While it simmered I counted what remained: a day or two of food at best. Three meals, maybe four if I stretch them.
+
+The wall needs at least three more courses before I can think about a roof, which means a morning of felling tomorrow — but food is threading into that calculation now. I cannot run on empty and swing an axe well. I will start early, fell what I can, and somewhere in the afternoon turn toward the stream or the forest edge for fish or berries. There is almost certainly food out there. I just have not had time to look for it.
+
+Fire banked, tin rinsed, light almost gone. The frame stands in the clearing, dark against the pale western sky. It is small. It will grow.
+
