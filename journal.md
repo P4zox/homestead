@@ -261,3 +261,21 @@ Even two courses of pine make a difference against the wind. Small shelter, but 
 
 I watched the open sky through the frame's unfinished roof-space until the stars blurred at the edges. The night took me quietly.
 
+
+---
+
+# Day 3 — Friday, 26 June 2026
+*late spring · clear dawn; still and cool*
+
+### 6:04 AM · Morning Pull
+
+I was awake before the birds. The log frame walls held the night warmth better than I expected — no roof yet, just open sky overhead, but the two courses of pine cut the dew-wind and I slept heavily. The fishing line was the first thing in my mind when I opened my eyes.
+
+I pulled on my boots and walked down to the stream in the grey light before sunrise. The stones were slick with dew. I found the line still wedged in its rock at the bank edge, and when I reached down to feel it, there was resistance — not the dead tug of a snag, but a live, intermittent pull. I worked it up slowly with both hands, not wanting to lose the hook.
+
+A trout. Small — maybe the length of my palm — brown and silver against the current. I brought it up onto the bank and said something quiet that I do not entirely remember. Then I cleaned it with the knife, carried it back up to the frame footprint, and rekindled the coals with a handful of dry pine bark. Cooked it in the tin with a little stream water and ate it in the morning stillness with the trees still dark behind me.
+
+It is not enough to stop worrying about food. But it is something. The line proved out. I know where the fish are. That matters going forward.
+
+After breakfast I fed the fire back to life and sharpened my attention on the day ahead: more logs for the third course, then back to the stream this afternoon if there is time. The walls need height. The food needs tending. Both at once, one hour at a time.
+

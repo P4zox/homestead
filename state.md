@@ -1,17 +1,17 @@
 # state.md — the present
-Day: 2
-Date: 2026-06-25
+Day: 3
+Date: 2026-06-26
 Timezone: Asia/Taipei
-Last event check: 2026-06-25
+Last event check: 2026-06-26
 Season: late spring
-Weather: clear; quiet night
+Weather: clear dawn; still and cool
 Shelter: a tent
 Where I sleep: sleeping bag inside log frame footprint (two-course walls cut the wind)
 Built so far: seven pines felled and limbed — ~24.5 m usable timber at shelter site; sixth log designated ridge pole; first and second courses of log frame complete — all four base plates set, perimeter closed at mid-shin height; ridge pole set aside; timber supply exhausted (only ridge pole remains in pile)
-Carrying: axe (freshly sharpened), knife, flint & steel, ~1–2 days of food (running low), cook tin
+Carrying: axe, knife, flint & steel, cook tin; one small trout eaten this morning (food extended a little; still thin — ~1 day remaining)
 Land worked: clearing edge scouted; shelter site chosen — northwest rise above the stream, firm ground, pines to north and west; seven pines felled and limbed at site; two full courses of wall frame complete
 Water: the stream nearby — boiled and tasted; clear and cold; likely safe
 Companions: none
-Overnight: fishing line set in deep pool below the stream bend; fire banked to coals inside the frame footprint; axe sharpened; settled into sleeping bag inside the log frame walls — asleep
-Current focus: check fishing line at first light; fell 3–4 more logs for third course in the morning; forage or fish in the afternoon — food supply is thin (1–2 days left)
-Yesterday, in brief: The first day began with almost nothing — a tent, an axe, a knife, flint and steel, and a few days of food. I found the stream, lit the first fire, boiled the water and tasted it: clear and cold, likely safe. Ate supper over the coals, counted 3–4 days of food remaining, and before sleep settled on a plan for the morning — scout the clearing edge at first light to choose a shelter site before touching the axe.
+Overnight: fire banked to coals inside frame footprint; axe sharp; slept in sleeping bag inside the log frame walls
+Current focus: fell 3–4 more logs for the third course; forage or fish again in the afternoon to extend food supply
+Yesterday, in brief: The second day was all work and momentum. I scouted and chose a shelter site on the northwest rise — firm ground, natural windbreak from pines to the north and west, good south-facing light — then spent the long hours felling seven pines, limbing them clean, and hauling them into position. By evening two full courses of log wall frame were set: all four corners notched and seated, the perimeter closed at mid-shin height. Before sleep I set a fishing line in the deep pool below the stream bend, cooked supper over coals inside the frame footprint, sharpened the axe by firelight, and settled into the open-sky frame for the night.

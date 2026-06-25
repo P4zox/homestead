@@ -25,3 +25,4 @@ Day 2, 2026-06-25, 16:04 — Second Course, First Lift: rolled the fifth pine up
 2026-06-25 21:05 Day 2 — Settled inside the log frame at night, reflected by banked coals under clear stars; fishing line still out; tomorrow: check line, fell more logs, forage.
 2026-06-25 22:05 — Day 2 · Sharpened axe by banked fire; ready for tomorrow's log felling
 2026-06-25 Day 2 23:06 — Settled into the log frame for the night; reflected on tomorrow's tasks (fishing line, more logs, foraging); food supply thin at 1–2 days.
+2026-06-26 06:04 Day 3 — Checked overnight fishing line at dawn; caught one small trout; cooked and ate it for breakfast; food situation eased slightly.
