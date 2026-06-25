@@ -211,3 +211,14 @@ I stood there a moment watching the thread of twine disappear into the dark wate
 
 Walked back to the tent as the last light left the pines. The frame stood against the darkening sky — two courses, not yet a wall, but it has the outline of something now. Tomorrow: fell more logs for the third course, then check the line in the morning, forage or fish in the afternoon if it came up empty.
 
+
+### 8:06 PM · Fire, Then Stars
+
+The fire has settled into coals now, orange and low, and I have banked it so it will hold through the night. I am sitting inside the log frame footprint — a strange thing, to sit inside a structure that is barely shin-high and completely open to the sky — but already it has a quality. A boundary. A shape.
+
+The stars came out while I was hauling the last armful of wood. Late spring stars, still and bright, and the kind of silence you get only when the wind forgets to come. Somewhere in the stream below, the fishing line is trailing in the current, doing its quiet work. I rigged it in the last of the evening light — grub on the hook, stone for weight, twine tied off at the bank. Whatever comes of it, I will know at first light.
+
+I am tired in the good way. Both courses of the frame are set; the corners sit plumb and tight. There are no more trees felled — the pile is down to the ridge pole alone — so tomorrow begins with the axe again before anything else. Three or four more logs for the third course. The structure is climbing.
+
+The fire pops once, settles. Food for a day or two, no more than that. But the line is in the water, and morning is close.
+

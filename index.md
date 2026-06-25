@@ -21,3 +21,4 @@ Day 2, 2026-06-25, 16:04 — Second Course, First Lift: rolled the fifth pine up
 2026-06-25 17:04 Day 2 — Rolled and seated spare log as NW-SE second-course plate; second full course of wall frame complete (mid-shin height, perimeter closed).
 2026-06-25 18:04 — Day 2 · Cooked supper inside the frame footprint; food supply down to 1–2 days; plan to fell logs and forage tomorrow.
 2026-06-25 19:04 — Day 2 — Walked to the stream at dusk; rigged a simple fishing line overnight baited with a grub; left it in the current pool below the bend.
+2026-06-25 20:06 — Day 2, 8:06 PM: Tended evening fire; gathered night firewood; settled inside the log frame under stars; banked coals for sleep. (Fire, Then Stars)
