@@ -180,3 +180,14 @@ One log up on the second course. Two more needed on this tier before the perimet
 
 The light now is going golden and the pines to the west are casting long shadows across the rise. I am tired in the right way. The frame is growing.
 
+
+### 5:04 PM · Walls Rising
+
+The afternoon light came in long and gold. I had one log left that could go up — the spare pine, solid and straight enough — and I figured the second course might as well be closed before supper rather than sitting with three sides done and one open.
+
+Working alone takes patience. I reset the skid ramps against the northwest wall, notched both ends of the log to match the course beneath, then pushed and rolled it up one inch at a time, stopping whenever it threatened to slip. When it finally dropped into its seat — that low, firm knock of wood finding wood — something in me settled the same way.
+
+The second full course is complete now. Four corners, perimeter closed, walls running at mid-shin height all the way around. I walked the south end and looked north along the line of logs and it looked like something real. Like the outline of a room that hasn't learned yet it's a room.
+
+The ridge pole is set aside and I'll need more timber before I can go higher. Tomorrow the axe comes out again. But tonight the frame stands closed, and that's enough for one day.
+

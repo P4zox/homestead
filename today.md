@@ -11,3 +11,4 @@
 14:05 — Began notching base logs; cut saddle notches into the two heaviest logs (northeast and southwest wall plates); rolled them into position over cross-logs; first corner of the wall frame is set and fitted.
 15:05 — Notched and fitted NW and SE base logs (wall plates); rolled both into position; first full course of the log frame complete — four corners set, perimeter closed.
 16:04 — Began stacking the second course; laid skid ramps against the NE wall plate; rolled the fifth pine up the ramps; notched and seated it as the NE-SW second-tier plate. Timber supply now low (ridge pole + one spare log remain); plan to fell more logs first thing tomorrow.
+17:04 — Rolled and seated spare log as NW-SE second-course plate; second full course of the wall frame complete — perimeter closed at mid-shin height; ridge pole still set aside; timber supply now exhausted (only ridge pole remains); plan to fell more logs tomorrow for third course.
