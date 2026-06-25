@@ -90,3 +90,14 @@ Felling alone takes patience. I cut the notch first, face-side, angling into the
 I limbed it while the sap was still running: axe on the larger branches, knife on the small ones. By the time the sun had fully cleared the pines to the east, I had one trunk stripped and lying on the ground, about three meters of usable log.
 
 The sound of an axe in cold morning air carries. Each ring of it felt like progress made real. One pine down. The shelter site is no longer just a plan.
+
+### 8:05 AM · Second Pine Down
+
+The frost was still holding in the shadow of the tree line when I picked up the axe again. My shoulders flagged a little — yesterday's work, the first real axe work I've done here — but they loosened up by the second swing.
+
+I had already marked a second pine while limbing the first: straight, maybe nine meters, close enough to drag without a sled. I set the notch on the downhill side, worked methodically, and the tree came down clean into the gap I'd cleared. The sound of it — a slow creak, then the rush, then the thump of all that weight against cold earth — still surprises me. I don't think I'll get used to it. I'm not sure I want to.
+
+Limbing took longer on this one; it was fuller in the crown. The branches pile up waist-high around me before I push them aside. I'll use them for tinder, or for bedding once I'm sleeping inside something more permanent. The usable trunk is a solid 3.5 meters — better than the first. I rolled it beside the other log and stood back: two trunks side by side on the rise, the site beginning to look like something planned, not just found.
+
+Six to eight logs needed. Two down. The math is moving in the right direction.
+
