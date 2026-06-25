@@ -165,3 +165,18 @@ By the middle of the hour I had the NW plate seated. By the end, the SE plate wa
 
 I am tired in the good way. The ridge pole is still waiting, patient in the grass. Tomorrow — or the next hour, if I have it in me — I start stacking the second course.
 
+
+### 4:04 PM · Second Course, First Lift
+
+The first course has been sitting on the ground since mid-afternoon — four logs, four corners, the frame of a real thing. I stood back and looked at it for a moment before I let myself feel pleased. Then I picked up the axe again.
+
+For the second course I need to get logs up off the ground and seated on top of the first. With no one to help, that means skids. I dragged two of the remaining straight logs over and angled them up against the northeast wall plate, making a pair of ramps. Low-tech, obvious, effective — the kind of solution the forest practically hands you.
+
+The log I chose for the second NE-SW plate is the fifth pine, the one I felled this morning before lunch. It is long and even and heavier than it looked lying flat. I rolled it to the foot of the skids, got under it with the cant hook I improvised from a forked branch, and walked it up inch by inch. The skids held. The log ground up the ramps, tipped, and dropped into place on top of the first course with a sound like a gavel.
+
+I held it there — just a hand on the bark, feeling it settle — and notched the saddle cuts while the afternoon sun still had enough angle to throw good shadow into the work. The fit is tight. The second plate is seated.
+
+One log up on the second course. Two more needed on this tier before the perimeter closes again. The timber pile is running short — only the ridge pole and one spare log remain after today. Tomorrow morning I fell more.
+
+The light now is going golden and the pines to the west are casting long shadows across the rise. I am tired in the right way. The frame is growing.
+

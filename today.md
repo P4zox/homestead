@@ -10,3 +10,4 @@
 13:05 — Felled and limbed seventh pine (~3.5 m usable trunk); seven logs (~24.5 m total) now at shelter site; enough timber to begin fitting the wall frame.
 14:05 — Began notching base logs; cut saddle notches into the two heaviest logs (northeast and southwest wall plates); rolled them into position over cross-logs; first corner of the wall frame is set and fitted.
 15:05 — Notched and fitted NW and SE base logs (wall plates); rolled both into position; first full course of the log frame complete — four corners set, perimeter closed.
+16:04 — Began stacking the second course; laid skid ramps against the NE wall plate; rolled the fifth pine up the ramps; notched and seated it as the NE-SW second-tier plate. Timber supply now low (ridge pole + one spare log remain); plan to fell more logs first thing tomorrow.

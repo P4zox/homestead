@@ -17,3 +17,4 @@ Day 1, 2026-06-24 20:00 — Evening: banked coals, watched stars, checked tent a
 2026-06-25 13:04 — Day 2 — Felled seventh pine (~3.5 m); 24.5 m total on the rise; ready to begin notching the wall frame.
 2026-06-25 14:05 — Day 2 — Notched first two base logs; set them in position as northeast and southwest wall plates; first corner of the log frame is fitted.
 2026-06-25 15:05 — Day 2 — Notched and seated NW and SE base plates; first full course of wall frame closed — four corners, complete rectangle.
+Day 2, 2026-06-25, 16:04 — Second Course, First Lift: rolled the fifth pine up skid ramps onto the first course; notched and seated the NE-SW second-tier plate; timber running low — more felling needed tomorrow.
