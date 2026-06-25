@@ -101,3 +101,8 @@ Limbing took longer on this one; it was fuller in the crown. The branches pile u
 
 Six to eight logs needed. Two down. The math is moving in the right direction.
 
+
+### 9:05 AM · Third Pine Down
+
+By nine the frost was only memory, the ground dry and the air just warm enough to sweat in. I picked the next candidate — a straight-grained pine about forty paces upslope from the first two — walked a full circle around it, checked the lean, cleared the fall line of scrub. Two clean notch cuts on the south face, then the back cut biting slow and steady through the heartwood. The tree shivered, held a beat, and came down through the gap I had made — that long whistling fall and the thud that you feel in your boots. I stood there a moment before starting on the limbs. It still stops me, that sound. An hour later the trunk was clear, rough bark peeling off in cold wet strips. Another three and a half meters lying beside the first two. Three logs on the rise now; I am beginning to see the shape of something.
+
