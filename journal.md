@@ -294,3 +294,16 @@ I left them there for now — too heavy to drag alone over rough ground without 
 
 Nine pines felled and limbed in total. The third course is within reach.
 
+
+### 8:06 AM · The Long Haul
+
+The skid poles worked better than I feared. I had set two straight poles as rails on the slope last hour, and this morning I tested whether a fourteen-foot pine log — stripped of its bark in spots — would actually slide down them. It did, grudgingly, with leverage from the axe handle and my whole weight behind it.
+
+The first log took the better part of the hour. I worked in stages: wedge the axe handle under the butt end, pry it up an inch, settle it onto the rails, then haul from the downhill side with a braided bark strap. The log wanted to roll sideways, and twice I had to re-seat it on the poles. But it came down, and I guided the last ten feet by hand into position beside the frame.
+
+The second log went faster. I was smarter about the balance, kept more tension on the strap, and it slid clean. By the time the sun had climbed above the treeline both logs were resting beside the wall frame — long and straight and heavy and mine.
+
+I sat with them a moment before starting the next thing. Eleven pines felled now. Two full courses standing. Two more logs ready to be lifted into place.
+
+The third course can start today.
+
