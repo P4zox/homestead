@@ -43,3 +43,4 @@ Day 3, 18:04 — Cooked creek trout over evening fire; ate supper beneath the ri
 2026-06-26 21:06 — Day 3, evening — Settled under the ridgepole; fire banked; rafter work at first light
 2026-06-26 22:05 — Night waking beneath the ridgepole; lay still watching stars through the roof frame; rafters blazed and ready in northwest stand.
 Day 3, 2026-06-26 23:06 — Lay awake in the log frame beneath the stars; ran the rafter plan once more in the dark; let the quiet settle and slept.
+Day 4, 2026-06-27, 06:05 — Three Rafters Felled: new day rollover; fishing line empty at dawn; walked to northwest stand; felled and limbed 3 of 10 blazed rafter pines; roof frame work underway.

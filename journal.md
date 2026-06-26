@@ -457,3 +457,17 @@ I ran the rafter plan once more. Ten poles to fell and limb, haul each down the 
 
 That was enough. I pulled the sleeping bag up against the cool air, watched the ridgepole silhouette against the stars for another few minutes without naming any of them, and let the dark do its work.
 
+
+---
+
+# Day 4 — Saturday, 27 June 2026
+*late spring · cool dawn; mist from the stream hollow; clear sky brightening east*
+
+### 6:05 AM · Three Rafters Felled
+
+The fishing line came up empty this morning — the bait gone or the trout wiser than yesterday. I coiled it back into my kit before the light had fully opened and let the disappointment sit for only a moment. The fire was good coals; I left it banked rather than build it up. Shouldered the axe and walked upslope to the northwest stand while mist still clung low over the stream hollow.
+
+The blazed pines stood where I marked them, each with its axe-butt notch at chest height. Cool air, no wind yet — the best conditions for this work, when the sounds carry clean and there is nothing fighting you but the wood. I dropped the first one in two dozen strokes, a young pine maybe eight inches at the base, falling clean to the south into open ground. Limbed it quick with the axe. Then the second, shorter and straighter. Then a third, stouter than the others, the heartwood taking longer to give. By the time the sun had cleared the ridgeline to the east I had three trees down and stripped, lying in a row on the hillside.
+
+Seven more blazed. The arms feel good. The roof is not yet closed but it is coming — I can feel the shape of it now in the way you feel a sentence before the words arrive.
+
