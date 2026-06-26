@@ -348,3 +348,10 @@ There is something particular about holding still after a morning of swinging an
 
 Nothing on the lines yet. I will stay as long as it takes to bring something back — or until late afternoon pulls me back to the north and south ends of the fourth course. Either way, this hour was needed. The body wanted the stream more than the logs did.
 
+
+### 1:04 PM · Afternoon Lines
+
+Walked back to the gravel bar at one o'clock, following the bank downstream through the birch shade. The water level looked the same — clear and cold even in the afternoon warmth. The first line, the one I'd tied to a forked willow stake, had a small creek trout on it. Maybe half a pound. Enough for supper, and with the last of the hardtack to round it out, tomorrow looks covered too. The second line had wrapped around a submerged root while I was away and lost its hook. I re-cut a fresh length, bent a new thorn hook, and moved it upstream to a patch of clean gravel where I could see the bottom — nothing to snag on. The trout went into the cook tin wrapped in wet moss to stay cool until evening.
+
+I stood there a moment before heading back. The stream was bright and loud over the gravel. A kingfisher shot past without stopping, a streak of blue that was gone before I could follow it. Good afternoon light, full sun, still warm. The fourth course walls are waiting — north and south ends of the frame, the last two logs from what I've hauled. I'd like to have the full fourth course seated before dark so tomorrow I can think about the roof.
+
