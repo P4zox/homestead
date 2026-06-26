@@ -449,3 +449,11 @@ Ten blazed rafter poles wait in the northwest stand. Tomorrow, if the work goes 
 
 I settle back into the sleeping bag. The stars stay where they are.
 
+### 11:06 PM · Night Before Rafters
+
+At some point after eleven I came fully awake again — not startled, just surfaced, the way the mind does after a hard day when it has not quite finished thinking. I lay still inside the log walls and listened. The fire had burned all the way down; only a faint warmth rose from the coals. Through the open roof frame — the ridgepole against the sky, nothing above it yet — the stars were as dense as I have ever seen them. No moon. No wind. Perfect dark between the trees.
+
+I ran the rafter plan once more. Ten poles to fell and limb, haul each down the slope on skid poles, notch both ends — ridge and wall plate — and seat them in pairs, alternating east and west so the frame does not rack. Twenty notches. A full day if everything holds. My hands are cracked from the lashing work but the bark-strip cord is coiled tight and ready; the root cord is waiting at the ridge apex. I know what I am doing at first light.
+
+That was enough. I pulled the sleeping bag up against the cool air, watched the ridgepole silhouette against the stars for another few minutes without naming any of them, and let the dark do its work.
+

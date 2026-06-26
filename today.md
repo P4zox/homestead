@@ -24,3 +24,5 @@
 21:06 — Settled into sleeping bag inside log frame; tested ridge posts and Y-forks (all firm); reviewed tomorrow's rafter plan; fire banked to coals; fishing line set; resting for the night.
 
 22:05 — Woke briefly in the night; lay still looking up at the ridgepole against the stars; checked the fire (coals, not flame); let the quiet settle over everything; drifted back to sleep.
+
+23:06 — Lay awake in the log frame; stars dense through the open roof frame; ran the rafter plan once more in the quiet; bark-strip cord coiled and ready; let the dark do its work and slept.
