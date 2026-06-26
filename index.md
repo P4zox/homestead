@@ -28,3 +28,4 @@ Day 2, 2026-06-25, 16:04 — Second Course, First Lift: rolled the fifth pine up
 2026-06-26 06:04 Day 3 — Checked overnight fishing line at dawn; caught one small trout; cooked and ate it for breakfast; food situation eased slightly.
 2026-06-26 07:04 — Day 3: Felled 2 more pines on northwest slope (9 total); limbed and left with skid poles laid out; third course timber within reach.
 2026-06-26 08:06 — Day 3 — Hauled both logs from slope to shelter site on skid poles; third course ready to lay.
+2026-06-26 09:04 — Day 3: Notched and seated east and west wall logs; third course now two-sided at hip height; north and south ends to follow this afternoon.

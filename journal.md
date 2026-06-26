@@ -307,3 +307,14 @@ I sat with them a moment before starting the next thing. Eleven pines felled now
 
 The third course can start today.
 
+
+### 9:04 AM · Third Course Rising
+
+Nine logs were lying beside the frame when I came back from the morning haul — sun at mid-height, shoulders already warm from the work. I could have rested, but the light was good and the logs were right there. No good reason to stop.
+
+Third-course work is all notching. I picked the two longest logs for the east and west walls, scored each end with the knife, then cut saddle notches with the axe. The notches have to seat flush or the whole course will rock and never tighten. I levered the first log up with the pry pole, walked it over the second course, heel-kicked it into its notch from both ends until it stopped moving. Solid. The second log — the opposite wall — fought me a little: one notch came shallow and I had to roll it back down and take another pass. Took the time. Got it right.
+
+Two logs seated. East and west walls now at third-course height. The north and south ends will go this afternoon. Standing inside the frame now, the walls rise past my hip — that changes everything about the feeling of being in there. It is starting to look like a room.
+
+Food still thin. I will fish or forage this afternoon before the light drops too low. The morning was for the walls; the afternoon will be for the table.
+
