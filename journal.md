@@ -438,3 +438,14 @@ The fishing line is out in the dark pool, and the lashing bundle waits at my fee
 
 Tired in the good way. The body knows what it did today and is satisfied. The ridgepole is up. Tomorrow the rafters.
 
+
+### 10:05 PM · Ridgepole Overhead
+
+Something woke me — a shift in the coals, or just the stream finding its way through the quiet. I lay still and looked up. The ridgepole cuts across the stars, a dark stripe from Y-fork to Y-fork, birch to pine. Tomorrow I will lay rafters across it and the stars will begin to disappear, one by one, behind bark and branch. Tonight they are still all mine.
+
+The fire breathes coals, not flame. The log walls hold the wind back from all sides. The overnight fishing line rests in the pool below the bend. I checked nothing. I changed nothing. I just lay a moment in the dark and noticed: the weight of the sleeping bag, the faint smell of pine resin from freshly worked wood, the way the night has gone perfectly still.
+
+Ten blazed rafter poles wait in the northwest stand. Tomorrow, if the work goes well, the roof frame will be done before noon. Then bark shingles, moss caulking, and the clearing will have a real roof over it. That is the picture I fell asleep to. It is good enough to wake up to as well.
+
+I settle back into the sleeping bag. The stars stay where they are.
+

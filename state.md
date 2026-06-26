@@ -8,7 +8,7 @@ Weather: clear night; stars thick and still; cool, no wind
 Shelter: a tent
 Where I sleep: sleeping bag inside log frame footprint (four-course walls cut the wind on all sides; ridgepole overhead)
 Built so far: eleven pines felled and limbed total — four full courses of wall frame complete; walls at shoulder height all around, perimeter closed; two Y-forked posts (dead birch north, young pine south) saddle-notched into top wall logs at end walls, bark-packed and cord-lashed, standing plumb — ridge support complete; ridgepole hauled down from upslope and laid into both Y-fork posts — roof line now spans full wall-to-wall; 1 log remaining at shelter site (reserved for lintel or future use); ten rafter pines blazed in northwest stand with axe-butt marks, ready to fell at dawn
-Carrying: axe, knife, flint & steel, cook tin; food ~1.5 days; coiled bark-strip lashing bundle (prepared tonight for rafter work)
+Carrying: axe, knife, flint & steel, cook tin; food ~2 days; coiled bark-strip lashing bundle (prepared tonight for rafter work)
 Land worked: clearing edge scouted; shelter site chosen — northwest rise above the stream, firm ground, pines to north and west; eleven pines felled and limbed; four full courses of log wall frame complete; walls shoulder-height all around; perimeter fully closed; two Y-fork ridge posts seated and plumb at north and south end walls; ridgepole seated across both Y-forks — roof skeleton in place; ten rafter pines blazed and marked in northwest stand
 Water: the stream nearby — boiled and tasted; clear and cold; likely safe
 Companions: none

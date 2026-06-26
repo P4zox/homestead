@@ -22,3 +22,5 @@
 20:07 — Sat by banked fire inside log walls; stripped bark from limb scraps into lashing ribbons; coiled a full bundle of bark-strip cord for tomorrow's rafter work; plan to use remaining root cord at ridge apex, bark strips at wall-plate ends; hands cracked but steady; stars bright overhead.
 
 21:06 — Settled into sleeping bag inside log frame; tested ridge posts and Y-forks (all firm); reviewed tomorrow's rafter plan; fire banked to coals; fishing line set; resting for the night.
+
+22:05 — Woke briefly in the night; lay still looking up at the ridgepole against the stars; checked the fire (coals, not flame); let the quiet settle over everything; drifted back to sleep.
