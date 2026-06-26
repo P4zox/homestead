@@ -368,3 +368,14 @@ Four courses complete. Walls run shoulder-height all the way around, perimeter c
 
 For now the walls are done and that is enough for one afternoon.
 
+
+### 3:04 PM · Finding the Forks
+
+The four courses stand solid at shoulder height, a good and visible thing. But walls open to sky are still just a frame, and the afternoon light made that plain. The ridgepole waits upslope. To set it I need something to hold it aloft at each end — two stout Y-forked uprights, one for each short wall, to cradle the pole at the right height.
+
+I took the axe into the northwest stand and searched the undergrowth: not straight pines this time but birches with natural forks, or standing-dead trees that branched low. Found two good candidates within a hundred paces. The first a dead birch, forked cleanly at about six feet — trunk still solid, fork firm. The second a young pine, lower fork, Y running wide and clean. Cut both, limbed them, and carried them back to the shelter site.
+
+Held each one against the north and south end walls to test the height. The fork sits just above the top wall log — maybe a foot of rise. That should be enough pitch for rain and snow to shed once I lay a bark roof on. Not set permanently yet; tomorrow I will notch seat-pockets into the top course logs to receive the base of each post, drive them solid, and then the ridgepole can come down the slope and be laid in.
+
+The pieces are nearly all in place. The frame is waiting.
+
