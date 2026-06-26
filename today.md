@@ -10,3 +10,5 @@
 13:04 — Checked fishing lines at gravel bar; first line had a creek trout (~½ lb); second line snagged on submerged root — re-cut line, bent new thorn hook, re-set upstream on clean gravel; trout stored in cook tin wrapped in wet moss for supper; food now ~2 days if careful.
 14:04 — Laid north and south end walls for fourth course; saddle-notched both logs, seated with skid pole; fourth course complete — all four walls now at shoulder height all around; 1 log remaining at site.
 15:04 — Cut two Y-forked posts from northwest stand (dead birch fork and young pine fork); hauled to shelter site; held against north and south end walls to gauge height — forks sit a foot above top wall log, enough rise for roof pitch; not yet seated permanently.
+
+16:05 — Notched saddle seats into north and south end wall top logs; muscled both Y-forked posts (birch fork north, pine fork south) upright; packed bark at base and lashed with root cord; posts standing plumb and firm; ridge support in place; ridgepole remains upslope for morning haul.

@@ -379,3 +379,7 @@ Held each one against the north and south end walls to test the height. The fork
 
 The pieces are nearly all in place. The frame is waiting.
 
+
+### 4:05 PM · Forks Standing
+
+With both Y-forked posts lying at the shelter site and the afternoon still warm, I turned to setting them permanent. I notched the top course log at the north end wall first — cut a shallow saddle into the center with the axe, just deep enough that the post butt would seat without rocking. Then I muscled the dead birch fork upright, packed bark strips around the base for a tight fit, and lashed the butt with twisted root cord from the kit. Stepped back: the fork clears the top wall log by just over a foot. Good rise for the pitch. The pine fork at the south end went the same way — saddle notch, bark packing, cord lashing. Both posts stood on their own when I let go. I sighted along them from the west side: plumb enough to hold a ridgepole without rolling. The ridgepole is still waiting upslope where it was set aside. That is tomorrow morning's first task — get it down the slope and laid across those two forks. Once it's there, the whole logic of the roof locks into place: rafters off the ridge, bark or bough thatch over them. I can see the shape of the thing now. The sun is still a hand above the treeline and I have a trout in the tin for supper. A good hour's work.

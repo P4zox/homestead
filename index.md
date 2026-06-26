@@ -35,3 +35,4 @@ Day 2, 2026-06-25, 16:04 — Second Course, First Lift: rolled the fifth pine up
 2026-06-26 13:04 — Day 3: checked fishing lines; caught a creek trout (~½ lb); re-set snagged second line upstream on clean gravel; food extended to ~2 days.
 2026-06-26 14:05 — Day 3 — Completed fourth course: north and south end walls laid; all four log walls now at shoulder height, perimeter fully closed.
 2026-06-26 Day 3 15:04 — Cut two Y-forked posts (dead birch and young pine) for ridge support; hauled to shelter site; tested height against end walls — fork rise good for roof pitch.
+Day 3, 16:05 — Seated both Y-forked posts at north and south end walls; ridge support complete; ridgepole haul next.
