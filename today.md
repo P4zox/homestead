@@ -14,3 +14,5 @@
 16:05 — Notched saddle seats into north and south end wall top logs; muscled both Y-forked posts (birch fork north, pine fork south) upright; packed bark at base and lashed with root cord; posts standing plumb and firm; ridge support in place; ridgepole remains upslope for morning haul.
 
 17:06 — Rigged drag line on ridgepole butt end; hauled it down from upslope on skid poles; cleared two root-knob snags; walked butt end up against south Y-fork, levered log horizontal with skid pole, dropped far end into north Y-fork; ridgepole now seated in both forks spanning full wall-to-wall; roof line complete; will begin rafter work tomorrow morning.
+
+18:04 — Cooked creek trout from cook tin over rekindled evening fire; ate supper beneath the new ridgepole; banked fire; reset overnight fishing line in gravel pool; sat on north wall log watching stars come in; resting before sleep.

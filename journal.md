@@ -394,3 +394,12 @@ Lifting it into the forks was the hard part. I stood the butt end against the so
 
 I stepped back. Four walls at shoulder height, two forked posts rising from the end walls, one straight ridge spanning wall to wall. The shelter has a roof line now. Not a roof yet, but the bones are there — and bones are what I needed most. Tomorrow I will start rafters.
 
+
+### 6:04 PM · Supper Under the Ridge
+
+The ridgepole is seated and I am done lifting for the day. I stood under it for a long moment before walking to the fire — just looked at the line of it, butt to tip, spanning both forks, the whole roof in negative space above me where there used to be only sky. That feeling of a thing becoming real is still strange and good each time it arrives.
+
+I raked the coals up from the banked fire, set the cook tin over them, and unwrapped the creek trout from its wet moss. Cooked it simple — a little salt shaken out of the pouch, turned once, eaten right from the tin while the evening light came through the open rafter-frame. The ridgepole threw a long shadow east as the sun dropped behind the pines. Tomorrow I will cut the rafters. Tonight I ate well and let the work of the day settle into my hands.
+
+The shoulder muscles know everything they did today. That is fine. I banked the fire again, set the fishing line for overnight in the gravel pool, and sat on the north wall log while the sky went amber, then purple. This roof will close within a few days if the weather holds. I can feel it now — not as a plan, but as a near thing, almost tangible. The walls stand shoulder-high all around me. The ridge holds the sky open just enough to see stars come in, one at a time.
+
