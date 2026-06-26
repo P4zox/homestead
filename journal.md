@@ -318,3 +318,14 @@ Two logs seated. East and west walls now at third-course height. The north and s
 
 Food still thin. I will fish or forage this afternoon before the light drops too low. The morning was for the walls; the afternoon will be for the table.
 
+
+### 10:04 AM · Third Course Closed
+
+The east and west walls were already at hip height when I picked up the axe again, and closing the north and south ends felt like finishing a sentence I had started hours ago. Two logs — one for each open end. The north log was the harder of the two: a slight twist in the grain that made the saddle notch want to rock. I cut it once, tested it, recut the deeper shoulder, tested again. The second time it seated clean and didn't move when I stepped on it to check.
+
+The south end went in almost easily after that. When I rolled the last log into place and straightened up, the frame was closed — four walls, all third-course high, corners locked and tight at hip height all around. I walked the outside perimeter slowly and ran my hand along each notch. Everything still. No wobble anywhere.
+
+Standing inside the frame, I noticed something had changed. The wind that had been skimming free across the clearing was hitting the log walls now instead of passing straight through. A small thing. But a different thing. The air inside was a little stiller than the air outside, and that difference felt like the beginning of something real.
+
+Seven logs came down to the site this morning; I used two just now. Five remain. Food is still thin — I'll need to fish or forage this afternoon, which I had been planning anyway. But the perimeter is closed at three courses and the fourth can start fresh whenever I'm ready. For now I'll drink some water, rest my shoulders, and think about the stream.
+
