@@ -30,3 +30,4 @@ Day 2, 2026-06-25, 16:04 — Second Course, First Lift: rolled the fifth pine up
 2026-06-26 08:06 — Day 3 — Hauled both logs from slope to shelter site on skid poles; third course ready to lay.
 2026-06-26 09:04 — Day 3: Notched and seated east and west wall logs; third course now two-sided at hip height; north and south ends to follow this afternoon.
 2026-06-26 10:04 — Day 3 — Notched and laid north and south wall logs; third course closed all around at hip height; 5 logs remaining at site.
+2026-06-26 11:04 — Day 3 — Laid east and west wall logs for fourth course; walls rising toward chest height; 3 logs remain at site.

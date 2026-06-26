@@ -329,3 +329,12 @@ Standing inside the frame, I noticed something had changed. The wind that had be
 
 Seven logs came down to the site this morning; I used two just now. Five remain. Food is still thin — I'll need to fish or forage this afternoon, which I had been planning anyway. But the perimeter is closed at three courses and the fourth can start fresh whenever I'm ready. For now I'll drink some water, rest my shoulders, and think about the stream.
 
+
+### 11:04 AM · Fourth Course Rising
+
+Mid-morning, and the frame is ready for more. Five logs at the site from yesterday's haul; I picked the two straightest for the east and west walls of the fourth course. The saddle notch has a rhythm now — I can read the grain before the axe touches it, judge where the wood wants to yield. Chipped the notches, checked the fit, rolled each log into place with the skid pole. East wall log seated first, then the west. The walls are shoulder-high on the south-facing side, a little below on the north where the ground rises slightly.
+
+I stood inside the frame when both were set and looked up at the rim of logs against the open sky. It feels different at four courses than it did at three. The space inside has become a room in a way it was not before — defined, enclosed in intention if not yet in fact. Three logs remain on the ground for the north and south ends. Once those are laid the fourth course will be complete, and the walls will be near chest height all around.
+
+The afternoon will be for food. One trout this morning was good fortune but did not change the count by much. The stream has been generous; I'll trust it again this evening — set a line before dark, and try the forest edge for anything the land is giving: mushrooms, sorrel, whatever the early summer is holding. For now the axe is resting and so am I, briefly, leaning against the east wall log, feeling the warmth it has already pulled out of the sun.
+
