@@ -12,3 +12,5 @@
 15:04 — Cut two Y-forked posts from northwest stand (dead birch fork and young pine fork); hauled to shelter site; held against north and south end walls to gauge height — forks sit a foot above top wall log, enough rise for roof pitch; not yet seated permanently.
 
 16:05 — Notched saddle seats into north and south end wall top logs; muscled both Y-forked posts (birch fork north, pine fork south) upright; packed bark at base and lashed with root cord; posts standing plumb and firm; ridge support in place; ridgepole remains upslope for morning haul.
+
+17:06 — Rigged drag line on ridgepole butt end; hauled it down from upslope on skid poles; cleared two root-knob snags; walked butt end up against south Y-fork, levered log horizontal with skid pole, dropped far end into north Y-fork; ridgepole now seated in both forks spanning full wall-to-wall; roof line complete; will begin rafter work tomorrow morning.

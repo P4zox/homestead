@@ -383,3 +383,14 @@ The pieces are nearly all in place. The frame is waiting.
 ### 4:05 PM · Forks Standing
 
 With both Y-forked posts lying at the shelter site and the afternoon still warm, I turned to setting them permanent. I notched the top course log at the north end wall first — cut a shallow saddle into the center with the axe, just deep enough that the post butt would seat without rocking. Then I muscled the dead birch fork upright, packed bark strips around the base for a tight fit, and lashed the butt with twisted root cord from the kit. Stepped back: the fork clears the top wall log by just over a foot. Good rise for the pitch. The pine fork at the south end went the same way — saddle notch, bark packing, cord lashing. Both posts stood on their own when I let go. I sighted along them from the west side: plumb enough to hold a ridgepole without rolling. The ridgepole is still waiting upslope where it was set aside. That is tomorrow morning's first task — get it down the slope and laid across those two forks. Once it's there, the whole logic of the roof locks into place: rafters off the ridge, bark or bough thatch over them. I can see the shape of the thing now. The sun is still a hand above the treeline and I have a trout in the tin for supper. A good hour's work.
+
+### 5:06 PM · Ridge Pole Seated
+
+The afternoon still had good light left, and the Y-forks were standing firm. I looked upslope at the ridgepole — the longest, straightest pine I had set aside on the first day, resting between two root stumps where I left it — and decided: it comes down today.
+
+I rigged the drag line around its butt end and walked it to the lip of the slope, letting gravity lead while I steered with the skid pole. It caught on root knobs twice; twice I wedged and rolled it clear. By the time the butt end reached the shelter site, my shoulders were burning and the light had gone gold.
+
+Lifting it into the forks was the hard part. I stood the butt end against the south post, propped it nearly upright, then used the skid pole as a lever to walk it horizontal — one hand on the rope, one knee under the log — until the far end swung over and dropped into the north fork with a thud I felt through my boots.
+
+I stepped back. Four walls at shoulder height, two forked posts rising from the end walls, one straight ridge spanning wall to wall. The shelter has a roof line now. Not a roof yet, but the bones are there — and bones are what I needed most. Tomorrow I will start rafters.
+
