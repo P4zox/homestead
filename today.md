@@ -18,3 +18,5 @@
 18:04 — Cooked creek trout from cook tin over rekindled evening fire; ate supper beneath the new ridgepole; banked fire; reset overnight fishing line in gravel pool; sat on north wall log watching stars come in; resting before sleep.
 
 19:05 — Walked to northwest stand in last amber light; blazed ten straight young pines (small-diameter, no bad crooks) as rafter stock with axe-butt marks at chest height; returned by near-dark; rafter poles identified and marked, ready to fell at first light.
+
+20:07 — Sat by banked fire inside log walls; stripped bark from limb scraps into lashing ribbons; coiled a full bundle of bark-strip cord for tomorrow's rafter work; plan to use remaining root cord at ridge apex, bark strips at wall-plate ends; hands cracked but steady; stars bright overhead.

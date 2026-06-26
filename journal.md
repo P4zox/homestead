@@ -414,3 +414,16 @@ The light went fast after that. I came back through the stumps in near darkness,
 
 Ten poles blazed. Tomorrow I cut rafters. Tomorrow the shelter begins to look like shelter.
 
+
+### 8:07 PM · Cord by Firelight
+
+The ridgepole above me is solid. I can see it in the firelight — one long pine, dark-barked, seated in its two forked posts — and every time I look up at it something settles inside me. Three days ago there was only a tent and an idea.
+
+I have been sitting by the banked fire, stripping bark from the limb scraps into long thin ribbons, coiling them into a bundle for tomorrow. Rafter work means lashing — ten poles, two attachment points each, one at the ridge and one at the top wall log — and the root cord I have been using is running thin. Bark strips are not as strong, but for rafters they only need to hold until the roof weight settles and pins them in place. I will save what root cord remains for the ridge apex where the tension matters; bark-strip lashing everywhere else.
+
+The four wall logs cut most of the wind now. The fire is small and clean. A fish smell lingers in the cook tin from supper. Outside the walls the stars are thick and still.
+
+My hands are cracked from three days of axe work. I notice this. It does not hurt the way it did this morning.
+
+Tomorrow I fall the rafters.
+

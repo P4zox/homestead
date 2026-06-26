@@ -39,3 +39,4 @@ Day 3, 16:05 — Seated both Y-forked posts at north and south end walls; ridge 
 2026-06-26 17:06 — Day 3 — Ridgepole hauled downslope and laid into Y-fork posts; roof line complete in structure; rafters next
 Day 3, 18:04 — Cooked creek trout over evening fire; ate supper beneath the ridgepole; banked fire and set overnight fishing line; noted roof nearly close-able.
 2026-06-26 19:05 — Day 3, 7:05 PM: Walked northwest stand in last amber light; blazed ten straight young pines as rafter stock; returned by near-dark; rafter poles ready for morning.
+2026-06-26 20:07 — Day 3 · Prepared bark-strip lashing cord by firelight; ten rafter pines blazed in northwest stand, ready for dawn; roof frame expected tomorrow.
