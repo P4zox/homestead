@@ -427,3 +427,14 @@ My hands are cracked from three days of axe work. I notice this. It does not hur
 
 Tomorrow I fall the rafters.
 
+
+### 9:06 PM · Under the Ridgepole
+
+Lying inside the log frame now, sleeping bag spread on packed earth, the ridgepole a dark timber beam overhead. The walls on all four sides hold still in the night air — no sway, no lean, just solid pine at shoulder height shutting out the wind from every quarter. I tested each post again before settling: the Y-forks don't budge. The bark packing has compressed and bonded; the cord lashing is tight. It feels like something that will stand a long time.
+
+I went over tomorrow's work in my mind while the fire settled to coals. Ten rafter pines to fell at first light, limb them clean, haul them down on skid poles two at a time, notch each end to ride the top wall log and hang on the ridgepole, then space them evenly the full length of the roof. All of that with one pair of hands. A long day coming.
+
+The fishing line is out in the dark pool, and the lashing bundle waits at my feet. The fire is banked. The night bird that called from the pines half an hour ago has gone quiet. Stars are dense tonight — no clouds moving in.
+
+Tired in the good way. The body knows what it did today and is satisfied. The ridgepole is up. Tomorrow the rafters.
+
