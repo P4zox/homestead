@@ -471,3 +471,12 @@ The blazed pines stood where I marked them, each with its axe-butt notch at ches
 
 Seven more blazed. The arms feel good. The roof is not yet closed but it is coming — I can feel the shape of it now in the way you feel a sentence before the words arrive.
 
+
+### 7:04 AM · Three Rafters Home
+
+The mist was still pooled in the hollow when I went back up for the first log. The three rafters were where I had left them at dawn — stripped clean, pale yellow against the dark floor of the stand, each about twelve feet long. I cut two skid poles from the slash pile and lashed the first one across them at its balance point, then started down.
+
+Three trips. The damp ground helped — the logs slid more than dragged, and I learned to steer with my hips rather than fight the slope. By the third load the mist had burned off the lower clearing and the sky was going a clean pale blue in the east. My shoulders ached in a good way, the way that means the work actually happened.
+
+The three rafters are lying in the grass beside the log walls now. The ridgepole overhead catches the morning light. Seven blazed pines remain upslope, and then comes the notching — setting each rafter into the ridgepole and top wall logs so the frame locks tight. A long day still ahead of me, but these first three are home. That is something.
+
