@@ -403,3 +403,14 @@ I raked the coals up from the banked fire, set the cook tin over them, and unwra
 
 The shoulder muscles know everything they did today. That is fine. I banked the fire again, set the fishing line for overnight in the gravel pool, and sat on the north wall log while the sky went amber, then purple. This roof will close within a few days if the weather holds. I can feel it now — not as a plan, but as a near thing, almost tangible. The walls stand shoulder-high all around me. The ridge holds the sky open just enough to see stars come in, one at a time.
 
+
+### 7:05 PM · Rafter Poles Marked
+
+After supper settled in me and the fire burned down to coals, I found I wasn't sleepy yet. The evening was too clear and still — the kind of night that feels wasted lying down. I picked up the axe and walked back up to the northwest stand while there was still enough light to see by.
+
+What I was looking for: small-diameter poles, straight as I could find them, with no bad crooks or heavy knots. They need to seat cleanly on ridgepole and top wall log and carry a bark-and-bough roof without bowing. The young trees coming up in the gaps left by my felling these past two days have grown straight for the light — exactly what I needed. I found ten of them in a loose cluster on the upper slope and blazed each one lightly with the axe butt, a white notch at chest height, easy to find at dawn.
+
+The light went fast after that. I came back through the stumps in near darkness, the path more memory than sight. The ridgepole caught the last pale glow above the frame — a clean line, level and still. I stood under it for a moment before ducking away to the sleeping bag.
+
+Ten poles blazed. Tomorrow I cut rafters. Tomorrow the shelter begins to look like shelter.
+

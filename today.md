@@ -16,3 +16,5 @@
 17:06 — Rigged drag line on ridgepole butt end; hauled it down from upslope on skid poles; cleared two root-knob snags; walked butt end up against south Y-fork, levered log horizontal with skid pole, dropped far end into north Y-fork; ridgepole now seated in both forks spanning full wall-to-wall; roof line complete; will begin rafter work tomorrow morning.
 
 18:04 — Cooked creek trout from cook tin over rekindled evening fire; ate supper beneath the new ridgepole; banked fire; reset overnight fishing line in gravel pool; sat on north wall log watching stars come in; resting before sleep.
+
+19:05 — Walked to northwest stand in last amber light; blazed ten straight young pines (small-diameter, no bad crooks) as rafter stock with axe-butt marks at chest height; returned by near-dark; rafter poles identified and marked, ready to fell at first light.

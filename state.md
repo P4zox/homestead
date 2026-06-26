@@ -13,5 +13,5 @@ Land worked: clearing edge scouted; shelter site chosen — northwest rise above
 Water: the stream nearby — boiled and tasted; clear and cold; likely safe
 Companions: none
 Overnight: fire banked to coals inside frame footprint; axe sharp; fishing line set overnight in gravel pool; sleeping bag inside log frame walls
-Current focus: cut and lay rafters — small-diameter straight poles from northwest stand, notched to rest on ridgepole and top wall log; roof frame tomorrow
+Current focus: cut and lay rafters — ten straight young pines blazed in northwest stand this evening; fell, limb, notch, and seat them on ridgepole and top wall log at first light; roof frame tomorrow
 Yesterday, in brief: The second day was all work and momentum. I scouted and chose a shelter site on the northwest rise — firm ground, natural windbreak from pines to the north and west, good south-facing light — then spent the long hours felling seven pines, limbing them clean, and hauling them into position. By evening two full courses of log wall frame were set: all four corners notched and seated, the perimeter closed at mid-shin height. Before sleep I set a fishing line in the deep pool below the stream bend, cooked supper over coals inside the frame footprint, sharpened the axe by firelight, and settled into the open-sky frame for the night.

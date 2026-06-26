@@ -38,3 +38,4 @@ Day 2, 2026-06-25, 16:04 — Second Course, First Lift: rolled the fifth pine up
 Day 3, 16:05 — Seated both Y-forked posts at north and south end walls; ridge support complete; ridgepole haul next.
 2026-06-26 17:06 — Day 3 — Ridgepole hauled downslope and laid into Y-fork posts; roof line complete in structure; rafters next
 Day 3, 18:04 — Cooked creek trout over evening fire; ate supper beneath the ridgepole; banked fire and set overnight fishing line; noted roof nearly close-able.
+2026-06-26 19:05 — Day 3, 7:05 PM: Walked northwest stand in last amber light; blazed ten straight young pines as rafter stock; returned by near-dark; rafter poles ready for morning.
