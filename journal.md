@@ -355,3 +355,16 @@ Walked back to the gravel bar at one o'clock, following the bank downstream thro
 
 I stood there a moment before heading back. The stream was bright and loud over the gravel. A kingfisher shot past without stopping, a streak of blue that was gone before I could follow it. Good afternoon light, full sun, still warm. The fourth course walls are waiting — north and south ends of the frame, the last two logs from what I've hauled. I'd like to have the full fourth course seated before dark so tomorrow I can think about the roof.
 
+
+### 2:05 PM · Walls Closed
+
+The noon rest did what it was supposed to. I went back to the site with the afternoon sun high and the air still, three logs waiting where I had left them at the foot of the east wall.
+
+Two of them belong to the fourth course — north and south ends, the last pieces of the wall frame. I started with the north log. Measured the gap, marked the notch with the axe heel, cut slow and clean. When the saddle was right I rigged the skid pole as a lever and walked the log up over the third course, swung the ends down into their seats. A satisfying thump. The grain of the wood pressed tight. Then the south end: same method, less fussing — I knew the depth by now. That one seated cleanly on the first try.
+
+When it dropped into place the whole frame shifted just slightly, the way a thing does when it finally has all four corners pulling even. I stood inside and looked up at the open sky. The wind shadow was already real — four log walls hold something, even without a roof. The clearing noise softened. I could hear the stream through the trees.
+
+Four courses complete. Walls run shoulder-height all the way around, perimeter closed. One log remains at site; I am keeping it back — it may become a lintel above the door gap or a short ridge support, I have not decided yet. The ridgepole is already set aside upslope. The next work is the roof: where the ridge sits, how many rafters, what I use for cover. Pine bark is the obvious answer but I will sleep on the question.
+
+For now the walls are done and that is enough for one afternoon.
+

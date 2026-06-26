@@ -8,3 +8,4 @@
 11:04 — Laid east and west wall logs for fourth course; saddle-notched both ends, seated with skid pole; walls now shoulder-height on south side. 3 logs remain at site.
 12:04 — Set axe down at noon; walked to stream; dug worms, bent hook from thorn, set two fishing lines over the gravel bar; resting in birch shade eating last of the hardtack; lines not yet productive.
 13:04 — Checked fishing lines at gravel bar; first line had a creek trout (~½ lb); second line snagged on submerged root — re-cut line, bent new thorn hook, re-set upstream on clean gravel; trout stored in cook tin wrapped in wet moss for supper; food now ~2 days if careful.
+14:04 — Laid north and south end walls for fourth course; saddle-notched both logs, seated with skid pole; fourth course complete — all four walls now at shoulder height all around; 1 log remaining at site.
