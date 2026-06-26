@@ -338,3 +338,13 @@ I stood inside the frame when both were set and looked up at the rim of logs aga
 
 The afternoon will be for food. One trout this morning was good fortune but did not change the count by much. The stream has been generous; I'll trust it again this evening — set a line before dark, and try the forest edge for anything the land is giving: mushrooms, sorrel, whatever the early summer is holding. For now the axe is resting and so am I, briefly, leaning against the east wall log, feeling the warmth it has already pulled out of the sun.
 
+### 12:04 PM · Lines in the Water
+
+I set the axe down around noon and walked to the water. The morning had been hard in the best way — third course closed, fourth course east and west walls lifted to shoulder height — but the food is thin and the stream has been patient with me. Time to make good on what I promised myself.
+
+Found worms in the soft soil beneath an alder root, bent a hook from a straightened thorn, and set two lines where the current flattens over the gravel bar. The sun is high and warm. I am sitting in the shadow of a birch now, watching the lines and eating the last of the hardtack slowly.
+
+There is something particular about holding still after a morning of swinging an axe. The hands keep wanting to be useful; the mind keeps sketching the next notch. But fish will not come to a restless body, so I am learning to let the afternoon settle around me. A dipper is walking the creek bottom downstream. Dragonflies hover over the shallows. The pines on the far bank smell warm and resinous in the noon heat.
+
+Nothing on the lines yet. I will stay as long as it takes to bring something back — or until late afternoon pulls me back to the north and south ends of the fourth course. Either way, this hour was needed. The body wanted the stream more than the logs did.
+
