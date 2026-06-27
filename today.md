@@ -18,3 +18,4 @@
 21:04 — Stoked fire for light; carried the remaining eight bark sheets up the east wall two at a time; laid three more courses by firelight — six, seven, eight total; east slope now three-quarters sealed from eave to four-fifths of the way to the ridge; all bark sheets used; lashing cord still in good supply; climbed down and sat by coals; Scorpius visible through open west slope; fishing line set; sleep.
 
 22:04 — Sat by the evening fire under open west slope; east slope three-quarters sealed, bark sheets exhausted; reflected on the build and tomorrow's bark harvest; fishing line in stream; coals banked; sleep soon.
+23:04 — Lay down in the sleeping bag inside log walls; coals nearly out; stars through open west slope; turned the full day over in mind — all ten rafters, twelve purlins, eight bark courses; fishing line in stream; closed eyes for sleep.

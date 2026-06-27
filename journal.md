@@ -631,3 +631,15 @@ The fishing line is in the stream. I'll sleep.
 The fire has dropped to a low red pulse. I sit on the north log with my back against the wall timbers, looking up through the open west slope at the stars. Scorpius is still out there — I lose track of exactly where I saw it last night, but the sky is the same uninterrupted dark, and the stars are the same cold steady lights.
 
 The east slope above me is sealed three-quarters of the way to the ridge. Eight full courses of bark, overlapping up from the eave, lashed to every purlin. My hands know that lashing now — the way the strip curls and catches, the particular give when the knot seats right. Tomorrow: six to eight more sheets from the birch stand, and I can close the east slope entirely. Then the west. Then some kind of ridge-cap, which I havent
+### 11:04 PM · Night Settles
+
+The coals have gone quiet. I am lying in the sleeping bag inside the log walls, looking up through the open west slope at the stars — Scorpius low in the south, sky shifting slowly westward. Eight bark courses seal the east slope above me; I can feel the change already, how the bark defines overhead space rather than leaving it entirely open. The strip near the ridge will wait for tomorrow.
+
+The fishing line is set in the stream. I do not expect much — this morning came up empty — but hope costs nothing. If the hook is bare again, I will need to forage while I work: clover, inner bark, whatever the clearing offers. The body finds a way.
+
+Today was a long one. I try to count back the hours and give up somewhere around the purlin grid. All ten rafters seated and lashed, twelve purlins in their grid, bark harvest, eight courses laid, cord replenished twice. There is a kind of satisfaction in a day that full — not pride exactly, more like the feeling of having been entirely present for the whole of it.
+
+Tomorrow: more bark. Six to eight sheets from the birch stand to finish the east slope, then start the west. The roof is within reach now.
+
+The log walls hold the warmth in. The wind does not find me as easily inside. I close my eyes.
+

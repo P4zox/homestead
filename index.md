@@ -60,3 +60,4 @@ Day 4, 2026-06-27 16:04 — Harvested first batch of birch bark sheets from east
 Day 4, 2026-06-27, 20:05 — Second evening of bark-strip peeling by firelight; cord bundle substantially replenished; east slope roofing prepared to resume at dawn.
 2026-06-27 21:04 Day 4 — Laid remaining eight bark sheets onto east slope by firelight; three more courses (six–eight); east slope three-quarters sealed.
 Day 4, 2026-06-27 22:04 — Sat by coals in late evening; looked up through open west slope at stars; east slope three-quarters sealed; reflected on structure and plans; fishing line set in stream; sleep soon.
+2026-06-27 23:04 — Day 4 · Night Settles: lay in sleeping bag inside log walls; coals out; stars through open west slope; reflected on the day — all ten rafters, twelve purlins, eight bark courses sealed; sleep.
