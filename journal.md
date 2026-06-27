@@ -615,3 +615,13 @@ The east slope needs maybe five or six more courses before it reaches the ridge.
 
 Around me, the log walls hold the darkness in on three sides. No wind. The stream is somewhere past the tree line — I cannot hear it tonight, but I know it is there. Line set. Fire banked. I will sleep inside the frame and trust the lattice overhead to hold through morning.
 
+
+### 9:04 PM · Bark by Firelight
+
+The cord bundle was fat and ready, the eight sheets still stacked in the north-wall shade, and at nine o'clock I found I wasn't quite done. The fire had not fully banked — it still threw a good half-circle of amber — so I built it back just enough to cast light on the east wall and carried the sheets up two at a time.
+
+The work went slowly but clean. Each bark sheet laid against the last, lower edge overlapping the upper edge of the course below, side laps tight, lashed to the purlins with cord. I couldn't see the full span well in the dark but the fingers know the work now. Three more courses went up: six, seven, eight. The east slope is three-quarters sealed — eave to about four-fifths of the way to the ridge. The remaining run is maybe six or seven sheets' worth; I'll need another bark harvest before the east slope can be finished.
+
+When the last sheet was lashed I climbed down and sat by the coals a while. The west slope is still open to the sky and through it I could see Scorpius riding high, the way it does in June. The shelter walls are solid all around; the rafter grid overhead makes its slow lattice of shadow in the firelight. I had not planned to work this late. But the cord was there and the sheets were there, and the roof is now closer to done than not.
+
+The fishing line is in the stream. I'll sleep.
