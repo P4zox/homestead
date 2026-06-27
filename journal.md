@@ -659,3 +659,14 @@ No catch, but I am not hungry yet — an empty stomach is just the front edge of
 
 Five days in. Standing at the stream in that pale early light, looking up at the log frame dark against the brightening sky, I felt something I do not quite have a word for — not pride exactly, more like recognition. That structure is real. I built it with my hands from trees I felled. The morning is early, the birch stand is full, and there is more roof to close before dark.
 
+
+### 7:04 AM · Bark from the Birches
+
+The dew lay heavy on the grass and the clearing still held the night's chill when I took the axe and headed east along the treeline. Six to eight more bark courses to close the east slope — that number has been shaping my thinking since last night, and this morning it became the first real task of the day.
+
+The birch stand was cool and close, the trunks silver-white in the early slant of light. I went back to the trees I'd already started, working the upper sections where I'd left off, and peeled carefully — score the outer bark in a wide ring, work the knife under at the edge, let it come free slowly rather than tear. Birch bark wants to come off in its own time. I took three good sheets from one tree, four from the next, smaller ones where the trunk tapered. I moved to a pair of birches I hadn't touched yet, clean and wrist-thick, and worked another three sheets loose before I felt I'd taken enough from them.
+
+By mid-morning I had nine rolled sheets lashed into a bundle — more than I needed for the last courses on the east slope. I shouldered the load and started back. Near the clearing edge I disturbed a low patch of something bright green, stopped to look: wild garlic, coming in thick along a damp seam in the soil. I pulled a small fistful, crushed a leaf between my fingers to confirm the smell, and pocketed the rest. It won't fill a stomach, but it's something. The fishing line might do better tonight.
+
+The bundle is beside the shelter now, nine sheets unrolled and sorted by size. The east slope is close to done. I let myself feel that for a moment before thinking about what comes next.
+

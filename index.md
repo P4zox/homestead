@@ -62,3 +62,4 @@ Day 4, 2026-06-27, 20:05 — Second evening of bark-strip peeling by firelight; 
 Day 4, 2026-06-27 22:04 — Sat by coals in late evening; looked up through open west slope at stars; east slope three-quarters sealed; reflected on structure and plans; fishing line set in stream; sleep soon.
 2026-06-27 23:04 — Day 4 · Night Settles: lay in sleeping bag inside log walls; coals out; stars through open west slope; reflected on the day — all ten rafters, twelve purlins, eight bark courses sealed; sleep.
 2026-06-28 06:04 — Day 5 dawn: fishing line came up empty again; re-baited and reset; east slope bark work is today's task
+Day 5, 07:04 — Harvested nine bark sheets from birch stand (east clearing edge); foraged wild garlic; sheets sorted and ready at shelter site.
