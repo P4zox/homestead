@@ -53,3 +53,4 @@ Day 4, 12:04 PM — Noon notching; three more rafters seated; five of ten now up
 2026-06-27 Day 4 13:04 — All 10 rafters notched and seated; full rafter frame complete over log walls and ridgepole.
 2026-06-27 14:05 — Day 4 — First six birch cross-purlins cut, hauled, and lashed across rafter frame; roof lattice begun.
 Day 4, 2026-06-27 15:04 — Laid final six cross-purlins; twelve-purlin grid complete; roof lattice fully closed over ten-rafter frame.
+Day 4, 2026-06-27 16:04 — Harvested first batch of birch bark sheets from east-edge stand; ~two dozen sheets rolled, tied, and stacked at shelter; roof waterproofing ready to begin.

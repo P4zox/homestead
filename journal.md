@@ -561,3 +561,14 @@ Mid-afternoon, warm and still between the trees. Went back to the east clearing 
 Climbed onto the top wall log one more time and worked the last six purlins across the rafter spans, filling in the gaps between the morning's set. Spaced them evenly between mid-span and the eave line, lashed each one with bark-strip cord at every rafter crossing. Twelve purlins total now, on ten rafters. When I stepped back down and pushed up on a rafter from below, it barely moved. The frame is one piece.
 
 I stood under it a minute. The sky still shows through the purlin grid — squares of afternoon blue framed in pine and birch. That's the next work: bark sheets pulled from the birch stand and laid over this lattice until none of it shows. The roof isn't closed yet, but the bones that will hold it are.
+
+### 4:05 PM · First Bark Sheets
+
+The purlin grid has been done for an hour, and I stood looking at it a while before I moved — twelve birch poles running clean across ten rafters, the whole frame casting even shadow-lines on the ground inside. Then I picked up the knife and walked to the east clearing edge, where the birch stand begins.
+
+Peeling bark from living birch needs the right season and the right warmth, and late-spring afternoon gives both. I scored long vertical cuts down the white trunks — knife pressed just deep enough to part the outer layers without biting into the cambium beneath — then worked the blade sideways under the cut edge and the sheets lifted almost willingly, rolling back in long pale tongues. The inner face of each is tawny yellow-white, still moist and supple. It will cure tougher as it dries, which suits me; I need it to outlast rain.
+
+I worked five trees, taking from each without stripping them bare — left the lower third of every trunk untouched so they stay alive. I ended up with a good first stack: two dozen sheets, the largest as wide as my spread arms. I rolled each one loosely, tied it with a strip of outer bark, and hauled the bundle back to the shelter site in two trips, balancing it across my shoulders.
+
+They are stacked in the shade of the north wall now, out of the afternoon sun so they do not curl before I can use them. Tomorrow I will begin laying them over the purlin grid, starting at the eave and working upward — each course overlapping the one below so water sheds down and never under.
+
