@@ -572,3 +572,15 @@ I worked five trees, taking from each without stripping them bare — left the l
 
 They are stacked in the shade of the north wall now, out of the afternoon sun so they do not curl before I can use them. Tomorrow I will begin laying them over the purlin grid, starting at the eave and working upward — each course overlapping the one below so water sheds down and never under.
 
+### 5:04 PM · First Bark Courses
+
+It was time. The bark sheets had been rolled and waiting in the north-wall shade since mid-afternoon — twenty-odd of them, tied with bark-strip cord — and the purlin grid was closed, solid, ready to receive them. I had no more reasons to delay.
+
+Bark goes on eave-first, rough side down, so water sheds off the face of each upper sheet onto the one below — gravity does the sealing. I climbed onto the top wall log on the east side, took the first sheet, and unrolled it at the bottom purlin. It curved back from the harvest; I held it flat with my knee, pressed it against the purlin, and lashed it with a bark-strip tie. The next sheet overlapped the first by a third. Then the next, working westward along the eave, until the full east width was covered in one unbroken course — each sheet edge dripping a hand's-width past the outer wall face.
+
+I stepped down and looked at it from the outside. The eave line is clean. Rain off that will clear the wall.
+
+Back up for a second course — each sheet's lower edge overlapping the upper third of the row below. Two courses now closed on the east slope. The bottom third of the pitch is sealed, and the roof is beginning to look like a roof.
+
+The light was long and golden from the west as I lashed the last tie of the day. I'll be back up there in the morning.
+
