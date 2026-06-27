@@ -643,3 +643,19 @@ Tomorrow: more bark. Six to eight sheets from the birch stand to finish the east
 
 The log walls hold the warmth in. The wind does not find me as easily inside. I close my eyes.
 
+
+---
+
+# Day 5 — Sunday, 28 June 2026
+*late spring · cool and clear at dawn; dew on the ground; warming expected*
+
+### 6:04 AM · Dawn Line, Empty Hook
+
+Woke before full light. The log walls held the cool air close — no wind to speak of, just the still of earliest morning and a sky going pale at the treeline. Lay a moment in the sleeping bag listening: the stream, a bird I do not know by name, the wood settling around me.
+
+Went to the stream first. The fishing line had drawn tight against the mossy bank the way it does when something runs at it — but when I lifted, there was nothing. Hook bare, bait long gone to whatever passed in the dark water. I stood at the edge a while watching the current move, then found a fat grub under a flat stone near the bank, baited the hook fresh, and wedged the line back in its cleft. It will sit there through the morning and I will check it at midday.
+
+No catch, but I am not hungry yet — an empty stomach is just the front edge of a working day, not trouble. The east slope has six or eight bark courses still to go before it meets the ridgepole. That is today: back to the birch stand, cut and peel more sheets, climb onto the east wall and close what remains, then turn to the west slope. Once both slopes are sealed the ridge-cap is the last thing and the roof is done.
+
+Five days in. Standing at the stream in that pale early light, looking up at the log frame dark against the brightening sky, I felt something I do not quite have a word for — not pride exactly, more like recognition. That structure is real. I built it with my hands from trees I felled. The morning is early, the birch stand is full, and there is more roof to close before dark.
+
