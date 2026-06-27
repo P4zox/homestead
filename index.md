@@ -52,3 +52,4 @@ Day 4, 2026-06-27, 06:05 — Three Rafters Felled: new day rollover; fishing lin
 Day 4, 12:04 PM — Noon notching; three more rafters seated; five of ten now up on ridgepole and wall logs.
 2026-06-27 Day 4 13:04 — All 10 rafters notched and seated; full rafter frame complete over log walls and ridgepole.
 2026-06-27 14:05 — Day 4 — First six birch cross-purlins cut, hauled, and lashed across rafter frame; roof lattice begun.
+Day 4, 2026-06-27 15:04 — Laid final six cross-purlins; twelve-purlin grid complete; roof lattice fully closed over ten-rafter frame.

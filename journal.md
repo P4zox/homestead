@@ -553,3 +553,11 @@ When I stepped down and pushed a rafter with my palm, the frame barely moved. Si
 
 Six more poles to lay before the spacing is closed. Then bark work. The afternoon still has light in it.
 
+
+### 3:04 PM · Lattice Closed
+
+Mid-afternoon, warm and still between the trees. Went back to the east clearing edge and cut six more wrist-thick birch poles — limbed them clean, two trips to carry them all up to the shelter. Arms have learned this weight over four days; it barely registers now.
+
+Climbed onto the top wall log one more time and worked the last six purlins across the rafter spans, filling in the gaps between the morning's set. Spaced them evenly between mid-span and the eave line, lashed each one with bark-strip cord at every rafter crossing. Twelve purlins total now, on ten rafters. When I stepped back down and pushed up on a rafter from below, it barely moved. The frame is one piece.
+
+I stood under it a minute. The sky still shows through the purlin grid — squares of afternoon blue framed in pine and birch. That's the next work: bark sheets pulled from the birch stand and laid over this lattice until none of it shows. The roof isn't closed yet, but the bones that will hold it are.
