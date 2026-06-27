@@ -4,3 +4,4 @@
 07:04 — Three trips up the hillside with skid poles; hauled all 3 felled rafter logs from the northwest stand down to the shelter site; they lie beside the log walls ready for notching; mist has lifted, sky clearing.
 08:06 — Returned to northwest stand; felled and limbed 3 more of the 7 remaining blazed rafter pines — all fell clean south into open ground; 3 now lie on hillside ready to haul; 4 blazed pines remain standing in the stand.
 09:04 — Three more haul-runs with skid poles from northwest hillside; brought down the 3 rafter logs felled at 08:06; nine rafter logs now lie at shelter site beside the cabin walls; one blazed pine still standing in the northwest stand.
+10:04 — Felled the last (10th) blazed rafter pine in the northwest stand; limbed it clean; one haul-run with skid poles brought it down to shelter site; all ten rafter logs now lie beside the cabin walls, ready for notching and seating.

@@ -496,3 +496,18 @@ Three trips, same as before. Each one the same rhythm: down empty, rig the log, 
 
 The roof is one day away, I think. That is not a small thing.
 
+
+### 10:04 AM · Last Rafter Down
+
+The morning had gone fully clear by the time I shouldered the axe and walked back upslope for the last time. One pine left blazed in the northwest stand — I had passed it at 06:00, at 08:00, each time noting it still standing while the others came down around it. Something about the last one. You always pause a little before the last one.
+
+I took my time with it. Notched the south face high and deliberate, drove the back-cut level and clean, and the tree swung into the same open corridor the others had used, cracking through the air and landing soft on the duff. The echo ran off the slope and the forest settled back to birdsong. I stripped the limbs methodically — they were thick near the trunk — and rolled the bare log onto the skid poles.
+
+Nine trips have worn the haul line smooth. The hillside knows the path now. I steadied the poles at the midpoint rest, got my weight behind the lower end, and the log came the rest of the way easy. Slid in beside the others with a thud that felt final.
+
+Ten rafter logs. All at site. All stripped and ready.
+
+I leaned on the axe at the top wall and looked at the ridgepole — level end-to-end, socketed firm in both Y-forks, not a wobble in it. The log walls come up to my shoulder all around. A closed perimeter, a clear span of roof line overhead. All that is left between here and a roofed shelter is the notching and seating of the rafters, and that work begins this afternoon.
+
+Nothing was lost this morning. The stand gave every one of its ten trees cleanly. The land has been generous.
+
