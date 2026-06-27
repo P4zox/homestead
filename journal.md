@@ -528,3 +528,17 @@ Worked through a second rafter the same way. Two notched and seated by mid-morni
 ### 12:04 PM · Five Up
 
 Something shifted in the work this hour. The first two rafters this morning were learning — reading the grain, feeling where each log wants the axe to bite. By midday the technique had settled into the body, and I moved through three more without stopping to think. Saddle notch at the ridgepole end, check the fit, seat notch at the wall end, walk the log up and lay it home. Each one locks snug and doesnt
+### 1:04 PM · Last Rafter Seated
+
+The afternoon heat settled into the shelter site — sun near overhead, no shade yet, the log walls throwing only thin bands of shadow across the bare ground inside. I picked up the axe and worked through the last five rafter logs without stopping.
+
+Same motions as the morning: roll each log onto the trestle, mark the ridgepole notch at the high end and the wall seat at the low, cut both notches clean and test them with the log's own weight before lifting. By the fourth one my arms were feeling it — the good kind of ache that lives in the shoulders and forearms after real work. The fifth went up steady. I walked it into position along the ridgepole, settled the saddle notch over the ridge with a hollow thunk, and let the wall-end drop into its seat.
+
+Then I stepped back.
+
+Ten rafters in place. The ridgepole running the full length at the peak, the logs fanning down from it to the top wall logs on each side — the ribs of a real roof, standing on their own weight. I looked at it a long moment. Nothing fell. Nothing shifted. The whole thing held.
+
+This is what I have been building toward. Not a tent propped on poles, but a frame that knows its own shape, that wants to stand. The walls close me in on four sides, the ridge runs overhead, and now ten ribs lie between me and the sky. Cross-purlins come next — short poles lashed across the rafters at three or four points down the slope to bind the frame and carry the bark. I can probably start laying those later this afternoon, once I've rested my arms and eaten.
+
+I sat for a while in the shade of the north wall and just looked at it. A long time since I've sat still in the middle of a day.
+

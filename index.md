@@ -50,3 +50,4 @@ Day 4, 2026-06-27, 06:05 — Three Rafters Felled: new day rollover; fishing lin
 2026-06-27 Day 4 10:04 — Felled last blazed rafter pine; hauled to shelter site; all 10 rafter logs now at cabin walls, ready for notching and seating.
 2026-06-27 11:04 — Day 4 — began notching rafters; first two saddle-notched and seated on ridgepole and top wall log; eight remain
 Day 4, 12:04 PM — Noon notching; three more rafters seated; five of ten now up on ridgepole and wall logs.
+2026-06-27 Day 4 13:04 — All 10 rafters notched and seated; full rafter frame complete over log walls and ridgepole.
