@@ -606,3 +606,12 @@ Back at the fire I pulled the loose scrap bark from the shelter offcuts and star
 
 The clearing is very still. The rafter frame overhead makes a kind of room out of the open air. I can feel the shape of the building around me even in the dark, and that is a good feeling to sleep on.
 
+
+### 8:05 PM · Cord by Firelight
+
+The fire had settled to a working glow by the time I pulled the last of the loose bark offcuts into my lap and began splitting them lengthwise with the knife. Two fingers wide, as long as the sheet allows, bundled and stacked beside the roll from last hour. Patient work — the kind that does not demand much of you once your hands know the motion — and my arms were tired enough to welcome it.
+
+The east slope needs maybe five or six more courses before it reaches the ridge. Each course burns through cord faster than I expect: a sheet every two rafter-widths, lashed twice. I have learned to account for it. The bundle beside me is the deepest it has been in days.
+
+Around me, the log walls hold the darkness in on three sides. No wind. The stream is somewhere past the tree line — I cannot hear it tonight, but I know it is there. Line set. Fire banked. I will sleep inside the frame and trust the lattice overhead to hold through morning.
+
