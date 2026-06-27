@@ -56,3 +56,4 @@ Day 4, 2026-06-27 15:04 — Laid final six cross-purlins; twelve-purlin grid com
 Day 4, 2026-06-27 16:04 — Harvested first batch of birch bark sheets from east-edge stand; ~two dozen sheets rolled, tied, and stacked at shelter; roof waterproofing ready to begin.
 2026-06-27 17:04 — Day 4: began roofing — first two bark courses laid on east slope eave-first, lashed to purlin grid; bark roofing underway
 2026-06-27 18:04 — Day 4 — Laid three more bark courses on east slope; five courses sealed from eave to mid-span; ~8 sheets remaining; lashing cord nearly depleted.
+2026-06-27 19:04 Day 4 — Set overnight fishing line in stream; peeled birch bark into lashing cord by firelight; east slope half-roofed (5 of ~10 courses), cord partially replenished.

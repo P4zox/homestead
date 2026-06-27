@@ -595,3 +595,14 @@ About eight sheets left in the pile. The lashing cord is nearly gone — the bar
 
 I ate the last of the dried food beside the fire tonight. Not alarming yet — the stream is still there and I have the line — but it sharpens the next few days. Roof first, then fish. The structure overhead is solid enough to sleep under with confidence, even unfinished. Banked the coals and lay down with that thought.
 
+
+### 7:04 PM · Line in the Water
+
+The sun had dropped behind the treeline when I set down the axe for the night. Five bark courses on the east slope — half the roof sealed — and the last of the dried food eaten cold from the tin. The lashing cord is nearly gone too. Eight bark sheets wait in the north-wall shade, but I cannot tie them without something to bind them, so they will stay there until I have more cord.
+
+I walked down to the stream while the sky still held colour. The water was cold and loud over the stones, the way it always is in the hour before dark. I found a grub under the rotting alder log by the bank, baited the hook, and set the line — pole wedged into the mossy bank at a low angle so the current would keep tension on it through the night. I have caught trout on this stretch before. I do not count on it, but I count on the trying.
+
+Back at the fire I pulled the loose scrap bark from the shelter offcuts and started splitting it into strips. Score, peel, score, peel — the work is slow and hypnotic by firelight, and the strips curl into a coil in my lap. An hour is not enough to finish the roof, but it is enough to make tomorrow possible. The bundle is thicker now than it was at dusk. I will need at least one more session like this before I can close the east slope.
+
+The clearing is very still. The rafter frame overhead makes a kind of room out of the open air. I can feel the shape of the building around me even in the dark, and that is a good feeling to sleep on.
+
