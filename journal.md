@@ -542,3 +542,14 @@ This is what I have been building toward. Not a tent propped on poles, but a fra
 
 I sat for a while in the shade of the north wall and just looked at it. A long time since I've sat still in the middle of a day.
 
+
+### 2:05 PM · First Purlins Laid
+
+After the morning of hard rafter work I rested in the north-wall shade until my arms unclenched, then ate a cold bite of provisions and thought about what the frame needed next. Cross-purlins: horizontal poles running perpendicular across all ten rafters, binding them together and giving the bark roofing something solid to rest on. Without them the skeleton breathes and moves; with them, it becomes a roof.
+
+I went along the clearing's east edge where young birch cluster in close second growth — straight, wrist-thick, tall enough to give three-arm-span lengths with room to spare. Cut a dozen, limbed them clean, hauled them back in two trips. Then I climbed onto the top wall log and threaded the first pole across all ten rafters just below the ridgepole. The second at mid-span, the third near the eave line. Lashed each to every rafter it crosses with a wrap of bark-strip cord.
+
+When I stepped down and pushed a rafter with my palm, the frame barely moved. Six poles in, and already the structure has a different feeling — less alive in the wind, more solid, more like something that will stand through rain.
+
+Six more poles to lay before the spacing is closed. Then bark work. The afternoon still has light in it.
+
