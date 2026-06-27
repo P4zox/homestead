@@ -59,3 +59,4 @@ Day 4, 2026-06-27 16:04 — Harvested first batch of birch bark sheets from east
 2026-06-27 19:04 Day 4 — Set overnight fishing line in stream; peeled birch bark into lashing cord by firelight; east slope half-roofed (5 of ~10 courses), cord partially replenished.
 Day 4, 2026-06-27, 20:05 — Second evening of bark-strip peeling by firelight; cord bundle substantially replenished; east slope roofing prepared to resume at dawn.
 2026-06-27 21:04 Day 4 — Laid remaining eight bark sheets onto east slope by firelight; three more courses (six–eight); east slope three-quarters sealed.
+Day 4, 2026-06-27 22:04 — Sat by coals in late evening; looked up through open west slope at stars; east slope three-quarters sealed; reflected on structure and plans; fishing line set in stream; sleep soon.

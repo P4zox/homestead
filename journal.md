@@ -625,3 +625,9 @@ The work went slowly but clean. Each bark sheet laid against the last, lower edg
 When the last sheet was lashed I climbed down and sat by the coals a while. The west slope is still open to the sky and through it I could see Scorpius riding high, the way it does in June. The shelter walls are solid all around; the rafter grid overhead makes its slow lattice of shadow in the firelight. I had not planned to work this late. But the cord was there and the sheets were there, and the roof is now closer to done than not.
 
 The fishing line is in the stream. I'll sleep.
+
+### 10:04 PM · Stars Through the Gap
+
+The fire has dropped to a low red pulse. I sit on the north log with my back against the wall timbers, looking up through the open west slope at the stars. Scorpius is still out there — I lose track of exactly where I saw it last night, but the sky is the same uninterrupted dark, and the stars are the same cold steady lights.
+
+The east slope above me is sealed three-quarters of the way to the ridge. Eight full courses of bark, overlapping up from the eave, lashed to every purlin. My hands know that lashing now — the way the strip curls and catches, the particular give when the knot seats right. Tomorrow: six to eight more sheets from the birch stand, and I can close the east slope entirely. Then the west. Then some kind of ridge-cap, which I havent
