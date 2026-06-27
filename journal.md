@@ -485,3 +485,14 @@ The three rafters are lying in the grass beside the log walls now. The ridgepole
 
 Shoulder sore from hauling this morning, but the sky is opening up and the light on the slope looks good — reason enough to go back at it. I walked up to the northwest stand with the axe and picked the next three blazed pines: two close together near the top, one farther west where the stand thins a little. Felled them the same way as the first three — cut the notch shallow on the fall-side, then the back-cut, step clear when the crown begins to tip. All three came down clean to the south into open ground, no snags, no bark tear I hadn't planned. Limbed each one on the spot, stripped the side branches down to the trunk, squared off both ends with a straight cut so they'll seat true on the ridge and the top wall logs. Three more logs lying in a row on the hillside. Four blazed pines still standing in the stand, waiting their turn. I sat on the stump of the first one I felled and ate a handful of the dried grain I've been rationing — the kind of pause that doesn't feel like stopping, just catching your breath between one thing and the next. The mist is completely gone now. The day is warming.
 
+
+### 9:04 AM · Third Haul
+
+Back up the slope with the skid poles — the third time this morning, which is a kind of milestone in itself. The sun has cleared the treeline completely now and the air is warming fast; by midday it will be real summer heat, and I want to be in the shade of the log walls by then.
+
+The three logs from the eight o'clock fell were exactly where I left them, lying in a row on the bracken-covered hillside, stripped and pale where the bark came off. I rigged the first one to the skid poles, got my weight under it, and started down. The path down from the northwest stand has worn itself into something almost like a track now — a narrow groove through the understory where the bracken is crushed flat and the bare mineral soil shows. My feet find it without looking.
+
+Three trips, same as before. Each one the same rhythm: down empty, rig the log, drag it heel-braking through the steeps, ease it out into the light and roll it in beside the others. When I set the last one down I stood for a moment and counted: nine rafter logs lying parallel beside the cabin walls. Nine out of ten. One blazed pine still stands in the northwest corner of the stand — the tallest of the ten, crown swaying a little in the light breeze. It comes down next. Then the notching begins.
+
+The roof is one day away, I think. That is not a small thing.
+

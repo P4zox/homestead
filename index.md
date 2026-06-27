@@ -46,3 +46,4 @@ Day 3, 2026-06-26 23:06 — Lay awake in the log frame beneath the stars; ran th
 Day 4, 2026-06-27, 06:05 — Three Rafters Felled: new day rollover; fishing line empty at dawn; walked to northwest stand; felled and limbed 3 of 10 blazed rafter pines; roof frame work underway.
 2026-06-27 07:04 Day 4 — hauled 3 rafter logs down from the northwest stand to the shelter site; roof frame advancing
 2026-06-27 08:06 — Day 4 — Felled and limbed 3 more rafter pines in northwest stand; 3 on hillside ready to haul, 4 blazed pines remain standing.
+2026-06-27 09:04 — Day 4 · Hauled 3 rafter logs from hillside; 9 of 10 now at shelter site, 1 blazed pine still standing.
