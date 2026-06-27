@@ -511,3 +511,16 @@ I leaned on the axe at the top wall and looked at the ridgepole — level end-to
 
 Nothing was lost this morning. The stand gave every one of its ten trees cleanly. The land has been generous.
 
+
+### 11:04 AM · First Notches Cut
+
+All ten rafter logs lie beside the cabin walls now — the morning's long hauling work is done. I stood looking at them for a moment before picking up the axe: ten clean pine lengths, stripped and waiting, while the ridgepole overhead held steady in both Y-fork posts and the log walls stood shoulder-height all around. Everything assembled and ready. Nothing left to do but start.
+
+So I started notching.
+
+The work is slow and careful. Each rafter wants two cuts — a saddle notch at the top end to cradle the ridgepole, a seat notch near the foot to hook the top wall log. Score the line with the knife first, then the axe in careful paring strokes. The wood came off cleanly; pine this fresh splits well when you respect the grain. I finished the first rafter's ridgepole notch and lifted it into position just to check the fit. It settled onto the ridgepole snug — satisfying out of all proportion to the small work it was.
+
+The seat notch at the wall end took a few more tries. I shaved it twice before the rafter sat flat on the top wall log without rocking. But it held, and that was the first one done.
+
+Worked through a second rafter the same way. Two notched and seated by mid-morning, eight more to go. The roof frame is beginning — a slow line of rafters crossing from wall to ridgepole, each one a step closer to shelter that doesn't depend on the tent.
+
