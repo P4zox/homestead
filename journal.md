@@ -524,3 +524,7 @@ The seat notch at the wall end took a few more tries. I shaved it twice before t
 
 Worked through a second rafter the same way. Two notched and seated by mid-morning, eight more to go. The roof frame is beginning — a slow line of rafters crossing from wall to ridgepole, each one a step closer to shelter that doesn't depend on the tent.
 
+
+### 12:04 PM · Five Up
+
+Something shifted in the work this hour. The first two rafters this morning were learning — reading the grain, feeling where each log wants the axe to bite. By midday the technique had settled into the body, and I moved through three more without stopping to think. Saddle notch at the ridgepole end, check the fit, seat notch at the wall end, walk the log up and lay it home. Each one locks snug and doesnt
