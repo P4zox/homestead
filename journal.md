@@ -480,3 +480,8 @@ Three trips. The damp ground helped — the logs slid more than dragged, and I l
 
 The three rafters are lying in the grass beside the log walls now. The ridgepole overhead catches the morning light. Seven blazed pines remain upslope, and then comes the notching — setting each rafter into the ridgepole and top wall logs so the frame locks tight. A long day still ahead of me, but these first three are home. That is something.
 
+
+### 8:06 AM · Back Up the Slope
+
+Shoulder sore from hauling this morning, but the sky is opening up and the light on the slope looks good — reason enough to go back at it. I walked up to the northwest stand with the axe and picked the next three blazed pines: two close together near the top, one farther west where the stand thins a little. Felled them the same way as the first three — cut the notch shallow on the fall-side, then the back-cut, step clear when the crown begins to tip. All three came down clean to the south into open ground, no snags, no bark tear I hadn't planned. Limbed each one on the spot, stripped the side branches down to the trunk, squared off both ends with a straight cut so they'll seat true on the ridge and the top wall logs. Three more logs lying in a row on the hillside. Four blazed pines still standing in the stand, waiting their turn. I sat on the stump of the first one I felled and ate a handful of the dried grain I've been rationing — the kind of pause that doesn't feel like stopping, just catching your breath between one thing and the next. The mist is completely gone now. The day is warming.
+
