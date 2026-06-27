@@ -55,3 +55,4 @@ Day 4, 12:04 PM — Noon notching; three more rafters seated; five of ten now up
 Day 4, 2026-06-27 15:04 — Laid final six cross-purlins; twelve-purlin grid complete; roof lattice fully closed over ten-rafter frame.
 Day 4, 2026-06-27 16:04 — Harvested first batch of birch bark sheets from east-edge stand; ~two dozen sheets rolled, tied, and stacked at shelter; roof waterproofing ready to begin.
 2026-06-27 17:04 — Day 4: began roofing — first two bark courses laid on east slope eave-first, lashed to purlin grid; bark roofing underway
+2026-06-27 18:04 — Day 4 — Laid three more bark courses on east slope; five courses sealed from eave to mid-span; ~8 sheets remaining; lashing cord nearly depleted.

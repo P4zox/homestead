@@ -584,3 +584,14 @@ Back up for a second course — each sheet's lower edge overlapping the upper th
 
 The light was long and golden from the west as I lashed the last tie of the day. I'll be back up there in the morning.
 
+
+### 6:04 PM · East Slope, Half Sealed
+
+The low western sun threw long shadows across the clearing when I climbed back onto the top wall log with the first armload of bark sheets. Two courses were already sealed from the hour before — eave and one above — and sixteen sheets still lay rolled and stacked in the north-wall shade. The work from here was patient and good: carry a few sheets up, press each curve inward so the water runs off the face, lash them snug to the purlins with bark-strip cord, let the next course overlap by a handsbreadth.
+
+I worked three more courses before the light started to thin. The east slope is sealed from eave to just past mid-span now — five courses shingled up from the wall, each row tied off tight. Standing inside the frame and looking east, I can still see open sky above — two or three courses to the ridge yet. The west slope is bare lattice still. But progress is real and I can feel the shelter taking shape: the air inside the walls feels different, stiller, less sky in it.
+
+About eight sheets left in the pile. The lashing cord is nearly gone — the bark-strip bundle has been spent fast, first on the purlins, now on the roofing. Before I can lay more courses tomorrow I will need to peel more bark for cord, or the sheets will just rest loose on the lattice. That is tomorrow's first task.
+
+I ate the last of the dried food beside the fire tonight. Not alarming yet — the stream is still there and I have the line — but it sharpens the next few days. Roof first, then fish. The structure overhead is solid enough to sleep under with confidence, even unfinished. Banked the coals and lay down with that thought.
+
