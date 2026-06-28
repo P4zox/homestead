@@ -670,3 +670,14 @@ By mid-morning I had nine rolled sheets lashed into a bundle — more than I nee
 
 The bundle is beside the shelter now, nine sheets unrolled and sorted by size. The east slope is close to done. I let myself feel that for a moment before thinking about what comes next.
 
+
+### 8:05 AM · East Slope Closed
+
+The nine bark sheets were already rolled and sorted at the shelter site when I came back from the birch stand — everything staged and waiting. I knelt at the east slope and took stock: three or four courses to close before the gap reached the ridgepole. The wide sheets from the bigger trees would handle the open middle; a few narrower ones I would double-up at the top where the pitch steepens and the distance between purlins closes in.
+
+I worked from the last sealed course upward, lapping each new sheet a hand's width over the one below and pressing the bark flat against the purlin while I ran the lashing cord around. Bark wants to curl the moment you let go of it — you hold it with your knee, keep tension in the cord, work fast. But once the knot sets, the sheet settles into place and each course made the whole slope a little stiffer.
+
+By mid-morning the east face ran continuous from eave to ridgepole. I cut a final half-sheet into a ridge cap and lashed it over both slopes — a thumb's overlap to each side, cord drawn down tight at both ends. Then I ducked inside and pressed a hand flat against the underside of the roof: dark. No pale strips of sky.
+
+One full slope sealed. If rain comes before the west side is covered, at least half the sleeping space stays dry. That is enough to sleep a little easier tonight.
+
