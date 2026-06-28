@@ -681,3 +681,14 @@ By mid-morning the east face ran continuous from eave to ridgepole. I cut a fina
 
 One full slope sealed. If rain comes before the west side is covered, at least half the sleeping space stays dry. That is enough to sleep a little easier tonight.
 
+
+### 9:04 AM · Forest Edge Forage
+
+The east slope sealed and the ridge-cap laid, the shelter is a closed thing on its windward side — dark inside when I press my ear to the bark and feel the cool. That is good. But the cook tin is empty and I have been telling myself the line will catch something. Two mornings it has not.
+
+So I went into the trees with the knife out and real intention. Worked the clearing margin east and north, where the shade stays thick and the ground holds damp — that is where the nettles run. Found them quickly: a dense stand waist-high against a fallen pine, and more along the stream bank. Cut an armful, folding them into my shirt with the cuffs pulled down. Dug dandelion roots at the clearing edge. Added a big handful of wild garlic from the birch stand I have been working all week.
+
+Back at the shelter: boiled a full cook-tin of stream water, dropped the nettles in first — their sting gone in moments — then garlic and dandelion root. A thin green soup but warm and mineral and filling. Ate it slowly. The body settles after that in a way I had forgotten. A meal of a different kind than I am used to wanting, but the right kind for now.
+
+The fishing line is still in the stream. If something takes it tonight I will eat better tomorrow. For now, this is enough to steady my hands for the afternoon's work.
+

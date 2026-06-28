@@ -64,3 +64,4 @@ Day 4, 2026-06-27 22:04 — Sat by coals in late evening; looked up through open
 2026-06-28 06:04 — Day 5 dawn: fishing line came up empty again; re-baited and reset; east slope bark work is today's task
 Day 5, 07:04 — Harvested nine bark sheets from birch stand (east clearing edge); foraged wild garlic; sheets sorted and ready at shelter site.
 2026-06-28 Day 5 08:00 — Laid remaining bark courses on east slope; east roof face now fully sealed eave to ridge; ridge cap lashed.
+2026-06-28 09:04 — Day 5 · Forest edge forage: nettles, dandelion root, wild garlic — boiled green soup eaten; first real meal in two days; fishing line still set; west slope bark work ahead.
