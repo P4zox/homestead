@@ -70,3 +70,4 @@ Day 5, 11:04 AM — Lashed six west-slope bark sheets as first two eave courses;
 Day 5, 12:04 PM — Checked fishing line at noon; caught a small trout, first fish — cooked on green-stick frame over coals; ate well; re-baited and reset line.
 2026-06-28 13:04 — Day 5 — Peeled third west birch (5 sheets); lashed 3rd and 4th eave courses on west slope — four courses sealed, upper half still open.
 Day 5, 2026-06-28 14:00 — Scouted 70m into west tree line; found two untouched mature birch; peeled eight large bark sheets in two trips; hauled all back to shelter — eight sheets staged at west-slope base.
+Day 5, 2026-06-28 15:00 — Lashed eight staged sheets as three more west-slope courses; seven courses total, upper slope three-quarters closed; two courses to the ridge.

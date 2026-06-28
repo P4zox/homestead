@@ -755,3 +755,8 @@ The walk back was heavier than the walk out. Hauled all eight in two loads, arms
 
 Good afternoon light still; fishing line sitting quiet in the stream. I'll check it at four.
 
+
+### 3:04 PM · Climbing the West
+
+Afternoon light came low over the pines when I gathered up the eight staged sheets and carried them to the base of the west slope. The lower four courses hold solid — I ran a hand across them to check the lashing before starting above. Sheet by sheet I worked upward, overlapping each new piece an inch below the nail gap of the last, cinching the cord-wrap around the purlin, pressing each sheet flat before moving on. The bark is more pliable in this afternoon warmth than I expected; it conforms a little to the curve of the roof, which is a good thing. Three more courses went up clean. Seven courses total now, from eave to three-quarters of the way up — the opening above is narrowing, and I can feel the shift in the air inside: less sky, less wind, more shelter. One or two courses and the ridge cap goes on and the west face will match the east. The fishing line is still waiting. I will check it at four.
+
