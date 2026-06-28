@@ -733,3 +733,14 @@ No salt. Still good. Better than good.
 
 Line re-baited, reset in the same cleft. Afternoon goes back to bark.
 
+
+### 1:04 PM · Third Birch, Upper Slope
+
+The afternoon sun has moved past its high point when I shoulder the axe and head back to the west stand. The third birch — the one I'd left untouched this morning, a little thicker than the others — stands forty meters out at the clearing's edge. I work methodically: score the bark in a long vertical slit, ease the flint-handle under the edge, then peel slowly in broad curling sheets. Five good ones come free, each wider than my chest. A sixth started to crack so I left it on the tree.
+
+Rolled them tight and hauled them back to the shelter in two trips. The stack beside the west wall is modest but it's something. I set straight to lashing — third course first, then the fourth. Bark-side up, each sheet lapped two fingers over the one below, cord wrapped twice around each purlin it crosses. The rhythm is almost meditative by now: lay, lap, wrap, pull snug. The west slope is crawling upward.
+
+Four courses sealed now from the eave. Standing inside and looking up through the open upper half, I can see the ridgepole and beyond it the bright blue of mid-afternoon. The upper lattice still needs covering — roughly half the slope remains open — but the covered band is widening hour by hour. The third birch gave five sheets and it's not fully spent; there may be two or three more in it tomorrow. Beyond that I'll scout further into the west tree line.
+
+Fishing line is resting in the stream. I'll check it around four.
+
