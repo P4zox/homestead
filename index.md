@@ -73,3 +73,4 @@ Day 5, 2026-06-28 14:00 — Scouted 70m into west tree line; found two untouched
 Day 5, 2026-06-28 15:00 — Lashed eight staged sheets as three more west-slope courses; seven courses total, upper slope three-quarters closed; two courses to the ridge.
 Day 5, 16:04 — Checked fishing line; second small trout caught, cooked, and eaten; re-baited for overnight; west slope nearly closed.
 2026-06-28 17:04 Day 5 — Walked to west tree-line birch; peeled seven final bark sheets; hauled to shelter and staged at west-slope base — final lashing imminent.
+2026-06-28 18:04 Day 5 — Lashed final west-slope bark courses and ridge cap; shelter roof now fully closed on both slopes; a real roof over log walls at last.

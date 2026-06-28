@@ -780,3 +780,18 @@ Walked back through the tree line to the two mature birch I found this morning. 
 
 Hauled everything back in one load, arms full. The sheets are staged flat at the west slope base now, ready. Tomorrow first thing — or tonight if the light holds past the treeline — the west face closes.
 
+
+### 6:04 PM · The Roof Closes
+
+The light was still good at six — angled and golden through the pines, not fading yet — and the seven sheets lay flat at the west-slope base exactly where I left them an hour ago. I looked at them a moment, then picked up the first one.
+
+Two courses. That is all that stood between me and a closed roof.
+
+I worked from left to right, bark-side up, the way I have all week. The first four sheets went onto the lower of the two remaining courses: lapped well over the course below, two wraps of cord at each purlin crossing, pulled tight. The upper course took three sheets — wider overlap to the ridge, each one snugged against its neighbor. I climbed up and pressed my palm along the seam where east ridge cap met west: solid, no gap, the bark warm from the day.
+
+Then the ridge cap. One half-sheet of bark, curved side down over both slopes at the peak, lashed to the ridgepole at four points. I have done this already on the east side; I knew the motion. When I pulled the last cord and knotted it, I sat back on the rafter and looked down the slope. Both sides sealed, eave to ridge. The west slope is done.
+
+I climbed down and walked around the shelter once. The inside was dark — properly dark, not tent-dark but wood-and-bark dark, the kind that holds heat and keeps rain out. I ran my hand along the east wall inside. It smelled of pine resin and birch. Five days ago I had a tent and an axe. Now I have walls at shoulder height and a roof that will shed rain.
+
+The fishing line is still in the stream, set overnight. I checked the coals — banked well, slow burn — and ate the last of the stored garlic while the light went pink and long. Tomorrow I will think about a door, a latch, some way to seal the end walls higher. But tonight the roof is closed and that is enough.
+
