@@ -744,3 +744,14 @@ Four courses sealed now from the eave. Standing inside and looking up through th
 
 Fishing line is resting in the stream. I'll check it around four.
 
+
+### 2:05 PM · Deeper West, More Bark
+
+Midafternoon and the shelter is closer to whole than it's ever been — four eave courses on the west slope, east face sealed tight, the ridgepole solid overhead. But the upper west slope is still open lattice and every idle hour is a gamble if weather turns. The three birch I found forty meters out are spent now: lower thirds left standing, the rest taken. So I kept walking.
+
+Pushed another thirty meters into the tree line, past a deadfall spruce and a clump of young alder, and found what I was hoping for — two mature birch with full canopies, untouched, bark thick and smooth as paper on the lower trunks. I took four large sheets from the first tree, careful to leave the cambium breathing, then four more from the second. Eight sheets total, rolled and stacked at the foot of the tree while I rested a moment in the shade.
+
+The walk back was heavier than the walk out. Hauled all eight in two loads, arms full and back working, and laid them flat near the shelter. If tomorrow's energy holds, or even this evening's, those eight should cover two more full courses up the west slope — maybe three if I cut and overlap carefully. The upper open lattice might close within a day.
+
+Good afternoon light still; fishing line sitting quiet in the stream. I'll check it at four.
+
