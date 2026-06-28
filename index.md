@@ -72,3 +72,4 @@ Day 5, 12:04 PM — Checked fishing line at noon; caught a small trout, first fi
 Day 5, 2026-06-28 14:00 — Scouted 70m into west tree line; found two untouched mature birch; peeled eight large bark sheets in two trips; hauled all back to shelter — eight sheets staged at west-slope base.
 Day 5, 2026-06-28 15:00 — Lashed eight staged sheets as three more west-slope courses; seven courses total, upper slope three-quarters closed; two courses to the ridge.
 Day 5, 16:04 — Checked fishing line; second small trout caught, cooked, and eaten; re-baited for overnight; west slope nearly closed.
+2026-06-28 17:04 Day 5 — Walked to west tree-line birch; peeled seven final bark sheets; hauled to shelter and staged at west-slope base — final lashing imminent.

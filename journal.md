@@ -771,3 +771,12 @@ Re-baited the hook with a fat grub from the stone pile near the bank and reset t
 
 Two fish in one day. The stream is being generous, and I am grateful for it. Tomorrow, with fresh hands and whatever morning gives me, I will finish the west slope and lay the ridge cap. The shelter is nearly done. I can feel the whole shape of it now.
 
+
+### 5:04 PM · Last Bark Haul
+
+The rest of the afternoon opens ahead — light still long, body fed, fishing line doing its quiet work in the cleft. What remains before this shelter is truly closed: one or two courses of bark on the west slope, then a ridge cap to match the east. For that I need five or six more sheets, and I know exactly where they are.
+
+Walked back through the tree line to the two mature birch I found this morning. The path is already a worn track — my own making, just today. Both trees stood where I left them, good bark still above the stripped band. I worked the knife gently up each trunk, scoring wide, rolling without tearing, pulling sheets that came free clean. Five from the nearer tree, two from the farther — seven total, more than enough. The forest at this hour has a different quality from morning: the light comes through at angles, warm on the pale trunks, and the birdsong has shifted from the busy dawn chorus to something quieter and more settled, a single thrush somewhere in the pines.
+
+Hauled everything back in one load, arms full. The sheets are staged flat at the west slope base now, ready. Tomorrow first thing — or tonight if the light holds past the treeline — the west face closes.
+
