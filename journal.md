@@ -848,3 +848,14 @@ For now: this is enough. The fishing line is in the water. The axe is dry. The f
 
 So am I.
 
+
+### 11:04 PM · Into Sleep
+
+Sleep edges in slowly when you have earned it. The coals under the ash send a steady warmth through the shelter floor, and the open gable triangles let in just enough cold air to make the sleeping bag feel like a true thing — weight and purpose. An owl called a while ago from the west tree line. It did not call again.
+
+I have been listing tomorrow in my head: seal the gable triangles, bark low and wattle near the peak; check the fishing line at first light; start thinking more seriously about food stores beyond what I can catch or forage each day. The list is good — it means there is still work to do, which means there is still structure to the days ahead. That is a comfort.
+
+The shelter is whole. The roof does not move in the light wind I can hear in the pines. Somewhere out past the east wall the stream is running in the dark, and the fishing line is down there in the cleft waiting. I will know in the morning.
+
+Sleep now.
+

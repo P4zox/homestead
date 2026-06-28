@@ -78,3 +78,4 @@ Day 5, 19:04 — First evening inside completed shelter; small fire on shelter f
 Day 5, 2026-06-28, 20:06 — Cord by Firelight: braided new lashing cord by firelight; studied open gable triangles; planned tomorrow's end-wall sealing; banked coals and settled in to sleep under completed roof for first night.
 Day 5, 21:04 — Stepped outside into the cool dark; stood under clear sky with Scorpius south; listened to the pines through open gable triangles; settled back into sleeping bag for first full night inside completed shelter.
 2026-06-28 22:04 — Day 5 — Lay in sleeping bag inside completed shelter; listened to the stream and one owl through open gable triangles; reflected on four days of building; coals banked, fishing line set for dawn, drifting to sleep.
+2026-06-28 23:04 — Day 5 · Into Sleep — drifted toward sleep in completed shelter; coals warm, gable triangles open, fishing line in stream; tomorrow: seal end walls, food stores
