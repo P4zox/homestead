@@ -810,3 +810,16 @@ The fishing line is set in the mossy cleft and the night can take it. Tomorrow I
 
 Tonight I sleep under a real roof for the first time.
 
+
+### 8:06 PM · Cord by Firelight
+
+The fire has settled into a bed of coals, steady and orange. I sit with my back against the west wall log and the bark-strip bundle between my knees, and I start splitting strips by firelight.
+
+It is the right work for this hour. The strips are still pliable from the day's warmth; they yield cleanly to the thumbnail and peel off in long, even sections. I braid three at a time — a simple three-plait, tight as I can manage — and wind each finished arm-length into the growing coil beside me. The work is repetitive in the good way: hands busy, mind loose, smoke drifting up through the open gable gaps and out into the dark above.
+
+Those gaps keep drawing my eye. Both end walls stand open above the fourth log course — the gable triangles, where the roof slope rises from the top log to the ridgepole peak — and the night air moves through them freely. Smoke out, cold in. Tomorrow that changes: bark low where I can reach it, wattle or cut-branch fill packed in near the ridge peak. I traced the shape with my hands after supper, feeling the angle. I know roughly how many bark sheets it will take — four or five per side, cut to fit the diminishing triangle — and for the upper peak I will need a bundle of straight whips and a day of weaving.
+
+The cord coil is nearly an arm's length wide now. I tie off the end, set it beside the axe, and bank the coals. The fishing line is in the stream. The roof is overhead. I unroll the sleeping bag on the floor and lie down for the first time fully enclosed.
+
+It is enough.
+
