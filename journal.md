@@ -692,3 +692,16 @@ Back at the shelter: boiled a full cook-tin of stream water, dropped the nettles
 
 The fishing line is still in the stream. If something takes it tonight I will eat better tomorrow. For now, this is enough to steady my hands for the afternoon's work.
 
+
+### 10:04 AM · West Slope Scouting
+
+The morning has settled into something easy — mild air, the sun past the tops of the pines and warming the needles. The green soup from an hour ago is still good and warm in my stomach.
+
+The east slope is done. I pressed a palm against the bark underside to check it again this morning — dark inside, no light bleeding through, the sheets firm and lapped tight all the way to the ridge cap. Done is done, and it is a real satisfaction.
+
+So now: the west slope. I walked out to the west edge of the clearing with the axe and knife and looked for birch that had not been touched yet. Found three good-sized birches in a loose stand maybe forty meters out — not the abundance the east edge gave me, but enough to begin. I scored the bark in long vertical cuts, worked the first panel loose with the flat of my palm, rolled it as I went. The sheets come off cleanly in this warmth; the wood is still green and the bark pliable. I pulled six large sheets from the first two trees before the inner wood started showing through, which is as far as I take any one tree.
+
+Hauled the first load back to the shelter and laid the sheets flat near the west-slope base to hold their shape. The west rafters are open sky right now, the purlins just sitting there waiting. Six sheets is not enough to close the slope, but it is the thing started, and started well.
+
+I can hear the stream from the clearing edge. I will check the fishing line at midday.
+
