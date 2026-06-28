@@ -859,3 +859,19 @@ The shelter is whole. The roof does not move in the light wind I can hear in the
 
 Sleep now.
 
+
+---
+
+# Day 6 — Monday, 29 June 2026
+*Late spring · cool and still at dawn; mist in the low ground*
+
+### 6:04 AM · First Dawn Inside
+
+Woke with the birds, coals barely warm under the ash. Crawled out of the sleeping bag in the grey light and walked the short path down to the stream. The mist was low and close, the kind that makes everything quiet. The fishing line was taut in the mossy cleft — I pulled it and felt weight. A small trout, not much bigger than my hand, but clean and bright from the cold water.
+
+Brought it back to the shelter, blew the ash until a coal caught, and fed the fire up from the banked embers. Cooked the fish on the green-stick frame over fresh flame. Ate breakfast inside the completed shelter for the first time — sitting with my back against the west wall log, morning light coming in long bars through the open gable triangles, the stream still audible below.
+
+I sat with the cook tin for a while after eating and did not move. There is something about having a roof you built yourself. The rain can come now. The wind can come. I will be dry.
+
+Re-baited the hook with a grub from under a stream-bank stone and reset the line in the cleft for the morning. Today: seal those gable triangles. Think harder about food.
+

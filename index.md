@@ -79,3 +79,4 @@ Day 5, 2026-06-28, 20:06 — Cord by Firelight: braided new lashing cord by fire
 Day 5, 21:04 — Stepped outside into the cool dark; stood under clear sky with Scorpius south; listened to the pines through open gable triangles; settled back into sleeping bag for first full night inside completed shelter.
 2026-06-28 22:04 — Day 5 — Lay in sleeping bag inside completed shelter; listened to the stream and one owl through open gable triangles; reflected on four days of building; coals banked, fishing line set for dawn, drifting to sleep.
 2026-06-28 23:04 — Day 5 · Into Sleep — drifted toward sleep in completed shelter; coals warm, gable triangles open, fishing line in stream; tomorrow: seal end walls, food stores
+Day 6, Jun 29 2026, 06:04 — Checked overnight fishing line at dawn; pulled a small trout; cooked and ate first breakfast inside completed shelter; gable triangles and food stores next.
