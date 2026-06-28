@@ -705,3 +705,16 @@ Hauled the first load back to the shelter and laid the sheets flat near the west
 
 I can hear the stream from the clearing edge. I will check the fishing line at midday.
 
+
+### 11:04 AM · Bark to the West
+
+The six sheets I hauled up from the western stand an hour ago were leaning against the base of the west wall, bark-side in to keep the curve. By eleven I was ready to work them onto the slope.
+
+The method is settled now — I do it almost without thinking. Lay the sheet at the bottom purlin, bark-side up and overlapping the eave, punch two holes with the knife tip, thread the lashing-cord through and wrap twice around the purlin, pull tight. The birch bark here is dense and springy; it wants to roll back on itself, but once it is under cord it holds flat. Sheet by sheet, working left to right along the eave, then back again on the second course.
+
+Six sheets covered two full courses from the eave line up. It is not much of the slope — the open lattice above still shows sky between every purlin — but the eave is sealed on the west side now. Rain running down would find bark before it found the sleeping bag. Something, at least. Something real.
+
+I will need a lot more. The two birch I started on the west edge may give me another four or five sheets; there is one untouched tree left in that stand. Beyond that I will have to scout further west or take from trees I have not found yet.
+
+The stream is quiet this morning. I will check the fishing line at noon.
+

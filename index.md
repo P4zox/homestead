@@ -66,3 +66,4 @@ Day 5, 07:04 — Harvested nine bark sheets from birch stand (east clearing edge
 2026-06-28 Day 5 08:00 — Laid remaining bark courses on east slope; east roof face now fully sealed eave to ridge; ridge cap lashed.
 2026-06-28 09:04 — Day 5 · Forest edge forage: nettles, dandelion root, wild garlic — boiled green soup eaten; first real meal in two days; fishing line still set; west slope bark work ahead.
 2026-06-28 10:04 — Day 5 — Scouted west clearing edge; peeled six large bark sheets from two birch; hauled to shelter; west slope bark work begun.
+Day 5, 11:04 AM — Lashed six west-slope bark sheets as first two eave courses; west slope bark begun, eave covered
