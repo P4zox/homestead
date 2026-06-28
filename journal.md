@@ -795,3 +795,18 @@ I climbed down and walked around the shelter once. The inside was dark — prope
 
 The fishing line is still in the stream, set overnight. I checked the coals — banked well, slow burn — and ate the last of the stored garlic while the light went pink and long. Tomorrow I will think about a door, a latch, some way to seal the end walls higher. But tonight the roof is closed and that is enough.
 
+
+### 7:04 PM · First Evening In
+
+The day's last light was gold across the clearing when I carried in a small armful of dry wood from the fallen pine near the northeast edge. Got a fire going on the shelter floor — just enough to take the chill off. The smoke found its way out through the open end-wall gaps and drifted into the trees.
+
+I sat with my back against the west wall log and looked up. The bark overhead is dark and close. I pressed a palm against the nearest rafter and felt nothing move. This is the first time I've sat fully enclosed here: not in the open, not under a tent, not against a tree. Inside. The roof holds.
+
+I can't quite name the feeling. Not pride exactly — something quieter. Relief, maybe, or just a plain acknowledgment. If rain came tonight I would stay dry.
+
+The end walls are still open above the fourth log course. Those open gable triangles will need bark on the lower half and some kind of wattle or filling near the ridge peak. The east opening wants a door. These are good problems — the problems of someone who has a shelter and is working outward from it.
+
+The fishing line is set in the mossy cleft and the night can take it. Tomorrow I check it at first light.
+
+Tonight I sleep under a real roof for the first time.
+
