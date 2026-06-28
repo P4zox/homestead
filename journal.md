@@ -823,3 +823,16 @@ The cord coil is nearly an arm's length wide now. I tie off the end, set it besi
 
 It is enough.
 
+
+### 9:04 PM · Still Night
+
+I stepped outside for a few minutes — sleeping bag left unrolled, axe leaned against the wall log, coals breathing faintly under banked ash. The air was that particular cool-clarity that follows a long warm day: thin, piney, faintly damp from the stream. Above the clearing the sky was open and deep. Scorpius hung low in the south, same as every night, not caring what I had built today.
+
+Through the open gable triangles at each end of the shelter I could hear the pines shifting on the slope — a slow, patient sound. Inside, with the bark roof above me, the wind becomes a sound rather than a thing felt. That is the difference a roof makes. I had not quite expected to notice it so plainly.
+
+I stood on the packed earth outside the east-end opening and looked back at the shelter: four courses of log wall, the ridgepole a dark line in the night, bark courses sealed eave to ridge on both slopes. It does not look grand. It looks solid. There is a gap between those things that once felt wide, and now feels narrow.
+
+Fishing line is out in the mossy cleft. Tomorrow I seal the gable ends — bark low, wattle toward the peak. Tonight the open triangles let in enough of the night that I do not feel sealed away from it.
+
+That is enough. I came in, lay down, and let the quiet do the rest.
+
