@@ -718,3 +718,18 @@ I will need a lot more. The two birch I started on the west edge may give me ano
 
 The stream is quiet this morning. I will check the fishing line at noon.
 
+
+### 12:04 PM · Noon Catch
+
+By noon the air had lost whatever bite was left in it — just light and pine smell and the sound of the stream. I walked down with the cook tin, expecting the usual: a bare hook, bait gone, nothing to show. Three days of empty lines train you toward that expectation.
+
+There was weight.
+
+A small trout — barely palm-length, but cold and firm and real — had taken the grub bait sometime in the morning and wrapped itself around the stone in the mossy cleft. I lifted it out and stood there longer than necessary, just holding it over the current. Small. Still the first fish. Still a thing I had not had yesterday.
+
+I cleaned it on a flat stone at the bank, rinsed my hands in the stream, and carried it back up to the shelter. The coals were still warm from breakfast. I cut two green sticks and rigged a low frame over the fire ring, laid the trout across it skin-down. Ate it in the shade of the east wall — the bark face solid behind me, the west slope open lattice in front, the afternoon already starting to tilt toward the work still due.
+
+No salt. Still good. Better than good.
+
+Line re-baited, reset in the same cleft. Afternoon goes back to bark.
+
