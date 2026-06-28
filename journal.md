@@ -760,3 +760,14 @@ Good afternoon light still; fishing line sitting quiet in the stream. I'll check
 
 Afternoon light came low over the pines when I gathered up the eight staged sheets and carried them to the base of the west slope. The lower four courses hold solid — I ran a hand across them to check the lashing before starting above. Sheet by sheet I worked upward, overlapping each new piece an inch below the nail gap of the last, cinching the cord-wrap around the purlin, pressing each sheet flat before moving on. The bark is more pliable in this afternoon warmth than I expected; it conforms a little to the curve of the roof, which is a good thing. Three more courses went up clean. Seven courses total now, from eave to three-quarters of the way up — the opening above is narrowing, and I can feel the shift in the air inside: less sky, less wind, more shelter. One or two courses and the ridge cap goes on and the west face will match the east. The fishing line is still waiting. I will check it at four.
 
+
+### 4:04 PM · Second Catch
+
+The line came up with another fish — a small trout, close in size to the noon one, wedged into the mossy cleft where the current slows. Four hours in the cold water and the hook held.
+
+I cleaned it on the flat stone at the bank, the way I did at noon: quick cuts, rinse in the current, nothing wasted. Carried it back to the shelter wrapped in a broad leaf and cooked it on the green-stick frame over a few rekindled coals. Ate it slowly, sitting on the sill log and looking up through the rafter frame at the open west slope. The east side is sealed now — dark and close above my head on that side — and the open lattice to the west is full of late-afternoon sky and the tops of pines. Soon that will be bark and shadow too.
+
+Re-baited the hook with a fat grub from the stone pile near the bank and reset the line deep in the cleft. I anchored the cord to the same root as before and left it to work overnight. I will check it at first light.
+
+Two fish in one day. The stream is being generous, and I am grateful for it. Tomorrow, with fresh hands and whatever morning gives me, I will finish the west slope and lay the ridge cap. The shelter is nearly done. I can feel the whole shape of it now.
+
