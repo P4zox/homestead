@@ -836,3 +836,15 @@ Fishing line is out in the mossy cleft. Tomorrow I seal the gable ends — bark 
 
 That is enough. I came in, lay down, and let the quiet do the rest.
 
+### 10:04 PM · Last Light Inside
+
+The coals have settled under their bed of ash and the shelter is dim and warm. I am on my back in the sleeping bag, listening. Through the open gable triangles above the end walls, a strip of night sky shows — I can pick out a few stars from here without moving my head. The stream talks to itself somewhere downhill. An owl, once, from the west tree line.
+
+I have spent four and a half days building toward this exact moment: lying inside a roof I made from the forest. The bark does not leak. The logs do not shift. The ridgepole does not creak. It is exactly what it needs to be.
+
+Tomorrow I will seal the gable triangles — bark low, wattle near the ridge peak — and hang something for a door. Then I need to think seriously about food stores. Two trout a day is enough to live on, but barely. The forest has more to give if I look a little harder.
+
+For now: this is enough. The fishing line is in the water. The axe is dry. The fire is sleeping.
+
+So am I.
+
