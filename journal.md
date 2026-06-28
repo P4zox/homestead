@@ -875,3 +875,14 @@ I sat with the cook tin for a while after eating and did not move. There is some
 
 Re-baited the hook with a grub from under a stream-bank stone and reset the line in the cleft for the morning. Today: seal those gable triangles. Think harder about food.
 
+
+### 7:04 AM · Withies for the Gable
+
+The mist still sat heavy in the low ground when I started into the tree line with my axe and knife. Breakfast was done; the fire was banked. The gable triangles had been on my mind since I lay down last night — two open wedges at each end wall where the bark-sealed slopes rise to the ridgepole. Wind passes through them freely. A hard rain from the wrong angle would too.
+
+I went for withies. Bark will not work near the ridge peak — the triangle is too narrow and the angle is awkward; woven wattle will seat better there and hold. I followed the west clearing edge to where young birch crowd the shade, cut them close to the ground: shoots a thumb's width thick, supple enough to bend around a fist without cracking.
+
+Back at the shelter I sorted the bundle and pointed six uprights with the knife. I drove them into the top log of the east end wall at hand-width spacing, leaning them inward toward the ridgepole to follow the pitch of the roof. Rough work, but a frame. This afternoon I'll weave the horizontals across them and close the gap.
+
+By the time the stakes were set the mist had gone and the clearing was bright and still. Standing back and looking: the shelter holds its shape now. One end beginning to close. Progress is a slower thing than I thought it would be, and that is fine.
+
