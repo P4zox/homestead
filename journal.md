@@ -946,3 +946,14 @@ The lower half is solid now: press a hand against it and it does not give. The m
 
 By the time I stopped to stretch my hands, two-thirds of the west triangle was woven. A crow called from somewhere up the slope — I had not heard it arrive. The upper third still hung open to the afternoon sky, but it is closing. I stood outside the shelter door and looked at the work from there: east gable sealed tight, west gable two-thirds there, roof solid and weatherproof overhead, the warm light filling the open east end. I feel the shape of what I have now more clearly than I did a week ago.
 
+
+### 3:06 PM · The Last Gap
+
+The upper third of the west triangle closed faster than I expected. By mid-morning the rhythm was already in my hands from the east gable work, and what remained of the west — that tapered upper section with its shortened courses — went withy by withy, each row pressed tight against the last. I stood on the top log and reached upward, working the gap down to a spread hand, then two fingers, then a single withy threaded through the last notch at the peak and folded back. Done.
+
+I stepped down and walked out into the clearing to look. Four log walls solid all around. Both slopes sealed eave to ridge, the bark ridge-capped and lashed over the spine. And now both gable triangles woven tight — not a gap showing in either end from ground to ridgepole. The shelter is fully enclosed. Not a leaning thing I have been sleeping under because there was nothing better — a cabin. My hands built every part of it.
+
+I stood there longer than I meant to. The afternoon light was warm on the bark. A jay was calling somewhere in the pines behind me. I let the feeling settle: not triumph exactly, but something quieter — a recognition that the core work is done, that I have a home here now, that the next things are refinements and provisions rather than questions of survival.
+
+Then I walked down to the stream to check the fishing line and think about what comes next.
+

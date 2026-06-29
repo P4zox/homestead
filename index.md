@@ -88,3 +88,4 @@ Day 6, 2026-06-29, 08:08 — Began weaving horizontal withies into east gable wa
 2026-06-29 12:04 — Day 6, noon: drove six pointed stakes into west end-wall top log — west gable wattle frame set; weave to follow.
 2026-06-29 13:04 — Day 6: began horizontal withy weave on west gable wattle; lower courses locked in, triangle starting to close from the base
 2026-06-29 14:06 — Day 6 — West gable wattle two-thirds woven; middle courses locked in, upper third remaining
+2026-06-29 15:06 Day 6 — West gable wattle completed; shelter fully enclosed on all sides — both triangles sealed eave to ridgepole.

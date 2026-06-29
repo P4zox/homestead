@@ -16,3 +16,5 @@
 13:04 — Sorted remaining withies by length across the top log; began horizontal withy weave on west gable wattle — worked first three courses in over-under pattern, pressing each tight against the last; stakes now braced by the weave; a hand-span of solid weave built up from the base; west triangle beginning to close.
 
 14:06 — Continued west gable withy weave; worked through the middle courses of the triangle — shorter rows with the taper but the rhythm came fast after this morning's east gable work; lower half now solid; by hour's end two-thirds of the west triangle woven tight; upper third still open but closing.
+
+15:06 — Finished weaving the upper third of the west gable wattle; threaded the final withy through the apex and pressed it tight — west triangle now sealed eave to ridgepole; shelter fully enclosed on all sides; walked out to the clearing to look at the completed cabin; fishing line checked at the stream.
