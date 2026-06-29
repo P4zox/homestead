@@ -907,3 +907,14 @@ The weave is solid. Three hand-spans up now, the base of the triangle closing ti
 
 The middle third of the east gable goes faster — the triangle has been narrowing all morning, and each horizontal withy is shorter than the last. I found a rhythm: bend, weave, press, lock the end. The stakes are close enough now that each withy crosses all six in a short arc and I can work a course in a few breaths. I needed to climb my position, balancing one boot on the top log to reach the upper courses without craning. Two-thirds of the triangle is solid now; the open gap above fits two spread hands at its widest. The forest is still and warm, pines holding the heat that has built since the mist cleared. I can still see through the gable's last open wedge to the ridgepole — a clean dark line against the sky — and then the next withy goes in, and the sky shrinks a little. Closing in, slowly and well.
 
+
+### 11:04 AM · Triangle Sealed
+
+The last two spread-hand gap was the trickiest stretch. Near the apex the stakes converge so tight that I could not thread a full-width withy through — had to trim the last few shoots down thin, bending them nearly flat to feed through. I tucked the remaining bundle under one arm and worked with just my fingers for the final courses, pressing each shoot hard against the one below.
+
+The last piece was a limber half-shoot that curved just right. I threaded it through, tugged it snug, and wrapped the tail once around the outermost upright. Then I stepped off the top log and stood back.
+
+The east gable is closed. Eave to ridgepole, solid and tight. No gap left. The sun was coming through the pines in long shafts by then, lighting the weave in patches of gold and shadow. The wren appeared again on the ridgepole — same bird, I think — tilted its head once at the sealed wall below it, and lifted away into the canopy.
+
+One gable done. The west triangle still open, and I know what comes next. But right now I am letting myself look at what is finished and be glad.
+

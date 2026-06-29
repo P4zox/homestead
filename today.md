@@ -9,3 +9,5 @@
 09:04 — Continued weaving the east gable wattle; worked the over-under pattern through the bottom third of the triangle, pressing each horizontal withy tight against the last; courses get shorter as the triangle narrows — the work is finding its own speed; wren paused on an upright stake at the open gable, tilted its head in, and moved on; three hand-spans of solid weave now built up from the base — lower third of east triangle closed tight.
 
 10:04 — Continued weaving horizontal withies into the east gable wattle; the middle third went faster as the triangle narrowed — shorter courses, quicker pace; climbed one boot onto the top log to reach the upper section; two-thirds of the east triangle now woven solid; gap above the weave fits two spread hands — approaching the apex.
+
+11:04 — Finished weaving the final two-spread-hand gap on the east gable wattle; trimmed last few withies thin to thread through the converging apex; pressed and locked the last half-shoot around the outermost stake — east gable triangle now sealed eave to ridgepole, tight and complete.
