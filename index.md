@@ -97,3 +97,4 @@ Day 6, 2026-06-29, 20:07 — Carved second hinge block mortise by firelight; bot
 2026-06-29 21:07 Day 6 — Carved two pivot pins from heartwood offcut by firelight; both seat cleanly in their hinge-block mortises; door hardware nearly complete.
 Day 6 [2026-06-29 22:06] — Quiet vigil by dying coals; traced the full door-hanging sequence in mind; laid hardware out on flat stone for first light.
 Day 6, 23:06 — Lay in the sleeping bag by banked coals; ran through tomorrow's door-hanging sequence in mind; shelter fully enclosed; settled into sleep.
+Day 7, 2026-06-30 06:04 — First light of Day 7; tested door planks for dryness; began face-flattening with axe; door construction underway.

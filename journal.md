@@ -1038,3 +1038,19 @@ The shelter is entirely closed around me. I had not quite understood — until t
 
 Something moved in the undergrowth beyond the west gable a little while ago — a hedgehog maybe, or a mouse — and now there is only the idea of the stream, too far to hear but known. The night settles like something earned. Sleep is close.
 
+
+---
+
+# Day 7 — Tuesday, 30 June 2026
+*late spring · cool dawn with mist; sky brightening toward clear*
+
+### 6:04 AM · Planks at First Light
+
+The shelter held the dark longer than I expected — all the gaps filled in, the wattle tight. I woke to grey early light seeping through the doorway, coals just barely warm under the ash.
+
+Before anything else I reached for the door planks. They had leaned against the east wall all night with the fire banked beside them — not enough heat to properly season them, just enough to push some of the green out. I ran a hand along each face. The nearer one is noticeably drier; the other still gives slightly under pressure. Both are lighter than yesterday. Not seasoned wood — that takes weeks — but workable enough.
+
+I carried the first plank to the doorway where the light was best, laid it across two flat stones, and knelt over it with the axe. Face-flattening: thin angled strokes along the grain, working from end to end, stopping every few passes to sight down the face for high spots. Pale shavings curled away and drifted in the cool morning air.
+
+The hinge blocks and pivot pins are on the flat stone inside, waiting. The door is close now.
+
