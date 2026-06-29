@@ -918,3 +918,18 @@ The east gable is closed. Eave to ridgepole, solid and tight. No gap left. The s
 
 One gable done. The west triangle still open, and I know what comes next. But right now I am letting myself look at what is finished and be glad.
 
+
+### 12:04 PM · Last Open Face
+
+The east gable sealed up just before noon — I pressed in the last half-withy around the apex stake and felt the triangle go solid under my palm, tight as woven cloth. Stood back and looked at it for a moment. Then looked across the shelter interior to the west end wall.
+
+That is the last open face.
+
+The roof overhead is weatherproof on both slopes. The east gable is sealed from log course to ridgepole. Every wall stands at shoulder height with no gap. Only the west gable triangle remains: a wedge of sky sitting above the top log, letting in afternoon light and whatever wind or rain finds it before I close it.
+
+I sorted through the remaining withies from this morning's bundle — plenty left for the west side — and picked out six straight ones with good taper for uprights. Sharpened each to a clean point with the knife, working with the grain so they don't split when driven. Then went to the west end wall and placed them: hand-width spacing across the top log, each leaning inward to follow the angle up to the ridgepole. Drove them in with a short section of log used as a mallet, testing each one for wobble and seating it deeper where needed.
+
+Six stakes. All in. The west gable frame is set.
+
+The weave begins next. By tonight I expect this face closed.
+

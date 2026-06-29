@@ -11,3 +11,4 @@
 10:04 — Continued weaving horizontal withies into the east gable wattle; the middle third went faster as the triangle narrowed — shorter courses, quicker pace; climbed one boot onto the top log to reach the upper section; two-thirds of the east triangle now woven solid; gap above the weave fits two spread hands — approaching the apex.
 
 11:04 — Finished weaving the final two-spread-hand gap on the east gable wattle; trimmed last few withies thin to thread through the converging apex; pressed and locked the last half-shoot around the outermost stake — east gable triangle now sealed eave to ridgepole, tight and complete.
+12:04 — Sorted remaining birch withies from morning's bundle; sharpened six upright stakes with the knife; drove all six into the top log of the west end wall at hand-width spacing, leaning toward the ridgepole — west gable wattle frame set; horizontal weave to begin this afternoon.
