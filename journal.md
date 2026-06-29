@@ -992,3 +992,14 @@ The fish was good. I re-baited the hook with a small piece of gut from the carca
 
 No stores yet — that wants a plan, and soon. But I am fed, and the house holds warmth now. That is not nothing.
 
+
+### 7:05 PM · By Firelight
+
+The shelter holds the warmth of the small fire well now that the gables are sealed. I sat against the east wall with the door planks leaning close beside me — still wet from the split, too green to face-flatten tonight — and put the knife to work on something smaller.
+
+From the off-cut trimmings of the doorpost work I found two short lengths of heartwood, dense and already dry. If the door is to swing it needs pivots: a pair of wooden hinge blocks, each one carrying an L-notched mortise so the plank edge nests into the frame block, gravity and the angle of the cut holding the whole thing closed. I have no auger, so bore is out; the notch-and-pin approach will have to carry it.
+
+I worked the first block by firelight, cutting slow cross-grain notches with the knife and clearing the waste with careful levering. The heartwood split cleaner than I expected. One half of the hinge pair is roughed out now — sits in my palm, nothing graceful about it, but the geometry is close. The second block I marked and set aside; morning light will be better for the fine cuts.
+
+Outside: silence and the last blue leaving the sky above the ridge. Inside: fire-glow, the smell of pine resin, the planks drying against the east wall. The door is coming along one quiet piece at a time.
+

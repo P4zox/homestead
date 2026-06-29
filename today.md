@@ -24,3 +24,5 @@
 17:05 — Walked the west tree line; found and felled a dry, straight-grained dead pine; split it lengthwise with axe and bark-wedge into two rough door planks; hauled both inside and leaned them against the east wall to dry overnight.
 
 18:06 — Walked to the stream in the last warm light; pulled a small trout from the line (taken sometime in the afternoon); cooked and ate supper inside the enclosed shelter — small fire from banked coals, fish on the green-stick frame; re-baited hook with fish gut and reset in the mossy cleft for overnight; sat in the doorway watching the last light leave the sky; banked coals for the night.
+
+19:05 — Sat inside shelter after supper by firelight; carved first rough wooden hinge block from heartwood doorpost off-cut (L-notch mortise style, cross-grain cuts with knife); second block marked and set aside for morning; door planks still too green to face-flatten tonight.
