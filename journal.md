@@ -1018,3 +1018,14 @@ By the time the second pin seats cleanly in its mortise and turns without catchi
 
 Fire banked. Sleeping bag drawn up. The door is close now; I can feel the shape of it in these small pieces.
 
+
+### 10:06 PM · Counting Steps to Sleep
+
+The coals were banked an hour ago but I could not quite settle. I have been sitting in the near dark with both hinge blocks in my lap and a pivot pin rolled between my fingers — not doing anything with them, just holding them, turning them in the faint glow from the coals.
+
+I keep tracing the door in my head. First light: test both planks with a palm — if they have dried through the night near the fire, the surface should feel close to air temperature, not the cool-and-damp that green wood keeps. Then face-flatten each plank with the back of the axe blade, long strokes heel to toe. Cut both to length so they clear the lintel by a finger-width and sit on the sill without binding. Fit a ledger board across the back third, pegged through. Bore the pin-hole mortises — two per plank, matched to the hinge-block spacing. Seat both blocks, drive the pins home, lift the door into the opening. That is the whole sequence. Maybe three hours if the wood behaves; maybe four if it does not.
+
+The shelter makes its sounds at night. Bark settles. The ridgepole gives a slow tick now and then in the cold. Something small moves through the pine duff outside. The door opening still breathes cold air in from the clearing. Tomorrow night, if the planks are willing, it will not.
+
+I set the hardware down side by side on the flat stone near the east wall — two blocks, two pins — so they will be the first thing I see at first light. Then I crawled into the sleeping bag. The coals will hold till dawn.
+

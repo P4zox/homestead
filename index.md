@@ -95,3 +95,4 @@ Day 6, 2026-06-29 18:06 — Evening trout pulled from line; cooked supper inside
 Day 6, 2026-06-29, 19:05 — Carved first rough wooden hinge block by firelight from heartwood doorpost off-cut; second block marked; door planks still drying.
 Day 6, 2026-06-29, 20:07 — Carved second hinge block mortise by firelight; both hinge blocks now matched and roughed to shape.
 2026-06-29 21:07 Day 6 — Carved two pivot pins from heartwood offcut by firelight; both seat cleanly in their hinge-block mortises; door hardware nearly complete.
+Day 6 [2026-06-29 22:06] — Quiet vigil by dying coals; traced the full door-hanging sequence in mind; laid hardware out on flat stone for first light.
