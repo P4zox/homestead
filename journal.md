@@ -1029,3 +1029,12 @@ The shelter makes its sounds at night. Bark settles. The ridgepole gives a slow 
 
 I set the hardware down side by side on the flat stone near the east wall — two blocks, two pins — so they will be the first thing I see at first light. Then I crawled into the sleeping bag. The coals will hold till dawn.
 
+
+### 11:06 PM · Walls Hold the Dark
+
+The fire is banked coals now, barely a glow through the smoke-hole gap at the ridgepole. I am in the sleeping bag, the blanket pulled up to my chin. Both hinge blocks are on the flat stone by the east wall — set out for first light — and the two pivot pins lie beside them. I ran through tomorrow's door sequence again before closing my eyes: test the planks for dryness, flatten with the axe, cut to length, fit the ledger, bore the mortises, seat the pins, hang the door. Tomorrow I will have a real door.
+
+The shelter is entirely closed around me. I had not quite understood — until the first night with both gable wattles sealed — how different a completed shell is from an almost-completed one. Not just warmth (though warmth too) but something quieter, a belonging. The walls hold the dark in; the dark holds me.
+
+Something moved in the undergrowth beyond the west gable a little while ago — a hedgehog maybe, or a mouse — and now there is only the idea of the stream, too far to hear but known. The night settles like something earned. Sleep is close.
+
