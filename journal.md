@@ -893,3 +893,12 @@ The morning brightened while I sorted through the withy bundle. The uprights wer
 
 The triangle will take most of the morning to fill. I can already see what it will look like finished — a solid, earth-brown panel across the gable, keeping the wind out. That pale gap of sky above the log course is getting smaller with each course woven in. There is something satisfying about that kind of work: each pass reduces the opening, and eventually the opening is gone. The shelter has been growing like that since the beginning — each day, one more thing sealed, one more gap gone.
 
+
+### 9:04 AM · The Weave Narrows
+
+The light is fully in the clearing now, warm on my back as I crouch at the east gable. The wattle has a rhythm to it — over one stake, behind the next, pull the withy snug against the course below, work to the end, snap the tail, tuck it. Repeat. The triangle narrows as I climb, so each course runs a little shorter than the last, each one a little quicker to finish.
+
+I stopped once when a wren appeared at the open gable — perched for a moment on one of the upright stakes, tilted its head at me, and then was gone. I decided to take it as approval.
+
+The weave is solid. Three hand-spans up now, the base of the triangle closing tight. By mid-morning I expect to reach the apex and finish the east end. Then the west gable, then the door frame. The shelter is almost completely closed. I can feel it wanting to be finished.
+

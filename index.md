@@ -82,3 +82,4 @@ Day 5, 21:04 — Stepped outside into the cool dark; stood under clear sky with 
 Day 6, Jun 29 2026, 06:04 — Checked overnight fishing line at dawn; pulled a small trout; cooked and ate first breakfast inside completed shelter; gable triangles and food stores next.
 2026-06-29 07:04 Day 6 — Cut birch withies in west tree line; drove six wattle stakes into east end-wall top log — gable wattle frame set, ready to weave.
 Day 6, 2026-06-29, 08:08 — Began weaving horizontal withies into east gable wattle; lower courses filling in, triangle slowly closing from the base.
+2026-06-29 09:04 — Day 6 — Continued east gable wattle; three hand-spans woven solid; lower third of triangle closed; wren visited the open gable.

@@ -5,3 +5,5 @@
 07:04 — Went into the west tree line and cut a bundle of young birch withies (thumb-thick, supple shoots) for wattle-weaving; hauled bundle to shelter; sorted uprights from weave-shoots; pointed six upright stakes with knife and drove them into the top log of the east end wall at hand-width spacing, leaning toward the ridgepole — east gable wattle frame now set; horizontal weave to follow this afternoon.
 
 08:08 — Began weaving horizontal withies into the east gable wattle stakes; worked the over-under pattern from bottom up, pressing each course tight against the last; built a hand-span of solid weave from the top log upward — triangle starting to close from the base.
+
+09:04 — Continued weaving the east gable wattle; worked the over-under pattern through the bottom third of the triangle, pressing each horizontal withy tight against the last; courses get shorter as the triangle narrows — the work is finding its own speed; wren paused on an upright stake at the open gable, tilted its head in, and moved on; three hand-spans of solid weave now built up from the base — lower third of east triangle closed tight.
