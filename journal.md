@@ -933,3 +933,7 @@ Six stakes. All in. The west gable frame is set.
 
 The weave begins next. By tonight I expect this face closed.
 
+
+### 1:04 PM · West Gable Begun
+
+After four hours on the east side, the west gable frame has been standing ready since noon — six stakes leaning inward, the triangle open and patient. I spread the remaining withies across the top log in the afternoon sun and sorted them by length before starting the first horizontal course. The over-under pattern comes naturally now; my hands still remember the east gable's rhythm. First course in, pressed tight. Second, reversed. Third, locked. The weave is only a hand-span deep at the base, but it's holding, and the stakes are braced by it already. The afternoon sun came through the open triangle from the west and threw the stakes' shadows in long lines across the shelter floor inside. Soon those shadows will be stopped by woven withies. I worked until my hands wanted a rest and then sat on the top log for a minute, back against the frame. The clearing was quiet in the early afternoon — a crow somewhere in the upper pines, the light falling gold through the birch. Nothing urgent. Just the weave to finish, course by course.
