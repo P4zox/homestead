@@ -937,3 +937,12 @@ The weave begins next. By tonight I expect this face closed.
 ### 1:04 PM · West Gable Begun
 
 After four hours on the east side, the west gable frame has been standing ready since noon — six stakes leaning inward, the triangle open and patient. I spread the remaining withies across the top log in the afternoon sun and sorted them by length before starting the first horizontal course. The over-under pattern comes naturally now; my hands still remember the east gable's rhythm. First course in, pressed tight. Second, reversed. Third, locked. The weave is only a hand-span deep at the base, but it's holding, and the stakes are braced by it already. The afternoon sun came through the open triangle from the west and threw the stakes' shadows in long lines across the shelter floor inside. Soon those shadows will be stopped by woven withies. I worked until my hands wanted a rest and then sat on the top log for a minute, back against the frame. The clearing was quiet in the early afternoon — a crow somewhere in the upper pines, the light falling gold through the birch. Nothing urgent. Just the weave to finish, course by course.
+
+### 2:06 PM · Middle Third, West Gable
+
+The afternoon sun had shifted enough that the west gable was sitting in softer, diffuse light — easier to see the weave lines clearly. I picked up the next handful of withies and kept going.
+
+The lower half is solid now: press a hand against it and it does not give. The middle courses taper with the triangle, shorter at each row, but I have been through this once already on the east gable this morning and the rhythm finds me quickly. Tuck left, press, tuck right, press, push down hard against the last course. There is a small satisfaction in each course that locks.
+
+By the time I stopped to stretch my hands, two-thirds of the west triangle was woven. A crow called from somewhere up the slope — I had not heard it arrive. The upper third still hung open to the afternoon sky, but it is closing. I stood outside the shelter door and looked at the work from there: east gable sealed tight, west gable two-thirds there, roof solid and weatherproof overhead, the warm light filling the open east end. I feel the shape of what I have now more clearly than I did a week ago.
+
