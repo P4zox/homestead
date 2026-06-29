@@ -91,3 +91,4 @@ Day 6, 2026-06-29, 08:08 — Began weaving horizontal withies into east gable wa
 2026-06-29 15:06 Day 6 — West gable wattle completed; shelter fully enclosed on all sides — both triangles sealed eave to ridgepole.
 2026-06-29 16:06 — Day 6 — Measured and trimmed the entrance gap; fitted the lintel log across the doorposts with wooden pegs; door frame opening now boxed and ready for a door.
 2026-06-29 Day 6 17:05 — Split two rough door planks from a dead pine near the west tree line; hauled inside to dry.
+Day 6, 2026-06-29 18:06 — Evening trout pulled from line; cooked supper inside the enclosed shelter; line re-baited and reset overnight; no stores yet but fed and warm.

@@ -981,3 +981,14 @@ Split it lengthwise: drove the axe blade in at the end, worked a wedge of thick 
 
 Hauled them inside and leaned them against the east wall before the light dropped too far. Tomorrow I will dress them flat, cut a ledger board to tie them side by side, and start shaping a wooden hinge pin.
 
+
+### 6:06 PM · Supper in the Shelter
+
+I walked the path to the stream in the last warm light of the day, the pines throwing long shadows across the clearing. The fishing line was taut in the mossy cleft — a small trout, a bit heavier than this morning's catch, had taken the gut-bait sometime in the afternoon. I worked it free gently, set it in the cook tin, and turned back.
+
+Inside, the shelter felt different now than it did two days ago. The wattle holds the warmth; the draught that used to cut through the open gable triangles is gone. I set a small fire from the banked coals, cleaned the fish with the knife, and propped it over the green-stick frame. While it cooked I sat on the sleeping bag and looked at the two split door planks leaning against the east wall — rough still, axe-split rather than adze-smoothed, but the grain runs straight and clean. Tomorrow I'll start working the faces down. They'll need a ledger cross-board and some sort of wooden hinge before they'll hang, but one step at a time.
+
+The fish was good. I re-baited the hook with a small piece of gut from the carcass and reset the line in the cleft as the light went golden-pink over the ridge. The creek sounded clear and close. I sat in the shelter doorway a while in the cooling air, watching the last colour leave the sky, before banking the coals and settling in.
+
+No stores yet — that wants a plan, and soon. But I am fed, and the house holds warmth now. That is not nothing.
+
