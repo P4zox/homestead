@@ -1003,3 +1003,7 @@ I worked the first block by firelight, cutting slow cross-grain notches with the
 
 Outside: silence and the last blue leaving the sky above the ridge. Inside: fire-glow, the smell of pine resin, the planks drying against the east wall. The door is coming along one quiet piece at a time.
 
+### 8:07 PM · Second Block, Firelight
+
+The shelter holds warmth well tonight — both wattle gables stopping the draught in a way the open triangles never did. After supper I settled back against the east wall logs with the second hinge block on my knee and the knife in hand, working by firelight. The L-notch mortise wants the same cross-grain cuts as the first block; the hand finds the motion faster this second time. Dense heartwood has an honesty to it — the blade tells you when you're going wrong by catching rather than slicing. I let the hour pass without hurrying: press and pare, check the depth against the first block, press and pare again. By the time the coals needed banking both mortises were cut to the same depth. The two blocks set side by side look like they belong to each other. Tomorrow I'll refine the edges and rough out the pivot pins. The door is coming. Not tonight, but it is coming.
+

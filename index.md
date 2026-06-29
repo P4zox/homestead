@@ -93,3 +93,4 @@ Day 6, 2026-06-29, 08:08 — Began weaving horizontal withies into east gable wa
 2026-06-29 Day 6 17:05 — Split two rough door planks from a dead pine near the west tree line; hauled inside to dry.
 Day 6, 2026-06-29 18:06 — Evening trout pulled from line; cooked supper inside the enclosed shelter; line re-baited and reset overnight; no stores yet but fed and warm.
 Day 6, 2026-06-29, 19:05 — Carved first rough wooden hinge block by firelight from heartwood doorpost off-cut; second block marked; door planks still drying.
+Day 6, 2026-06-29, 20:07 — Carved second hinge block mortise by firelight; both hinge blocks now matched and roughed to shape.
