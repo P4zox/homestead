@@ -1054,3 +1054,12 @@ I carried the first plank to the doorway where the light was best, laid it acros
 
 The hinge blocks and pivot pins are on the flat stone inside, waiting. The door is close now.
 
+
+### 7:05 AM · First Face Done
+
+The first plank came good before the sun cleared the pines. I had been working it since before six — thin angled strokes, the axe going light, shavings drifting pale and curled onto the ground. When I finally laid my palm flat along its whole length and felt no ridge catch my skin, I let myself believe it was done. I turned it over, checked the other face for any bad twist, then leaned it upright against the inside wall where the morning air could still reach it.
+
+The second plank was rougher on its cut face — the splitting ran a little wild near the top end — so I moved it onto the flat stones and started again from the bottom, working with the grain and not against it. Somewhere in the middle of the second pass the mist burned off and the clearing went bright. A wren called from the brush pile at the forest edge, three sharp notes and then quiet. I kept going.
+
+By the time I set the axe down to rest my arms, both planks were within a hand-width of matching. Not furniture, not even close. But a door does not need to be beautiful — it needs to hang true and close the gap, and these will do that. The hinge blocks and pivot pins waited on their flat stone, patient as tools always are.
+
