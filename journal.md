@@ -970,3 +970,14 @@ Standing back in the clearing, I could see the entrance taking shape: two uprigh
 
 The fishing line will need a check before dark.
 
+
+### 5:05 PM · Splitting for the Door
+
+The lintel is seated and I keep glancing at the entrance gap — that open rectangle of afternoon sky framed by the two doorposts and the new crosspiece. Shelter is enclosed now on all sides except for that one breathing hole. A door is what comes next.
+
+I spent the hour doing something I should have done before felling any tree: finding the right one. Walked the west tree line slowly, tapping trunks, reading grain where old branches had come off, looking for a dry pine with no twist in it. Found one close to the line — dead three or four years by the feel of the bark, grain running clean and straight. It came down in two careful axe-blows; I limbed it and studied the lower six feet for knots. There was one, about a third of the way up, but below that the grain was perfect.
+
+Split it lengthwise: drove the axe blade in at the end, worked a wedge of thick bark into the crack, and persuaded it open blow by blow. The log gave me two rough planks — each the length of the door opening, maybe three finger-widths thick, wide enough to cover the gap in two. Not smooth, not true, but solid. They will want flattening with the axe edge drawn carefully along the face before I can hang them.
+
+Hauled them inside and leaned them against the east wall before the light dropped too far. Tomorrow I will dress them flat, cut a ledger board to tie them side by side, and start shaping a wooden hinge pin.
+

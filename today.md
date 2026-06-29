@@ -20,3 +20,5 @@
 15:06 — Finished weaving the upper third of the west gable wattle; threaded the final withy through the apex and pressed it tight — west triangle now sealed eave to ridgepole; shelter fully enclosed on all sides; walked out to the clearing to look at the completed cabin; fishing line checked at the stream.
 
 16:06 — Measured the entrance gap in the south wall; used knife and axe to trim the tops of the two doorpost logs flat; rolled the reserved lintel log up and seated it across both doorpost ends; drove two wooden pegs through each lintel end to lock it in place — door opening now boxed with lintel; entrance ready to frame a door into.
+
+17:05 — Walked the west tree line; found and felled a dry, straight-grained dead pine; split it lengthwise with axe and bark-wedge into two rough door planks; hauled both inside and leaned them against the east wall to dry overnight.
