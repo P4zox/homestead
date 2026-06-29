@@ -902,3 +902,8 @@ I stopped once when a wren appeared at the open gable — perched for a moment o
 
 The weave is solid. Three hand-spans up now, the base of the triangle closing tight. By mid-morning I expect to reach the apex and finish the east end. Then the west gable, then the door frame. The shelter is almost completely closed. I can feel it wanting to be finished.
 
+
+### 10:04 AM · Triangle Closing
+
+The middle third of the east gable goes faster — the triangle has been narrowing all morning, and each horizontal withy is shorter than the last. I found a rhythm: bend, weave, press, lock the end. The stakes are close enough now that each withy crosses all six in a short arc and I can work a course in a few breaths. I needed to climb my position, balancing one boot on the top log to reach the upper courses without craning. Two-thirds of the triangle is solid now; the open gap above fits two spread hands at its widest. The forest is still and warm, pines holding the heat that has built since the mist cleared. I can still see through the gable's last open wedge to the ridgepole — a clean dark line against the sky — and then the next withy goes in, and the sky shrinks a little. Closing in, slowly and well.
+

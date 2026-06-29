@@ -83,3 +83,4 @@ Day 6, Jun 29 2026, 06:04 — Checked overnight fishing line at dawn; pulled a s
 2026-06-29 07:04 Day 6 — Cut birch withies in west tree line; drove six wattle stakes into east end-wall top log — gable wattle frame set, ready to weave.
 Day 6, 2026-06-29, 08:08 — Began weaving horizontal withies into east gable wattle; lower courses filling in, triangle slowly closing from the base.
 2026-06-29 09:04 — Day 6 — Continued east gable wattle; three hand-spans woven solid; lower third of triangle closed; wren visited the open gable.
+2026-06-29 10:04 — Day 6 — Triangle Closing — east gable wattle weave through middle section; two-thirds of triangle now solid; one spread-hand gap left to apex
