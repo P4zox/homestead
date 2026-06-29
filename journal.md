@@ -886,3 +886,10 @@ Back at the shelter I sorted the bundle and pointed six uprights with the knife.
 
 By the time the stakes were set the mist had gone and the clearing was bright and still. Standing back and looking: the shelter holds its shape now. One end beginning to close. Progress is a slower thing than I thought it would be, and that is fine.
 
+
+### 8:08 AM · First Weave, East Gable
+
+The morning brightened while I sorted through the withy bundle. The uprights were steady in the east wall — six of them, spaced palm-width apart, each leaning slightly toward the ridgepole in a gentle fan. They had dried and stiffened overnight, just enough to hold their lean without needing to be coaxed. I started at the bottom, pushing the first horizontal withy behind the outermost stake, in front of the next, behind the next — the over-under rhythm that wattle always falls into once your hands know it. I pressed the first course down hard against the top log, then reversed the pattern for the second. By the time sunlight cleared the treeline and fell warm into the shelter opening, I had a hand-span of solid weave built up: rough-looking from a distance, but tight enough that the gaps were no wider than a finger.
+
+The triangle will take most of the morning to fill. I can already see what it will look like finished — a solid, earth-brown panel across the gable, keeping the wind out. That pale gap of sky above the log course is getting smaller with each course woven in. There is something satisfying about that kind of work: each pass reduces the opening, and eventually the opening is gone. The shelter has been growing like that since the beginning — each day, one more thing sealed, one more gap gone.
+
