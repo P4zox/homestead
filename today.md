@@ -28,3 +28,5 @@
 19:05 — Sat inside shelter after supper by firelight; carved first rough wooden hinge block from heartwood doorpost off-cut (L-notch mortise style, cross-grain cuts with knife); second block marked and set aside for morning; door planks still too green to face-flatten tonight.
 
 20:07 — Settled back against the east wall logs by firelight and carved the second wooden hinge block; worked the L-notch mortise in cross-grain cuts matching the first block; by hour's end both blocks are cut to the same depth and set side by side — both hinge blocks roughed to matching shape; coals banked; door planks still drying.
+
+21:07 — Sat by the fire and carved two pivot pins from straight-grained heartwood offcuts; tested each in its L-notch mortise block until snug but moveable; both pins now seated and turning clean — door hardware (two hinge blocks, two pivot pins) complete; planks still drying against east wall; fire banked for the night.

@@ -1007,3 +1007,14 @@ Outside: silence and the last blue leaving the sky above the ridge. Inside: fire
 
 The shelter holds warmth well tonight — both wattle gables stopping the draught in a way the open triangles never did. After supper I settled back against the east wall logs with the second hinge block on my knee and the knife in hand, working by firelight. The L-notch mortise wants the same cross-grain cuts as the first block; the hand finds the motion faster this second time. Dense heartwood has an honesty to it — the blade tells you when you're going wrong by catching rather than slicing. I let the hour pass without hurrying: press and pare, check the depth against the first block, press and pare again. By the time the coals needed banking both mortises were cut to the same depth. The two blocks set side by side look like they belong to each other. Tomorrow I'll refine the edges and rough out the pivot pins. The door is coming. Not tonight, but it is coming.
 
+
+### 9:07 PM · Pivot Pins by Firelight
+
+Both hinge blocks sit side by side on the log beside me, their L-notch mortises matching well. I pick up the knife and a short length of straight-grained heartwood from the offcut pile — dense, dry, close-ringed — and begin shaping the first pivot pin.
+
+The work is finer than the blocks. A pivot pin needs to be round enough to turn in the mortise without binding, short enough to seat cleanly, and thick enough to carry a door's weight without shearing. I pare it slowly, rotating the piece against the blade in small passes, testing it against the mortise every few minutes. When it fits the first block — snug but moveable, no wobble — I start the second one from another offcut, matching the diameter by eye and feel.
+
+By the time the second pin seats cleanly in its mortise and turns without catching, the fire has burned down to deep coals and the shelter is warm and quiet. I set both pins together with the blocks in a line: two blocks, two pins, the outline of a hinge in four carved pieces. The door planks lean against the east wall in the dark, still drying. Tomorrow morning I'll test the face with the back of the hand — see if the split surface has dried enough to flatten.
+
+Fire banked. Sleeping bag drawn up. The door is close now; I can feel the shape of it in these small pieces.
+
