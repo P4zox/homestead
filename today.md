@@ -18,3 +18,5 @@
 14:06 — Continued west gable withy weave; worked through the middle courses of the triangle — shorter rows with the taper but the rhythm came fast after this morning's east gable work; lower half now solid; by hour's end two-thirds of the west triangle woven tight; upper third still open but closing.
 
 15:06 — Finished weaving the upper third of the west gable wattle; threaded the final withy through the apex and pressed it tight — west triangle now sealed eave to ridgepole; shelter fully enclosed on all sides; walked out to the clearing to look at the completed cabin; fishing line checked at the stream.
+
+16:06 — Measured the entrance gap in the south wall; used knife and axe to trim the tops of the two doorpost logs flat; rolled the reserved lintel log up and seated it across both doorpost ends; drove two wooden pegs through each lintel end to lock it in place — door opening now boxed with lintel; entrance ready to frame a door into.

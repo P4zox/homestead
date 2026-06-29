@@ -957,3 +957,16 @@ I stood there longer than I meant to. The afternoon light was warm on the bark. 
 
 Then I walked down to the stream to check the fishing line and think about what comes next.
 
+
+### 4:06 PM · Lintel Lifted
+
+The afternoon light was low and slanted through the entrance gap — no door yet, just open air where the south-facing wall has a break in the logs. I had been stepping over the lowest log each time I came and went, and every time I did it I thought about the lintel log lying off to the side where I'd left it after the roof work. Today I finally went to use it.
+
+First I stood in the gap and spread my arms to measure: shoulder width plus a hand's breadth on each side, enough to pass through easily with the axe or armload of wood. Then I set the knife to the top edges of the two doorpost logs — the log ends that frame the opening — and pared them level, taking off bark and high spots until both rested flat and square. The axe did the heavier trimming. Ten minutes of patient chipping on each side, testing with a finger for wobble.
+
+The lintel log is shorter than the wall logs by design; I had already cut it to rough length when I was felling for the roof. I rolled it to the entrance, propped the near end on the top course, and worked the far end up with both hands until it settled into the notch. It fits cleanly — no gap on either side, weight resting on both posts. I drove two wooden pegs with the back of the axe, one through each end, to keep it from rolling if anything shifts in the night.
+
+Standing back in the clearing, I could see the entrance taking shape: two upright log ends, a horizontal lintel laid across them, the threshold below. The opening is still bare — no door, no frame for one to hang on — but the box is made. That is what the door will go into.
+
+The fishing line will need a check before dark.
+
