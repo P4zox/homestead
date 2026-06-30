@@ -1136,3 +1136,16 @@ After the meal I re-baited the hook with a fat grub from under the bark pile and
 
 The shelter is finished. That chapter is done. What I need now is stored food — a way to keep fish and foraged greens past the day I gather them. I have been turning over the idea of a cold-storage box: a notched log frame set low in the stream bank, lidded and shaded, where the cold seep of the water does the preserving. Not a complicated build. A week of work, maybe less, if I choose the right spot and keep it simple. The land is giving me time to think. I should use it.
 
+
+### 2:06 PM · Cold-Box Site Found
+
+The afternoon settled warm and still over the clearing. I walked the stream bank after the meal, moving slowly, letting my eyes go soft — looking for the thing I was already imagining: a low undercut shelf in the bank where the ground stays perpetually damp, shaded by the overhang above and by the birch stand to the east. You feel the cold before you see it, a breath rising off the seep water.
+
+I found the spot about thirty paces upstream from where I set the fishing line. The bank drops sharply there, almost a small cliff of dark earth and root mat, and at the base of it a seep trickles slow and cold — not enough to be a side channel, just enough to keep the clay beneath packed and chill. The birch canopy closes overhead. Even at midday the sun barely reaches the ground there.
+
+I knelt and pressed my hand into the bank. Cold to the elbow. Good.
+
+Spent the next hour working out the dimensions by eye: the box wants to be two hand-spans wide, three long, one deep — enough for a haunch of meat or a cache of fish preserved for a day or two. I cut four straight birch stakes and drove them into the bank face to mark the corners, then worked with the axe heel and my hands to open a shallow recess in the clay — just enough to see how the ground gives, where the root mat is thick, what the soil will allow. The clay came away cleanly and held its shape well. Good again.
+
+Hauled a length of straight pine I had left near the shelter from the early felling days — it will split into the side-logs for the box frame. Left it beside the stakes. The seep water ran cold over my hands while I rinsed them. The site is ready. I will begin framing the box in earnest tomorrow morning.
+
