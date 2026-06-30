@@ -1076,3 +1076,12 @@ Standing them both in the doorway gap afterward felt like something. They fill t
 
 The ledger board is next — the horizontal piece that holds both planks in plane so they move as one. I have a good candidate log already, and the morning light is still generous.
 
+
+### 9:04 AM · Ledger Laid Out
+
+Found a short length of birch left from the rafter work — barely knee-high, straight-grained through — and carried it to the splitting stump. One clean strike down the center and the grain opened without complaint. I hewed the inner face flat with slow passes, checking it often against the stone, until the board lay without rocking.
+
+Held it across both door planks: it spanned them with about a thumb-width to trim on either end. Marked the trimlines with charcoal, crosscut them clean, and ran the knife edge along both faces a final time. The ledger is now door-width and flat on both sides.
+
+I positioned it across the planks at mid-height — high enough to clear the ground swing, low enough to leave room for a second ledger near the top if the door needs more stiffness — and scribed four peg marks with the knife tip, two through each plank. The work is clean and all of it accumulates: planks cut to height, ledger shaped and marked. The boring and pegging can go this afternoon. The sun is up properly now; the camp is bright and still.
+
