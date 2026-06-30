@@ -103,3 +103,4 @@ Day 7, 2026-06-30 08:06 — Cut both door planks to exact door height; both fill
 Day 7 · 2026-06-30 09:04 — Ledger board shaped from birch offcut (door-width, flat both faces); four peg marks scribed across both planks at mid-height; boring and pegging planned for afternoon.
 Day 7, 10:04 AM — Bored four peg mortises through ledger and planks using knife-point and heated wire; drove green-birch pegs; ledger now fixed at mid-height — door assembly holds as one piece.
 2026-06-30 11:04 — Day 7 — Bored pivot-pin mortises, mounted hinge blocks, hung door on pivot pins — shelter now has a working door
+Day 7 (2026-06-30) 12:05 — Latch bar cut from birch heartwood, keeper groove bored in west doorpost, bar hung on pivot peg; drops clean and holds door shut. Shelter fully complete.

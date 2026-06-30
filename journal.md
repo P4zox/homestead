@@ -1111,3 +1111,13 @@ I pushed it. It swung — slow and heavy but clean, no binding. A small gap at t
 
 Stood back and looked at it for a long moment. Roof above, walls all around, a door that swings as I choose. This is the thing I came here to build.
 
+
+### 12:05 PM · The Door Holds
+
+Found the right piece in the offcut pile — straight-grained birch heartwood, no knots in the middle third, just long enough to span from the door's free edge to the west jamb with a hand past each side. Planed the inner face flat with the knife, then marked a notch at the far end where the bar would drop into its keeper.
+
+Boring the keeper groove into the west doorpost took the better part of the hour: score with the knife point, burn with the heated pin, clean the char, repeat. Slow, focused work, but reliable. Then a short peg driven into the door face to act as the pivot, checked by hand for wobble — none. Hung the latch bar on it, swung it across into the keeper groove. The bar drops clean under its own weight and holds the door shut.
+
+Swung it open and closed four times. The door holds.
+
+I stood in the open doorway for a moment, midday light coming in flat over the clearing, the stream audible through the wattled gable. A week ago I had a tent and an axe. Now I have walls, a roof, a door that latches. I let that sit a moment, then went in to eat.
