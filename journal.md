@@ -1096,3 +1096,18 @@ Held it up to the opening. Fills it edge to edge. The gap between door and post 
 
 The sun has come properly into the clearing by now. The stream sounds easy this morning, and the wren I heard at breakfast is still working through the brush pile at the forest edge. I set the door assembly back against the east wall and looked at it a moment. Another few hours and this shelter will close.
 
+
+### 11:04 AM · Pivot and Swing
+
+Mid-morning light falls clean through the door opening onto the assembly leaning against the east wall. I have been circling toward this moment all day.
+
+Moved the door out flat onto the ground. Took the knife point and scribed two centered marks on the hinge-side edge — one a hand's width from the top, one a hand's width from the bottom — where the pivot pins will seat. Then the slow careful work: knife first to score the perimeter of each socket, then the heated wire-pin to burn and ream, then the knife again to clean the walls, circling gradually deeper until each cavity was snug around a pin's end. Tried the fit. Both pins seated with a satisfying resistance and no wobble.
+
+Then the hinge blocks. Held each against the east doorpost at the matched height, scribed the mounting-peg positions, bored starter holes in the post with the knife point, drove the wooden pegs home. The blocks sit flush and solid, their L-notch cradles open and waiting.
+
+Lifted the door. It is heavier than it looks — two thick planks and a ledger board — and I had to angle it in from the side of the opening, lower pivot-end first, ease it up until the bottom pin dropped into its notch, then tip the top inward until the upper pin seated. There was a moment of awkward suspension, arms shaking, and then a click, a settle, and the door hung free.
+
+I pushed it. It swung — slow and heavy but clean, no binding. A small gap at the latch side, which is right; I have not cut the latch yet. But the door hangs.
+
+Stood back and looked at it for a long moment. Roof above, walls all around, a door that swings as I choose. This is the thing I came here to build.
+
