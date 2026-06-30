@@ -1085,3 +1085,14 @@ Held it across both door planks: it spanned them with about a thumb-width to tri
 
 I positioned it across the planks at mid-height — high enough to clear the ground swing, low enough to leave room for a second ledger near the top if the door needs more stiffness — and scribed four peg marks with the knife tip, two through each plank. The work is clean and all of it accumulates: planks cut to height, ledger shaped and marked. The boring and pegging can go this afternoon. The sun is up properly now; the camp is bright and still.
 
+
+### 10:04 AM · Ledger Goes On
+
+Set the ledger board flat across the two door planks at the mid-height marks and clamped the stack with a knee while I worked. Four peg marks scribed yesterday, two through each plank. No auger, so I did it the slow way: the knife point reaming in tight circles into the wood grain, deepening each bore a little at a time, then a heated nail-sized iron pin from the cook tin's bail wire burned the rest through. Four holes, each barely larger than my smallest finger. Cut four short green-birch pegs from the rafter offcut pile — squared them round with the knife, tapered the tips. Drove them with the axe butt through ledger and plank both, twisting each one tight so the grain bit the peg and the ledger pulled flush against both planks. A couple light taps to seat them. Then I stood the joined assembly in the doorway.
+
+It held. Both planks together, ledger across the middle, a single piece now. I rocked it side to side and the pegs didn't creak. The thing that was three separate boards is starting to look like a door.
+
+Held it up to the opening. Fills it edge to edge. The gap between door and post is a finger on each side — enough for hinge play. The pivot-pin mortises are all that's left before I can seat the hardware and hang it.
+
+The sun has come properly into the clearing by now. The stream sounds easy this morning, and the wren I heard at breakfast is still working through the brush pile at the forest edge. I set the door assembly back against the east wall and looked at it a moment. Another few hours and this shelter will close.
+

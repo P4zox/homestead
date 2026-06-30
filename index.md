@@ -101,3 +101,4 @@ Day 7, 2026-06-30 06:04 — First light of Day 7; tested door planks for dryness
 2026-06-30 07:05 Day 7 — Continued door construction: first plank fully face-flattened, second begun; both planks near-matching; hinge hardware waiting; mist lifted, clearing bright.
 Day 7, 2026-06-30 08:06 — Cut both door planks to exact door height; both fill the opening side to side; ledger board next.
 Day 7 · 2026-06-30 09:04 — Ledger board shaped from birch offcut (door-width, flat both faces); four peg marks scribed across both planks at mid-height; boring and pegging planned for afternoon.
+Day 7, 10:04 AM — Bored four peg mortises through ledger and planks using knife-point and heated wire; drove green-birch pegs; ledger now fixed at mid-height — door assembly holds as one piece.
