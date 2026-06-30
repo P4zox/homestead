@@ -1271,3 +1271,11 @@ Walked to the stream with the cook tin. The fishing line was taut — another tr
 
 Left the trout in the cold-storage box. I want to smoke it whole rather than eat it meal by meal — the smoke rack is close now, four uprights and a morning's lashing away. Kindled a small fire from last night's coals, set water boiling for drinking, sat with the axe across my knees thinking through the uprights. Four forked branches, clear shank below the fork, driven into the earth south of the shelter. This is the first real food-preservation work of the homestead, and I mean to do it right.
 
+### 7:05 AM · Forking the Uprights
+
+After the water had boiled and I had drunk a cup plain and hot, I took up the axe and went to look for uprights. I needed four — Y-forked saplings, wrist-thick at the shank, with a good cup of fork at the top to seat a crossbar. The birch at the clearing's east edge gave me two without much searching: young trees that had pushed up from the same root clump and thrown out their first fork low and clean. I found the other two further in, where the pines thin and the birch push through in the understory. I cut each one just above its fork, trimmed the shank to about two hand-spans below so it would drive well, and stripped any stubs that might throw it off-line going in.
+
+Back at the south side of the shelter, I spaced them in two pairs and drove each post in with the back of the axe butt — both hands, weight behind it, until the post stood firm and did not twist when I tested it sideways. The forks cup upward now, four small mouths level with one another, waiting. The ridgepole will lay across, the crossbars will lash on with the six cords already coiled by the door, and then the smoke can do its work.
+
+The trout is still cold in the storage box. If I can get the rack lashed this morning, I should have a good smoke going before the day turns warm.
+
