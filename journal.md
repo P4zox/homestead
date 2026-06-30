@@ -1212,3 +1212,16 @@ I am not building tonight. The dark is honest about that. But I have been scorin
 
 There is still a long list of what I lack — dried stores, more reliable fire, eventually something to grow rather than only gather. But the list of what I've made is real now too, and tonight I feel the difference. That feels like enough to carry to sleep.
 
+
+### 8:06 PM · Cord by Coallight
+
+The coals have settled low and orange, and the shelter holds the warmth gently. I am not ready to sleep yet — there is a good hour left in the light from them, and something in me wanted my hands busy rather than idle.
+
+I pulled a bundle of peeled birch bark strips from the lashing bundle and began splitting them thinner with the knife blade, working toward a good lashing cord for the smoke rack. Splitting bark is simple work: hold the strip taut, run the knife edge along the grain, feel where it wants to part. The strips split cleanly when the grain runs true; only now and then does one tear off at an angle and have to be set aside.
+
+Once I had a dozen lengths of even width, I began twisting them into cord — dampening each strip first on my lips, then rolling two together between palm and thigh in opposite directions until they wrapped around each other into a tight, springy two-ply. Each length goes maybe an arm-span. I worked through six of them before the coals dimmed enough that I could not see the grain clearly.
+
+The smoke rack needs four uprights driven, a ridgepole seated between the Y-forks, and three or four crossbars lashed. I counted out what I twisted tonight: six lengths of two-ply cord, laid in a neat coil on the flat stone beside the door. Should be enough for the crossbars. I will cut and drive the uprights at first light, before checking the fishing line.
+
+Outside the shelter the clearing is dark and quiet. The forest sounds close in after sunset — a nightjar somewhere beyond the brush pile, the stream murmuring below. I will bank the coals now and sleep.
+
