@@ -1149,3 +1149,12 @@ Spent the next hour working out the dimensions by eye: the box wants to be two h
 
 Hauled a length of straight pine I had left near the shelter from the early felling days — it will split into the side-logs for the box frame. Left it beside the stakes. The seep water ran cold over my hands while I rinsed them. The site is ready. I will begin framing the box in earnest tomorrow morning.
 
+
+### 3:06 PM · Logs for the Cold Box
+
+I spent the hour at the cold-storage box site, hands in the clay. The seep I chose is the right spot — the ground stays cool even in the warmth of the afternoon; I could feel it pulling the heat from my palms as I worked. I widened and deepened the recess with a flat stone and bare hands, scooping out clay and piling it to one side — that same clay will seal between the logs later when the box is framed.
+
+The pine log I hauled over at the end of the last hour I crosscut into three pieces: a longer back-wall piece and two shorter side logs. I set flat stones as a base course first — four of them, leveled as best I could in damp clay — then pressed the back log against the uphill bank and nestled the two side logs in on either side. Three walls of the box are standing. The logs are green and heavy; they will settle and tighten with time.
+
+The stream murmured a few feet below while I worked. There is something good about building near moving water — the sound keeps you company without asking anything back. The cold-storage box is nearly a box now. Tomorrow I can fit the front wall log, lash a lid of birch and bark, and I will have somewhere to put food that stays cold through the afternoon heat.
+
