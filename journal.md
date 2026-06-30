@@ -1171,3 +1171,16 @@ Then I slipped my hand in through the gap. Cooler than the air by a noticeable m
 
 I sat by the water a moment after. A cold-storage box sounds ordinary, and I suppose it is, but it was not here yesterday. Tomorrow's trout — whatever the line brings up in the night — goes straight in instead of being eaten warm out of necessity. That changes things. Small rooms in a life, each one making the next one possible.
 
+
+### 5:05 PM · The Forest's Larder
+
+The afternoon held. After a week of notching and lifting and pegging, walking the forest edge with nothing but a bark sheet and the cook tin felt almost luxurious. The body knows how to forage without being told.
+
+Wild garlic grew thick along the birch root line — flat bright leaves, unmistakable when you brush them. I pulled a good bundle, roots and all. Wood sorrel clustered in the mossy seams of the deadfall, small and clover-leafed, sour enough to wake the mouth. Further in, where a downed birch had opened the canopy, young dandelion crowns stood in a pale clutch, their leaves still mild, not yet bitter from the summer heat.
+
+Then, at the base of a birch root cluster, chanterelles — a modest flush of them, pale gold, ridged undersides, the faint apricot smell that marks them safe. I took a careful half and left the rest to keep the patch alive.
+
+Back at the shelter I laid everything out on a flat stone: garlic, sorrel, dandelion crowns, mushrooms. Enough for a proper pot. The cold-storage box in the stream seep will hold what the evening doesn't use.
+
+There's a kind of satisfaction the tools haven't given me yet — the satisfaction of eating what the land put out freely. The axe made walls; the forest edge made supper. Both, it turns out, are necessary for a life that actually works here. The larder is starting to be a real thing.
+
