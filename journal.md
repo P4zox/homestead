@@ -1225,3 +1225,16 @@ The smoke rack needs four uprights driven, a ridgepole seated between the Y-fork
 
 Outside the shelter the clearing is dark and quiet. The forest sounds close in after sunset — a nightjar somewhere beyond the brush pile, the stream murmuring below. I will bank the coals now and sleep.
 
+
+### 9:07 PM · Night Watch, Lying Still
+
+Been lying here in the sleeping bag for the better part of an hour, not quite ready to let the day go. The coals are almost nothing — just a faint warmth through the bark floor, a small pulse of orange when the air shifts. The door latch is set. The nightjar churrs on out past the brush pile.
+
+Seven days. I've been counting them without meaning to. The shelter exists — not just as a plan or an almost-thing, but solidly, with a roof that sheds rain and a door that closes and a cold-storage box sitting in the seep with surplus garlic and sorrel inside. The lashing cord for the smoke rack is coiled on the flat stone by the door. Tomorrow I'll cut the uprights at first light, check the fishing line, and if the hook came up right, I'll have something to start curing.
+
+That's the shape of what comes next: not survival-by-the-hour anymore, but the first small steps toward surplus. Smoked fish. Dried greens. The difference between eating what you caught today and having something banked for a day when the catching goes wrong.
+
+I keep the axe handle close when I sleep. Not from fear — more like habit, or ceremony. It built all of this. Feels right to have it near while I rest inside what it made.
+
+The nightjar goes quiet. I don't move. After a moment it starts again, somewhere further out. I let my eyes close.
+
