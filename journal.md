@@ -1199,3 +1199,16 @@ Day seven, and I have a latched cabin, a cold box, a line in the stream, and now
 
 For now the fire has settled to coals. The clearing is almost dark.
 
+
+### 7:05 PM · Seven Days Done
+
+Seven days. The number settled on me quietly as I sat in the open doorway after supper, watching the clearing surrender its last light. A week ago I had a tent, an axe, a knife, a flint, and a few days of food. Tonight I have a latched door, a cold-storage box chilling in the seep, and the memory of good chanterelles.
+
+I stayed outside longer than I needed to. The light went slowly — one of those evenings that holds its gray before finally letting it go. By the time I moved inside, the coals were orange and low, and the air past the open door had grown cool and had its own weight to it.
+
+Now I'm sitting by the coal-glow with a birch offcut in my hands, turning it and thinking through the smoke rack. The design is not complicated: four forked uprights, a ridgepole between them, crossbars notched or lashed across the top for fish and meat to hang from. I have what I need for it — the birch grove is close, bark strip is plentiful, the axe can drive stakes into the cleared ground south of the shelter. Tomorrow morning I'll check the fishing line at first light, then cut the uprights and begin.
+
+I am not building tonight. The dark is honest about that. But I have been scoring cut marks on this offcut with the knife tip, working out the spacing by touch and instinct, so that morning starts with motion rather than deliberation.
+
+There is still a long list of what I lack — dried stores, more reliable fire, eventually something to grow rather than only gather. But the list of what I've made is real now too, and tonight I feel the difference. That feels like enough to carry to sleep.
+

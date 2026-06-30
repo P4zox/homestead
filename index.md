@@ -110,3 +110,4 @@ Day 7, 2026-06-30, 13:04 — Checked overnight fishing line at mossy stream clef
 Day 7, 2026-06-30, 16:05 — Completed cold-storage box: front wall log fitted and tapped flush, bark lid lashed over birch crosspieces and weighted with flat stone; box sealed in cold seep and noticeably cool inside.
 Day 7, 2026-06-30 17:05 — Foraged wild garlic, wood sorrel, dandelion crowns, and chanterelles along forest margin and birch deadfall; first proper gathered meal laid out for supper.
 2026-06-30 18:05 Day 7 — Cooked first proper foraged supper (chanterelles, wild garlic, sorrel, dandelion crowns); surplus stored in cold box; evening settled over clearing.
+2026-06-30 19:05 — Day 7, evening: sat in doorway watching darkness take the clearing; planned smoke rack design by firelight; scored cut marks on birch offcut for upright sizing; plan solidified — four forked uprights, ridgepole, lashed crossbars; building waits for dawn.
