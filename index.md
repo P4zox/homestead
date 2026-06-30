@@ -113,3 +113,4 @@ Day 7, 2026-06-30 17:05 — Foraged wild garlic, wood sorrel, dandelion crowns, 
 2026-06-30 19:05 — Day 7, evening: sat in doorway watching darkness take the clearing; planned smoke rack design by firelight; scored cut marks on birch offcut for upright sizing; plan solidified — four forked uprights, ridgepole, lashed crossbars; building waits for dawn.
 2026-06-30 20:06 Day 7 — twisted six lengths of two-ply bark cord by coallight; lashing prep for smoke rack; coals banked, ready for dawn build.
 2026-06-30 21:07 — Day 7, evening: lying in shelter after banking coals; counted seven days; lashing cord ready; smoke rack planned for dawn.
+2026-06-30 22:05 — Day 7 — Lay in the latched shelter; nightjar went quiet; last thoughts before sleep — smoke rack at dawn.

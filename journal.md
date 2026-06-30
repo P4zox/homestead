@@ -1238,3 +1238,13 @@ I keep the axe handle close when I sleep. Not from fear — more like habit, or 
 
 The nightjar goes quiet. I don't move. After a moment it starts again, somewhere further out. I let my eyes close.
 
+### 10:05 PM · Nightjar Stopped
+
+Woke briefly in the sleeping bag — or perhaps I hadn't fully gone under yet. Hard to say where waking ends and lying-still begins. The nightjar was still calling when I last noticed it, its churring coming from the direction of the brush pile or just beyond. Then at some point between one breath and the next it stopped, and the clearing went fully quiet.
+
+Through a small gap in the east gable wattle I can see a patch of sky — two or three stars, faint ones, nothing I could name. The coals have gone to gray; there's no glow left in the fire pit. But the air inside the shelter is still a little warmer than the night outside, and the bark roof holds it in. I know this because I pulled the sleeping bag edge down and held still for a moment, feeling.
+
+Seven days here, and the shelter does what it was made to do. Seven days. I keep turning the number over quietly, the way you run a thumb over a smooth stone. Tomorrow the smoke rack: uprights first, then ridgepole, then cord the crossbars one by one. The line is in the water and I want to check it at first light.
+
+The nightjar won't call again tonight. The stream is there if I listen for it, and that's enough. I let my eyes close for good.
+
