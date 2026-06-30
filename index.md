@@ -114,3 +114,4 @@ Day 7, 2026-06-30 17:05 — Foraged wild garlic, wood sorrel, dandelion crowns, 
 2026-06-30 20:06 Day 7 — twisted six lengths of two-ply bark cord by coallight; lashing prep for smoke rack; coals banked, ready for dawn build.
 2026-06-30 21:07 — Day 7, evening: lying in shelter after banking coals; counted seven days; lashing cord ready; smoke rack planned for dawn.
 2026-06-30 22:05 — Day 7 — Lay in the latched shelter; nightjar went quiet; last thoughts before sleep — smoke rack at dawn.
+2026-06-30 23:06 — Late night; shelter dark and still, nightjar silent, only the stream; smoke rack planned for first light. [Day 7]

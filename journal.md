@@ -1248,3 +1248,12 @@ Seven days here, and the shelter does what it was made to do. Seven days. I keep
 
 The nightjar won't call again tonight. The stream is there if I listen for it, and that's enough. I let my eyes close for good.
 
+
+### 11:06 PM · The Stream Remains
+
+Cannot say whether I slept or only rested. Either way, it is past eleven now and the shelter is perfectly dark — no coal-glow left, only the faint cold sky through the gap in the west gable wattle. The nightjar has been silent for some time. What I hear is only the stream: that low, unhurried sound the land makes without any help from me.
+
+Seven days. The door is latched, the cold-storage box is keeping what I gathered this evening, six cord lengths are coiled by the door, and the morning already has its orders — fishing line first, then four forked uprights south of the shelter, then lashing begins. If there is trout, I will smoke it. If there is not, I will smoke the next one.
+
+There is nothing left to plan. The axe is inside, out of the damp. The sleeping bag still holds a little warmth from earlier in the night. I let my eyes close and leave the rest to the stream.
+
