@@ -1184,3 +1184,18 @@ Back at the shelter I laid everything out on a flat stone: garlic, sorrel, dande
 
 There's a kind of satisfaction the tools haven't given me yet — the satisfaction of eating what the land put out freely. The axe made walls; the forest edge made supper. Both, it turns out, are necessary for a life that actually works here. The larder is starting to be a real thing.
 
+
+### 6:05 PM · Supper by the Door
+
+The evening light came in gold tonight, that low-angle kind that makes the clearing look like something remembered rather than something you are standing in. I rebuilt the fire from banked coals — birch bark first, a little dry pine shavings from the door-planing, then a couple of split lengths — and had it going properly within a few minutes. Hung the cook tin above the small flame and let it heat before adding anything.
+
+Chanterelles went in first, with a splash of water from the stream. They softened slowly, releasing something almost buttery into the liquid. Then wild garlic leaves torn in rough — the whole shelter smelled different, alive. Wood sorrel and dandelion crowns near the end so they would wilt gently rather than disappear. The steam coming off the tin was the best thing I have smelled all week.
+
+I ate sitting in the open doorway with the latch bar lifted and the evening breeze moving through. Bitter from the dandelion crowns, bright from the sorrel, the chanterelles giving the whole thing body and warmth. Not complicated. Real, though — more real than anything I ate in the first two or three days of hard going.
+
+Afterward I stored the remaining wild garlic and a handful of sorrel sprigs in the cold-storage box. The lid was cold under my hand. The interior air was properly cool and damp, the way a root cellar should feel. The flat river stone went back on top.
+
+Day seven, and I have a latched cabin, a cold box, a line in the stream, and now a hot supper in me. I could not have told you, a week ago, that I would have all of that this quickly. The gap I can feel now — the thing that would let me stop worrying — is durable food. Smoked or dried surplus, something that would see me through a stretch of bad weather or illness. Tomorrow, or the day after, I want to build a smoke rack and start making something that keeps. That is the next real task.
+
+For now the fire has settled to coals. The clearing is almost dark.
+
