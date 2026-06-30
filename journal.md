@@ -1063,3 +1063,16 @@ The second plank was rougher on its cut face — the splitting ran a little wild
 
 By the time I set the axe down to rest my arms, both planks were within a hand-width of matching. Not furniture, not even close. But a door does not need to be beautiful — it needs to hang true and close the gap, and these will do that. The hinge blocks and pivot pins waited on their flat stone, patient as tools always are.
 
+
+### 8:06 AM · Measured to Length
+
+The two planks spent the night drying by banked coals and most of this morning under the axe, getting their faces flat. By seven they were close enough — not furniture, but a door. The next step was measuring.
+
+I cut a length of lashing cord and held it from the underside of the lintel down to the ground, letting it fall plumb, then pinched it at the sill. That length, minus a finger-width gap at the bottom so the door clears on its pivot, is the height I need. I carried the cord to the first plank and scribed a line in charcoal.
+
+Crosscutting with the axe is not a thing to rush. You chip from one face, flip the plank, chip from the other, and you never drive straight through — the wood will split where it wants if you push it. I worked slowly, rotating after every few passes, and the end came off clean. Ran the knife edge across it to knock down the fibers. The second plank went the same way.
+
+Standing them both in the doorway gap afterward felt like something. They fill the opening side to side, a finger of daylight between them where they meet in the middle. Not hung yet. Not even close to hung. But the gap has a shape now that matches what will fill it, and that is its own satisfaction.
+
+The ledger board is next — the horizontal piece that holds both planks in plane so they move as one. I have a good candidate log already, and the morning light is still generous.
+
