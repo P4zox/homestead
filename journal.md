@@ -1121,3 +1121,18 @@ Boring the keeper groove into the west doorpost took the better part of the hour
 Swung it open and closed four times. The door holds.
 
 I stood in the open doorway for a moment, midday light coming in flat over the clearing, the stream audible through the wattled gable. A week ago I had a tent and an axe. Now I have walls, a roof, a door that latches. I let that sit a moment, then went in to eat.
+
+### 1:04 PM · Line and Trout
+
+After the morning work on the door, the shelter stood complete and latched, and I had nothing left to avoid: the fishing line needed checking.
+
+I walked down through the clearing to the stream. The day had settled into that still midafternoon quiet where even the birds go brief and scattered. The water was loud over the rocks, cold-smelling, and the mossy cleft where I had wedged the cord was exactly as I left it. I crouched and pulled up hand over hand.
+
+A small trout — not large, but solid and silver-bright, alive in that full-muscle way fish are before they are not. I thanked it quietly, the way I do, without making ceremony of it.
+
+Cleaned it at the bank with the knife. Guts back to the current. I rebuilt the fire inside, set the cook tin over the coals with a little water, and ate sitting in the doorway with my feet on the threshold and the open air in front. The door worked. I pushed it once mid-bite, watched it swing on the pivot pins and rest against the jamb, and felt something settle that I had not known was unsettled.
+
+After the meal I re-baited the hook with a fat grub from under the bark pile and lowered the line back into the cleft. Then I sat awhile watching the water move.
+
+The shelter is finished. That chapter is done. What I need now is stored food — a way to keep fish and foraged greens past the day I gather them. I have been turning over the idea of a cold-storage box: a notched log frame set low in the stream bank, lidded and shaded, where the cold seep of the water does the preserving. Not a complicated build. A week of work, maybe less, if I choose the right spot and keep it simple. The land is giving me time to think. I should use it.
+
