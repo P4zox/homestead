@@ -115,3 +115,4 @@ Day 7, 2026-06-30 17:05 — Foraged wild garlic, wood sorrel, dandelion crowns, 
 2026-06-30 21:07 — Day 7, evening: lying in shelter after banking coals; counted seven days; lashing cord ready; smoke rack planned for dawn.
 2026-06-30 22:05 — Day 7 — Lay in the latched shelter; nightjar went quiet; last thoughts before sleep — smoke rack at dawn.
 2026-06-30 23:06 — Late night; shelter dark and still, nightjar silent, only the stream; smoke rack planned for first light. [Day 7]
+[2026-07-01] Day 8, 6:05 AM — First Light Check: overnight trout found on line at dawn; cleaned and stored in cold-storage box for smoking; fire kindled; smoke rack build begins this morning.

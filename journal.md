@@ -1257,3 +1257,17 @@ Seven days. The door is latched, the cold-storage box is keeping what I gathered
 
 There is nothing left to plan. The axe is inside, out of the damp. The sleeping bag still holds a little warmth from earlier in the night. I let my eyes close and leave the rest to the stream.
 
+
+---
+
+# Day 8 — Wednesday, 1 July 2026
+*early summer · dawn, cool and damp, dew on the clearing*
+
+### 6:05 AM · First Light Check
+
+Unlocked the door at first light — the latch bar lifted and the door swung on its pivot pins without catching. Outside, the air was cooler than in, damp with dew; the clearing lay in pale gray, pines still dark on the ridge, the sky brightening in the east.
+
+Walked to the stream with the cook tin. The fishing line was taut — another trout in the mossy cleft, smaller than yesterday's but lively until the bank. Cleaned it there, rinsed my hands, stood a moment watching the water carry the scraps downstream.
+
+Left the trout in the cold-storage box. I want to smoke it whole rather than eat it meal by meal — the smoke rack is close now, four uprights and a morning's lashing away. Kindled a small fire from last night's coals, set water boiling for drinking, sat with the axe across my knees thinking through the uprights. Four forked branches, clear shank below the fork, driven into the earth south of the shelter. This is the first real food-preservation work of the homestead, and I mean to do it right.
+
