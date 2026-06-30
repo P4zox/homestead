@@ -1158,3 +1158,16 @@ The pine log I hauled over at the end of the last hour I crosscut into three pie
 
 The stream murmured a few feet below while I worked. There is something good about building near moving water — the sound keeps you company without asking anything back. The cold-storage box is nearly a box now. Tomorrow I can fit the front wall log, lash a lid of birch and bark, and I will have somewhere to put food that stays cold through the afternoon heat.
 
+
+### 4:05 PM · Cold Box Sealed
+
+Four stones, three logs, one afternoon. Now four walls and a lid.
+
+I came back to the box with a short pine section I had set aside from the early felling — crosscut it clean to the inner span between the side walls and tapped it into the front opening with the axe butt. No notching needed; it seated tight against the earth lip. The box now stands as a closed rectangle in the bank: clay at the back, flat stones underfoot, pine logs on four sides.
+
+For the lid I walked to the birch grove and peeled four broad strips of outer bark — still supple from the warm afternoon. Overlapped them shingle-fashion over two green-birch crosspieces and lashed the whole thing down with bark strips into a flat panel just wider than the box. Laid it on and weighted the near edge with a flat river stone.
+
+Then I slipped my hand in through the gap. Cooler than the air by a noticeable margin, and damp in the steady way that says it will stay. The seep is doing its work.
+
+I sat by the water a moment after. A cold-storage box sounds ordinary, and I suppose it is, but it was not here yesterday. Tomorrow's trout — whatever the line brings up in the night — goes straight in instead of being eaten warm out of necessity. That changes things. Small rooms in a life, each one making the next one possible.
+

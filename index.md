@@ -107,3 +107,4 @@ Day 7 (2026-06-30) 12:05 — Latch bar cut from birch heartwood, keeper groove b
 Day 7, 2026-06-30, 13:04 — Checked overnight fishing line at mossy stream cleft; caught small trout; cooked and ate midday in shelter doorway; reset bait; began planning cold-storage box near stream bank.
 2026-06-30 14:06 · Day 7 — scouted cold-storage box site in stream-bank seep; four stakes driven, clay recess opened, first pine log hauled to site
 2026-06-30 15:06 — Day 7 — Cold-storage box: recess deepened to elbow depth, three log walls fitted on flat-stone base at stream-bank seep
+Day 7, 2026-06-30, 16:05 — Completed cold-storage box: front wall log fitted and tapped flush, bark lid lashed over birch crosspieces and weighted with flat stone; box sealed in cold seep and noticeably cool inside.
