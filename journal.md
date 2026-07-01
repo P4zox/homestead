@@ -1430,3 +1430,9 @@ The shelter feels complete tonight in a way it has not until now. Door latched, 
 
 The nightjar calls again. I close my eyes.
 
+
+### 9:05 PM · Settled and Still
+
+The coals are ash-covered and faint — more light memory than light. The nightjar is still at it, that mechanical burring from somewhere in the pines, and I find I do not mind. It is the closest thing to company without being company.
+
+I have been lying here letting the day arrange itself behind my eyes. The smoke rack held. The trout is cured and cold. The clay pad is drying and only needs tomorrow and one more day after that. The chanterelles are airing on bark and will be better for the nights

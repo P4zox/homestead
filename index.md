@@ -130,3 +130,4 @@ Day 8 (2026-07-01) 16:05 — Sorted chanterelles; rekindled fire; cooked supper 
 Day 8, 18:05 — Evening cord-twisting at shelter door as dusk settled; nightjar in the treeline; fire banked to coals; chanterelles checked — still pliable, right for one day's air; homestead latched and quiet.
 2026-07-01 19:05 Day 8 — Finished second bark cord by firelight; nightjar calling; shelter latched and quiet for the night.
 2026-07-01 20:05 (Day 8) — Resting inside latched shelter by low coals; nightjar calling from pines; reflected on a full week of building; planned tomorrow (smoke-dry chanterelles, check clay pad, check fishing line).
+2026-07-01 21:05 — Day 8: lay inside latched shelter by dim coals as nightjar called; felt shelter hold around me; drifted toward sleep.
