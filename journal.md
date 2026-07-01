@@ -1467,3 +1467,14 @@ The chanterelles have been airing since yesterday afternoon. When the wood burns
 
 The morning is cool and clear and entirely mine. The stream sound carries from below the slope. I can smell the birch smoke starting.
 
+
+### 7:05 AM · Smoke over the rack
+
+The coals were ready by seven — I knew from the color beneath the ash: a steady orange-ember bed with white creeping in at the edges. I carried the bark sheet of chanterelles out from shelter and began setting the caps stem-up across the smoke rack's three ascending birch crossbars. Thirty-two caps in all, I counted as I placed them. The largest took up the full width of a bar; most fit two abreast with room to breathe between them.
+
+I pulled the dampest green birch boughs from the pile I'd set aside and laid them over the coal bed in a loose mound. Smoke rose almost immediately — white, steady, faintly sweet with living wood. The chanterelle caps caught it in their hollow undersides, the pale gills going dark at the edges first.
+
+I stood watching for a moment, then let the rack do its slow work. Every half hour I'll come back, push the spent boughs aside, lay fresh ones, keep the fire from flaring. It is the kind of work I like — something being made by patience and heat, not by hurry.
+
+By midday they should have a long cure behind them. Then I'll check the clay pad. Everything is moving in good order this morning.
+
