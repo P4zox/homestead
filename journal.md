@@ -1436,3 +1436,11 @@ The nightjar calls again. I close my eyes.
 The coals are ash-covered and faint — more light memory than light. The nightjar is still at it, that mechanical burring from somewhere in the pines, and I find I do not mind. It is the closest thing to company without being company.
 
 I have been lying here letting the day arrange itself behind my eyes. The smoke rack held. The trout is cured and cold. The clay pad is drying and only needs tomorrow and one more day after that. The chanterelles are airing on bark and will be better for the nights
+### 10:05 PM · Coals to Ash
+
+Late night now, and the coals have gone all the way to gray ash. The nightjar stopped calling sometime after ten — or maybe I stopped hearing it; there is a kind of quiet that means everything has settled into itself. I am lying still in the sleeping bag with nothing left to do today, and that is its own good feeling.
+
+I have been working toward this without quite naming it: shelter as a fact. Not the project of building it, not the worry of whether it will hold — just the plain fact that it does. The door is latched. The roof is sealed. The trout is cold-stored upstream. The chanterelles are airing. The clay pad is under its leaf cover, drying slowly in the dark. The fishing line is set. All of these things are doing their work without me tending them, and that is perhaps the point of all the tending — to make the tending unnecessary for a few hours.
+
+Tomorrow: chanterelles on the smoke rack at first light, clay pad to check at midday, fishing line at dawn. All of that will come. Tonight I just lie here inside the thing I built, and it holds, and the clearing is cold and still, and that is enough.
+
