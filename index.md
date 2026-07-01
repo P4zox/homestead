@@ -120,3 +120,4 @@ Day 7, 2026-06-30 17:05 — Foraged wild garlic, wood sorrel, dandelion crowns, 
 Day 8, 08:05 — Smoke rack completed: ridgepole laid in upright forks, three birch crossbars lashed with six bark-cord ties; rack ready; trout awaits smoking.
 2026-07-01 09:05 Day 8 — Trout hung on smoke rack; green birch banked over coals; first smoking begun; tending fire through mid-day.
 2026-07-01 10:04 — Tended smoking fire; discovered workable gray-blue clay deposit at stream bank bend (~10–15 paces of exposed face); trout bronzing well on rack.
+2026-07-01 11:04 — Day 8 — Tended smoking fire; rotated trout on rack (nearly two hours in, skin bronzing well); kept coals low with green birch; thinking ahead to clay-hearth harvest this afternoon.

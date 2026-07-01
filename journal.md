@@ -1316,3 +1316,16 @@ When I walked the thirty paces down to the stream for more green branches, I sto
 
 I made a mental note of the spot and carried my branches back to the fire. The clay hearth I've been turning over in my mind — safer indoor heat, better warmth retained overnight — that bank is where it would begin. But not today. Today, smoke and patience.
 
+
+### 11:04 AM · Smoke Rising, Fish Turning
+
+The birch smoke is doing its slow work. I've been tending the fire now for going on two hours — keeping the coals damped just enough to push smoke up through the rack, laying fresh green boughs every little while when the white plume starts to thin. There's a rhythm to it. You watch the smoke, you feel the heat from a hand's distance above the coals, you reach for another branch.
+
+I walked a slow circle around the rack and looked the trout over from both sides. The skin has taken on a bronzed, darkened color — not raw anymore, not yet fully leathered, but somewhere in between, which is exactly where it should be at this point. I rotated it a quarter turn on the ridgepole cord so the other side faces the thicker smoke from below. The smell is clean and sharp: birch, fire, fish fat rendering slowly.
+
+The forest around me is quiet. Midmorning stillness. A jay called once from the pines behind the shelter and went silent. The stream mutters on. The smoke climbs straight — no wind, which is good; drift would thin the cure.
+
+I'm thinking ahead to this afternoon. The clay seep is maybe thirty paces downstream, and I walked past it this morning without stopping — just pressed a thumb into it, felt it hold its shape, noted it. That's where the next real work is: carry up a good load of that gray-blue clay, mix it slow, pack a small hearth inside against the north interior wall. Indoor fire means no more huddling in the doorway when rain comes. It also means I can cook through winter without going out into the dark and the wet.
+
+But that's afternoon. Right now: smoke. Feed the coals. Keep patience.
+
