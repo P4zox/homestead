@@ -1410,3 +1410,12 @@ The clearing goes very quiet in the evenings. Birdsong falls away and the stream
 
 Banked the fire to low coals before latching the door. Checked the chanterelles: still pliable, which is right for one afternoon's air. Tomorrow they go on the smoke rack. Tonight the homestead is settled and still.
 
+
+### 7:05 PM · Second Cord, Nightjar
+
+The coals hold just enough glow to see by if I face them. I was not quite ready to sleep, so I picked up the second bark cord where I left it — half-twisted, loose end coiling away from my knee — and worked it by the warmth of the embers. The twist is something my hands know now, not my mind. Two plies rolling under my thumb, tightening, giving just a little, tightening again. An arm's length became two. I set it beside the first cord in the lashing bundle.
+
+Outside, the nightjar is still calling from the pines. That churring sound belongs entirely to this hour, to the dark beyond the treeline. It has been calling every evening since I arrived — or I have only just learned to notice. Either way, I am glad for it. Something alive and unhurried out there while I sit in here.
+
+The chanterelles air quietly on their bark sheet. The clay pad breathes under its leaf cover. The smoke rack stands south of the shelter, holding its shape in the dark. Everything I have built holds. Eight days out, that still surprises me — gently, pleasantly. I set the cord aside. My eyes are willing. I will sleep.
+
