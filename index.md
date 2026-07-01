@@ -125,3 +125,4 @@ Day 8 · 2026-07-01 · 12:05 — Noon trout inspection: skin bronzed but shoulde
 2026-07-01 13:05 — Day 8 — Worked clay for hearth pad: kneaded to remove air pockets, pinched three-sided back/side wall up on flat bark, shaping done; trout still on rack (pulls ~14:00)
 2026-07-01 14:07 — Day 8 — Pulled cured trout from smoke rack after five hours (skin deep amber); stored in cold-storage box; finished shaping clay hearth pad; set to dry in doorway shade.
 2026-07-01 15:05 — Day 8 — Returned to chanterelle patch at birch deadfall; cut thirty-plus golden caps and extra sorrel from sunlit gap; spread to air on bark sheet — some for supper, rest to dry over coals tomorrow.
+Day 8 (2026-07-01) 16:05 — Sorted chanterelles; rekindled fire; cooked supper (chanterelles, wild garlic, sorrel) in the cook tin; ate in doorway as light turned gold; remaining chanterelles laid out to air overnight for tomorrow's smoke-drying.

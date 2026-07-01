@@ -1377,3 +1377,14 @@ Back at the shelter I spread the chanterelles on a bark sheet to air. Some I wil
 
 The clay pad in the doorway looks unchanged, which is right. Patience is what clay asks of you.
 
+
+### 4:05 PM · Fire and Chanterelles
+
+The chanterelles were still airing on the bark sheet when I came back inside. I sorted through them — the largest caps and a good handful of sorrel set aside for supper, the rest spread in a single layer on a second sheet to keep drying. Tomorrow, when I get coals going low under the smoke rack, those go on the crossbars. Not today. Today they just need air.
+
+The fire pit still had live coals under the ash. One breath and a bit of dry birch bark and they caught again. I fed it slowly — small sticks first, then a thicker piece — until I had a steady cooking flame. Set the cook tin in close, a finger of water in the bottom. Sliced the chanterelle caps thin so they would cook through fast, let them go first until the edges curled and browned a little, then added the wild garlic and sorrel. The wild garlic cut through everything with its sharp smell. The sorrel wilted in less than a minute.
+
+Ate in the doorway while the light turned gold across the clearing. Small meal, complete. Eight days here and the place has started to feel genuinely mine — not just camped in, but made. The smoke rack standing south of the shelter. The cold-storage box set in its seep upstream. The door that latches. Each thing added a little more weight to the word home.
+
+The coals are still warm. I will let the fire go low this evening, leave the remaining chanterelles to air overnight on the bark sheet, and start the drying work first thing tomorrow.
+
