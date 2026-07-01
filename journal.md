@@ -1340,3 +1340,16 @@ Then I walked to the clay bank. Ten paces of exposed gray-blue face at the bend 
 
 The plan is clear: after the trout is pulled and stored, I will shape a flat clay pad inside the shelter — a hearth base, big enough to hold coals safely away from the log floor. A low clay ridge on three sides will contain the fire. The clay will need to dry slowly and then be fired in place; I will not rush it. For now, having the material here is enough.
 
+
+### 1:05 PM · Hands in Clay
+
+The cook tin of clay has been sitting in the shade since noon — long enough to cool, not long enough to dry at the surface. I carry it inside the shelter and set it on the log floor near where I want the hearth to sit.
+
+It is heavy and smooth when I tip it out. Gray-blue, the color of river stones deep in the water. It smells of the stream bank: mineral, a little cold even now. I press both thumbs in and the clay gives without cracking. Good. A batch that splits under thumb pressure is no good for firing; this one holds its shape and moves.
+
+I work it for a while — folding and pressing, turning the mass over on a flat piece of bark to keep it from sticking to the floor. The point is to push out air pockets. An air pocket inside a clay wall will steam and burst when the clay gets hot; I do not want that happening inside the shelter on the first fire. So I knead it like bread, slowly, pressing each fold in firm. My hands are gray up to the wrists.
+
+After that I begin the shape. The hearth pad wants to be flat and wide — big enough to hold a full cook fire — with a low three-sided wall at the back and sides to catch rolling coals and keep them from the log floor. I pinch the back wall up first, slow, keeping the thickness even. A pinch too thin and the wall cracks on firing; too thick and it takes forever to dry through. Maybe two fingers thick along the wall face.
+
+Outside, the smoke rack is still going. I can hear the fire breathing, that slow tick of green wood giving off moisture. The trout needs another hour. I am in no hurry. I shape and press and check the wall height, and the afternoon holds still around me.
+

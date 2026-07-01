@@ -122,3 +122,4 @@ Day 8, 08:05 — Smoke rack completed: ridgepole laid in upright forks, three bi
 2026-07-01 10:04 — Tended smoking fire; discovered workable gray-blue clay deposit at stream bank bend (~10–15 paces of exposed face); trout bronzing well on rack.
 2026-07-01 11:04 — Day 8 — Tended smoking fire; rotated trout on rack (nearly two hours in, skin bronzing well); kept coals low with green birch; thinking ahead to clay-hearth harvest this afternoon.
 Day 8 · 2026-07-01 · 12:05 — Noon trout inspection: skin bronzed but shoulder still yields; extended smoke cure to ~14:00; gathered cook-tin of gray-blue clay from stream bank for indoor clay hearth.
+2026-07-01 13:05 — Day 8 — Worked clay for hearth pad: kneaded to remove air pockets, pinched three-sided back/side wall up on flat bark, shaping done; trout still on rack (pulls ~14:00)
