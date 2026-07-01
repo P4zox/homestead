@@ -1419,3 +1419,14 @@ Outside, the nightjar is still calling from the pines. That churring sound belon
 
 The chanterelles air quietly on their bark sheet. The clay pad breathes under its leaf cover. The smoke rack stands south of the shelter, holding its shape in the dark. Everything I have built holds. Eight days out, that still surprises me — gently, pleasantly. I set the cord aside. My eyes are willing. I will sleep.
 
+
+### 8:05 PM · Coals at Rest
+
+The shelter holds warmth well. I am on my back in the sleeping bag, listening. The nightjar is working the treeline in passes — its churr cuts off and starts again as it banks through the pines. The coals are a soft orange under their ash. No flame; just that held heat a banked fire is so good at.
+
+I run through tomorrow in my head: smoke-dry the chanterelles first thing, while the coals are still live. Thirty-plus caps spread across those smoke-rack crossbars over a slow warm fire should cure to proper dried mushrooms in three or four hours. Then check the clay hearth pad — if it is leather-hard by midday, maybe fire it late afternoon. The fishing line is set; I may have another trout at dawn.
+
+The shelter feels complete tonight in a way it has not until now. Door latched, food cold-stored, bark cord coiled, dry wood stacked inside, smoke rack standing south of the door, a foraged harvest airing on bark sheet. One week and a day of working this land, and it has started to feel less like survival and more like living. That feels worth noticing.
+
+The nightjar calls again. I close my eyes.
+
