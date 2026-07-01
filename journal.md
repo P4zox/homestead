@@ -1305,3 +1305,14 @@ There is something quietly satisfying about sitting here. The trout came from th
 
 I'll tend this fire until noon at least. If the smoke stays thick and the heat stays low, the fish will be half-cured by then — worth keeping, safe to eat over the next few days without a cold box. First preserved stores of the homestead.
 
+
+### 10:04 AM · Clay at the Bank
+
+The smoke has been rising for over an hour, thick and white, bending gently through the rack frame. I came around to check on things — added a good armful of green birch boughs to the coal bed, keeping the flame tamped down. The smell is clean and resinous, and the trout's skin has already started to bronze along one side, color moving inward from the edges. A good sign.
+
+I stayed close, sitting on my split-round seat with the axe across my knees. The morning air is dry — better for smoking than damp, the moisture has no pull on the smoke. I fed the fire in small increments, a handful of green branch ends every quarter-hour, watching the smoke thicken, thin, and thicken again as the fresh wood caught.
+
+When I walked the thirty paces down to the stream for more green branches, I stopped on the bank and looked at something I hadn'd paid proper attention to before. Just below the waterline, where the bank is cut steep by a bend, there's a clay layer — heavy, dark gray-blue, slick in the hand. I pressed a thumb-pinch between my fingers: it held shape without crumbling. That's workable clay. Maybe ten or fifteen paces of good exposed bank before the gravel takes over, but it's there, and it's close.
+
+I made a mental note of the spot and carried my branches back to the fire. The clay hearth I've been turning over in my mind — safer indoor heat, better warmth retained overnight — that bank is where it would begin. But not today. Today, smoke and patience.
+
