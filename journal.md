@@ -1353,3 +1353,12 @@ After that I begin the shape. The hearth pad wants to be flat and wide — big e
 
 Outside, the smoke rack is still going. I can hear the fire breathing, that slow tick of green wood giving off moisture. The trout needs another hour. I am in no hurry. I shape and press and check the wall height, and the afternoon holds still around me.
 
+
+### 2:07 PM · Trout in the Box
+
+The smoke had done its work by the time I walked out to check the rack. The trout's skin was pulled tight and deep amber — almost mahogany at the spine. I pressed the shoulder and felt it yield only a little, the flesh firming beneath. Five hours of birch smoke. I lifted the fish by its cord, carried it upstream, and laid it on the cold-stone base of the storage box beneath the bark lid weighted with its river stone. It can rest there through tomorrow and into the day after.
+
+Back inside, I returned to the clay pad. It had stiffened a little from sitting while I tended the rack, which made smoothing the edges easier — I could trim and press without it slumping. I worked the back and side walls to an even two fingers all around, ran a wet fingertip along each top lip to round them smooth, and pressed the base flat against the bark sheet. Still tender, not leather-hard yet. I moved the whole sheet to the doorway where the afternoon light comes in without direct sun — good drying air, no heat blast, no draft to crack it. There it will sit, a day or two at least. No hurrying clay.
+
+The pad won't be fired until it has shrunk and stiffened in its own time. But the shape is finished. That's enough for today.
+
