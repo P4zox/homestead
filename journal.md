@@ -1399,3 +1399,14 @@ On the way back I gathered an armful of deadfall — dry pine mostly, a couple o
 
 The sky is going amber behind the pines. A long shadow stretches from the ridge posts across the clearing floor. I am sitting at the door with my back against the frame, watching the light change. Tomorrow: smoke the chanterelles first thing, tend the fire low, check the hearth pad again by midday.
 
+
+### 6:05 PM · Last of the Light
+
+The amber left the sky slowly, the pines to the west going black against a pale grey-peach glow. I stayed in the doorway through all of it. Everything was already in order — trout in the cold box, chanterelles airing on their bark sheet inside, fishing line reset in the mossy cleft, dry wood stacked behind the door. Nothing left that needed doing before dark.
+
+So I worked with my hands instead. Pulled a length of inner birch bark from the bundle and spent the last of the daylight twisting cord — that slow figure-eight motion that has become almost thoughtless by now. One full cord done and halfway through a second before the light dropped past useful. Kept on by feel a little, then let it rest.
+
+The clearing goes very quiet in the evenings. Birdsong falls away and the stream sound rises to fill the space. A nightjar started churring somewhere in the treeline — that strange wooden call you hear and then cannot place again. I sat with it until the cold finally sharpened enough to pull me inside.
+
+Banked the fire to low coals before latching the door. Checked the chanterelles: still pliable, which is right for one afternoon's air. Tomorrow they go on the smoke rack. Tonight the homestead is settled and still.
+
