@@ -1329,3 +1329,14 @@ I'm thinking ahead to this afternoon. The clay seep is maybe thirty paces downst
 
 But that's afternoon. Right now: smoke. Feed the coals. Keep patience.
 
+
+### 12:05 PM · Noon Check, Clay Gathered
+
+The fire held well all morning. I kept it banked low — green boughs layered over coals so the smoke came up white and thick, folding around the fish in slow steady billows. At noon I walked the arc around the rack and checked the trout properly. Skin dark gold now, almost amber at the tail; firm and dry where I ran a finger down the flank. But when I pressed at the thickest part of the shoulder the flesh still gave a little — not raw, not done. A half-cure. Good enough for tonight or tomorrow, but I want more than that. This fish needs to last into the week.
+
+I added another armload of green birch boughs to the coal bed and decided to let it go until mid-afternoon — two more hours at least. The rack stood without any coaxing; the lashings are tight and there has been no creep since morning. I marked the extension in my mind: pull at two o'clock, earlier if the boughs burn through fast and I cannot keep the smoke going.
+
+Then I walked to the clay bank. Ten paces of exposed gray-blue face at the bend in the stream, just past where the bank cuts sharp. I pressed my thumb in; it held the print clean — good sign. I scraped a full load into the cook tin with the back of the knife, taking only the clean middle of the face and leaving out stone or root debris. The clay came out cool and heavy, faintly blue-gray, smelling of iron and wet stone. I carried it back and set it in the shade at the shelter entrance so it does not dry out before I can work it.
+
+The plan is clear: after the trout is pulled and stored, I will shape a flat clay pad inside the shelter — a hearth base, big enough to hold coals safely away from the log floor. A low clay ridge on three sides will contain the fire. The clay will need to dry slowly and then be fired in place; I will not rush it. For now, having the material here is enough.
+
