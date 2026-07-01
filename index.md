@@ -118,3 +118,4 @@ Day 7, 2026-06-30 17:05 — Foraged wild garlic, wood sorrel, dandelion crowns, 
 [2026-07-01] Day 8, 6:05 AM — First Light Check: overnight trout found on line at dawn; cleaned and stored in cold-storage box for smoking; fire kindled; smoke rack build begins this morning.
 2026-07-01 07:05 — Day 8: Cut four Y-forked birch uprights at forest margin; drove them into ground south of shelter — smoke-rack frame now standing, trout awaiting smoke.
 Day 8, 08:05 — Smoke rack completed: ridgepole laid in upright forks, three birch crossbars lashed with six bark-cord ties; rack ready; trout awaits smoking.
+2026-07-01 09:05 Day 8 — Trout hung on smoke rack; green birch banked over coals; first smoking begun; tending fire through mid-day.

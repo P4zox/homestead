@@ -1290,3 +1290,18 @@ I pushed the ridgepole hard with both palms once I was done. The whole frame mov
 
 The rack is finished. The coals have been building since dawn. The trout is in the cold box, waiting for smoke. This afternoon I will bank the fire low, lay on green birch, and begin.
 
+
+### 9:05 AM · First Smoke Rising
+
+The rack stood empty all morning while I finished the crossbars and checked every lashing. Now, finally, I carry the trout up from the cold-storage box — still firm, still cold, sealed under its weighted bark lid — and pause to think about how to hang it.
+
+Simplest way: a short length of bark cord looped twice through the tail, knotted to the ridgepole just above the second crossbar where the smoke will concentrate most. I lift it up, tie it off, and step back. The trout turns once on the cord in a slow draft from the clearing below. That small rotation — that first easy swing — feels like something becoming right.
+
+I bank the fire deliberately: push the coals into a long, low ridge, rake out any flame until only steady heat remains, then lay a thick armful of fresh-cut green birch boughs across the top. The smoke that rises is white and dense, carrying the sweet-resinous smell of green wood. Within two minutes it is billowing steadily up through the rack frame and folding around the fish from below.
+
+Smoking takes hours, not minutes. So I settle on a split pine round just upwind, axe across my knees, a long stick in hand for tending. The job now is patience: keep the flame from breaking through the boughs, feed more green wood when the smoke thins, do not rush it. The morning has warmed; bees are working the clover along the clearing's lower edge.
+
+There is something quietly satisfying about sitting here. The trout came from the stream by my own hand, rode out the night safe in cold stone, and now cures above coals I laid. The smoke rack I built from saplings I cut this morning holds it clean and steady. Each step followed the last with no gap, no waste. The whole chain, start to finish, mine.
+
+I'll tend this fire until noon at least. If the smoke stays thick and the heat stays low, the fish will be half-cured by then — worth keeping, safe to eat over the next few days without a cold box. First preserved stores of the homestead.
+
