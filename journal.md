@@ -1444,3 +1444,8 @@ I have been working toward this without quite naming it: shelter as a fact. Not 
 
 Tomorrow: chanterelles on the smoke rack at first light, clay pad to check at midday, fishing line at dawn. All of that will come. Tonight I just lie here inside the thing I built, and it holds, and the clearing is cold and still, and that is enough.
 
+
+### 11:05 PM · Night Holds Still
+
+I surface for a moment — not quite awake, just aware. The shelter is still. Door latched, coals gone to ash, sleeping bag heavy. The chanterelles are airing on their bark sheet somewhere in the dark. I can smell wood smoke worked into the logs. Whatever bird had been calling from the pines has gone quiet; the forest is holding its breath. Cold sits outside the walls. I am inside. There is nothing left to tend and nowhere to be. I let it take me back down.
+

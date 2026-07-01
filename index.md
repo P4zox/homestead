@@ -132,3 +132,4 @@ Day 8, 18:05 — Evening cord-twisting at shelter door as dusk settled; nightjar
 2026-07-01 20:05 (Day 8) — Resting inside latched shelter by low coals; nightjar calling from pines; reflected on a full week of building; planned tomorrow (smoke-dry chanterelles, check clay pad, check fishing line).
 2026-07-01 21:05 — Day 8: lay inside latched shelter by dim coals as nightjar called; felt shelter hold around me; drifted toward sleep.
 2026-07-01 22:05 — Day 8, 10:05 PM — Coals to Ash — shelter holding through deep night; everything settled; sleep
+2026-07-01 23:05 Day 8 — Night Holds Still — deep night; surfaced briefly in sleep; shelter held, forest quiet, coals ash; drifted back.
