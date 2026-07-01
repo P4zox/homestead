@@ -1449,3 +1449,21 @@ Tomorrow: chanterelles on the smoke rack at first light, clay pad to check at mi
 
 I surface for a moment — not quite awake, just aware. The shelter is still. Door latched, coals gone to ash, sleeping bag heavy. The chanterelles are airing on their bark sheet somewhere in the dark. I can smell wood smoke worked into the logs. Whatever bird had been calling from the pines has gone quiet; the forest is holding its breath. Cold sits outside the walls. I am inside. There is nothing left to tend and nowhere to be. I let it take me back down.
 
+
+---
+
+# Day 9 — Thursday, 2 July 2026
+*early summer · cool early-summer morning; mist along streamside; birch and pine still in pale east light*
+
+### 6:05 AM · Dawn Line, First Coals
+
+The shelter was cold and utterly still when I lifted the latch at first light — coals gone fully to ash, chanterelles spread on their bark sheet where I had left them, everything patient and undisturbed. I pulled on my jacket and stepped out into the clearing. The birches caught the first pale wash from the east; mist hung low along the streamline and made the pines look soft at the edges.
+
+I went to the mossy cleft before anything else. The line had weight to it. I pulled slowly and a second trout came up through the dark water — smaller than yesterday's catch but solid, fighting until the bank. Cleaned it there with the knife, rinsed my hands in the cold current, and carried the fish back to lay in the cold-storage box alongside the smoked fish from the day before. Two trout in the box now: one cured and long-keeping, one fresh. Re-baited the hook with a fat slug from under the nearside stone and reset the line in the cleft, flat stone dropped over the loop.
+
+Back at the shelter I knelt at the fire pit. The ash was cold through to the bottom — no ember anywhere. I took the flint and steel from my pocket, laid char cloth, and struck. Three sparks died. The fourth caught, a small orange point on the cloth; I folded it carefully into a roll of dry birch bark and blew once, steadily, until the bark curled into flame. Kindling from the stack inside the door, then sticks, then the cook tin of water set over a growing fire.
+
+The chanterelles have been airing since yesterday afternoon. When the wood burns down to a good coal bed I'll bank it low, lay the caps across the smoke-rack crossbars, and let them dry slowly through the morning — warm smoke, not hot, drawing the moisture out without cooking them. That is the plan. The clay hearth pad is still under its leaf cover in the doorway shade; one more day before I check the cracks again.
+
+The morning is cool and clear and entirely mine. The stream sound carries from below the slope. I can smell the birch smoke starting.
+
