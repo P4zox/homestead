@@ -1388,3 +1388,14 @@ Ate in the doorway while the light turned gold across the clearing. Small meal, 
 
 The coals are still warm. I will let the fire go low this evening, leave the remaining chanterelles to air overnight on the bark sheet, and start the drying work first thing tomorrow.
 
+
+### 5:05 PM · Evening Line, Dry Wood
+
+The gold light is doing what gold light does at this hour — shortening shadows, picking out the amber in the pine bark and the shimmer of birch leaves at the treeline. Supper is finished, the cook tin rinsed at the stream. The chanterelles are spread on their bark sheet inside the shelter, caps a little drier at the edges already, and they will be ready for the smoke rack in the morning.
+
+I walked down to the mossy cleft with the fishing line coil. The hook was empty — whatever nibbled had gone — so I re-baited it: a pinch of slug found beneath loose bark at the stream bank, threaded to the bend, and the line set back into the slow cool water, free end knotted to a root above the bank. A dusk-fed trout would be welcome. While I was there I lifted the bark lid on the cold-storage box and found the smoked fish firm and cool inside, a breath of cold damp rising up from the flat-stone base. Everything holding.
+
+On the way back I gathered an armful of deadfall — dry pine mostly, a couple of birch pieces for slower coals — and stacked it inside the door. Then I checked the clay hearth pad in the doorway shade. Two small cracks had appeared at the rim where drying was fastest. I smoothed them back with a damp thumb, pressed the clay firm, and laid a broad leaf loosely over the top to slow the surface a little. Cracks this early can still be pinched back, and I would rather it dry slowly and whole than fast and split.
+
+The sky is going amber behind the pines. A long shadow stretches from the ridge posts across the clearing floor. I am sitting at the door with my back against the frame, watching the light change. Tomorrow: smoke the chanterelles first thing, tend the fire low, check the hearth pad again by midday.
+
