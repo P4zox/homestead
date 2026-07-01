@@ -1362,3 +1362,18 @@ Back inside, I returned to the clay pad. It had stiffened a little from sitting 
 
 The pad won't be fired until it has shrunk and stiffened in its own time. But the shape is finished. That's enough for today.
 
+
+### 3:05 PM · Chanterelles in Afternoon
+
+The clay pad sits in the doorway shade, slowly losing its softness. There is nothing more I can do for it — the next day or two it belongs entirely to itself. So the afternoon is mine.
+
+I had marked a chanterelle patch days ago at the birch deadfall along the forest margin. Chanterelles are slow to arrive and quick to pass; you do not leave them to wait on you. I brought the cook tin and my knife and walked the forest edge toward the deadfall.
+
+Found them as I had left them — a flush of golden caps tucked under the downed log, some as wide as a palm. I cut thirty or more clean at the stem so the mycelium beneath holds, working through the moss carefully. Ten paces further, a sunlit gap opened in the canopy and sorrel was growing thick there, bright green, almost too easy. I cut a good handful of that as well.
+
+The forest was quiet in the afternoon heat — just a woodpecker somewhere up the slope and the stream always audible below. Walking back I noticed how different the light feels at three in the afternoon versus morning: heavier, more golden, the shadows already beginning to lean.
+
+Back at the shelter I spread the chanterelles on a bark sheet to air. Some I will eat fresh tonight with the sorrel over a small fire; the rest I can dry tomorrow above warm coals on the smoke rack — not smoked, just gently dried — and they will keep for weeks. This is how the larder gets built: one quiet afternoon at a time, one good find after another, until there is enough.
+
+The clay pad in the doorway looks unchanged, which is right. Patience is what clay asks of you.
+
