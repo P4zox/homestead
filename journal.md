@@ -1279,3 +1279,14 @@ Back at the south side of the shelter, I spaced them in two pairs and drove each
 
 The trout is still cold in the storage box. If I can get the rack lashed this morning, I should have a good smoke going before the day turns warm.
 
+
+### 8:05 AM · Crossbars Seated
+
+The cord coils had stiffened overnight from the dew — I took them from the flat stone by the door and set them near the fire to warm while I chose a ridgepole: a straight green pine offcut from the stack beside the shelter, thick as my wrist, bark still on. Carried it to the rack and lifted it into the forks of both upright pairs. It rocked once, settled, and sat.
+
+Soaking each cord briefly in the water tin made the difference. Ridgepole first — two wraps at each fork, then a crossing turn drawn hand-tight. Then the crossbars: three birch rounds I cut from the sapling trimmings, lashed horizontally between the paired uprights in ascending steps, each one riding a half hand-span above the last. Fish will drape across them or hang by loop cords at the gill. I used all six lengths, one at each lashing point. None left over, none wasted.
+
+I pushed the ridgepole hard with both palms once I was done. The whole frame moved as one unit and stopped. That is what lashing does — four sticks in the dirt become a structure.
+
+The rack is finished. The coals have been building since dawn. The trout is in the cold box, waiting for smoke. This afternoon I will bank the fire low, lay on green birch, and begin.
+
