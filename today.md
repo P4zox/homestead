@@ -7,3 +7,5 @@
 08:05 — Checked smoke rack at one-hour mark: green birch boughs spent and smoke thinning; refreshed with fresh damp layers, smoke restored to steady white column; thinner chanterelle caps (8–9) beginning to curl at rim and amber at edges — drying progressing; large caps still pale, need most of the day; mist mostly lifted from upper clearing.
 
 09:05 — Checked smoke rack at two-hour mark: boughs refreshed, smoke restored; eight thin chanterelle caps (amber, papery, rims curled fully inward) lifted from rack, cooled in cook tin, transferred to cold-storage box — done and stored; twenty-four large caps remain on rack with surfaces now fully matte and beginning to firm at edges; drying progressing on schedule.
+
+10:05 — Checked smoke rack at three-hour mark: refreshed birch boughs before smoke thinned; smoke column white and steady; twenty-four large caps surfaces now deepened to full amber, edges firming with leathery give, thick centers still pale — cure progressing well; coal bed slow and even; caps still need several more hours.

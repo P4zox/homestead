@@ -1498,3 +1498,9 @@ The remaining twenty-four large caps are working steadily. The wet-glossy sheen 
 
 I stayed a little longer than needed, just crouching beside the rack and watching the smoke find its way through the caps. There is a particular satisfaction in this kind of tending — a fire that must stay low, smoke that must stay thick, fruit that must dry by degree. Not anxious, not idle. Just attending to what needs to be attended to.
 
+
+### 10:05 AM · Third-Hour Smoke Check
+
+The smoke rack is doing its work. At the three-hour mark the twenty-four large caps have shifted noticeably — surfaces gone fully amber now, the thicker portions still pale at their centers but the edges firming when I press them, carrying that beginning of leathery give that says the cure is taking hold. I refreshed the birch boughs before the smoke had a chance to thin this time, catching it early, and the white column came back strong and steady. The coal bed is cooperating: slow and even, no flare. These will need several more hours yet.
+
+The morning has warmed into something close to comfortable. The mist dissolved a couple of hours ago and the east light is steep now, carving clean shadows across the clearing. Good air, good smoke, quiet morning. The clay hearth pad sits in the doorway shade under its leaf cover, undisturbed — I will check it at noon as planned, see how the drying is coming along. For now there is only this: keep the smoke going, keep the fire from surging, watch the caps slowly cure.
