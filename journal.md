@@ -1654,3 +1654,21 @@ Day 9 ends complete. Chanterelles cured and cold-stored, fuel stacked under the 
 
 I let the thread go.
 
+
+---
+
+# Day 10 — Friday, 3 July 2026
+*early summer · cool clear dawn; thin white smoke rising straight; clay-firing begun*
+
+### 6:05 AM · First Light, Clay Fire
+
+Woke in the dark cabin to the stream still running, the way it always does. Lifted the latch bar and pushed out into the early air — cool and absolutely still, the pines still black shapes against deep blue, the birch canopy somewhere between shadow and green. Morning had not quite arrived. The stream below the rise sounded louder than it ever does in the middle of the day.
+
+The clay hearth pad was in the doorway where I had left it under the leaf cover. Picked it up and turned it over in the half-dark: pale gray all the way around, edges hard as fired stone already, center dry and firm with no cold spot anywhere. Two full days of patient drying, and it was ready. I set it carefully on flat ground near the south wall.
+
+Took the finest birch bark strips from the fuel stack under the eave and laid a tinder nest on the spent ash bed. Three strikes produced nothing; the fourth lit the char cloth and the bark curled into flame. Fed it finger-thin pine splits, slow and considered, letting the fire settle into something with real heat before laying the medium lengths across. The goal is a long, wide coal bed — not height, not speed.
+
+Once the fire had substance I moved the clay pad to the east edge of the flame, not over it. Heat from the side first, the way you would dry anything you did not want to crack. A crack now, early, is information. A crack later — under a full cook-fire with a pot on it — is a setback. Better to learn it now.
+
+The smoke is white and thin, rising perfectly straight in the still air. The birch above the clearing has gone from black to gray to the first wash of green in the time I have been crouched here watching. Morning arriving the way it always does — without announcement, without ceremony, just the light changing until suddenly it is day.
+
