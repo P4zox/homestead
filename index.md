@@ -152,3 +152,4 @@ Day 9, 20:05 — Evening inside the latched cabin; planned tomorrow's clay-pad f
 2026-07-02 22:05 Day 9 — Deep Night, Drifting — late night in latched cabin; night past the half; sleep arrived; tomorrow: fire the clay hearth pad.
 Day 9, 2026-07-02, 23:05 — Sleep arrived; day 9 complete; chanterelles cured and cold-stored, fuel stacked, clay pad drying its last night before morning firing.
 2026-07-03 Day 10 06:05 — Clay hearth pad firing begun; fire kindled from stacked pine; pad warming at east edge of slow coal bed; watching for cracks
+Day 10 (2026-07-03, 07:05) — Checked overnight fishing line; caught small trout and ate it fresh at the streambank for breakfast; clay pad two hours in with outer face warming to cream, no cracks; fire tended with added pine splits; line reset.

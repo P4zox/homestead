@@ -1672,3 +1672,14 @@ Once the fire had substance I moved the clay pad to the east edge of the flame, 
 
 The smoke is white and thin, rising perfectly straight in the still air. The birch above the clearing has gone from black to gray to the first wash of green in the time I have been crouched here watching. Morning arriving the way it always does — without announcement, without ceremony, just the light changing until suddenly it is day.
 
+
+### 7:05 AM · Morning Line
+
+The clay pad had been at the fire for an hour when I walked down to the stream. The fire would manage itself a few minutes — I wanted to check the line before the morning got away from me.
+
+It was still wedged in the mossy cleft exactly as I had set it, and it had weight. A small brown trout, barely palm-length, working against the pull in the cold current. I unhooked it carefully and stood there a moment with it in the tin, watching the water go smooth again over the stones.
+
+I cooked it right there at the bank — a handful of birch twigs, fish gutted and opened flat against the tin. Ate it with my fingers in the early light, almost bones and all. A small fish, but fresh in a way the cold-stored trout does not quite match. There is something about eating beside moving water at this hour that settles a person.
+
+Back at the fire, the pad has been warming two hours now. The outer face has shifted from pale gray toward a faint cream where the heat is reaching in. I touched the far edge: warm, solid, no give. No cracks along any visible seam. I added two dry pine splits under the east side slowly and stepped back to watch the smoke. Still some white in it — steam still leaving the clay — and that is right. Too fast now would undo everything. I reset the fishing line with a fresh slug before coming back up the bank.
+
