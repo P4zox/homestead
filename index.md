@@ -135,3 +135,4 @@ Day 8, 18:05 — Evening cord-twisting at shelter door as dusk settled; nightjar
 2026-07-01 23:05 Day 8 — Night Holds Still — deep night; surfaced briefly in sleep; shelter held, forest quiet, coals ash; drifted back.
 Day 9 (2026-07-02) 06:05 — Dawn line check: second trout caught, cleaned, and cold-stored; fire rekindled from flint and steel after coals went fully to ash; chanterelles to go on smoke rack when coal bed is ready.
 Day 9, 07:05 — Smoke-drying begun: thirty-two chanterelle caps arranged on rack over green birch coal bed; smoke rising steady.
+Day 9, 08:05 — Smoke rack checked and birch boughs refreshed; chanterelles showing first drying progress after one hour; mist lifting from the upper clearing.

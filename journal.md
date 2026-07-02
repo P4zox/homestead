@@ -1478,3 +1478,14 @@ I stood watching for a moment, then let the rack do its slow work. Every half ho
 
 By midday they should have a long cure behind them. Then I'll check the clay pad. Everything is moving in good order this morning.
 
+
+### 8:05 AM · Smoke and Silence
+
+The green birch boughs had done their first hour of work and were giving out — smoke thinning to a faint drift when I came to check. I pulled back the spent layers with a stick and laid fresh damp boughs over the coals, pressing them flat so they would smolder rather than catch. The smoke rose again in a thick white column that broke apart in the canopy above.
+
+I counted the caps. Eight or nine of the thinner ones had begun to curl at the rim — the smaller chanterelles drying faster than the rest, their edges going from butter-yellow to a warm amber at the tips. Still soft at the center, but the direction is right. The big ones, wide as my palm, barely changed; they will need most of the day.
+
+The mist is almost gone from the upper clearing now. It lingers only in the low ground near the stream, a thin blue-white band that moves when the birches move. The morning has settled into itself — cool still, but the east light is bright enough to throw shadows. Good drying weather, if I keep the smoke steady.
+
+I stood by the rack for a few minutes just listening. A nuthatch working a pine trunk somewhere up the slope. Water noise from the stream. The slow hiss of birch boughs catching and releasing their smoke. Not much else. It is enough.
+
