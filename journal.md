@@ -1519,3 +1519,14 @@ At this pace they'll be fully cured by mid-afternoon — two, maybe three more h
 
 Smoke rising, rack holding, twenty caps still working. I'll check again at noon.
 
+
+### 12:05 PM · Slow Cure, Midday
+
+Five hours of smoke now, and I kneel at the rack to check each cap in turn — pressing a thumb to the center of the thick ones. The surfaces are uniformly deep amber, papery at the rims, leathery where the flesh runs thickest. But the broad centers of these last twenty caps still give. Not raw, not wet — more like leather that has not quite finished taking its shape. They need the afternoon. I expected this.
+
+I refreshed the birch boughs again: pulled the spent grey mass from the edge of the coal bed, layered in a fresh double handful of damp green branches, the wet ones first. The smoke came back white and true inside a minute, rising in a clean column. The coal bed is still slow and even — that is the thing I watch most. A flare would cook the caps rather than cure them.
+
+At midday I checked the clay hearth pad in the doorway shade, still under its leaf cover. I pressed the core through the cloth: the edges are pale gray and hard as pottery, but the center is still cool and soft — living clay, not set. One more full day, I think, maybe two if the nights cool. No hurrying clay.
+
+The stream at this hour throws bright fragments up through the pines. There is no mist left, just the weight of the sun and the smell of woodsmoke drifting south across the clearing. Everything is working; nothing is finished. This is the middle of a day well underway.
+

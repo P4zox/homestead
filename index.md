@@ -139,3 +139,4 @@ Day 9, 08:05 — Smoke rack checked and birch boughs refreshed; chanterelles sho
 Day 9, 2026-07-02 09:05 — Eight thin chanterelle caps smoked to amber and stored; twenty-four large caps continuing on rack.
 2026-07-02 10:05 — Day 9 — Smoke rack check hour 3: large chanterelle caps amber and firming; boughs refreshed early; coal bed steady.
 2026-07-02 11:05 Day 9 — Checked smoke rack (four-hour mark); four moderately-thick caps pulled and cold-stored (twelve total); twenty large caps remain; boughs refreshed; midday warmth building.
+2026-07-02 12:05 — Day 9 — Checked smoke rack at five-hour mark (boughs refreshed, smoke restored; twenty large caps surfaces deep amber, edges leathery, thick centers still pale — full cure expected mid-afternoon); checked clay hearth pad at midday (edges hard and gray, core still soft — one more full day).
