@@ -1616,3 +1616,16 @@ Thirty-two chanterelles in the cold-storage box. A trout beside them. A door tha
 
 Latched up. Going in.
 
+
+### 8:05 PM · Clay, and After
+
+Inside now, in the sleeping bag, listening to the stream below the rise. The night is clear — I could see four stars near zenith before I latched the door, the pines gone to dark shapes against a deep blue sky.
+
+The clay pad sits in the hearth corner drying. I ran a fingernail along its edge in the last of the evening light before coming in — hard and gray-pale all the way round, just a faint cool at the center still. One more night. By morning it will be ready.
+
+I am already laying out tomorrow. Low fire first — birch bark, flint, then the finger-wide pine splits stacked to build coal. Once there is an even coal bed, the pad at the edge first, not straight over the coals. Just close enough to warm through slowly without thermal shock. Then drawn over gradually, maybe an hour or two. I have cracked clay before by rushing it.
+
+After the pad comes the question I keep circling back to: a raised cookfire inside the cabin, or a fire ring at the threshold? Inside gives warmth and light through winter. But it needs a smoke hole through the roof — and opening the bark seal is not a small thing. I have not decided yet. I think I will let the hearth pad fire well first and watch what the smoke wants to do before I commit to anything.
+
+The stream is quiet. The day was long and full. I am tired in the good way that lets you sleep well.
+

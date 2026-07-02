@@ -27,3 +27,5 @@
 18:05 — Went east along the treeline in the last amber light to gather fuel for the Day 10 clay-pad firing: found dry-standing pine deadfall (three limbs, bark sloughing, inner wood pale-gray); cut and split each finger-wide with the axe; added armful of birch bark strips and a few medium pine lengths for the coal-sustaining layer; stacked all against south cabin eave under the overhang, clear of the dew line; clearing going dark by the time work was done — all fuel in place for morning firing.
 
 19:05 — Sat in cabin doorway as sky deepened to blue and first stars appeared; twisted fourth two-ply bark cord from spare strips by last of the evening light; turned over tomorrow's clay-firing sequence in mind (slow coal bed, warm pad at edge first); latched up and going in for the night.
+
+20:05 — Settled into sleeping bag inside latched cabin; listened to the night stream through the walls; turned over the clay-firing sequence for tomorrow morning and the longer question of an indoor cookfire versus a threshold fire ring; let the mind quiet toward sleep.
