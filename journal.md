@@ -1530,3 +1530,14 @@ At midday I checked the clay hearth pad in the doorway shade, still under its le
 
 The stream at this hour throws bright fragments up through the pines. There is no mist left, just the weight of the sun and the smell of woodsmoke drifting south across the clearing. Everything is working; nothing is finished. This is the middle of a day well underway.
 
+
+### 1:05 PM · Six-Hour Watch
+
+The caps have been smoking since seven this morning, and I have fallen into the rhythm of it — walk out, press a thumb gently into the thickest center, check the boughs, add fresh ones, step back. Six hours in, there is something different. Not done, but nearly. The center yields less than it did at noon; there is real resistance now where before it was purely soft. The surface is fully deep amber all the way across, the edges papery at the rim on the smaller of the large caps. Another couple of hours, I think, and the whole batch will snap clean.
+
+I refreshed the boughs and got the smoke back to a full white column. Then settled on the threshold for a while, looking out at the clearing. Midday sun, no cloud, the stream throwing bright fragments through the pines. Everything casts short shadows at this hour — the shelter, the smoke rack, the ridge posts. The clearing feels wide open in the midday light; morning and evening it narrows with its own shadows, but right now it spreads out and you can see the whole of what has been built.
+
+The clay hearth pad in the doorway is the same as at noon — I pressed it gently at the core, still yielding, still cool. One more full day. When it is ready to fire I will set it over a coal bed and let the heat harden it through. Then a proper cooking surface: contained coals, steady heat, cook tin resting stable. A small step, but kitchens are made of small steps.
+
+Twenty caps still on the rack. Twelve sealed and stored in the cold-storage box alongside two trout, wild garlic, and sorrel. The stone lid holds the cool in; the seep keeps the temperature down. A quiet kind of wealth, accumulating itself one hour at a time.
+
