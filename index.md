@@ -144,3 +144,4 @@ Day 9, 13:05 — Checked smoke rack at six-hour mark; large caps firming at cent
 Day 9, 14:05 — Pulled final twenty large chanterelle caps from smoke rack; all fully cured after seven hours — thirty-two smoked-dry caps now in cold-storage box.
 2026-07-02 15:05 — Day 9 (Thu) — Rested at stream eddy in birch shade; watched water strider on still pool; afternoon free after smoke-drying complete.
 2026-07-02 16:05 — Day 9 — Rekindled fire after afternoon rest; cooked fresh trout with wild garlic and sorrel; clay hearth pad still curing in shade
+Day 9, 17:05 — Ate supper at cabin door (trout, garlic, sorrel); hearth pad edges now hard and pale, center faintly cool — one more night before firing; fishing line reset in mossy cleft; twisted third bark cord by evening light; fire let die to ash; everything cold-stored; planning clay firing for Day 10.

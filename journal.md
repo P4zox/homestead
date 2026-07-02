@@ -1577,3 +1577,14 @@ Clay hearth pad in the doorway is still dry-curing, propped under its leaf cover
 
 Fire is steady now. Trout is cooking. The clearing holds the late-afternoon sun and the pines cast long shadows east. A good day, by any measure.
 
+
+### 5:05 PM · Supper and Plans
+
+The trout came off the fire just before six, garlic and sorrel softened into the broth, fish white and firm through. I ate outside the cabin door with the tin balanced on one knee and the evening light going amber across the clearing.
+
+After supper I checked the clay hearth pad in the doorway shade — edges hard and pale now, center still faintly cool to the touch, the last of the moisture working its way out. One more night. Tomorrow I fire it.
+
+Rinsed the tin, reset the fishing line in the mossy cleft with a fresh slug bait, twisted a third bark cord by what was left of the daylight. The smoke rack stands clear and resting south of the shelter; the cold-storage box holds thirty-two chanterelle caps and a stored trout; the door is latched. I let the fire die down to nothing — I want a clean coal bed tomorrow for the firing, not yesterday's ash layered underneath.
+
+Tomorrow: build fire early, let it settle to steady coals, then bring the hearth pad up slowly. Firing clay is patience work — too fast and it will ping and crack. Small fuel, low heat, time.
+

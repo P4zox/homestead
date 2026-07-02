@@ -21,3 +21,5 @@
 15:05 — Walked downstream fifty paces to mossy-root eddy where stream bends and current slows; sat in birch shade on bank; watched water strider work still surface; rested in afternoon warmth; fire at ash; clay pad drying in shade; all food cold-stored.
 
 16:05 — Returned from afternoon rest at the stream eddy; rekindled fire from birch bark and flint (caught on fourth strike); fetched fresh trout, wild garlic, and sorrel from cold-storage box; cooked trout in cook tin over building coals with garlic and sorrel — supper on; clay hearth pad checked in doorway shade, center still faintly cool and soft — curing on track for firing tomorrow (Day 10).
+
+17:05 — Supper eaten (trout, garlic, sorrel in cook tin, outside cabin door); clay hearth pad checked — edges hard and pale gray, center faintly cool still, one more night needed; fishing line reset in mossy cleft with fresh slug bait; twisted third bark cord by evening light; fire let die fully to ash (clean coal bed wanted for Day 10 clay firing); door latched; all food in cold storage; plan: fire early tomorrow, slow coal bed, fire hearth pad with patience.
