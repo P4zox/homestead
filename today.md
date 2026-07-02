@@ -33,3 +33,5 @@
 21:05 — Lay still in latched cabin in full dark; stream loud and low through the walls; thought over tomorrow's clay-pad firing one last time; let the question of indoor fire vs threshold ring rest unanswered — clay pad proves itself first; sleep close.
 
 22:05 — Lay still in sleeping bag in fully dark latched cabin; night past the half; stream running low and steady through the walls; day finished becoming memory — chanterelles cured, fuel stacked, clay pad drying its last night; sleep arriving without announcement.
+
+23:05 — Sleep arrived in the dark cabin; stream running low and steady through the walls; last waking thought the clay pad and the coal bed waiting for morning; went under.

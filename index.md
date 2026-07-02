@@ -150,3 +150,4 @@ Day 9, 17:05 — Ate supper at cabin door (trout, garlic, sorrel); hearth pad ed
 Day 9, 20:05 — Evening inside the latched cabin; planned tomorrow's clay-pad firing sequence and weighed future cookfire options; night clear and stream quiet.
 2026-07-02 21:05 Day 9 Thu — Night Deepens — lying in sleeping bag as cabin goes fully dark; stream loud in the night; mind quieting toward sleep; tomorrow: fire the clay hearth pad at dawn
 2026-07-02 22:05 Day 9 — Deep Night, Drifting — late night in latched cabin; night past the half; sleep arrived; tomorrow: fire the clay hearth pad.
+Day 9, 2026-07-02, 23:05 — Sleep arrived; day 9 complete; chanterelles cured and cold-stored, fuel stacked, clay pad drying its last night before morning firing.

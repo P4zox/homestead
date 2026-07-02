@@ -1645,3 +1645,12 @@ Sleep is close. I can feel it in the weight of my arms, in the way thoughts star
 
 The cabin holds. Everything is as I left it — smoke rack cleared, fuel stacked under the eave, cold-storage box sealed, fishing line reset in the cleft. The night is past the half. I can hear the stream through the walls, steady and low, and somewhere overhead the stars are where they were when I latched the door. I have been lying still a long time now, and the day has finished becoming memory. Thirty-two chanterelles cured. Fuel ready. Clay pad drying its last night. Tomorrow I will kindle the fire slow and ease the pad over the coals with patience. But that is morning. Right now there is only this — the dark room, the sound of water, the weight of the sleeping bag, and sleep arriving as it does, without announcement.
 
+
+### 11:05 PM · Sleep Arrives
+
+It is nearly midnight and sleep is here — not approaching now, but arrived. The stream is a constant below the rise, lower than it was at week's start but still running clear. The cabin holds the dark absolutely; I cannot tell wall from air.
+
+Day 9 ends complete. Chanterelles cured and cold-stored, fuel stacked under the south eave, fishing line set in the mossy cleft, clay pad drying its last night before tomorrow's fire. There is nothing left to tend, nothing left to turn over. The question of indoor fire versus threshold ring will answer itself when the pad proves sound.
+
+I let the thread go.
+
