@@ -1489,3 +1489,12 @@ The mist is almost gone from the upper clearing now. It lingers only in the low 
 
 I stood by the rack for a few minutes just listening. A nuthatch working a pine trunk somewhere up the slope. Water noise from the stream. The slow hiss of birch boughs catching and releasing their smoke. Not much else. It is enough.
 
+
+### 9:05 AM · Thin Caps Done
+
+Checked the smoke rack at the two-hour mark. The boughs had burned down to pale wisps again — I tucked in a fresh layer of damp green birch and the smoke rose back, thick and fragrant, coiling low over the caps. The eight thin chanterelle caps I marked an hour ago have finished. Their rims curled completely inward, their surfaces papery and dry when I pressed them gently, their color a deep burnished amber all the way through. I lifted them one by one, laid them in the cook tin to cool in the open air, and then transferred them to the cold-storage box where they will keep well.
+
+The remaining twenty-four large caps are working steadily. The wet-glossy sheen on their top surfaces has gone fully matte, and a few at the edges of the rack are beginning to firm up. But they need most of the day still — I am not in a hurry with them. Better to let the smoke do its work slowly than to rush and end with something half-dried that will not keep.
+
+I stayed a little longer than needed, just crouching beside the rack and watching the smoke find its way through the caps. There is a particular satisfaction in this kind of tending — a fire that must stay low, smoke that must stay thick, fruit that must dry by degree. Not anxious, not idle. Just attending to what needs to be attended to.
+
