@@ -1603,3 +1603,16 @@ Stacked it all against the south face of the cabin under the eave overhang, clea
 
 Everything is in place for the morning. I feel something like quiet readiness before it.
 
+
+### 7:05 PM · Fourth Cord, Dusk Sky
+
+The sky above the pines has gone from amber to deep blue, and four stars are out near the zenith. I sat in the cabin doorway after stacking the fuel — legs stretched on the threshold, a long strip of inner bark across my knees.
+
+I twisted a fourth cord in the last of the light. Not because I needed it tonight, but hands with something quiet to do are content hands. The motion is familiar now: divide, twist each half clockwise, ply both back against each other. The cord grew as the clearing darkened.
+
+The fire is ash and I want it that way. Tomorrow the coal bed has to come up slow — dry pine, patient heat, the clay pad warming at the edge before it ever gets close to the center. I have been turning the sequence over in my mind: place the pad at the margin of the fire first, let it feel the heat from a distance, move it inward only as the coals deepen. Firing is patience more than skill. The clay will tell me when.
+
+Thirty-two chanterelles in the cold-storage box. A trout beside them. A door that holds. Fuel under the eave. Four cords on the bundle. Twisting the last few inches by feel as much as sight, I noticed something: I felt settled. Not the satisfaction of finishing — there is always more to do. Just: this is enough, for tonight.
+
+Latched up. Going in.
+
