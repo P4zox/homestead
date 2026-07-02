@@ -1588,3 +1588,18 @@ Rinsed the tin, reset the fishing line in the mossy cleft with a fresh slug bait
 
 Tomorrow: build fire early, let it settle to steady coals, then bring the hearth pad up slowly. Firing clay is patience work — too fast and it will ping and crack. Small fuel, low heat, time.
 
+
+### 6:05 PM · Fuel for the Firing
+
+The day had wound itself down by the time I stepped outside — supper eaten, fire dead to gray ash, door latched. But there was one more thing I wanted to do before the light went.
+
+Tomorrow I fire the clay hearth pad. I have been patient with it — three days of slow drying, checking the edges morning and noon, letting the core pull its moisture out unhurried. It is almost there. But clay fired in too much haste will crack along the center where heat met wet, and I would have nothing but rubble to show for a week of careful work. So the firing has to be slow: build a coal bed, not a blaze; set the pad over warm coals; let the heat climb into it gradually.
+
+That means having the right wood ready in the morning, not scrambling for it at dawn.
+
+I went east along the treeline looking for dry-standing deadfall. Found a pine I had walked past a dozen times — bark sloughing off in long plates, inner wood the pale gray of old bone, not a trace of green in it. Cut three good limbs with the axe and split each into finger-wide pieces over a log round, keeping the blows easy and the pieces uniform. Added to that an armful of birch bark strips from the pile near the shelter, and a few medium pine lengths for the coal-sustaining layer once the kindling catches.
+
+Stacked it all against the south face of the cabin under the eave overhang, clear of the dew line. The amber had gone from the sky while I worked — the clearing held only pale diffuse light, the pines dark now against the evening blue, the stream somewhere quiet below the rise.
+
+Everything is in place for the morning. I feel something like quiet readiness before it.
+
