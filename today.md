@@ -19,3 +19,5 @@
 14:05 — Checked smoke rack at seven-hour mark: twenty large chanterelle caps all showed full amber color throughout, thick centers firm and dry under thumb, clean papery snap at rim — pulled all twenty, cooled in cook tin, transferred to cold-storage box; smoke-drying complete; thirty-two smoked-dry caps now in cold storage; fire allowed to burn down without refreshing; smoke rack cleared and resting; afternoon free.
 
 15:05 — Walked downstream fifty paces to mossy-root eddy where stream bends and current slows; sat in birch shade on bank; watched water strider work still surface; rested in afternoon warmth; fire at ash; clay pad drying in shade; all food cold-stored.
+
+16:05 — Returned from afternoon rest at the stream eddy; rekindled fire from birch bark and flint (caught on fourth strike); fetched fresh trout, wild garlic, and sorrel from cold-storage box; cooked trout in cook tin over building coals with garlic and sorrel — supper on; clay hearth pad checked in doorway shade, center still faintly cool and soft — curing on track for firing tomorrow (Day 10).

@@ -1562,3 +1562,18 @@ The smoke rack is resting. The clay pad is drying. The cold box holds fresh trou
 
 The light through the birch canopy is the long golden kind that only comes in midsummer — high sun angling in under the pines, moving on the water. I sat until I stopped thinking about what to build next.
 
+
+### 4:05 PM · Evening Fire, Supper Rising
+
+Came back up from the eddy an hour ago still loose in my limbs — that kind of rest that actually reaches the bones. Now the fire needs building again.
+
+The coal bed was fully cold, not a thread of heat in it. I raked the ash back with a stick, uncovering the flat clay floor of the fire pit, and started fresh: a nest of dry birch bark peeled from the morning's bundle, a few thin finger-dry sticks laid in a lean-to above it. Flint and steel — sparks on the fourth strike, same as this morning. The bark caught with a small orange crinkle, and I fed it slowly without rushing: small sticks first, then wrist-thick branches, until the flame was standing on its own and beginning to pull air.
+
+While the fire grew, I walked to the cold-storage box and lifted the bark lid. The box is noticeably cool still, even this late in the afternoon — the seep does its work. I took out the fresh trout from this morning, a good handful of wild garlic, and a fistful of sorrel leaves. The smoked trout and the thirty-two dried chanterelle caps I left undisturbed; they'll keep.
+
+The garlic went into the cook tin first with a splash of stream water, set directly over the growing coals. The smell that came off it — that warm sharp green — reached me before I even leaned close. When the water had reduced and the garlic had softened, I laid the trout across the tin, tucked the sorrel leaves around it, covered the top loosely with a piece of bark to hold heat. Suppers like this don't ask much of you. The fire does the work; you just pay attention.
+
+Clay hearth pad in the doorway is still dry-curing, propped under its leaf cover. I pressed the heel of my hand to the center: still faintly cool and soft there, the last bit of moisture working its way out. Tomorrow, if the morning is clear, I'll fire it. A proper hearthstone inside the shelter will mean I can cook and stay warm without going back out into the rain. Something to look forward to.
+
+Fire is steady now. Trout is cooking. The clearing holds the late-afternoon sun and the pines cast long shadows east. A good day, by any measure.
+
