@@ -1504,3 +1504,18 @@ I stayed a little longer than needed, just crouching beside the rack and watchin
 The smoke rack is doing its work. At the three-hour mark the twenty-four large caps have shifted noticeably — surfaces gone fully amber now, the thicker portions still pale at their centers but the edges firming when I press them, carrying that beginning of leathery give that says the cure is taking hold. I refreshed the birch boughs before the smoke had a chance to thin this time, catching it early, and the white column came back strong and steady. The coal bed is cooperating: slow and even, no flare. These will need several more hours yet.
 
 The morning has warmed into something close to comfortable. The mist dissolved a couple of hours ago and the east light is steep now, carving clean shadows across the clearing. Good air, good smoke, quiet morning. The clay hearth pad sits in the doorway shade under its leaf cover, undisturbed — I will check it at noon as planned, see how the drying is coming along. For now there is only this: keep the smoke going, keep the fire from surging, watch the caps slowly cure.
+
+### 11:05 AM · Smoke and Patience
+
+Eleven o'clock and the clearing holds its warmth now — the mist has been gone for hours and the sun presses down through the pines in steady columns. The smoke rack needed tending.
+
+The boughs were nearly spent when I reached it; smoke had thinned to a pale ribbon. I pulled the spent layers off and laid a fresh thick bundle of green birch across the coals — white smoke billowed back up full and steady within a minute or two.
+
+The caps themselves have come a long way since morning. The twenty-four large ones that went on at seven have now been on the heat for four hours, and the change since my last check is visible: the leathery give at the edges has worked its way further inward, and the surfaces are uniformly deep amber, almost bronze in this light. But the thickest centers — the real fat ones — still yield just slightly when I press them with a finger. Not done yet.
+
+I pulled four that I'm happy with: caps that started moderately thick rather than the thickest, now firm all the way through with a dry papery snap at the rim. Cooled them in the cook tin and carried them up to the cold-storage box. Twelve smoked-dry caps in that box now. Twenty large caps remain on the rack.
+
+At this pace they'll be fully cured by mid-afternoon — two, maybe three more hours for the last of the thick ones. The hearth pad in the doorway looks promising: edges have dried to a pale gray and feel almost stone-hard, though the core is still cool to the touch. Another full day in the shade and it ought to be ready to set. That clay pad is going to matter come winter.
+
+Smoke rising, rack holding, twenty caps still working. I'll check again at noon.
+
