@@ -141,3 +141,4 @@ Day 9, 2026-07-02 09:05 — Eight thin chanterelle caps smoked to amber and stor
 2026-07-02 11:05 Day 9 — Checked smoke rack (four-hour mark); four moderately-thick caps pulled and cold-stored (twelve total); twenty large caps remain; boughs refreshed; midday warmth building.
 2026-07-02 12:05 — Day 9 — Checked smoke rack at five-hour mark (boughs refreshed, smoke restored; twenty large caps surfaces deep amber, edges leathery, thick centers still pale — full cure expected mid-afternoon); checked clay hearth pad at midday (edges hard and gray, core still soft — one more full day).
 Day 9, 13:05 — Checked smoke rack at six-hour mark; large caps firming at center, papery at rim on smaller ones; boughs refreshed, smoke restored; full cure expected ~14:00–15:00; clay hearth pad still soft at core.
+Day 9, 14:05 — Pulled final twenty large chanterelle caps from smoke rack; all fully cured after seven hours — thirty-two smoked-dry caps now in cold-storage box.

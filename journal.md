@@ -1541,3 +1541,13 @@ The clay hearth pad in the doorway is the same as at noon — I pressed it gentl
 
 Twenty caps still on the rack. Twelve sealed and stored in the cold-storage box alongside two trout, wild garlic, and sorrel. The stone lid holds the cool in; the seep keeps the temperature down. A quiet kind of wealth, accumulating itself one hour at a time.
 
+
+### 2:05 PM · Last Caps Off the Rack
+
+The seven-hour mark. I lifted the first large cap from the rack and pressed my thumb into its thickest part — firm all the way through, no cool give at the center, just the dry resistance of cured flesh. Bent it at the rim: clean snap, papery at the break. The smell is the fullest it has been all day, that deep savory mushroom smoke that means the moisture is finally gone.
+
+I pulled them cap by cap, checking each one before it went into the cook tin to cool. All twenty passed. The thick ones that had held out all day were the last to come off, and they were the most satisfying — heavy-cured, deep amber from skin to gill, the kind of cap that will keep for months in the cold box without a thought.
+
+The fire can rest now. I let the boughs burn down without refreshing and the smoke thinned and quieted. The rack stands empty, cleared of its work for the day. Thirty-two smoked-dry caps now sit in the cold-storage box — twelve from this morning's thin batch, twenty just off — tucked in beside the trout, the garlic, the sorrel.
+
+That is a serious larder taking shape. A hard week of summer weather and good foraging has built something I can actually rely on. I'll leave the fire to cool to ash and rest this afternoon. There's still the clay hearth pad to attend to in a day, and the fishing line to check at dawn, but for right now I'll just sit at the shelter entrance and let the afternoon pass.
