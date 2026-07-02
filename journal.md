@@ -1629,3 +1629,14 @@ After the pad comes the question I keep circling back to: a raised cookfire insi
 
 The stream is quiet. The day was long and full. I am tired in the good way that lets you sleep well.
 
+
+### 9:05 PM · Night Deepens
+
+The cabin is dark and fully closed now — no moonlight through the wattle gaps, just a faint thread of starlight where bark meets gable at the roof edge. The stream is the loudest thing in the world, and it sounds different at this hour: slower, or maybe I'm only listening better.
+
+Lying still in the sleeping bag with faint smoke smell in the bark above me and the floor planks cool where my arm rests on them. Tomorrow the clay pad fires. I've thought it through enough times by now — slow coal bed, lay the pad at the edge first, warm it before centering over the coals, watch for cracks. If it holds, there'll be a proper cook surface by afternoon.
+
+The question of indoor fire versus a threshold fire ring still turns in my head, but without urgency. Let the clay pad prove itself first. Then I'll know what comes next.
+
+Sleep is close. I can feel it in the weight of my arms, in the way thoughts start to pause mid-step and look at themselves. This is what the cabin is for — not only against rain and wind, but for this: a dark, quiet, enclosed place to be done with the day.
+

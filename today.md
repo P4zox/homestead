@@ -29,3 +29,5 @@
 19:05 — Sat in cabin doorway as sky deepened to blue and first stars appeared; twisted fourth two-ply bark cord from spare strips by last of the evening light; turned over tomorrow's clay-firing sequence in mind (slow coal bed, warm pad at edge first); latched up and going in for the night.
 
 20:05 — Settled into sleeping bag inside latched cabin; listened to the night stream through the walls; turned over the clay-firing sequence for tomorrow morning and the longer question of an indoor cookfire versus a threshold fire ring; let the mind quiet toward sleep.
+
+21:05 — Lay still in latched cabin in full dark; stream loud and low through the walls; thought over tomorrow's clay-pad firing one last time; let the question of indoor fire vs threshold ring rest unanswered — clay pad proves itself first; sleep close.

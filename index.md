@@ -148,3 +148,4 @@ Day 9, 17:05 — Ate supper at cabin door (trout, garlic, sorrel); hearth pad ed
 2026-07-02 18:05 | Day 9 · Dusk | Gathered dry pine fuel and birch bark kindling for Day 10 clay-pad firing; stacked under south cabin eave — all ready for morning.
 2026-07-02 19:05 Day 9 — Sat in doorway twisting a fourth bark cord as dusk fell; four stars overhead; mind on tomorrow's clay-pad firing; latched up for the night.
 Day 9, 20:05 — Evening inside the latched cabin; planned tomorrow's clay-pad firing sequence and weighed future cookfire options; night clear and stream quiet.
+2026-07-02 21:05 Day 9 Thu — Night Deepens — lying in sleeping bag as cabin goes fully dark; stream loud in the night; mind quieting toward sleep; tomorrow: fire the clay hearth pad at dawn
