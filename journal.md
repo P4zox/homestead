@@ -1551,3 +1551,14 @@ I pulled them cap by cap, checking each one before it went into the cook tin to 
 The fire can rest now. I let the boughs burn down without refreshing and the smoke thinned and quieted. The rack stands empty, cleared of its work for the day. Thirty-two smoked-dry caps now sit in the cold-storage box — twelve from this morning's thin batch, twenty just off — tucked in beside the trout, the garlic, the sorrel.
 
 That is a serious larder taking shape. A hard week of summer weather and good foraging has built something I can actually rely on. I'll leave the fire to cool to ash and rest this afternoon. There's still the clay hearth pad to attend to in a day, and the fishing line to check at dawn, but for right now I'll just sit at the shelter entrance and let the afternoon pass.
+
+### 3:05 PM · Light on the Water
+
+The morning belonged to smoke. Eight hours tending fire, refreshing boughs, reading the slow amber deepening in those chanterelle caps — it asks more attention than it seems. By the time I pulled the last twenty large caps at two in the afternoon and let the fire die down, I was tired in a quiet, satisfied way.
+
+I walked downstream a little. Not far — maybe fifty paces past the cold-storage box, to where the stream bends and the current slows into a wide eddy against a moss-covered root. Sat down in the birch shade and stayed a while. The water was cold and clear over the gray stones. A water strider worked the still surface at the eddy's edge, its legs making tiny dimples that never quite broke through.
+
+The smoke rack is resting. The clay pad is drying. The cold box holds fresh trout, a smoked whole fish, sorrel, wild garlic, and thirty-two chanterelle caps cured hard enough to last weeks. There is nothing that needs doing this afternoon. I let myself believe it.
+
+The light through the birch canopy is the long golden kind that only comes in midsummer — high sun angling in under the pines, moving on the water. I sat until I stopped thinking about what to build next.
+

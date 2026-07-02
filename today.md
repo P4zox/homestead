@@ -17,3 +17,5 @@
 13:05 — Checked smoke rack at six-hour mark: boughs spent and smoke thinning to pale ribbon; refreshed with fresh damp green birch, smoke restored to white column; twenty large caps surfaces uniformly deep amber, edges now papery at rim on smaller caps, thick centers firming with clear resistance under thumb — not done but close; full cure now expected by 14:00–15:00; clay hearth pad in doorway shade still soft at core — one more full day needed.
 
 14:05 — Checked smoke rack at seven-hour mark: twenty large chanterelle caps all showed full amber color throughout, thick centers firm and dry under thumb, clean papery snap at rim — pulled all twenty, cooled in cook tin, transferred to cold-storage box; smoke-drying complete; thirty-two smoked-dry caps now in cold storage; fire allowed to burn down without refreshing; smoke rack cleared and resting; afternoon free.
+
+15:05 — Walked downstream fifty paces to mossy-root eddy where stream bends and current slows; sat in birch shade on bank; watched water strider work still surface; rested in afternoon warmth; fire at ash; clay pad drying in shade; all food cold-stored.
