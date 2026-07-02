@@ -1640,3 +1640,8 @@ The question of indoor fire versus a threshold fire ring still turns in my head,
 
 Sleep is close. I can feel it in the weight of my arms, in the way thoughts start to pause mid-step and look at themselves. This is what the cabin is for — not only against rain and wind, but for this: a dark, quiet, enclosed place to be done with the day.
 
+
+### 10:05 PM · Deep Night, Drifting
+
+The cabin holds. Everything is as I left it — smoke rack cleared, fuel stacked under the eave, cold-storage box sealed, fishing line reset in the cleft. The night is past the half. I can hear the stream through the walls, steady and low, and somewhere overhead the stars are where they were when I latched the door. I have been lying still a long time now, and the day has finished becoming memory. Thirty-two chanterelles cured. Fuel ready. Clay pad drying its last night. Tomorrow I will kindle the fire slow and ease the pad over the coals with patience. But that is morning. Right now there is only this — the dark room, the sound of water, the weight of the sleeping bag, and sleep arriving as it does, without announcement.
+

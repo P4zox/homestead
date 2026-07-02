@@ -31,3 +31,5 @@
 20:05 — Settled into sleeping bag inside latched cabin; listened to the night stream through the walls; turned over the clay-firing sequence for tomorrow morning and the longer question of an indoor cookfire versus a threshold fire ring; let the mind quiet toward sleep.
 
 21:05 — Lay still in latched cabin in full dark; stream loud and low through the walls; thought over tomorrow's clay-pad firing one last time; let the question of indoor fire vs threshold ring rest unanswered — clay pad proves itself first; sleep close.
+
+22:05 — Lay still in sleeping bag in fully dark latched cabin; night past the half; stream running low and steady through the walls; day finished becoming memory — chanterelles cured, fuel stacked, clay pad drying its last night; sleep arriving without announcement.
