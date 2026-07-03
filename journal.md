@@ -1712,3 +1712,14 @@ The pad is small — a flat base and three low walls, like an open box, enough t
 
 First fired thing I have made here. It felt like enough for a morning.
 
+
+### 11:05 AM · Clay Finds Its Corner
+
+An hour on the flat river stone was enough. I pressed my palm to the curved side of the hearth pad and felt nothing alarming — mild warmth from the stone beneath it, not from the clay itself. I turned it over carefully. Same on the underside. Cool enough to carry.
+
+I brought it inside with both hands, ducked under the lintel, and set it down in the northwest corner where it was always supposed to go. It settled onto the earthen floor without rocking — flat base, four walls, sitting steady. I tapped the rim with my knuckle. The same clear ring I heard at ten this morning answered back, but now from inside the shelter. That sound in this space felt like something different.
+
+A hearth pad is not a hearth yet. No fire will burn on it today — I need to think through how to build a surround before any real indoor fire is lit, make sure smoke can move out properly. But the place is marked now. The pad knows where it belongs, and the shelter has a center it did not have this morning.
+
+Outside, the coal bed is holding. I banked the fire well before carrying the pad in. Midday sun on the clearing; the birch canopy catching it and breaking it into moving pieces across the ground. The stream is audible below the rise. The day has settled into itself.
+
