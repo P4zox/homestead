@@ -1799,3 +1799,16 @@ Somewhere between this morning's kindling and tonight's supper, this place cross
 
 Walked back in full shadow but unhurried. The latch bar lifted clean. The shelter smelled of woodsmoke and faintly of chanterelles. The coals were still deep orange — the fire will hold the night with two more splits. I set them on and sat against the south wall. The gable gap above the northwest corner glows faint orange and breathes. Everything is doing its job.
 
+
+### 7:05 PM · Hearthside, First Night
+
+The fire has settled to a good orange working on the two pine splits I laid on at dusk. The gable gap above breathes faint flame-light against the inside of the rafter tails — a thing I did not expect, that first-night glow from above, and it pleases me in a way I cannot quite explain. It makes the shelter feel inhabited.
+
+Outside, dark has come completely. I can hear the stream, the bats still hunting over it, and once from the birch row an owl — a single note, then nothing. The clearing beyond the door is a shape I can feel more than see.
+
+I spent the evening twisting cord. Three-ply this time, testing the feel of an extra strand — the result is stiffer, holds its shape when coiled, grips better against itself when tied. Good for structural lashings where you want the line to keep tension rather than give. Worth knowing before I need it. I wound it into a palm-coil and set it with the others.
+
+I keep thinking about what comes next. The shelter is done in the way a first shelter gets done — good enough to live in, better than nothing by a great distance. But the food situation still runs thin in a way that would hurt come autumn. The cold box has smoked trout and dried chanterelles, and that is good for now, but it is not stored against winter. I should think about root cellar design, extended curing, salt if I can find a source, other ways to hold what the summer offers so I can eat from it past first frost. None of that is urgent tonight. But it is there, a current running under the evening.
+
+The fishing line is set. The door is latched. The fire will bank down to coals by midnight and the shelter holds warmth better than I expected — log walls and bark roof doing their work. I am sitting against the south wall watching the gable gap for the last deep blue of sky and it has gone now, or nearly. Stars. One visible through the gap: steady, white, very far.
+

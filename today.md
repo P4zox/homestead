@@ -25,3 +25,5 @@
 17:04 — Cooked supper on clay hearth: retrieved smoked trout and chanterelles from cold-storage box, added wood sorrel from shaded bank; simmered chanterelles in water in tin, laid trout across rim above flame, wilted sorrel in last; ate sitting against south wall facing fire; draft held clean throughout; first meal cooked indoors — hearth, draft, and gable gap all performed as built.
 
 18:04 — Walked to stream at dusk to check overnight fishing line; slug bait stripped clean, hook bare; cut frayed line end, retied, re-baited with earthworm from mossy bank; line reset in slow eddy; bat hunting over water; walked back in shadow; two pine splits on coals; fire will hold the night; sitting against south wall by hearth.
+
+19:05 — Stayed inside by the fire through the evening; twisted a short stretch of three-ply bark cord by firelight — stiffer hand, better for shape-holding lashings; reflected on the day's work and plans ahead (root cellar, winter food stores); kept fire low and steady on coals; watched last blue fade from gable gap; night fully set; one star through the gap.

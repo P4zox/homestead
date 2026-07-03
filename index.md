@@ -164,3 +164,4 @@ Day 10, 14:05 — Bark rain-flap (three overlapping birch strips lashed to rafte
 2026-07-03 16:05 — Day 10 — First indoor fire trial burn: clay hearth, mortar surround, gable gap, and bark rain-flap all confirmed working; smoke drew clean through northwest gable on first try; draft holds; will cook supper on hearth this evening.
 2026-07-03 17:04 Day 10 — Cooked first supper on the clay hearth; chanterelles, trout, wood sorrel in the tin; draft held clean; shelter now home.
 2026-07-03 18:04 [Day 10] Walked to stream at dusk; fishing line stripped clean; cut fray, retied, re-baited with earthworm; returned to warm shelter; fire tended through evening.
+2026-07-03 19:05 Day 10 — Hearthside, First Night: evening cord-twisting (three-ply test) by firelight; reflected on day and future plans (root cellar, winter stores); stars through gable gap; night fully set.
