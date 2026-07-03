@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 
 06:05 — Woke to banked hearth coals; stirred one dry split into a small flame; latch bar up; walked barefoot through silver-wet grass to the eddy; overnight line taut — pulled a proper trout (hand-and-a-half long) from the slow current, dispatched it, carried it back to the cook tin by the fire; root cellar digging to begin this morning on the north-facing bank behind the shelter.
+07:05 — Cooked and ate the fresh trout on the hearth (wood sorrel in the tin; ate in the doorway); carried axe to north bank behind shelter; paced and scored root cellar outline — six paces long, two paces wide, following the bank contour; stripped top sod and root mat from upper edge; earth underneath dark, loamy, cool — holds its shape well; first ground broken on root cellar.

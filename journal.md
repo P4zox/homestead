@@ -1872,3 +1872,12 @@ The overnight line was taut against the eddy current — a proper trout, hand-an
 
 The root cellar plan has been in my head since I laid it out by the coals last night. North-facing bank behind the shelter, three feet deep, six long. The axe is sharp. Digging begins this morning.
 
+
+### 7:05 AM · First Ground, Broken
+
+I cooked the trout over the rekindled hearth coals — laid it in the tin with a handful of wood sorrel, let it go until the flesh pulled clean and white from the spine. Ate sitting in the open doorway with the morning still cool on my face. The clearing was silver and quiet, the pines across it holding shadow past the edge of the brightening sky.
+
+After, I carried the axe around to the north bank behind the shelter. The slope there is shaded, steady at ten degrees or so, and the old undercut gives a natural head start on the far wall. I paced the outline — six paces long, two paces wide — and scored the perimeter into the moss with the axe blade. Then I worked the upper edge: pulling sod back by hand, cutting through the root mat in strips, lifting the earth away in cool dark slabs. The soil underneath is better than I hoped — dense and loamy, smells like rain, holds its shape when I press it.
+
+That is the beginning. The outline is clear, the top layer is stripped, and the shape the cellar wants to take is already readable inside the bank. Six paces of future cold and calm, waiting to be opened.
+
