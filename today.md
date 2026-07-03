@@ -23,3 +23,5 @@
 16:05 — Lit first indoor fire in clay hearth: birch bark kindling, pine splits, flint caught second try; smoke rose clean through gable gap on first attempt; mortar joints smoked briefly then cleared; draft holds strong through northwest gable; held fire low one hour watching ridgeline — no smoke pooling anywhere; all hearth systems confirmed working; cooking supper on hearth this evening.
 
 17:04 — Cooked supper on clay hearth: retrieved smoked trout and chanterelles from cold-storage box, added wood sorrel from shaded bank; simmered chanterelles in water in tin, laid trout across rim above flame, wilted sorrel in last; ate sitting against south wall facing fire; draft held clean throughout; first meal cooked indoors — hearth, draft, and gable gap all performed as built.
+
+18:04 — Walked to stream at dusk to check overnight fishing line; slug bait stripped clean, hook bare; cut frayed line end, retied, re-baited with earthworm from mossy bank; line reset in slow eddy; bat hunting over water; walked back in shadow; two pine splits on coals; fire will hold the night; sitting against south wall by hearth.

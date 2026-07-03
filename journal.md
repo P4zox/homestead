@@ -1786,3 +1786,16 @@ I ate sitting with my back against the south wall, facing the fire. No ceremony 
 
 This is the first meal cooked indoors. The hearth built right on the first try. I knew the draft would work — I tested it twice before lighting — but there is still something in the fact of it: sitting inside, warm, fed, with smoke going where it belongs. The shelter has been a roof and walls for days now. Tonight it is also a home.
 
+
+### 6:04 PM · Stream at Dusk
+
+It was still light when I stepped outside, though the quality had changed — flatter, amber, the kind that comes in the last hour before true dusk. The fire crackled behind me as I let the door fall on its latch bar. The clearing was quiet except for wood thrushes somewhere in the birch, and the air was that warm-and-cool mix early summer evenings make: warm in the open, cool the moment you step into shadow.
+
+I walked the thirty paces upstream to the mossy cleft where the line had been set since morning. The line was still taut, anchored at the base of a half-submerged stone, the bait-end dropping into the slow eddy where the fish hold. I knelt and drew the line in hand-over-hand. Nothing tonight — the slug bait had been stripped clean, probably hours ago, and the hook was bare. The end had a fray where it had worked against the stone. I cut back two fingers' length past the fray, retied with a tighter loop, pressed in a fat earthworm turned out of the mossy bank, coiled the slack twice around the anchor stone, and let the bait drop into still water. Ten minutes, done.
+
+Stood up and listened. The stream sounds different in the evening — lower, somehow, or maybe I am quieter. A small bat came in low over the water and banked hard left into the tree shadow. I watched it go.
+
+Somewhere between this morning's kindling and tonight's supper, this place crossed a threshold I have been working toward. Shelter, fire, cold storage, a working hearth — those four things together mean I am not improvising anymore. I am living here. The difference is hard to describe but I felt it standing at the stream tonight: the easy return, the known shape of the path, the fire I knew was waiting.
+
+Walked back in full shadow but unhurried. The latch bar lifted clean. The shelter smelled of woodsmoke and faintly of chanterelles. The coals were still deep orange — the fire will hold the night with two more splits. I set them on and sat against the south wall. The gable gap above the northwest corner glows faint orange and breathes. Everything is doing its job.
+
