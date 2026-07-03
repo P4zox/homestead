@@ -1829,3 +1829,16 @@ I will start at first light tomorrow, while the soil is cool and easy. The axe w
 
 For tonight I am content to sit with the plan and let the fire do what it does. One log left on the coals, enough to hold heat till midnight. The fishing line is out. The shelter is latched. I am warm.
 
+
+### 9:05 PM · Last Embers
+
+The shelter is fully dark now but for the coals — deep orange, holding, no flame. I fed them one last pine split before sitting down, enough to carry through the night without tending. The latch bar is down. The fishing line is out in the eddy.
+
+I can hear the stream through the gable gap. Water over stone, steady and indifferent. Earlier there was an owl in the birch row — one call at dusk, then silence. Now it is just the water and the occasional settle of log against log as the walls release the day's warmth.
+
+Tomorrow the root cellar begins. I have the dimensions in my head: three feet deep, six long, three wide, cut into the north-facing bank where the earth stays cool through summer even without a seep. The digging will be slow — clay and roots and river stone at depth, most likely. But if I start at first light and get the full depth this week, I can have it log-lined and lidded before the next smoking run. Cold storage that doesn't depend on chance is worth the sore back.
+
+The day was a good one. The hearth is real now. The first supper cooked indoors felt like a small crossing — not triumph, just completion, a thing that changes what comes next. I ate sitting against the south wall facing the fire and the gap showed one star. That was enough.
+
+Sleep soon. The coals will hold.
+

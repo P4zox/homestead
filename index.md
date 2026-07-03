@@ -166,3 +166,4 @@ Day 10, 14:05 — Bark rain-flap (three overlapping birch strips lashed to rafte
 2026-07-03 18:04 [Day 10] Walked to stream at dusk; fishing line stripped clean; cut fray, retied, re-baited with earthworm; returned to warm shelter; fire tended through evening.
 2026-07-03 19:05 Day 10 — Hearthside, First Night: evening cord-twisting (three-ply test) by firelight; reflected on day and future plans (root cellar, winter stores); stars through gable gap; night fully set.
 2026-07-03 20:05 — Day 10 evening: Sat by hearth coals planning root cellar; chose north-facing bank behind shelter for site; roughed out dimensions (3×6×3 ft, log-lined, bark lid); plan to begin digging at dawn tomorrow.
+2026-07-03 21:05 — Day 10, 9:05 PM · Last Embers — banked coals, latch down, fishing line out; root cellar planned for dawn.
