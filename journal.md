@@ -1764,3 +1764,14 @@ While the joints stiffened I gathered another armload of dry pine splits from th
 
 The hearth is permanent now — pad and stone and mortar all of a piece, fitted into the northwest corner where the smoke path rises to the bark flap and away. The first indoor fire will come this evening. I have been working toward that moment since the clay bank appeared at my feet at the stream bend. It feels close to ready, and so do I.
 
+
+### 4:05 PM · First Fire Inside
+
+The pine splits were right there by the door, exactly where I had stacked them. I had been looking at that clean hearth pad — its terra-cotta face, the neat ring of mortared stones around it — since eleven this morning, and every task since then had been aimed at making this one moment possible: the mortar setting, the smoke gap clean and flapped, the dry wood waiting. By four in the afternoon I could not see a reason to wait for dark.
+
+I laid a small fire: three strips of birch bark first, then a careful lattice of the thinnest splits, then two heavier ones across the top. Flint caught steel on the second try and the bark lit without ceremony. I stayed low and watched it — really watched, the way you watch something you have been turning over in your mind for days. The smoke rose thin and climbed the roof angle. I held my breath. It found the gable gap and pulled through clean on the first try.
+
+The fire settled. The hearth stones held. There was some mortar smoke at first — the clay-mud joints curing under their first real heat — and then that thinned and cleared. The smell shifted from bark and pine resin to something quieter and permanent, something that will probably always mean shelter to me now. The light changed too: orange flicker on the log walls, shadows moving differently than daylight ever makes them move.
+
+I let it burn low for a full hour, watching the gable gap, checking the ridgeline inside for any smoke pooling. Nothing. The draft holds all the way up and out. The clay pad rings when tapped and the mortar surround is firm. I will cook supper on it tonight. Every piece of work this week was aimed at this fire, and it burns exactly right.
+
