@@ -1812,3 +1812,20 @@ I keep thinking about what comes next. The shelter is done in the way a first sh
 
 The fishing line is set. The door is latched. The fire will bank down to coals by midnight and the shelter holds warmth better than I expected — log walls and bark roof doing their work. I am sitting against the south wall watching the gable gap for the last deep blue of sky and it has gone now, or nearly. Stars. One visible through the gap: steady, white, very far.
 
+
+### 8:05 PM · Cellar Plans, Firelight
+
+The coals have settled to a steady orange under the hearthstones. The shelter is warm and dim, the latch bar down, and outside I can hear the first of the tree frogs starting up along the stream. I have been sitting with my back against the south wall, knees up, watching the glow.
+
+I have been thinking about the root cellar. The cold-storage box in the seep is working — the smoked trout and chanterelles are holding well — but it will not hold a season. One good patch of chanterelles, a run of fish, a few days of gathering, and that stone box is full. If I want food into September, into November, through winter, I need something larger and properly underground.
+
+I have been turning the site over in my mind. The hillside behind the shelter, north-facing, in the shadow of the big pines — that is where cool earth lives through summer. The sun never gets a full angle there. And if I cut into the bank rather than digging flat ground, I get three earthen walls for free and only need to build one framed face and a roof. The seep tells me the clay here holds cold moisture, which is what I want; the slope tells me water will drain downhill rather than pool at a floor.
+
+I am thinking: a trench three feet deep, six long, three wide. Dug into the bank with the entrance facing slightly downslope so any seeping water moves out on its own. Log-lined walls if I can spare the timber — two courses would be enough to keep the earth from slumping — then packed bark insulation against the outer face. A heavy lid: four or five bark strips lashed across birch crossbars, weighted with flat river stone, the same system as the cold-storage box but scaled up.
+
+Two days of work, maybe three. A morning to rough the hole, an afternoon to line it, another to fit the lid and repack the entrance.
+
+I will start at first light tomorrow, while the soil is cool and easy. The axe will do the root-cutting, the knife will trim the edges. My hands know the motions now.
+
+For tonight I am content to sit with the plan and let the fire do what it does. One log left on the coals, enough to hold heat till midnight. The fishing line is out. The shelter is latched. I am warm.
+
