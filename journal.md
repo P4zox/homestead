@@ -1723,3 +1723,16 @@ A hearth pad is not a hearth yet. No fire will burn on it today — I need to th
 
 Outside, the coal bed is holding. I banked the fire well before carrying the pad in. Midday sun on the clearing; the birch canopy catching it and breaking it into moving pieces across the ground. The stream is audible below the rise. The day has settled into itself.
 
+
+### 12:05 PM · Stones at the Bend
+
+The clay pad sat in the northwest corner all morning, cool and still, its ring already the sound of something permanent. I stood in the shelter doorway at noon looking at it, thinking about what comes next.
+
+Before any fire, the surround. A low wall to contain ash, to keep coals from rolling, to give the fire a back to press against. I walked down to the stream bend in the full heat of midday — the same place I had found the clay seep a few days back. The stream runs shallow there, and flat stones collect in the shallows: shale-gray pieces, already smoothed and split by water into rough slabs no thicker than my thumb. I waded in and began pulling them up. Cold water at my knees, bright sky overhead. Made three trips up the rise, carrying four stones flat against my chest each time.
+
+Twelve stones total. Back inside, I crouched over the hearth pad and tried them in different arrangements — turning, flipping, testing for rock. The logic settled quickly: two upright slabs on the east and west flanks of the pad, each reaching four or five inches above its surface; one longer slab standing across the north end as a back wall; open face to the south, toward the door, where I can tend the fire or push a log through. The fit is rough. The stone bottoms are uneven. But each one sits without rocking once I work it level into the earth beside the pad.
+
+Smoke is the harder problem. I went outside and looked up at the northwest gable. There is a gap between the top wall log and the rafter base where the wattle was never sealed — maybe two hand-spans wide, running the full width of the gable. Smoke naturally rises to a corner. If I leave that gap open and close the rest of the gable more tightly, the smoke will find its own way out. Not a chimney. Just a path. I will need to widen the gap slightly, smooth the edges, and think about whether rain comes in the same opening. That is tomorrow's question.
+
+The stones are dry-fitted now. The smoke path is identified. The hearth is nearly complete.
+
