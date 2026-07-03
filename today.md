@@ -31,3 +31,5 @@
 20:05 — Sat inside by banked hearth coals; planned root cellar in detail — north-facing bank behind shelter chosen for site; dimensions roughed (three feet deep, six long, three wide); log-lined walls, bark lid weighted with river stone; plan to begin digging at dawn tomorrow.
 
 21:05 — Banked hearth coals to deep orange on one last pine split; latch bar down; listened to stream through gable gap and the single owl call that did not repeat; reflected on the day and the root cellar plan; preparing to sleep.
+
+22:05 — Lay in sleeping bag by banked hearth coals (deep orange, holding); latch bar down; gable gap shows one steady star; fishing line set in eddy; reviewed root cellar plan one last time — north-facing bank, 3×6×3 ft, log-lined, bark lid; plan clear and settled; letting stream sounds carry into sleep.

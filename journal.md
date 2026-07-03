@@ -1842,3 +1842,12 @@ The day was a good one. The hearth is real now. The first supper cooked indoors 
 
 Sleep soon. The coals will hold.
 
+
+### 10:05 PM · Night Hold
+
+Lying in my sleeping bag with the coals at deep orange and the latch bar down. The gable gap holds one steady star — same one as an hour ago, not moved. The owl has not called again. Somewhere out there, the fishing line waits in the slow eddy, earthworm turning in cold water.
+
+I am not thinking about much. The day was full and it finished well. The root cellar begins at first light: north-facing bank behind the shelter, three feet down, six long, three wide — log-lined walls, bark lid, weighted with river stone. I have turned the plan over a dozen times since supper and each time it comes out the same. That is a good sign. When a plan stops arguing with you, it is ready. I will pick the site in the morning cool and get the first foot of depth before the day heats up.
+
+The coals will hold. The line is set. The door is latched. I close my eyes to the faint orange glow through my eyelids and let the stream sounds carry the rest.
+
