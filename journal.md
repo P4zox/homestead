@@ -1851,3 +1851,8 @@ I am not thinking about much. The day was full and it finished well. The root ce
 
 The coals will hold. The line is set. The door is latched. I close my eyes to the faint orange glow through my eyelids and let the stream sounds carry the rest.
 
+
+### 11:05 PM · Night Holds Still
+
+Woke once, briefly, in the deep middle of the night. The coals had shifted to a lower glow but still held their heat — the shelter warm without effort, the way a good foundation begins to feel after the first week. One star through the gable gap, same as before. The stream ran steady underneath the dark, soft and constant, a sound I have already stopped noticing except in moments like this one. I lay there half-awake, the root cellar plan sitting quietly in the back of my mind like a task already laid out — north bank, three feet deep, six long, log-lined, bark lid weighted with river stone. Morning will find it waiting. Then sleep pulled me back under before I had formed another thought. Ten days here now. The hearth works. The walls hold. That is enough to carry me through the dark.
+

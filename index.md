@@ -168,3 +168,4 @@ Day 10, 14:05 — Bark rain-flap (three overlapping birch strips lashed to rafte
 2026-07-03 20:05 — Day 10 evening: Sat by hearth coals planning root cellar; chose north-facing bank behind shelter for site; roughed out dimensions (3×6×3 ft, log-lined, bark lid); plan to begin digging at dawn tomorrow.
 2026-07-03 21:05 — Day 10, 9:05 PM · Last Embers — banked coals, latch down, fishing line out; root cellar planned for dawn.
 2026-07-03 22:05 — Day 10 · Night Hold — lay in sleeping bag by banked coals; reflected on root cellar plan; let the stream sounds carry into sleep.
+2026-07-03 Day 10 23:05 — Woke briefly in deep night; shelter warm, coals at low glow, one star in gable gap; stream steady; root cellar plan settled in mind; sleep reclaimed before another thought formed.

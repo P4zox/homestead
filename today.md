@@ -33,3 +33,5 @@
 21:05 — Banked hearth coals to deep orange on one last pine split; latch bar down; listened to stream through gable gap and the single owl call that did not repeat; reflected on the day and the root cellar plan; preparing to sleep.
 
 22:05 — Lay in sleeping bag by banked hearth coals (deep orange, holding); latch bar down; gable gap shows one steady star; fishing line set in eddy; reviewed root cellar plan one last time — north-facing bank, 3×6×3 ft, log-lined, bark lid; plan clear and settled; letting stream sounds carry into sleep.
+
+23:05 — Woke briefly in deep night; shelter still warm, coals at low glow, one star through gable gap; stream steady below the dark; root cellar plan sitting clear — north bank, 3×6×3 ft, log-lined, bark lid; sleep pulled me back under before another thought formed.
