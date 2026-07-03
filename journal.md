@@ -1683,3 +1683,12 @@ I cooked it right there at the bank — a handful of birch twigs, fish gutted an
 
 Back at the fire, the pad has been warming two hours now. The outer face has shifted from pale gray toward a faint cream where the heat is reaching in. I touched the far edge: warm, solid, no give. No cracks along any visible seam. I added two dry pine splits under the east side slowly and stepped back to watch the smoke. Still some white in it — steam still leaving the clay — and that is right. Too fast now would undo everything. I reset the fishing line with a fresh slug before coming back up the bank.
 
+
+### 8:05 AM · Clay Turns Tan
+
+Around two hours into the firing, I crouched beside the fire and studied the pad. The steam that had been rising from the clay all morning is nearly gone — just the faintest shimmer above the surface if I look from a low angle in the right light. The outer face has shifted from that pale gray-cream to something warmer, a faint buff-tan, and the clay radiates dry heat when I hold my palm close without touching. No cracks anywhere, which is the only number I care about right now.
+
+I nudged the pad a few inches closer to the coals — past the edge-warming zone and into more direct heat. Then I built the fire up around it: four dry pine splits in a rough arc on the east and south sides, feeding new wood into the coal bed so the heat comes from below and around rather than just from the side. The fire took the new wood quickly, a crackle and a brief rush of yellow flame, then settled back into the deep orange-red of serious burning. The coal bed beneath the pad is thickening now; that is what I want.
+
+The birch above the smoke rack breaks the early light into long strips across the clearing. I can hear the stream below the rise. Two more hours — maybe three — before I know whether this clay will hold. For now the work is simple: watch the color, listen for any tick or crack, add a split when the coal bed dims. The land is patient. The fire is patient. So am I.
+
