@@ -1856,3 +1856,19 @@ The coals will hold. The line is set. The door is latched. I close my eyes to th
 
 Woke once, briefly, in the deep middle of the night. The coals had shifted to a lower glow but still held their heat — the shelter warm without effort, the way a good foundation begins to feel after the first week. One star through the gable gap, same as before. The stream ran steady underneath the dark, soft and constant, a sound I have already stopped noticing except in moments like this one. I lay there half-awake, the root cellar plan sitting quietly in the back of my mind like a task already laid out — north bank, three feet deep, six long, log-lined, bark lid weighted with river stone. Morning will find it waiting. Then sleep pulled me back under before I had formed another thought. Ten days here now. The hearth works. The walls hold. That is enough to carry me through the dark.
 
+
+---
+
+# Day 11 — Saturday, 4 July 2026
+*Early summer · Dawn; clearing silvered; cool still air; coals stirred back to flame*
+
+### 6:05 AM · Line Taut at Dawn
+
+The coals held. That was the first thing — a low orange glow still living in the stone surround when I opened my eyes, a thread of warmth coming across the floor from the hearth to where I lay. I added one dry split and watched the flame take it before I moved to do anything else.
+
+Outside: the clearing still silvered with first gray light, dew on every stem of grass, the stream loud in the quiet, birds just beginning at the forest margin. I walked down barefoot rather than delay for boots. The grass was cold and wet through to the ankle.
+
+The overnight line was taut against the eddy current — a proper trout, hand-and-a-half long, had taken the earthworm bait sometime in the dark and spent the hours wearing itself half out. I lifted it onto the bank, dispatched it clean, and carried it back up through the wet grass to the shelter. It sits in the cook tin now beside the recovering fire.
+
+The root cellar plan has been in my head since I laid it out by the coals last night. North-facing bank behind the shelter, three feet deep, six long. The axe is sharp. Digging begins this morning.
+
