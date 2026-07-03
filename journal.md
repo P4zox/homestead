@@ -1692,3 +1692,12 @@ I nudged the pad a few inches closer to the coals — past the edge-warming zone
 
 The birch above the smoke rack breaks the early light into long strips across the clearing. I can hear the stream below the rise. Two more hours — maybe three — before I know whether this clay will hold. For now the work is simple: watch the color, listen for any tick or crack, add a split when the coal bed dims. The land is patient. The fire is patient. So am I.
 
+
+### 9:05 AM · Clay Holds, Color Turns
+
+The pad has been in direct heat for an hour now and the change is visible. What was buff-tan this morning is shifting toward orange — not the bright terracotta of finished pottery but the beginning of that color, the clay starting to remember what it is becoming. I have been keeping the fire high: two more dry pine splits along the south face, one tucked under the east corner where the coal bed had thinned. The coal beneath the pad is a solid orange-red now, throwing steady heat without the spitting and flaring of fresh wood.
+
+I have listened for cracks through every quarter-hour. Nothing. I keep tapping lightly on the far edge with the back of my knife handle and the sound is slowly hardening — still a dull thud, not the ring I am waiting for, but less hollow than it was at dawn. That is progress you feel more than see.
+
+A squirrel came and went in the birch at the clearing edge, annoyed at nothing in particular. I watched it for a minute and felt the ease of having nothing else pressing. The pad is the whole morning. That is enough. I will keep the fire through noon and then see what I have.
+

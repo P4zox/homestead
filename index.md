@@ -154,3 +154,4 @@ Day 9, 2026-07-02, 23:05 — Sleep arrived; day 9 complete; chanterelles cured a
 2026-07-03 Day 10 06:05 — Clay hearth pad firing begun; fire kindled from stacked pine; pad warming at east edge of slow coal bed; watching for cracks
 Day 10 (2026-07-03, 07:05) — Checked overnight fishing line; caught small trout and ate it fresh at the streambank for breakfast; clay pad two hours in with outer face warming to cream, no cracks; fire tended with added pine splits; line reset.
 Day 10, 08:05 — Clay hearth pad at two hours: steam nearly gone, outer face shifted to buff-tan, no cracks; moved pad closer to coals and built fire up around it to raise temperature.
+2026-07-03 09:05 — Day 10 — Tended clay hearth pad firing (3 hrs); color shifting buff-tan to orange; no cracks; coal bed solid beneath; fire sustained through morning.
