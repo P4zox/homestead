@@ -7,3 +7,5 @@
 08:05 — Clay pad at two hours: steam nearly gone, outer face buff-tan, no cracks; moved pad closer into direct coal heat; built fire up with four dry pine splits around east and south sides — coal bed thickening beneath pad; heat now coming from below and around; watching for color shift and listening for any crack.
 
 09:05 — Clay pad at three hours total, one in direct coal heat: color shifting from buff-tan to orange; no cracks heard or seen; added two pine splits to south face and one under east corner; coal bed solid orange-red beneath pad; tapping edge with knife back — sound hardening, not yet ringing; squirrel in birch at clearing edge; sustaining fire through noon.
+
+10:05 — Clay pad at four hours total, two hours in direct coal heat: color now a consistent warm terra-cotta across all faces — fired all the way through; tapped edge with knife back — sound crossed from dull to a clear ring; pad lifted with two flat sticks and moved off direct coals to flat river stone at fire's east edge to cool slowly; fire banked down to steady coal bed; pad will cool through the morning before moving inside to northwest corner; first fired clay object on the homestead.

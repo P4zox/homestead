@@ -1701,3 +1701,14 @@ I have listened for cracks through every quarter-hour. Nothing. I keep tapping l
 
 A squirrel came and went in the birch at the clearing edge, annoyed at nothing in particular. I watched it for a minute and felt the ease of having nothing else pressing. The pad is the whole morning. That is enough. I will keep the fire through noon and then see what I have.
 
+
+### 10:05 AM · The Pad Rings
+
+Four hours in, and I crouched down to the pad again. It has been two hours on the direct coals now and the color has settled into something definite — not shifting orange anymore, properly terra-cotta, even across every face, the kind of warm red-brown that means the clay has gone all the way through. I tapped the edge with the knife back. Last hour it was hardening, still a bit dull. This time there was a ring to it — faint, but unmistakably a ring. A fired thing sounds different from a dried thing. This sounded fired.
+
+I lifted it with two flat sticks and moved it off the direct coals to a flat river stone at the fire's east edge, where it will cool slowly through the morning. Moving it now into the shelter while it still holds heat would risk a crack from the temperature change — clay that survived the fire can still crack from a sudden cold. So it waits, resting at the edge of the warmth that made it. I banked the fire down to a steady coal bed, no need to push the heat now.
+
+The pad is small — a flat base and three low walls, like an open box, enough to hold the cook tin off the floor and give me a safe spot inside the shelter to set something warm without worrying about the bark lashing or the floor boards. It will go into the northwest corner of the shelter once it is fully cooled. That is what I had in mind when I dug the clay from the stream-bend seep.
+
+First fired thing I have made here. It felt like enough for a morning.
+
