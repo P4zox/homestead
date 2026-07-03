@@ -1751,3 +1751,16 @@ So this hour went into a rain-flap. Three strips of birch bark from the harvesti
 
 It took most of the hour. The lashing holds firm. My hands smell of fresh birch bark — that faint medicinal sweetness that always catches me off guard. The gap is sealed against rain without blocking smoke. The hearth stones and the evening fire can come next.
 
+
+### 3:05 PM · Mortar and Stone
+
+Went back to the clay seep this afternoon with the cook tin. The same gray-blue bank that gave me the hearth pad still had a good seam — I scooped out a double handful and ferried it back up the rise with the tin half full of stream water beside it.
+
+At the flat stone outside the shelter door I wetted the clay a little at a time and kneaded it until it moved under my palms like something that wants to hold things together. That is what clay-mud mortar feels like when it is ready: willing.
+
+I mortared the hearth surround one stone at a time, starting with the east upright slab. A thin bed of clay under the base, pressed until it stopped rocking, held with both hands while the clay began to grip. Then the west flank the same way, then the north back stone packed into the joint where both uprights meet it. The south face stayed open — that is the breath of the hearth, the space between fire and door where air enters and warmth comes forward.
+
+While the joints stiffened I gathered another armload of dry pine splits from the deadfall stack under the south eave and set them just inside the door. By mid-afternoon the mortar had taken enough hold that a gentle press could not shift any stone. I ran the knife edge along the joints to clean the squeezed clay and smoothed the faces flat.
+
+The hearth is permanent now — pad and stone and mortar all of a piece, fitted into the northwest corner where the smoke path rises to the bark flap and away. The first indoor fire will come this evening. I have been working toward that moment since the clay bank appeared at my feet at the stream bend. It feels close to ready, and so do I.
+

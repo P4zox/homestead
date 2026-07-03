@@ -160,3 +160,4 @@ Day 10, 08:05 — Clay hearth pad at two hours: steam nearly gone, outer face sh
 2026-07-03 12:05 — Day 10 noon: waded stream bend, collected twelve flat river stones; dry-fitted hearth surround (east+west upright slabs + north back stone, open south face); northwest gable gap identified as smoke exit path.
 2026-07-03 Day 10 13:00 — Widened and cleaned northwest gable gap; smoke exit path confirmed clear; first indoor fire now possible.
 Day 10, 14:05 — Bark rain-flap (three overlapping birch strips lashed to rafter tails) fitted over northwest gable gap; smoke exit now weatherproof, draft preserved.
+2026-07-03 15:05 — Day 10 — Mortared hearth surround stones with clay-mud; hearth now permanent; first indoor fire planned for evening.
