@@ -1736,3 +1736,9 @@ Smoke is the harder problem. I went outside and looked up at the northwest gable
 
 The stones are dry-fitted now. The smoke path is identified. The hearth is nearly complete.
 
+
+### 1:05 PM · Smoke gap cleared
+
+The northwest gable gap wanted attention before any indoor fire could be risked. I had left that section of wattle unsealed — two hand-spans wide above the rafter base on the northwest end — knowing it would serve as the shelter's only smoke exit. But knowing is not the same as ready. This afternoon I climbed the interior wall log with the knife, pulled the loose wattle stakes from the gap's edge, trimmed back a few bark shingle corners that were curling inward, and cleared out accumulated dust and old bark scraps from the roof angle inside. The gap is now three hand-spans across — clean-edged, open to sky. I held my palm below it from inside and felt the air moving upward, that small reliable draft a high opening makes in summer warmth.
+
+The hearth pad sits below in its corner, the twelve river stones dry-fitted around it in their ring. Everything is in position. I could light a fire inside this evening if I chose to. I am not certain I will tonight — I want to study the gap angle in the afternoon light and see whether a bark flap should go above it to shed rain before I commit to the first burn — but the path is clear. Standing in the shelter with the door open and the midday light cutting across the clay pad, the place felt different than it did this morning. More like a home than a building.

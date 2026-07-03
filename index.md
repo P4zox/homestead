@@ -158,3 +158,4 @@ Day 10, 08:05 — Clay hearth pad at two hours: steam nearly gone, outer face sh
 2026-07-03 10:05 — Day 10: Clay hearth pad firing complete — terra-cotta color, rings when tapped; cooling at fire edge; first fired clay object on the homestead.
 2026-07-03 11:05 Day 10 — Carried fired clay hearth pad inside to northwest corner of shelter; first permanent clay object installed indoors
 2026-07-03 12:05 — Day 10 noon: waded stream bend, collected twelve flat river stones; dry-fitted hearth surround (east+west upright slabs + north back stone, open south face); northwest gable gap identified as smoke exit path.
+2026-07-03 Day 10 13:00 — Widened and cleaned northwest gable gap; smoke exit path confirmed clear; first indoor fire now possible.
