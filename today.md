@@ -21,3 +21,5 @@
 15:05 — Mixed clay-mud mortar at stream-bend seep; carried back to shelter; permanently set hearth surround stones (east and west upright slabs, north back stone) — each stone bedded in mortar, held until clay gripped, joints cleaned and smoothed; mortar stiffened and holding by mid-afternoon; gathered dry pine splits and stacked inside door; first indoor fire this evening.
 
 16:05 — Lit first indoor fire in clay hearth: birch bark kindling, pine splits, flint caught second try; smoke rose clean through gable gap on first attempt; mortar joints smoked briefly then cleared; draft holds strong through northwest gable; held fire low one hour watching ridgeline — no smoke pooling anywhere; all hearth systems confirmed working; cooking supper on hearth this evening.
+
+17:04 — Cooked supper on clay hearth: retrieved smoked trout and chanterelles from cold-storage box, added wood sorrel from shaded bank; simmered chanterelles in water in tin, laid trout across rim above flame, wilted sorrel in last; ate sitting against south wall facing fire; draft held clean throughout; first meal cooked indoors — hearth, draft, and gable gap all performed as built.

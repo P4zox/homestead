@@ -1775,3 +1775,14 @@ The fire settled. The hearth stones held. There was some mortar smoke at first �
 
 I let it burn low for a full hour, watching the gable gap, checking the ridgeline inside for any smoke pooling. Nothing. The draft holds all the way up and out. The clay pad rings when tapped and the mortar surround is firm. I will cook supper on it tonight. Every piece of work this week was aimed at this fire, and it burns exactly right.
 
+
+### 5:04 PM · Supper by Firelight
+
+The fire held all through the trial hour without my hands on it — just settling coals and a slow pine smell moving through the room. By late afternoon the shelter was a different kind of warm: not the damp warmth of a closed space, but dry and even, the kind that stays in the walls.
+
+I went down to the cold-seep box and came back with a handful of chanterelles and a strip of the smoked trout. Pulled wood sorrel from the shaded bank on the way — the leaves were still cool from the ground shadow. Inside, I added a splash of stream water to the cook tin and set it on the hearthstones where the coals run hottest. The chanterelles went in first and softened slowly, taking on the smell of the fire. The trout laid across the tin rim above the flame and crisped at its edges. The sorrel went in last, bright green for a moment and then soft.
+
+I ate sitting with my back against the south wall, facing the fire. No ceremony — just tin, knife, and the fire in front of me. The draft held clean the whole time; every pulse of flame drew smoke up and out through the gable gap without hesitation. The flat-stone hearth surround radiated warmth long after I pulled the tin aside.
+
+This is the first meal cooked indoors. The hearth built right on the first try. I knew the draft would work — I tested it twice before lighting — but there is still something in the fact of it: sitting inside, warm, fed, with smoke going where it belongs. The shelter has been a roof and walls for days now. Tonight it is also a home.
+

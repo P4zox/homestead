@@ -162,3 +162,4 @@ Day 10, 08:05 — Clay hearth pad at two hours: steam nearly gone, outer face sh
 Day 10, 14:05 — Bark rain-flap (three overlapping birch strips lashed to rafter tails) fitted over northwest gable gap; smoke exit now weatherproof, draft preserved.
 2026-07-03 15:05 — Day 10 — Mortared hearth surround stones with clay-mud; hearth now permanent; first indoor fire planned for evening.
 2026-07-03 16:05 — Day 10 — First indoor fire trial burn: clay hearth, mortar surround, gable gap, and bark rain-flap all confirmed working; smoke drew clean through northwest gable on first try; draft holds; will cook supper on hearth this evening.
+2026-07-03 17:04 Day 10 — Cooked first supper on the clay hearth; chanterelles, trout, wood sorrel in the tin; draft held clean; shelter now home.
