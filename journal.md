@@ -2066,3 +2066,14 @@ The cellar breathed cold air up at me when I lifted the bark lid. The chill is r
 
 The day is light enough now to see by. The withies are ready. This is a good way to begin a Sunday.
 
+
+### 7:04 AM · North Wall Panel
+
+The withies are cool in my hands and still smell of the stream. I sorted them again at the cellar entrance — stout ones in one pile, the willowy fine ones in another — then knelt at the north wall and began.
+
+The technique is simple once you find the rhythm: drive the thicker withies vertically into the gaps between floor stones as stakes, then weave the slender ones horizontally in a plain over-under, tamping each course tight before adding the next. The excavated bank behind holds the stakes steady so I don't need a back frame. Working from the floor up, the weave tightens as it rises. By mid-morning the first panel stretched the full length of the north wall, two feet high, the wicker face curving slightly inward where the bank bulges — I\ll pack clay behind it later to fill the void.
+
+The cellar smells of cool earth and wet stone. Light filters down through the entrance. There is something satisfying about fitting a woven wall into a dug room — both made by hand, both from the land itself. The withies that soaked overnight bend without cracking. The work goes quietly.
+
+Seven stakes remain in the fine bundle. Enough for the east wall panel, if I cut a few more stakes from the pile of thicker ones. Tomorrow the panels will be dry enough to pack with clay and straw.
+
