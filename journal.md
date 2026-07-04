@@ -1982,3 +1982,14 @@ Crossbar up, rested in both shoulders: level. I pressed down on the center with 
 
 The entrance is framed. Two posts, one lintel, the cool dark of the root cellar beyond. Standing back, I felt the kind of satisfaction that's proportional to the work and doesn't exceed it — just the plain acknowledgment that a thing is done and done right. The bark lid and wall lining still wait, but the frame itself is sound.
 
+
+### 6:05 PM · Lid Over the Dark
+
+The entrance framing sat complete all afternoon while I worked through the paving and the lintel — tonight felt like the right time to close it properly, before the cool evening air started seeping out.
+
+I went back to the birch stand where I have pulled bark before, working a section low to the ground where the bark peels cleanly in broad sheets. Two long crosspieces first — cut straight, stripped smooth — matching the entrance width with a hand-span overhang on each side so the lid sits without slipping inward. Then bark: four wide strips laid shingle-fashion over the crosspieces, each one overlapping the last by three fingers, the edges pressed together until they held their shape. Lashed through at each crossing with split bark cord, pulled tight.
+
+The lid fits across the entrance snugly, weighted now with two flat river stones — just enough to keep wind from lifting it. I crouched beside the opening and held my palm an inch above the lid's surface: cool air pushes up from below even through the bark, a steady quiet cold rising out of the earth.
+
+The root cellar works. Paved floor, framed entrance, lid set. Next I will think about lining the walls — bark panels or woven withies — to slow what frost will try to do come autumn. But that is another hour. Tonight this feels finished enough to trust.
+
