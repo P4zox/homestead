@@ -1881,3 +1881,12 @@ After, I carried the axe around to the north bank behind the shelter. The slope 
 
 That is the beginning. The outline is clear, the top layer is stripped, and the shape the cellar wants to take is already readable inside the bank. Six paces of future cold and calm, waiting to be opened.
 
+
+### 8:05 AM · First Depth
+
+The axe works better as a digging tool than it sounds, when the earth is right. Dark, loamy, cool — it pries apart cleanly rather than crunching through hardpack. I worked the whole footprint in rows, setting the edge in and levering back, then dragging loose earth out with my hands. Birch roots ran sideways through the bank in a tangle; I chopped each one and kept moving.
+
+The smell when you open earth like this is something. Rich and cool, like the inside of the cold-storage box. The bank is holding its shape well — walls standing without slumping, which is exactly what you want from a cellar. Two hand-spans down now, across the full six-pace length. A real cavity is forming where there was only scored ground this morning.
+
+Three feet is the target. I am going to be at this for days.
+

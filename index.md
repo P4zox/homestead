@@ -171,3 +171,4 @@ Day 10, 14:05 — Bark rain-flap (three overlapping birch strips lashed to rafte
 2026-07-03 Day 10 23:05 — Woke briefly in deep night; shelter warm, coals at low glow, one star in gable gap; stream steady; root cellar plan settled in mind; sleep reclaimed before another thought formed.
 2026-07-04 Day 11 06:05 — Woke to held coals; walked barefoot to the eddy; overnight line taut — proper trout lifted from the slow current at dawn; root cellar digging begins this morning on the north-facing bank.
 Day 11, 07:05 — Cooked morning trout; broke first ground on root cellar — north bank outlined and top sod stripped.
+Day 11, 2026-07-04 (Sat): 8:05 AM — Root cellar first real depth; axe-and-hand digging; two hand-spans down across full footprint; walls holding shape.
