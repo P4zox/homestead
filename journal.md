@@ -2004,3 +2004,12 @@ While the light was still good over the clearing I walked to the birch stand at 
 
 The fishing line is already in the eddy. The fire is low and steady. The evening is warm, the clearing smells of pine resin and damp earth, and I can hear the stream from where I sit in the doorway.
 
+
+### 8:04 PM · Line Down, Fire Low
+
+The day's work is done — all of it harder and longer than any single piece sounds from the outside. The root cellar is finished: paved floor, framed entrance, bark lid on and weighted, thirty-two withies bundled and soaking downstream. Supper eaten, dishes rinsed, the clearing going dark.
+
+I walked down to the eddy while there was still just enough light — the stream catches the last of the western glow longer than the land does. Reset the overnight line at the mossy cleft, checked the lead knots, dropped it back into the same dark slot where it's been producing. A small ritual now, morning and evening, as natural as latching the door.
+
+Back inside. The hearth is low, two coals and a finger-width of pine split, enough warmth without needing attention. I pulled the bark cord bundle close and twisted a few lengths by firelight — not from need, exactly, more from having hands that don't like sitting idle. Tomorrow the wattle panels begin: thirty-two withies in the stream, pliable by first light, and the root cellar walls will start to take their final shape. That's enough to look forward to. The fire is good company.
+
