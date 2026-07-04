@@ -1921,3 +1921,14 @@ I climbed out and stood on the bank above, looking down. Unimpressive from up to
 
 The digging is done. Four full hours of steady work since breakfast, and the cellar is at depth across its entire footprint. From here: flat stone on the floor, a small drainage channel cut at the downhill end, bark or split pine against the walls to slow frost creep, and a frame with a bark-covered lid over the entrance. But those are next steps. For now the work of getting down to depth is behind me, and I am glad to have it there.
 
+
+### 12:05 PM · Channel Cut
+
+After the dig finished, I took a short rest in the doorway — ate a heel of dried chanterelle, let the sun climb. A pair of jays quarreled out in the birch slope. The clearing was warm and bright and I sat with it a moment before going back to work.
+
+One task before I haul any stones: the drainage channel. The logic holds itself — lay a flat-stone floor over standing water and all you've done is make a lid on a problem. Better to give whatever seepage finds its way in a clear path out.
+
+I used the axe blade to score the groove, working from the uphill end of the cellar floor toward the downhill threshold. The mineral layer cut cleaner than I expected — two fingers wide, two fingers deep, following the slight grade of the floor. I continued the groove out through the threshold line and four paces down the bank face to open air. Pressed the groove walls firm with a flat stone fragment. Poured a tin of water at the uphill end to test: it moved slowly at first, then found its way, and ran clear of the cut.
+
+Half an hour, maybe less. Small work. But the cellar looks more purposeful now with that groove crossing its floor — like it knows what it's for. The flat-stone floor comes next. I'll need a proper haul from the stream shallows, and a few hours to fit them true.
+
