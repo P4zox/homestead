@@ -173,3 +173,4 @@ Day 10, 14:05 — Bark rain-flap (three overlapping birch strips lashed to rafte
 Day 11, 07:05 — Cooked morning trout; broke first ground on root cellar — north bank outlined and top sod stripped.
 Day 11, 2026-07-04 (Sat): 8:05 AM — Root cellar first real depth; axe-and-hand digging; two hand-spans down across full footprint; walls holding shape.
 Day 11, 09:04 — Root cellar reached three hand-spans depth; soil character changed below two-and-a-half spans; walls holding shape; past halfway.
+2026-07-04 10:05 — Day 11, root cellar dig — four hand-spans depth across most of the footprint; one span remaining to three-foot mark; firm mineral-layer soil holding walls clean; cool air rising from the cut.

@@ -1900,3 +1900,14 @@ The clearing is quiet at this hour. The mist burned off and the sun is coming ov
 
 Three feet total is what I want. I am just past halfway.
 
+
+### 10:05 AM · Deep Earth, Different Soil
+
+The soil below two-and-a-half hand-spans is a different thing entirely. Not the dark loam that came away in long scoops earlier this morning — this is something older: lighter in color, denser, the smell of it faintly chalky, mineral. The axe still bites, but the chips come smaller, and each stroke wants a little more intention.
+
+I worked steadily through mid-morning, chopping row by row across the full footprint, hauling loosened earth out in my hands and piling it on the bank above. It is slow work in this layer, but the walls hold sharper for it — the firm soil does not crumble at the edges. I noticed early on that the cut feels cooler than the air outside; by the time the sun had fully cleared the treeline and the clearing brightened, the difference was plain. That cool breath rising out of the hole is what I am digging toward. The earth is doing its part.
+
+By mid-morning I had most of the footprint to four hand-spans — one hand-span from the three-foot mark. There is a shallow patch near the downhill end, a little behind the rest; I will bring that even before calling the depth done. But the shape is already right: long and low, walls clean and straight, floor leveling out. I stood at the rim and looked into it for a moment. It smells exactly as a cold store should.
+
+One more good push and the digging will be finished. Then the harder thinking begins — how to floor it, how to frame the entrance, how to shed rain and keep rodents out. Those problems are good ones to have.
+
