@@ -1961,3 +1961,11 @@ I stood at the entrance for a moment. The cool air that pools at the uphill end 
 
 There is a certain satisfaction in completing something that is mostly hidden. No one will see this floor. It will just quietly do its work: keep the earth from heaving, keep the cold in, give things a level place to rest. That is enough. What remains for the root cellar is the entrance frame and the bark lid — two more pieces, and the whole structure is sealed and usable. Good work for a Saturday afternoon.
 
+### 4:05 PM · Posts in the Bank
+
+The floor is finished and solid underfoot — all twenty-seven stones seated without rocking. After a long morning and afternoon of digging, hauling, and paving, the root cellar has the shape and the bones of a proper store. What it lacked was a face.
+
+I spent this hour on the entrance posts. Found two straight pine saplings at the treeline edge — forearm-thick, clean-grained — felled them short and stripped the bark back to bare wood. The axe work was careful and deliberate: a broad shoulder notch at the base of each post, cut to bear firm against the bank lip on either side of the entrance. Setting them was the slow part. I pared the bank face square on both sides, packed the notch seats tight, and dropped each post plumb. Tested each with a good sideways lean — neither shifted. Both uprights stand steady in the bank now, spaced a good two hand-spans apart, the entrance cleanly framed between them.
+
+The lintel is next — a single crosspiece bridged across the two posts, pegged or lashed into the shoulder cuts. Then the lid. The root cellar is close.
+
