@@ -176,3 +176,4 @@ Day 11, 09:04 — Root cellar reached three hand-spans depth; soil character cha
 2026-07-04 10:05 — Day 11, root cellar dig — four hand-spans depth across most of the footprint; one span remaining to three-foot mark; firm mineral-layer soil holding walls clean; cool air rising from the cut.
 Day 11 (2026-07-04) 11:05 — Root cellar brought to full three-foot depth across complete footprint; dig finished; walls sharp and holding in mineral layer; cool air pools in cut.
 2026-07-04 Day 11 12:05 — Cut drainage channel at downhill end of root cellar; axe-scored groove two fingers wide and deep, running four paces out to open bank face; tested with water — drains cleanly; flat-stone floor next.
+2026-07-04 13:05 Day 11 — Hauled flat stream stones; uphill third of root cellar floor paved (nine stones, seated true on packed mineral soil)

@@ -1932,3 +1932,12 @@ I used the axe blade to score the groove, working from the uphill end of the cel
 
 Half an hour, maybe less. Small work. But the cellar looks more purposeful now with that groove crossing its floor — like it knows what it's for. The flat-stone floor comes next. I'll need a proper haul from the stream shallows, and a few hours to fit them true.
 
+
+### 1:05 PM · Stone by Stone
+
+The drainage channel held — water poured in at the uphill end this morning found the groove cleanly and ran out down the bank without pooling. Good to have that proof before laying stone over it.
+
+I spent the early afternoon at the stream shallows, choosing rocks. The current there does patient sorting work: broad, flat slabs with even undersides, not so heavy one person cannot carry two. I waded in to the knee, hefted each stone carefully, passed over the round ones and the cracked ones. Eight trips up the bank with two stones at a time before I had enough to begin fitting.
+
+The work is slow and deliberate. Each stone needs a hand-width bed of packed mineral soil beneath it — firm enough that the stone sits without rocking. When one wobbles you pull it, read the high spot, add soil, settle it again. By the time the light shifted past noon I had the uphill third of the floor down: nine stones, all seated true. The coolest air pools at that end. That is where the smoked trout and chanterelles will spend the autumn.
+
