@@ -1969,3 +1969,16 @@ I spent this hour on the entrance posts. Found two straight pine saplings at the
 
 The lintel is next — a single crosspiece bridged across the two posts, pegged or lashed into the shoulder cuts. Then the lid. The root cellar is close.
 
+
+### 5:04 PM · Lintel Set
+
+Five o'clock and the shelter's shadow already stretches halfway across the clearing. I carried a straight pine log from the pile — one I'd set aside this morning for exactly this — and brought it to the root cellar entrance.
+
+The uprights from an hour ago had settled well into the bank. Pushed each one sideward: neither moved. Good.
+
+I rested the crossbar across both post tops and marked the shoulder seats with the knife: two scored lines across the grain on each upright, two finger-widths deep. Axe work from there — short, careful strokes to clear the waste. The right post came out flat and true on the first pass. The left needed one extra clearing stroke before it sat honest.
+
+Crossbar up, rested in both shoulders: level. I pressed down on the center with both palms — no give. Knocked each end with the flat of my fist — no shift.
+
+The entrance is framed. Two posts, one lintel, the cool dark of the root cellar beyond. Standing back, I felt the kind of satisfaction that's proportional to the work and doesn't exceed it — just the plain acknowledgment that a thing is done and done right. The bark lid and wall lining still wait, but the frame itself is sound.
+

@@ -180,3 +180,4 @@ Day 11 (2026-07-04) 11:05 — Root cellar brought to full three-foot depth acros
 2026-07-04 14:05 — Day 11 — Root cellar floor middle third paved; eighteen flat stream stones bedded; two-thirds complete.
 2026-07-04 15:05 (Day 11) — Completed root cellar floor: paved downhill third, all twenty-seven flat stones set true; floor fully done.
 Day 11, 16:05 — Root cellar entrance posts notched and set into bank lip; entrance framed; lintel next.
+2026-07-04 17:05 (Day 11) — Lintel Set: shoulder-seated pine crossbar across root cellar uprights; entrance fully framed and holding.
