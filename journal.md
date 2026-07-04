@@ -2037,3 +2037,14 @@ I thought about the root cellar — finished today, all of it, from the dig to t
 
 Back inside now, latch bar down. Coals will hold warmth until morning. Fishing line in the eddy, tomorrow waiting in the dark water.
 
+
+### 11:05 PM · Night Quiet
+
+Inside the shelter now, sleeping bag pulled up, the hearth coals somewhere between red and black — I cannot quite tell in the dark. The bark walls hold a faint residual warmth. Through some thin place in the gable wattle I can still hear the stream, that low constant sound that has grown so ordinary I only notice it at moments like this: lying still, nothing left to do.
+
+The root cellar is done. The lid sits weighted with two flat river stones and I keep picturing it — the cool air trapped below, the smell of clean mineral earth, the drainage groove running clear when I poured water through it this afternoon. That is a proper thing made entirely from scratch: a cellar in the earth, framed with posts and lintel, roofed in bark, sealed and ready. Come autumn, when the chanterelles are dried and the trout smoked and the root vegetables piled in, it will matter a great deal. For now it just sits there in the dark behind the shelter, doing its work of being cold.
+
+Thirty-two birch withies soaking at the stream edge. Tomorrow is already staged. The fishing line is in the mossy cleft eddy. The latch bar is down.
+
+I let the day run out. Nothing more until six.
+
