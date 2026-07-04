@@ -1952,3 +1952,12 @@ It was noticeably cool working at floor level inside the cut. The cool air pools
 
 Slow, plain, good work. Each stone locked flat is a small permanent thing.
 
+
+### 3:05 PM · Floor Complete
+
+Carried the last stream stones up in two trips — seven fitted into the downhill third one at a time, tamped firm, each seated before the next went in. The final stone dropped into place just past mid-afternoon. I walked the full length with my heel, then with the axe handle flat across the joints: not a single stone rocked. All twenty-seven are true.
+
+I stood at the entrance for a moment. The cool air that pools at the uphill end is real and steady — noticeably colder than the clearing above, even now in the warmest part of the day. The drainage groove at the threshold is clear. The floor is finished.
+
+There is a certain satisfaction in completing something that is mostly hidden. No one will see this floor. It will just quietly do its work: keep the earth from heaving, keep the cold in, give things a level place to rest. That is enough. What remains for the root cellar is the entrance frame and the bark lid — two more pieces, and the whole structure is sealed and usable. Good work for a Saturday afternoon.
+
