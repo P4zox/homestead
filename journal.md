@@ -2013,3 +2013,16 @@ I walked down to the eddy while there was still just enough light — the stream
 
 Back inside. The hearth is low, two coals and a finger-width of pine split, enough warmth without needing attention. I pulled the bark cord bundle close and twisted a few lengths by firelight — not from need, exactly, more from having hands that don't like sitting idle. Tomorrow the wattle panels begin: thirty-two withies in the stream, pliable by first light, and the root cellar walls will start to take their final shape. That's enough to look forward to. The fire is good company.
 
+
+### 9:05 PM · Fire, Cord, and Dark
+
+The fire is down to coals and one pine split — enough warmth to see my hands by, not much more. I have been twisting bark cord since I came back from the eddy, a steady unhurried thing, two plies feeding through my fingers in the red light. The pile in my lap has grown by two more lengths tonight: the lashing supply is already good, but the hands need something when the mind is full.
+
+The day was the root cellar's last day. Lid on. Floor paved. Entrance framed. The withies soaking at the stream edge for tomorrow. There is a particular quiet in touching the bottom of a long task — not celebration exactly, just the fact of it. I walked the full floor with the axe handle this morning and heard no hollow sounds, no rocking stones. That was enough.
+
+I can hear the stream through the doorway — the latch bar is down, but the bark-flap above the gable shifts now and then with the south breeze and lets in a small sound of running water. Stars were clear when I walked back from the eddy. I noticed them without quite meaning to.
+
+Tomorrow: weave the wattle panels from the soaking withies, press them against the root cellar walls, and begin building the thing toward winter. The withies will be pliable by first light.
+
+Sleep soon.
+
