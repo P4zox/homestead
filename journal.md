@@ -2026,3 +2026,14 @@ Tomorrow: weave the wattle panels from the soaking withies, press them against t
 
 Sleep soon.
 
+
+### 10:04 PM · Stars and Dark Pines
+
+The bark cord is set aside — enough twisted for tomorrow — and the hearth has settled to red embers, the last small pine split burned through to ash and orange glow. I put on my boots and stepped out into the dark before sleep.
+
+The stars are extraordinary tonight. No cloud, no moon, just the full deep field of them above the pines and across the open slope. I stood in the doorway for a while and listened: the stream below in its low summer run, a night bird somewhere in the birches, the south breeze moving easy through the needles. Everything else still. The clearing holds the starlight in its open center the way a bowl holds water.
+
+I thought about the root cellar — finished today, all of it, from the dig to the paved floor to the framed entrance to the bark lid weighted with flat river stones. The withies are soaking in the shallow pool at stream edge, ready for tomorrow's wattle weaving. The hearth is permanent. The shelter latches. I counted what I have standing in the dark and found it good — not finished, never finished on a homestead, but good. The thing keeps getting clearer as you build it.
+
+Back inside now, latch bar down. Coals will hold warmth until morning. Fishing line in the eddy, tomorrow waiting in the dark water.
+

@@ -185,3 +185,4 @@ Day 11, 16:05 — Root cellar entrance posts notched and set into bank lip; entr
 Day 11, 19:05 — Cut and soaked thirty-two birch withies for root cellar inner wall lining panels; withies bundled at stream edge overnight.
 2026-07-04 20:04 — Day 11 — Reset overnight fishing line at eddy; settled hearthside; twisted bark cord by firelight; withies soaking for tomorrow's wattle panels.
 2026-07-04 (Day 11, 21:05) — Evening: twisted two more two-ply bark-cord lengths by the dying hearthfire; withies soaking at stream edge for tomorrow's root cellar wattle panels; sleep soon.
+2026-07-04 22:04 Day 11 — Stepped out to the starlit doorstep before sleep; root cellar complete; withies soaking; coals at embers; latch bar down.
