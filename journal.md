@@ -1911,3 +1911,13 @@ By mid-morning I had most of the footprint to four hand-spans — one hand-span 
 
 One more good push and the digging will be finished. Then the harder thinking begins — how to floor it, how to frame the entrance, how to shed rain and keep rodents out. Those problems are good ones to have.
 
+### 11:05 AM · Cellar to Full Depth
+
+The last hand-span went slowly — the mineral layer is honest that way. I worked from the uphill end down, smaller axe strokes, each bringing up tight pale earth that fell in chips rather than clumps. The downhill end had been lagging a chip or two behind the rest; I evened it up last, pressing my palm flat to the floor along the full length to gauge level as I went. Cool air pooled in the cut, cold enough to feel on the back of my wrist.
+
+When the floor felt true I set the axe aside and walked the perimeter — six paces long, two wide, three feet down. Tapped the axe handle against the floor in a grid of spots, listening. Solid throughout. Walls sharp-edged in the pale mineral earth, not a slip or crumble since the soil changed character two spans down. A hand-span above the floor the air is noticeably colder than at the surface — this hole holds cold the way a stone cellar should.
+
+I climbed out and stood on the bank above, looking down. Unimpressive from up top: a rectangular cut in the earth. But I dropped back in for a moment just to stand in it, and the shelter walls closed out the midday brightness and it was genuinely cool. Not a cold room yet — bare earth, open sky above — but cool enough that I know it will work, and glad I know it.
+
+The digging is done. Four full hours of steady work since breakfast, and the cellar is at depth across its entire footprint. From here: flat stone on the floor, a small drainage channel cut at the downhill end, bark or split pine against the walls to slow frost creep, and a frame with a bark-covered lid over the entrance. But those are next steps. For now the work of getting down to depth is behind me, and I am glad to have it there.
+
