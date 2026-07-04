@@ -2048,3 +2048,21 @@ Thirty-two birch withies soaking at the stream edge. Tomorrow is already staged.
 
 I let the day run out. Nothing more until six.
 
+
+---
+
+# Day 12 — Sunday, 5 July 2026
+*Early summer · Dawn; pale grey light lifting in the east; dew thick on the grass; light south breeze*
+
+### 6:05 AM · Withies Ready at Dawn
+
+Woke before proper light, the hearth holding one small knot of orange — enough. A dry pine split, a slow breath, and the flame came up without complaint. I pulled my boots on and stepped out into the dew while the shelter warmed behind me.
+
+The overnight line first. The stream was barely visible, the eddy dark and still, the cord slack when I reached it. Nothing. I reset the hook and left it without much feeling either way. The cold-storage box still has smoked trout, and the cellar is full of dried chanterelles; I am not hungry enough to be disappointed by an empty line.
+
+Then to the stream edge for the withies. They had soaked the full night and they showed it — heavy, cool, bending to the curve of my palm without any protest. I sorted them there on the bank the way I had last evening: the finer, suppler ones for weaving, the stouter for stakes at the corners and border rods along the base. Thirty-two in two bundles, tied off with bark cord, carried up the bank to the root cellar entrance.
+
+The cellar breathed cold air up at me when I lifted the bark lid. The chill is reliable now, consistent — it pools the way I hoped it would. The walls are still bare earth and that is what I mean to change. Come autumn, frost will work inward through unprotected soil and take the temperature up with it. Wattle panels lashed against all four inner walls will slow that, keep the cold where it belongs through the worst of the cold season.
+
+The day is light enough now to see by. The withies are ready. This is a good way to begin a Sunday.
+
