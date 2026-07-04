@@ -1890,3 +1890,13 @@ The smell when you open earth like this is something. Rich and cool, like the in
 
 Three feet is the target. I am going to be at this for days.
 
+### 9:04 AM · Root and Stone
+
+The work has a rhythm now — axe loosens a row, hands drag it out, feet step back to clear the growing pile behind me on the grass. Three hand-spans down across the full footprint this hour, and the walls of the cut are standing clean. The soil here holds beautifully, almost like it wants to be shaped into a room.
+
+Around the two-and-a-half-span mark the earth changed: lighter-colored, denser, the axe biting differently, a smell more mineral than loamy. The old stream-edge deposit, maybe — silt pressed hard over years. It still loosens and still holds its shape. A few birch roots ran horizontal through it, thick as my thumb; I chopped them clear.
+
+The clearing is quiet at this hour. The mist burned off and the sun is coming over the treeline now, slanting in from the east. It does not reach into the cut yet, which keeps the working face cool. Good — I can stay with this a long while.
+
+Three feet total is what I want. I am just past halfway.
+
