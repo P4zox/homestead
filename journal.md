@@ -1941,3 +1941,14 @@ I spent the early afternoon at the stream shallows, choosing rocks. The current 
 
 The work is slow and deliberate. Each stone needs a hand-width bed of packed mineral soil beneath it — firm enough that the stone sits without rocking. When one wobbles you pull it, read the high spot, add soil, settle it again. By the time the light shifted past noon I had the uphill third of the floor down: nine stones, all seated true. The coolest air pools at that end. That is where the smoked trout and chanterelles will spend the autumn.
 
+
+### 2:05 PM · Stone by Stone
+
+The sun is well past its height and the clearing sits quiet and warm. I spent most of this hour at the stream shallows — one more hauling trip for two flat stones to top up the pile, then down into the root cellar with all I had.
+
+The middle third of the floor went in nine stones: each one dropped into place, pressed, wiggled until it stopped shifting. The mineral soil underneath takes the weight well — dense enough to hold still, soft enough to let a knuckle or the heel of a hand correct a tilt before it sets permanent. A stone seated crooked now would stay crooked.
+
+It was noticeably cool working at floor level inside the cut. The cool air pools along the uphill end where the drainage slope begins — that pooling is exactly what the whole thing is for. Eighteen stones down now, two-thirds of the floor paved. The downhill third remains, and then the harder work: an entrance frame, a bark-covered lid, and some lining on the walls to slow the frost when it comes.
+
+Slow, plain, good work. Each stone locked flat is a small permanent thing.
+
