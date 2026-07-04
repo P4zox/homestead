@@ -1993,3 +1993,14 @@ The lid fits across the entrance snugly, weighted now with two flat river stones
 
 The root cellar works. Paved floor, framed entrance, lid set. Next I will think about lining the walls — bark panels or woven withies — to slow what frost will try to do come autumn. But that is another hour. Tonight this feels finished enough to trust.
 
+
+### 7:05 PM · Withies by Dusk
+
+The root cellar lid is weighted and settled. I pressed my palm against it just before supper and felt the cold breath rising through the bark strips — steady and cool, proof the space works. That was satisfying in a way the digging itself was not. The dig was labor; the lid was the closing of a door.
+
+I ate a small supper by the hearth — smoked trout, a few dried chanterelle caps, some wood sorrel. The fire is easy now that the hearth is set properly; it holds its own and I do not have to crouch and coax it.
+
+While the light was still good over the clearing I walked to the birch stand at the west edge and cut withies for the root cellar's inner walls. The plan is woven panels — flexible, dense enough to hold bark or moss between them and the raw earth — so come hard frost the cellar walls do not transfer cold straight through. I cut thirty-two withies this evening, each as long as my arm, and sorted them by thickness on the walk back. They are bundled and soaking in a shallow pool at stream's edge so they will be pliable tomorrow when the weaving starts.
+
+The fishing line is already in the eddy. The fire is low and steady. The evening is warm, the clearing smells of pine resin and damp earth, and I can hear the stream from where I sit in the doorway.
+

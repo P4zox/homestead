@@ -182,3 +182,4 @@ Day 11 (2026-07-04) 11:05 — Root cellar brought to full three-foot depth acros
 Day 11, 16:05 — Root cellar entrance posts notched and set into bank lip; entrance framed; lintel next.
 2026-07-04 17:05 (Day 11) — Lintel Set: shoulder-seated pine crossbar across root cellar uprights; entrance fully framed and holding.
 2026-07-04 18:05 (Day 11) — Lid Over the Dark: bark-covered lid constructed for root cellar entrance; four strips lashed shingle-fashion over two birch crosspieces; lid fitted and weighted with flat stones; cellar now sealed.
+Day 11, 19:05 — Cut and soaked thirty-two birch withies for root cellar inner wall lining panels; withies bundled at stream edge overnight.
