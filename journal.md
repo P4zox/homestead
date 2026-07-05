@@ -2231,3 +2231,8 @@ I do not remember waking; I probably have not, really. This is the edge of sleep
 
 The axe is ready by the doorpost. Tomorrow the windthrow pine on the slope, then the birch deadfalls along the forest margin. I know the plan the way you know your own name in a dream — it sits there, quiet and certain, while everything else lets go. Tonight there is only this: shelter holding, earned rest, the land breathing in the dark.
 
+
+### 11:05 PM · Still at Midnight
+
+The shelter holds in deep dark. Hearth coals long cold; hearthstones cooling toward the night air. Latch bar down, sleeping bag warm, stream running soft beyond the door — the same small sounds that have always been enough to sleep by. Everything I worked today rests now too: the wattle panels set in their daub, the root cellar walls curing in the dark of the bank, the wild strawberries already a memory of sweetness. Tomorrow waits with its first axe-stroke on the windthrow pine. For now, night.
+
