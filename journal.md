@@ -2105,3 +2105,16 @@ By mid-morning the fresh withies should be pliable enough for the east panel. Th
 
 Two hours is enough. I walked to the shaded pool above the bend and lifted the withies out in armloads — forty-two of them, cool and heavy, pliable as rope. Carried them to the cellar entrance in two trips and laid them out to sort: the stout ones for stakes, the fine and supple ones for weaving. The east wall is the longest run, longer than the north, so I drove the stakes in first, pressing stout butts down between the paving stones and forcing them against the soil bank with heel and palm until each one stood plumb. Then I started the weaving from the floor up, fine withies bending over-under-over in a long back-and-forth rhythm, each course tamped down with a fist before beginning the next. The daub waits, covered near the entrance. Once this panel is finished I will pack daub behind both the north and east faces — that is the afternoon work. The root cellar is starting to feel like it will hold.
 
+
+### 11:04 AM · East Panel Sealed
+
+The last withy course went in just before midday. I tamped it down, pressed a hand flat against the panel face — no give, no sway. The east wall of the root cellar now matches the north: two feet of woven birch from floor to shoulder, each stake anchored in the stone-paved gaps, each horizontal withy tight against the one below it.
+
+Both panels done. I stood a moment in the cool dimness letting that register.
+
+Then I pulled the bark scrap back from the daub hollow near the entrance. Still workable — a little stiffer than this morning, but the clay was keeping its moisture under cover. I loaded a tin and carried it inside, crouched at the north panel, and began pressing daub into the gap between wattle and bank face. You push it in with the heel of your hand, pack it into every pocket the weave leaves open, smooth the exposed face. There is a particular satisfaction to this work. Not building outward — building in. Sealing the cold into the walls where it belongs, making the earth work for you instead of against you.
+
+By the time I stopped for a drink of water I had the full back face of the north panel packed. I moved to the east wall next, hands already clay-gray to the wrists. The cellar smells of earth and wet clay and something older I cannot quite name. Cool enough that I can feel the difference stepping in from the warm day outside.
+
+Good morning's work.
+
