@@ -2118,3 +2118,12 @@ By the time I stopped for a drink of water I had the full back face of the north
 
 Good morning's work.
 
+
+### 12:05 PM · East Wall Sealed
+
+The daub work on the east panel finished around noon. I worked through the last sections the same way I had done the north — pressing clay-sedge paste in handwidth bands from the floor up, heel of my hand driving the mix into every gap between the withies, then smoothing the face flat before moving on. The cellar is dim but there is enough light through the entrance to see by. When I stepped back, both walls looked like one continuous surface: gray-blue clay face forward, wattle behind it, still earth behind that. Solid. Both panels done.
+
+Came up blinking into the sun. The clearing felt wide after the close work underground. I ate midday in the shade on the south face of the shelter — cold smoked trout pulled from the storage box, a handful of dried chanterelle caps. The stream ran bright in the distance and the south breeze barely moved the birch leaves. I drank and sat without hurrying.
+
+Still ahead: cut withies for the south wall, soak them, weave the third panel, pack it with daub. Then I will assess the thickness on the finished walls and decide whether extra coats are needed before frost season. The work is finding its own shape — each panel done makes the next one easier to see.
+
