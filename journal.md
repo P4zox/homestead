@@ -2160,3 +2160,14 @@ Then the daub. The batch I mixed an hour ago had sat under the bark scrap and st
 
 All three walls lined now. North, east, south — wattle woven and daub packed behind each one. The cellar is a real thing, not just a hole in a bank.
 
+
+### 4:05 PM · Berry Hour
+
+The root cellar walls are done — north, east, south, all three lined with wattle and packed with clay-sedge daub. I straightened up from the cellar entrance a little after three and felt the whole afternoon in my lower back. Decided I had earned a slower hour before dusk.
+
+So I walked the forest margin with my knife loose at my belt and both hands free. The light at this angle comes through the pines long and amber, catching the pale undersides of leaves, and the clearing smells of warm grass and pine resin. I was looking for anything the season had ready — berries, herbs, something for the pot — and early July did not disappoint. A damp hollow near the old birch deadfall held a good patch of wood sorrel, bright and clover-faced, tart when you chew a leaf. I pulled a solid fistful and tucked it into my shirt. Further along the clearing edge, where the birches thin out into open ground, I found a scatter of wild strawberries — small, very red, almost over-ripe but still firm. Ate a few standing in place. Gathered the rest in my folded bandana. Not a great quantity, but sweet enough to make the slow walk worth it.
+
+On the way back I crossed the center of the clearing and looked at the shelter from the far side. After twelve days it still surprises me slightly — solid and plain, bark roof set into the ridge, smoke curling just faintly from the gable gap. The root cellar entrance is a dark square in the bank behind it, waiting to hold food through the cold months. This is what all of it is for: not just the building, but this — standing in the late afternoon with a bandana of strawberries and knowing the walls around my food are holding.
+
+The daub on the south panel needs one more day to cure before I load the cellar with anything. Tomorrow I will think about what comes next — winter stores are the obvious answer, and the clearing has more to give before the season turns.
+
