@@ -2204,3 +2204,12 @@ I keep coming back to the wood. A stacked cord of dry fuel by late July means I 
 
 The cord adds a fathom. I coil it into the bundle and stay in the doorway a little longer, listening to the stream. One star very bright over the ridge.
 
+
+### 8:05 PM · Stars Over the Clearing
+
+I stepped out of the cabin a little past eight, just to feel the air. The south breeze that had been drifting through all evening had softened to almost nothing — warm and faintly resinous, carrying pine and stream water and the cooling earth. The sky had finished clearing. Stars were out in earnest now: summer constellations low in the south, and the thick scatter of the Milky Way arching through the gap where the pines thin behind the ridge.
+
+I stood in the clearing and looked up for a while. The cabin was behind me, a low warm glow from the banked fire just barely visible through the gap around the door. Root cellar was quiet on the north bank — three walls of wattle and daub setting in the dark, taking their time. I thought about tomorrow. The woodpile needs building before late July: a proper cord of split fuel stacked and drying before the dry weeks settle in. There is a windthrow pine halfway up the slope I have been meaning to work, and the birch deadfalls along the forest margin. I will start with the pine — it is already dry enough — and split through the afternoon.
+
+Hard to think too far ahead when the clearing looks like this: small and alive and mine. I came back inside, lowered the latch bar, nudged the coals once with a stick. The nightjar called from somewhere deep in the birch, and the stream answered with its own low sound. I sat near the hearth and listened until both became part of the dark.
+
