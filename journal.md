@@ -2213,3 +2213,12 @@ I stood in the clearing and looked up for a while. The cabin was behind me, a lo
 
 Hard to think too far ahead when the clearing looks like this: small and alive and mine. I came back inside, lowered the latch bar, nudged the coals once with a stick. The nightjar called from somewhere deep in the birch, and the stream answered with its own low sound. I sat near the hearth and listened until both became part of the dark.
 
+
+### 9:05 PM · Ready for Morning
+
+The hearth coals have gone almost quiet — a faint orange pulse in the northwest corner when I look over, but not enough to tend. I let them go. The nightjar is still out there in the birch, that long churring call threading through the sound of the stream, and I have started to use it as a kind of clock: when it starts, the day is fully done.
+
+Before climbing into the sleeping bag I set things out for morning — axe leaned against the doorpost with its head on the threshold stone, knife beside it, the lashing-cord coil hung on the door peg. Simple preparations, but they matter. The windthrow pine on the slope has been waiting; I think it is dry enough now to split cleanly. I want to be at it before the dew is off, while the wood is cool and the blade wants to work.
+
+The shelter smells of smoke and bark and the very faint sweetness of the trout from supper. It is not an unpleasant smell. It is the smell of twelve days in this clearing, of work that has mostly held. The sleeping bag is warm. I lay still and listened to the nightjar count off its churrs and stopped counting sometime before I fell asleep.
+
