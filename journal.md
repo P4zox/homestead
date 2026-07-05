@@ -2149,3 +2149,14 @@ The daub is ready. The withies are soaking. In an hour the south wall panel can 
 
 I sat for a few minutes on the bank above the cellar entrance with the quiet around me. The stream sounds bright. A small green frog sat on one of the door-side stones and did not move when I looked at it.
 
+
+### 3:05 PM · South Wall Woven
+
+The withies came out of the soaking pool just past three, cool and limber, bending smoothly without splitting. I carried the bundle down to the cellar entrance and spread them on the threshold stone to sort — stout ones aside for stakes, fine ones in a loose heap for weaving.
+
+The south wall went in a little more slowly than the others. The floor stones there are fitted tighter, and I had to work each stake back and forth to find the gaps. But once they were seated — driven down to the first knuckle, firm against the stone faces — the weaving went quickly. My hands know the rhythm now: over and under, heel of the palm tamping each course flush before the next one begins. The panel came up clean, full length, two feet high, matching the north and east walls exactly.
+
+Then the daub. The batch I mixed an hour ago had sat under the bark scrap and stayed moist and workable. I packed it behind the south panel the way I did the others: heel-pressed into every gap, fingers working it past the wicker face, then the flat of my hand drawn across to smooth.
+
+All three walls lined now. North, east, south — wattle woven and daub packed behind each one. The cellar is a real thing, not just a hole in a bank.
+
