@@ -2088,3 +2088,16 @@ Came back with forty-two fresh withies, arms full, sun beginning to angle proper
 
 The east wall panel will go in this afternoon. For now the cellar rests in its cool earth-smell quiet, the north panel already beginning to dry and settle.
 
+
+### 9:04 AM · Clay for the Walls
+
+The forty-two withies are soaking at the stream-edge pool — they went in at eight and need another hour before I'd trust them to bend without cracking. So I use the window.
+
+Walked south along the stream to the clay bank at the bend seep. The top layer is soft and muddy, nothing worth carrying, but six inches down the vein turns gray-blue and dense — plastic between the fingers, the kind that holds shape and dries hard. Dug until the cook tin was full twice over and stacked both loads on the bank.
+
+Then worked the clearing edge for dry material: pale sedge grass lying in loose mats where the open ground meets the tree line, flattened since last autumn. A double handful of pine needles for body. Mixed it together in a flat stone hollow near the cellar entrance, adding stream water slowly. The daub came together well — thick enough to hold a fingerprint, not so wet it sags. A bark scrap laid over the top to keep the surface from skinning in the sun.
+
+I tested the north wall panel while I was there: pressed a fistful of daub into the gap behind the lower wattle course, between the weave and the raw earthen bank. It seated without slumping. The panel didn't bow. Good sign — the backing will work.
+
+By mid-morning the fresh withies should be pliable enough for the east panel. The daub is ready and waiting.
+
