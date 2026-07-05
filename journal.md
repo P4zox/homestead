@@ -2101,3 +2101,7 @@ I tested the north wall panel while I was there: pressed a fistful of daub into 
 
 By mid-morning the fresh withies should be pliable enough for the east panel. The daub is ready and waiting.
 
+### 10:05 AM · East Wall Wattle
+
+Two hours is enough. I walked to the shaded pool above the bend and lifted the withies out in armloads — forty-two of them, cool and heavy, pliable as rope. Carried them to the cellar entrance in two trips and laid them out to sort: the stout ones for stakes, the fine and supple ones for weaving. The east wall is the longest run, longer than the north, so I drove the stakes in first, pressing stout butts down between the paving stones and forcing them against the soil bank with heel and palm until each one stood plumb. Then I started the weaving from the floor up, fine withies bending over-under-over in a long back-and-forth rhythm, each course tamped down with a fist before beginning the next. The daub waits, covered near the entrance. Once this panel is finished I will pack daub behind both the north and east faces — that is the afternoon work. The root cellar is starting to feel like it will hold.
+
