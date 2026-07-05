@@ -2250,3 +2250,12 @@ The fishing line was bare again. Two mornings now. I reset the hook, slid it bac
 
 I ate cold from the storage box — a few dried chanterelle caps, a flake of smoked trout — standing in the shelter doorway, watching the light come up. The axe was where I left it, leaned against the doorpost. The windthrow pine on the slope has been waiting long enough. It went down in some earlier blow, bark loose in places but the heartwood still sound and dry. This morning I'll limb what remains, quarter the trunk, and begin splitting. It is woodpile work — slow, physical, unglamorous — and it will pay back in January when the temperature drops below what this clearing forgives. I felt steady about that standing in the cool doorway. The smoke from the rekindled fire threaded south on the light breeze. Good morning to begin.
 
+
+### 7:05 AM · Limbing the Windthrow
+
+Up the slope before the dew had lifted, axe on my shoulder and the morning still cool and grey-blue above the ridgeline. The windthrow pine has been in the back of my mind since I set this focus — a big tree, maybe forty feet of usable trunk, lying across the slope where it came down in some old blow. Root mass hauled clean up, bark on the topside already dried and checking in the sun. Good fuel if I can get it split and stacked before August.
+
+I started at the base end with the limbing: axe held low, strokes short and angled into the branch crotches. Clean cuts. The wood underneath was pale yellow and sound, no rot. Worked my way up toward the crown steadily, kicking branches clear to both sides as I went. The full length took most of the hour, but by the time I stopped the trunk was bare — nothing left now but to buck it into rounds and split.
+
+Came back down for water and stood at the stream a moment. Swallows working the meadow edge, dew lifting off the grass. I can feel the difference already: the trunk is there, cleared and waiting. A cord of fuel starts with one hour of limbing.
+
