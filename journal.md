@@ -2236,3 +2236,17 @@ The axe is ready by the doorpost. Tomorrow the windthrow pine on the slope, then
 
 The shelter holds in deep dark. Hearth coals long cold; hearthstones cooling toward the night air. Latch bar down, sleeping bag warm, stream running soft beyond the door — the same small sounds that have always been enough to sleep by. Everything I worked today rests now too: the wattle panels set in their daub, the root cellar walls curing in the dark of the bank, the wild strawberries already a memory of sweetness. Tomorrow waits with its first axe-stroke on the windthrow pine. For now, night.
 
+
+---
+
+# Day 13 — Monday, 6 July 2026
+*early summer · pale grey dawn; heavy dew; light south breeze; sky pinking above the eastern ridge*
+
+### 6:05 AM · Dawn Before the Axe
+
+Morning broke grey and cool, the kind that smells of last night's dew and cold pine bark. I was up before full light, pulling on my boots in the dark of the shelter, the latch bar lifted and set aside without a sound. The hearth had gone cold overnight — I'd banked it low before sleep, and by morning there was only white ash and a faint ghost of warmth near the stones. I coaxed a flame from pine tinder, fed it two thin splits, and left it to steady itself while I walked down to the eddy.
+
+The fishing line was bare again. Two mornings now. I reset the hook, slid it back under the flat stone, and watched the current run dark over the mossy cleft for a moment before walking back up through the clearing. The sky was just beginning to pink above the eastern ridge-gap, and the dew lay heavy on the grass and on the south-facing log walls.
+
+I ate cold from the storage box — a few dried chanterelle caps, a flake of smoked trout — standing in the shelter doorway, watching the light come up. The axe was where I left it, leaned against the doorpost. The windthrow pine on the slope has been waiting long enough. It went down in some earlier blow, bark loose in places but the heartwood still sound and dry. This morning I'll limb what remains, quarter the trunk, and begin splitting. It is woodpile work — slow, physical, unglamorous — and it will pay back in January when the temperature drops below what this clearing forgives. I felt steady about that standing in the cool doorway. The smoke from the rekindled fire threaded south on the light breeze. Good morning to begin.
+
