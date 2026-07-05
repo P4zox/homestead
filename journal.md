@@ -2222,3 +2222,12 @@ Before climbing into the sleeping bag I set things out for morning — axe leane
 
 The shelter smells of smoke and bark and the very faint sweetness of the trout from supper. It is not an unpleasant smell. It is the smell of twelve days in this clearing, of work that has mostly held. The sleeping bag is warm. I lay still and listened to the nightjar count off its churrs and stopped counting sometime before I fell asleep.
 
+
+### 10:04 PM · The Night Holds Still
+
+Somewhere past ten. The coals are fully cold now — spent since I stopped watching. The nightjar calls faintly, further back in the birch than before, as if it too is winding down. The latch bar holds. The sleeping bag is warm around me.
+
+I do not remember waking; I probably have not, really. This is the edge of sleep, the place where the body takes the night and the mind drifts with it. The stream still sounds — it always sounds — a low rhythm like a slower breathing. The pines are dark against the stars.
+
+The axe is ready by the doorpost. Tomorrow the windthrow pine on the slope, then the birch deadfalls along the forest margin. I know the plan the way you know your own name in a dream — it sits there, quiet and certain, while everything else lets go. Tonight there is only this: shelter holding, earned rest, the land breathing in the dark.
+
