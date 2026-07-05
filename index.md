@@ -194,3 +194,4 @@ Day 12, 08:05 — Cut forty-two fresh birch withies from coppiced stand upslope;
 Day 12, 2026-07-05, 10:05 AM — Retrieved soaked withies from stream pool; drove stakes and began east wall wattle weaving in root cellar
 Day 12, 11:04 AM — East wall wattle panel complete; clay-sedge daub packing begun behind north panel, moving to east.
 2026-07-05 Day 12 12:05 — finished east wall daub packing; midday break with cold trout and chanterelles in shade of shelter
+2026-07-05 13:00 Day 12 — Cut forty-two birch withies for south root-cellar wall panel; sorted and set soaking at stream edge for afternoon weaving

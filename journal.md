@@ -2127,3 +2127,14 @@ Came up blinking into the sun. The clearing felt wide after the close work under
 
 Still ahead: cut withies for the south wall, soak them, weave the third panel, pack it with daub. Then I will assess the thickness on the finished walls and decide whether extra coats are needed before frost season. The work is finding its own shape — each panel done makes the next one easier to see.
 
+
+### 1:05 PM · South Wall Withies
+
+The midday rest settled in me well — cold trout, dried chanterelles, a quiet hour in the shade of the shelter's south face. Three walls of wattle will look like something finished. Two do not quite make a room.
+
+So I took the axe upslope to the coppiced birch stand, working along the east edge where sunlight comes in strong and the new growth is still supple. The stand has been cut twice this week already but it's generous — long straight shoots rising from the old stumps, some thick enough for stakes, others flexible enough to weave. I spent the better part of the hour selecting carefully: stout ones first for the upright stakes, then the fine long withies for the over-under courses.
+
+Forty-two in the end — the same as the east wall needed. I sorted them at the stream bank, bound the stakes in one bundle, and laid the weaving withies out in the shaded pool below the cold seep where I've been soaking them all week. A flat river stone on top to hold them under.
+
+They'll be pliable by mid-afternoon. Then: drive the stakes into the floor-stone gaps, weave upward course by course, and the south wall panel is done. All-wall daub follows once the third panel is in.
+
