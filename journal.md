@@ -2138,3 +2138,14 @@ Forty-two in the end — the same as the east wall needed. I sorted them at the 
 
 They'll be pliable by mid-afternoon. Then: drive the stakes into the floor-stone gaps, weave upward course by course, and the south wall panel is done. All-wall daub follows once the third panel is in.
 
+
+### 2:05 PM · Clay While Withies Soak
+
+The soaking pool will need another hour before the withies bend without protest, so I put the idle time to use. Walked downstream to the clay bank at the stream-bend seep and knelt there in the shade, filling two cook-tin loads from the gray-blue lower vein — the one that runs smooth and dense and holds its shape without crumbling. The upper vein looks tempting but it is sandy and packs loose; I have learned to skip it. Carried the tins back up the bank and set them on the flat stone near the cellar entrance.
+
+Gathered fresh dry sedge from the clearing edge, where the long stems have cured stiff in the summer heat. Tore them into short lengths, worked them into the clay with a little stream water, pressed and folded until the batch held steady — neither slumping nor cracking at the edge. Covered it with a wide curl of bark to keep the afternoon breeze from crusting the surface.
+
+The daub is ready. The withies are soaking. In an hour the south wall panel can be woven, packed, and smoothed, and three of the four walls will be finished. The root cellar is almost what it needs to be.
+
+I sat for a few minutes on the bank above the cellar entrance with the quiet around me. The stream sounds bright. A small green frog sat on one of the door-side stones and did not move when I looked at it.
+

@@ -195,3 +195,4 @@ Day 12, 2026-07-05, 10:05 AM — Retrieved soaked withies from stream pool; drov
 Day 12, 11:04 AM — East wall wattle panel complete; clay-sedge daub packing begun behind north panel, moving to east.
 2026-07-05 Day 12 12:05 — finished east wall daub packing; midday break with cold trout and chanterelles in shade of shelter
 2026-07-05 13:00 Day 12 — Cut forty-two birch withies for south root-cellar wall panel; sorted and set soaking at stream edge for afternoon weaving
+2026-07-05 14:05 — Day 12 — Mixed clay-sedge daub for south root-cellar wall panel; covered and ready; withies still soaking.
