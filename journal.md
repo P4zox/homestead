@@ -2077,3 +2077,14 @@ The cellar smells of cool earth and wet stone. Light filters down through the en
 
 Seven stakes remain in the fine bundle. Enough for the east wall panel, if I cut a few more stakes from the pile of thicker ones. Tomorrow the panels will be dry enough to pack with clay and straw.
 
+
+### 8:05 AM · Withies for the East
+
+The north panel is finished — stakes solid in the floor-stone gaps, the weave tight enough that when I press my palm against it the whole thing holds without a creak. Seven fine withies left over, which is maybe a third of what the east wall will want. The east side is the long wall: six paces of it.
+
+So before weaving, I needed to cut more. Took the axe and knife, ducked out through the root-cellar entrance into the brightening morning, and went upslope to the birch stand where I have been cutting. The young coppiced growth there is still coming strong — straight stems, barely any taper, the kind that wants to become a wall. I worked quietly for the better part of an hour: choosing the straight ones, cutting low and clean, stripping the side shoots, sorting by thickness as I went.
+
+Came back with forty-two fresh withies, arms full, sun beginning to angle properly over the treeline and the dew nearly gone from the grass. Set them in the same shaded pool at the stream edge to soak — they will want an hour or two before they are pliable enough to weave without splitting. The seven dry ones from this morning I kept separate; they can go in last, once I know exactly how many I need.
+
+The east wall panel will go in this afternoon. For now the cellar rests in its cool earth-smell quiet, the north panel already beginning to dry and settle.
+

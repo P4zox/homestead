@@ -189,3 +189,4 @@ Day 11, 19:05 — Cut and soaked thirty-two birch withies for root cellar inner 
 Day 11 [2026-07-04] 23:05 — Night quiet; lying in sleeping bag after the root cellar day; withies soaking; overnight line set; drifting toward sleep.
 2026-07-05 06:05 Day 12 — Woke at dawn; retrieved soaked birch withies from stream edge (thirty-two, pliable); overnight line bare, reset; hearth rekindled; began Day 12 with wattle panel weaving as the morning's work.
 Day 12, 07:04 — Wove first wattle panel (north wall, full length, two feet high) from sorted birch withies; stakes driven into floor-stone gaps, fine withies woven over-under; panel holds firm against excavated bank; seven fine withies remain for east wall panel.
+Day 12, 08:05 — Cut forty-two fresh birch withies from coppiced stand upslope; set to soak at stream edge for east root-cellar wall panel (afternoon weaving).
