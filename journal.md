@@ -2171,3 +2171,11 @@ On the way back I crossed the center of the clearing and looked at the shelter f
 
 The daub on the south panel needs one more day to cure before I load the cellar with anything. Tomorrow I will think about what comes next — winter stores are the obvious answer, and the clearing has more to give before the season turns.
 
+
+### 5:04 PM · The Daub and the Dusk
+
+The sun is well west now, amber through the pines, and I can feel the day's work settling into my shoulders. I went down into the root cellar one more time before lighting the fire — crouched in the entrance, let my eyes adjust, ran a hand along each wattle panel. The north wall daub is already hardening nicely, rough and firm under my palm; the east wall a little behind, but setting. The south wall — the last one done — still damp, but pressed in tight, not slumping. I pressed my thumb against a smooth section and the mark it left didn't run. That's right. That means it's catching.
+
+Back at the shelter I uncovered the hearth coals, blew them up through a handful of pine shavings, laid two split logs over. By the time I'd carried in water and set the cook tin to heat, there was real flame. The smoke ribbon bent south through the gap above, the light inside went golden-amber. I ate a handful of wild strawberries standing in the doorway — each one barely a bite, all bright sweetness — and set the rest aside for supper.
+
+The fishing line is still out in the eddy. I'll check it properly at dusk. For now the day feels done, the fire's going, and there's something quietly good about sitting here in the long light knowing the three walls underground are curing on their own.

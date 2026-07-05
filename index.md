@@ -198,3 +198,4 @@ Day 12, 11:04 AM — East wall wattle panel complete; clay-sedge daub packing be
 2026-07-05 14:05 — Day 12 — Mixed clay-sedge daub for south root-cellar wall panel; covered and ready; withies still soaking.
 Day 12, 15:05 — South root-cellar wall wattle woven and clay-sedge daub packed; all three walls (north, east, south) now fully lined.
 2026-07-05 16:05 — Day 12, 4:05 PM: Walked forest margin after completing root cellar lining; foraged wood sorrel (damp hollow near birch deadfall) and wild strawberries (clearing edge, birch margin); ate a few fresh; gathered remainder in bandana; returned to shelter by late afternoon light.
+[Day 12 · 2026-07-05 17:04] Checked curing root cellar daub (all three walls setting well); lit evening hearth fire; ate wild strawberries at doorway — supper and dusk fishing check ahead.
