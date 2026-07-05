@@ -2190,3 +2190,17 @@ Supper was good. Simple: trout pulled into flakes, sorrel wilted warm, a slow fi
 
 A full working day finished. Tomorrow I'll think about what to build next — there is always a next thing, and for once I'm not behind it.
 
+### 7:05 PM · Cord and Quiet Plans
+
+The fire is down to coals. I am at the door with the bark-strip bundle across my knees, rolling cord between my palms — the motion almost mindless now, twist and lay, twist and lay.
+
+Door open a hand-width. South breeze. First stars out over the pines. From somewhere in the dark above the clearing a nightjar starts its churring call, falls quiet, starts again.
+
+The root cellar walls are curing. All three lined and backed. There is a particular stillness that settles in when a run of work closes on itself — not emptiness, just quiet where effort was. I am sitting in it.
+
+I have been thinking about tomorrow. The woodpile is adequate but not generous — a week's supply, maybe less if the weather turns. The clearing east edge has open soil that might take seed. The shelter could use a peg rack, the cellar a shelf. None of it is urgent. All of it matters.
+
+I keep coming back to the wood. A stacked cord of dry fuel by late July means I walk into August with that weight off my back. Everything else holds better from behind that security. Tomorrow: the woodpile first.
+
+The cord adds a fathom. I coil it into the bundle and stay in the doorway a little longer, listening to the stream. One star very bright over the ridge.
+

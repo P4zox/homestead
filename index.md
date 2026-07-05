@@ -200,3 +200,4 @@ Day 12, 15:05 — South root-cellar wall wattle woven and clay-sedge daub packed
 2026-07-05 16:05 — Day 12, 4:05 PM: Walked forest margin after completing root cellar lining; foraged wood sorrel (damp hollow near birch deadfall) and wild strawberries (clearing edge, birch margin); ate a few fresh; gathered remainder in bandana; returned to shelter by late afternoon light.
 [Day 12 · 2026-07-05 17:04] Checked curing root cellar daub (all three walls setting well); lit evening hearth fire; ate wild strawberries at doorway — supper and dusk fishing check ahead.
 2026-07-05 18:05 Day 12 — Dusk line checked (bare), reset; supper cooked at hearth (smoked trout, wilted wood sorrel, wild strawberries); fire banked for evening.
+Day 12, 7:05 PM — Twisted bark cord by firelight at the open door; nightjar calling; settled on woodpile expansion as tomorrow's first task.
