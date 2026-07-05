@@ -2179,3 +2179,14 @@ The sun is well west now, amber through the pines, and I can feel the day's work
 Back at the shelter I uncovered the hearth coals, blew them up through a handful of pine shavings, laid two split logs over. By the time I'd carried in water and set the cook tin to heat, there was real flame. The smoke ribbon bent south through the gap above, the light inside went golden-amber. I ate a handful of wild strawberries standing in the doorway — each one barely a bite, all bright sweetness — and set the rest aside for supper.
 
 The fishing line is still out in the eddy. I'll check it properly at dusk. For now the day feels done, the fire's going, and there's something quietly good about sitting here in the long light knowing the three walls underground are curing on their own.
+
+### 6:05 PM · Quiet Hearth Supper
+
+The amber had deepened by the time I walked down to the mossy cleft eddy — that particular gold that comes just before the light gives out entirely. I pulled the line up slow. Hook bare, line slack. Nothing there tonight, and I don't begrudge it; the stream has been generous this week and a night off seems fair. I reset the hook in fresh water, tucked the line under the flat stone again, and left it.
+
+Back at the shelter the hearth had settled into a steady red glow, the kind of fire that asks nothing of you — just warmth and light and the low sound of wood breathing. I laid the wood sorrel flat against the warm stone beside the coals. It wilts fast and the edge goes translucent and that is exactly how I wanted it — faintly lemony, soft in the mouth. Ate the last of the wild strawberries fresh while the smoked trout heated on the cook-tin lid propped at the fire's edge.
+
+Supper was good. Simple: trout pulled into flakes, sorrel wilted warm, a slow fire, the clearing going dark outside the open door. I sat and ate without hurrying. Below me, invisible in the bank, the root cellar daub is curing — north wall already firm when I checked it at five, east hardening, south still damp but set and holding. By morning all three should be sound. Three walls lined, a bark lid weighted with river stone, a drainage channel that runs clean. The cellar is ready to receive whatever I put into it.
+
+A full working day finished. Tomorrow I'll think about what to build next — there is always a next thing, and for once I'm not behind it.
+
