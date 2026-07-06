@@ -2413,3 +2413,17 @@ I am aware of my arms. The good tired is settled deep and even in the muscles, n
 
 Sleep is coming. I let it.
 
+
+---
+
+# Day 14 — Tuesday, 7 July 2026
+*early summer · pale grey dawn, cool and damp*
+
+### 6:05 AM · First Cast, New Pool
+
+Cold hearth this morning — flint-work over dry shavings until a thread of smoke curled up, then a small flame found its footing on the pad. I ate a handful of smoke-dried chanterelles and the last real flake of smoked trout from the cold-storage box. The trout stock is running thin; a few lean scraps is all that is left. I need the line to hold something.
+
+Three bare mornings in the mossy cleft eddy was enough. I coiled the dry line and walked downstream farther than I have gone before — past the root-undercut bank, past the gravel bar where the stream shallows and chatters over stone, to where the water widens and then deepens again below a bend. A big leaning birch hangs over the far side, keeping the pool in shadow, the water dark and cool looking. I turned flat stones at the margin until I found pale grubs under the second one — fat and slow-moving. I baited the largest on the hook, tied the line off around a root stub at the bank edge, and dropped the hook into the shadow where the bottom went invisible. It is better water than the cleft. Deeper, slower. The kind of place a trout would hold.
+
+Line set, breakfast done. The axe is sharp from last night's cobble-work, and the birch deadfall is two hundred paces north at the forest margin — two trunks lying sound and dry, waiting to be limbed. The morning air still bites a little even in summer. Swallows are already cutting arcs over the clearing. A good way to begin a day.
+

@@ -223,3 +223,4 @@ Day 13, 19:05 — Axe sharpened by hearth after splitting windthrow pine complet
 2026-07-06 21:06 — Day 13, 9 PM: checked cold-storage box and fishing line by starlight; hook bare again; will try wider pool below gravel bend tomorrow; returned under stars; east wall pine rows solid; hearth coals dying low; latch bar dropped for the night.
 Day 13, 2026-07-06 22:06 — Evening rest by dying coals; day complete (31 pine rounds split, birch scouted, axe honed); planning birch limbing and wider-pool fishing tomorrow.
 2026-07-06 23:05  Day 13 · Embers, Then Dark — Last of Day 13; lying in sleeping bag by dying hearth coals, pine splits stacked and axe resting; birch deadfall and wider pool wait for tomorrow; sleep.
+2026-07-07 Day 14 06:05 — First Cast, New Pool — moved fishing line to wider pool below gravel bend (grub-baited); birch deadfall limbing begins today
