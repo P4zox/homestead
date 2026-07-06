@@ -4,3 +4,4 @@
 07:05 — Headed up the slope; limbed the windthrow pine — axe work from base to crown, all branches cleared to both sides, forty-foot trunk now bare and ready to buck and split; came back down to stream for water; dew lifting, swallows over the meadow.
 08:06 — Back up slope; bucked windthrow pine trunk into first eight rounds; arms tired by mid-morning; rounds piled beside trunk on slope — ready to haul down and split later.
 09:05 — Back up slope; continued bucking windthrow pine trunk — another eight or nine rounds sectioned; seventeen total piled on slope, trunk roughly halfway done; rested at stream mid-morning.
+10:04 — Third climb up slope; worked through upper half of windthrow pine trunk — wood lighter and knot-free near crown; finished bucking; thirty-one rounds total in two rough rows on slope; sat on butt-end stump and counted twice; trunk fully sectioned and done.

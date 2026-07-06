@@ -2268,3 +2268,14 @@ Back up the slope with the axe before the dew was fully gone. The trunk lay just
 
 The trunk was still cool from the overnight when I stepped back up to it. I measured my rounds by arm-span — eighteen inches or so — and set to where I had left off. The axe bites cleanly into dry pine; the resin smell rises up sharp with each stroke, and the chips fly pale yellow and fresh. I worked steadily down the slope through mid-morning, the rounds dropping free and rolling up against each other. I braced them with a short log to keep the pile from sliding. By the time I stopped to drink at the stream, another eight or nine sections were down — seventeen total, maybe, the pile a proper mound now. The trunk is roughly halfway done. This is simple work, but it asks your whole body; the arms know they have been at it. Good ache. The wood will be there when winter asks for it.
 
+
+### 10:04 AM · Trunk Bucked Clean
+
+The sun was up over the treeline by the time I made the third climb of the morning, and the slope was finally warm underfoot. I went back to the trunk and found it where I'd left it — half-sectioned, the axe mark bright at the cut.
+
+The upper portion goes lighter. Fewer knots where the tree grew straight, wood paler and drier, rounds narrower and easier to roll aside. I found a rhythm and held it longer than earlier. The crown-end tapers down to the width of my forearm — shorter rounds, but every bit as good for fuel. By mid-morning I'd finished, the last section rolling off the end with a quiet thud into the leaf litter.
+
+Thirty-one rounds in two rough rows on the slope. I sat on the butt end and counted them twice. The whole forty-foot trunk is gone — just sawdust-pale cuts on the soil where it lay.
+
+Tomorrow or this afternoon the hauling starts. Two or three rounds at a time down to the flat near the cabin, then set up a splitting station and work through them. That's the slower part. But the bucking was the piece I couldn't rush, and it's done.
+
