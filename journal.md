@@ -2349,3 +2349,16 @@ Nine rounds left at the start of this hour. Upper-trunk wood — lighter, cleane
 The last one went down just as the light turned copper on the ridge pines behind the shelter. I set the two halves on the stack, drove the axe into the chopping block for the night, and stepped back.
 
 Thirty-one rounds from that windthrow pine, all split and stacked. The row against the east wall stands about knee-high now — pale fresh wood, smell of pine resin still in the air. Not a cord yet, but the beginning of one. The birch deadfalls at the forest margin have been waiting their turn. Tomorrow they come into the plan.
+
+### 6:05 PM · Walking the Margin
+
+The splitting is done. I walked the row of stacked fuel once with a hand trailing the pale split faces, then had no reason to stand still in the evening light.
+
+So I walked to the birch deadfall patch at the forest margin — fifteen paces past the chanterelle deadfall, north along the tree line. Two main trunks, one smaller. All birch, all down long enough that the bark has gone papery but the heartwood still rings at the test tap. I cut a shallow notch in the larger trunk: pale yellow inside, no rot. Dry all the way through.
+
+The longer trunk runs thirty feet or so, butt-end maybe a hand-span and a half across. The second is twenty feet, partly buried under a fallen bough at one end. The third is twelve feet and already lifted half off the ground by deadfall beneath it — easy to get at. Two or three days of bucking and hauling would add a meaningful stack to the east wall.
+
+I stood in the shade there a while. Wind through the high canopy. Mosquitoes in the lower brush but not bad yet. The slope runs gently toward the cabin flat — rounds would roll well with a little coaxing.
+
+Came back as the copper light faded and lit the hearth. Dried chanterelles, a strip of trout — a quiet supper. The fishing line still bare, but there is enough in the box. Tomorrow: back to the margin with the axe, and begin limbing the larger trunk.
+
