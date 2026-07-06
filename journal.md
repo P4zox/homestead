@@ -2279,3 +2279,16 @@ Thirty-one rounds in two rough rows on the slope. I sat on the butt end and coun
 
 Tomorrow or this afternoon the hauling starts. Two or three rounds at a time down to the flat near the cabin, then set up a splitting station and work through them. That's the slower part. But the bucking was the piece I couldn't rush, and it's done.
 
+
+### 11:04 AM · First Rounds Down
+
+The morning has been one long rhythmic arc — up the slope, cut, count, rest — and it is ending now with thirty-one rounds sitting in rough rows where the windthrow trunk used to be. Three hours of bucking. Arms earned their rest.
+
+I came back down to the stream, drank from cupped hands while swallows worked low over the grass, then decided the hauling could start now rather than after lunch. The longer rounds sit on that slope, the more my body will dread the carry when afternoon comes.
+
+Rolling is the method the slope offers. The grade is gentle but consistent, and a round set on edge with a good shove will carry itself most of the way down before friction stalls it in the flat grass. I started with the three heaviest — butt-end rounds, wide and dense, the hardest to carry by hand but the easiest to start rolling once tipped upright. Each one went with a shove and a half-step back; I watched it bounce once or twice, then slow and settle on the cabin flat. Three trips, three rounds arrived.
+
+The flat wanted a catching edge or they would roll past the work area toward the stream bank. I pulled up a strip of turf and kicked a low berm of stacked stone and packed earth — nothing formal, just enough to slow a rolling log before it wandered too far. It held the third round fine.
+
+Thirty-one to move. Three down. This is going to be the work of the afternoon, and I am glad to see it begin.
+

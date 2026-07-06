@@ -5,3 +5,4 @@
 08:06 — Back up slope; bucked windthrow pine trunk into first eight rounds; arms tired by mid-morning; rounds piled beside trunk on slope — ready to haul down and split later.
 09:05 — Back up slope; continued bucking windthrow pine trunk — another eight or nine rounds sectioned; seventeen total piled on slope, trunk roughly halfway done; rested at stream mid-morning.
 10:04 — Third climb up slope; worked through upper half of windthrow pine trunk — wood lighter and knot-free near crown; finished bucking; thirty-one rounds total in two rough rows on slope; sat on butt-end stump and counted twice; trunk fully sectioned and done.
+11:04 — Rounds haul begun: rolled first three butt-end rounds from slope to cabin flat; kicked turf-and-stone stopping berm at flat edge to catch incoming rounds; twenty-eight rounds remain on slope; plan to ferry all down in batches this afternoon, then begin splitting.
