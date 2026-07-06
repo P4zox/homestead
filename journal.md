@@ -2427,3 +2427,7 @@ Three bare mornings in the mossy cleft eddy was enough. I coiled the dry line an
 
 Line set, breakfast done. The axe is sharp from last night's cobble-work, and the birch deadfall is two hundred paces north at the forest margin — two trunks lying sound and dry, waiting to be limbed. The morning air still bites a little even in summer. Swallows are already cutting arcs over the clearing. A good way to begin a day.
 
+
+### 7:05 AM · Axe Meets Birch
+
+Mist still pooled in the low places when I shouldered the axe and crossed the clearing toward the forest margin. The two birch trunks lay as I left them — the bigger one a full thirty feet of pale grey bark, the smaller behind it in the shadow of the pines. I started at the butt end of the larger, working along the underside first where the limb stubs are thicker and the axe has room to seat cleanly. Dry birch cuts differently from green wood — there is a crack in it, like the wood wants to let go. I worked in four-foot sections, staying low, knocking each stub flush with the bark. The morning was cool and quiet except for the axe. By the time the sun came over the treeline I had the first third of the trunk stripped and the stubs in a rough pile to one side. Good start. The middle section is next, where the branches run denser before they thin out toward the tip.
