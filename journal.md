@@ -2362,3 +2362,14 @@ I stood in the shade there a while. Wind through the high canopy. Mosquitoes in 
 
 Came back as the copper light faded and lit the hearth. Dried chanterelles, a strip of trout — a quiet supper. The fishing line still bare, but there is enough in the box. Tomorrow: back to the margin with the axe, and begin limbing the larger trunk.
 
+
+### 7:05 PM · Edge by Firelight
+
+The hearth is going easy now, coals from supper still orange-red at the base of the firebox. I pulled the axe from the chopping block when the light started going blue and brought it inside. The edge has earned a proper sharpening — thirty-one rounds of pine is enough to tell the difference between a clean bite and a blade that starts sliding off grain before it catches.
+
+I found a smooth oval cobble from the stream some weeks back, dark grey and fine-grained, and I have been keeping it on the hearth ledge for this. Two-handed grip on the stone, slow arcs from heel to toe along the blade bevel, first one side then the other. The sound it makes against the steel is low and steady, a sound that belongs to this kind of work. A fire and a blade and a stone — not much else required.
+
+After thirty passes each side I ran my thumb lightly across the edge, the careful way, and it was noticeably keener. I worked through another five or six rounds of passes once the last outdoor light faded, going by feel and the fine ring the stone makes when the angle is right. The birch logs at the forest margin will ask a lot of this axe tomorrow — limbing a birch trunk is not pine, the branches fork differently and the wood is tougher at the nodes. Better to go into that work with an edge that does not need excuses.
+
+The latch bar is down. The rounds are stacked, pale and bright in their rows outside, and tomorrow is already settled in my mind. A good evening.
+
