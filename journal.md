@@ -2382,3 +2382,12 @@ A whole day of axe work behind me: the windthrow pine fully done, all thirty-one
 
 The cord I twisted is a good four feet of two-ply — added to the lashing bundle. Outside, the stars are out and still. The clearing is quiet in that particular summer evening way, where sound has withdrawn and the warm air just sits. I let it sit. Good day behind me. Good work ahead.
 
+
+### 9:06 PM · Quiet Accounting
+
+The hearth coals have settled to a deep orange — no more flame, just steady heat. The split pine stacked against the east wall this afternoon is already doing its quiet work. I walked upstream in the dark with the knife on my belt and checked the cold-storage box first: bark lid weighted tight, the cool seep still purring underneath, trout and chanterelles holding well. Then I reached into the eddy cleft to feel the fishing line — taut, hook seated under the flat stone, bait stripped again. Two mornings bare, and now a third night bare as well. I pulled the hook out, dried it on my sleeve, and let it rest on the stone. Tomorrow I will try the wider pool below the gravel bend instead of this cleft.
+
+Came back through the clearing under a full scatter of stars. The east wall of the shelter — pale split pine stacked higher than my shoulder, bark-up in steady rows — looked solid against the dark tree line. All thirty-one rounds done today. That was the aim this morning and it is met.
+
+The birch deadfall waits at the forest margin. Tomorrow: axe in hand by first light, limbing the larger trunk, the work that comes next. Tonight the latch bar drops, the coals breathe low, and I am ready to sleep.
+
