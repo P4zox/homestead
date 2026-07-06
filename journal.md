@@ -2292,3 +2292,12 @@ The flat wanted a catching edge or they would roll past the work area toward the
 
 Thirty-one to move. Three down. This is going to be the work of the afternoon, and I am glad to see it begin.
 
+
+### 12:05 PM · Midday Haul
+
+The sun is overhead now and the slope shows it — each round I roll throws a short shadow that near vanishes at noon. The work has a rhythm: climb to the next row, tip a round onto its edge, shove it and walk fast beside it down the slope, steering with one hand on the bark when it threatens to veer into the young birch saplings at the left margin. The butt-end rounds are heavy and slow. The upper trunk rounds roll easy, pale wood still faintly sweet-smelling.
+
+I stopped at the shelter for water and a cold flake of smoked trout — standing in the doorway, watching the flat where the rounds are collecting against the stopping berm. The pitch on my hands left dark prints on the bark cord by the doorpost. It will wash off eventually.
+
+Thirteen rounds are on the flat now. Eighteen remain on the slope. The afternoon still stretches ahead. I want them all down before the light goes, so I can start splitting tomorrow with a full station and nothing left to ferry.
+

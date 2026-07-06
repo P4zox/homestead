@@ -211,3 +211,4 @@ Day 13, 08:06 — Bucked windthrow pine into first eight rounds; rounds piled on
 2026-07-06 09:05 — Day 13 — Continued bucking windthrow pine; ~17 rounds piled on slope, trunk roughly halfway done.
 2026-07-06 10:04 — Day 13 — Finished bucking windthrow pine; thirty-one rounds piled on slope, trunk fully sectioned; hauling and splitting next.
 Day 13 · 11:04 AM — Rounds haul begun: first three butt-end rounds rolled to cabin flat; turf-and-stone stopping berm kicked; twenty-eight remain on slope.
+Day 13, 2026-07-06 12:05 — Continued rounds haul; 13 of 31 rounds now on cabin flat, 18 remaining on slope.

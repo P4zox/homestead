@@ -6,3 +6,4 @@
 09:05 — Back up slope; continued bucking windthrow pine trunk — another eight or nine rounds sectioned; seventeen total piled on slope, trunk roughly halfway done; rested at stream mid-morning.
 10:04 — Third climb up slope; worked through upper half of windthrow pine trunk — wood lighter and knot-free near crown; finished bucking; thirty-one rounds total in two rough rows on slope; sat on butt-end stump and counted twice; trunk fully sectioned and done.
 11:04 — Rounds haul begun: rolled first three butt-end rounds from slope to cabin flat; kicked turf-and-stone stopping berm at flat edge to catch incoming rounds; twenty-eight rounds remain on slope; plan to ferry all down in batches this afternoon, then begin splitting.
+12:05 — Continued rounds haul from slope; rolled batches down to cabin flat using stopping berm to catch each round; 13 rounds now on flat, 18 remaining on slope; stopped at noon for water and cold smoked trout; plan to finish haul this afternoon.
