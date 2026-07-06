@@ -2314,3 +2314,13 @@ I stood at the uphill edge of the flat and looked down at them. They are a good-
 
 Tomorrow I'll set up the splitting station — find a flat heartwood base round, start the axe work. The pile is only raw material until it's cord wood.
 
+
+### 2:05 PM · Station Set, First Splits
+
+The afternoon belongs to the axe now.
+
+I sorted through the two rows of rounds against the east wall and pulled out the widest, flattest butt-end — about eighteen inches across, sitting steady on its own without rocking. Rolled it a few paces out from the wall into clear ground south of the shelter door and stood it upright: that is the chopping block. I tamped the dirt around its base with my boot heel, loaded a round on top, and the station was done. Simple work, but getting it right saves bruised shins later — a wobbly block throws the axe, and a thrown axe is trouble.
+
+Then I started splitting. The first few rounds were knotty near the base — I had to angle the strikes and work around the worst of the grain — but once I found the rhythm the axe bit clean. Pine splits willingly when it is dry enough and the wood is sound, and this windthrow was both. Six rounds done by mid-afternoon, each halved and then quartered and stacked bark-up against the wall. Twenty-five remain, but the pattern is established now: round up, line up the grain, one clean strike or two, and the halves fall apart like they were waiting for it. The pile looks like something. By the end of the week it will look like winter insurance.
+
+Swallows were working the air above the clearing while I split, catching insects in long arcs. The afternoon is warm but not heavy. I am tired in a good way.
