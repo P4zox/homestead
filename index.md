@@ -207,3 +207,4 @@ Day 12, 7:05 PM — Twisted bark cord by firelight at the open door; nightjar ca
 2026-07-05 23:05 Day 12 — Still at Midnight: deep night, shelter holds, sleep continues, root cellar walls curing, woodpile work waits for morning.
 2026-07-06 Day 13 06:05 — Dawn Before the Axe — new day rollover; bare fishing line reset; hearth rekindled from cold ash; cold breakfast from storage box; axe ready for windthrow pine woodpile work
 2026-07-06 07:05 — Day 13, limbed the windthrow pine (forty-foot trunk cleared of all branches; wood sound and pale yellow; ready to buck and split)
+Day 13, 08:06 — Bucked windthrow pine into first eight rounds; rounds piled on slope; woodpile work underway.

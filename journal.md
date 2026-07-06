@@ -2259,3 +2259,8 @@ I started at the base end with the limbing: axe held low, strokes short and angl
 
 Came back down for water and stood at the stream a moment. Swallows working the meadow edge, dew lifting off the grass. I can feel the difference already: the trunk is there, cleared and waiting. A cord of fuel starts with one hour of limbing.
 
+
+### 8:06 AM · Bucking the Windthrow
+
+Back up the slope with the axe before the dew was fully gone. The trunk lay just as I had left it — forty feet of bare, straight pine, the pale yellow wood still catching morning light. I started at the base, scoring a notch with the axe face to mark my first cut, then swung into the wood properly. It is good timber — the fibers split clean and the axe bites deep. The work has a rhythm to it: two cuts angled toward each other, the round falls free, step down a body length, mark, start again. I got eight rounds out before the slope warmed and I needed a rest. My arms felt the work. The rounds are heavy — each one wants both hands to roll — and I set them in a loose pile to the side of the trunk. Hauling them down to the shelter will be a separate trip. For now it is enough to make them. The woodpile is beginning, one round at a time.
+
