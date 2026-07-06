@@ -216,3 +216,4 @@ Day 13, 2026-07-06 12:05 — Continued rounds haul; 13 of 31 rounds now on cabin
 2026-07-06 14:05 — Day 13, 2:05 PM — Set up splitting station (widest butt-end as chopping block); split first 6 rounds into quarters; 25 rounds remain; pine splits clean; stacked bark-up against east wall.
 Day 13, 15:05 — Continued splitting windthrow rounds at station south of shelter; 14 of 31 now split and stacked bark-up against east wall; 17 remain.
 Day 13, 2026-07-06, 16:05 — Continued splitting: 22 of 31 rounds done, 9 remain; pale split faces in late afternoon light.
+2026-07-06 17:05 — Day 13: Split and stacked the last nine windthrow pine rounds; all 31 rounds complete against east wall.

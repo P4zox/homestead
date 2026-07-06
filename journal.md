@@ -2341,3 +2341,11 @@ The trout line was bare again at the noon check; I reset it and left it. The cha
 
 After these thirty-one rounds are done, the birch deadfalls at the forest margin. Denser, smaller diameter — different effort. Then, if all goes well, a cord before late July. I can see it.
 
+
+### 5:05 PM · Last Nine Done
+
+Nine rounds left at the start of this hour. Upper-trunk wood — lighter, cleaner grain than the butt-end cuts — and it went fast. The axe found its rhythm again after the brief rest, and each round split halves clean, then quarters with two more clean swings. I worked through them one at a time, stacking each split bark-side up against the east wall as I went.
+
+The last one went down just as the light turned copper on the ridge pines behind the shelter. I set the two halves on the stack, drove the axe into the chopping block for the night, and stepped back.
+
+Thirty-one rounds from that windthrow pine, all split and stacked. The row against the east wall stands about knee-high now — pale fresh wood, smell of pine resin still in the air. Not a cord yet, but the beginning of one. The birch deadfalls at the forest margin have been waiting their turn. Tomorrow they come into the plan.
