@@ -2328,3 +2328,16 @@ Swallows were working the air above the clearing while I split, catching insects
 ### 3:05 PM · East Wall Growing
 
 The afternoon deepened warm. I kept at the splitting station through the heart of it — axe rising and falling in a rhythm that settled into muscle memory somewhere around the fourth or fifth round. Pine is honest work: you find the grain and it opens. The knotted butt rounds take two strikes, sometimes three, but the upper sections practically fall apart at the first clean hit. I worked south of the door, bark chips gathering around the chopping block in a little sun-yellow ring. By the time I stopped to water at the stream, the stack against the east wall had grown considerably — fourteen rounds now split and stacked, bark-up in alternating rows so the cut faces can breathe. Seventeen still remain. My shoulders are tired in that good, used-up way. The afternoon light slants gold across the east wall now, catching the fresh pine faces where the wood is still pale and almost bright.
+
+### 4:05 PM · Splitting into Gold
+
+The axe finds the grain and the round gives way — it's become a reliable satisfaction, this sound. Eight more rounds split through the warm part of the afternoon, bringing the total to twenty-two of thirty-one, and the pile against the east wall is substantial now: pale inner faces catching the low western angle, stacked bark-side up in alternating rows so the gaps breathe and the wood can cure.
+
+Nine rounds left on the flat. Good news for tomorrow morning.
+
+I am tired in the steady way work makes you tired, not the other kind. The south breeze came and went and came back; drank from the stream twice; refilled the tin once. Shoulders have a familiar ache — the kind that means real effort without injury. I trust it.
+
+The trout line was bare again at the noon check; I reset it and left it. The chanterelles in the cold-storage box are holding. There is no urgency in the food, which lets me think about the woodpile clearly, which is where I want to be.
+
+After these thirty-one rounds are done, the birch deadfalls at the forest margin. Denser, smaller diameter — different effort. Then, if all goes well, a cord before late July. I can see it.
+
