@@ -219,3 +219,4 @@ Day 13, 2026-07-06, 16:05 — Continued splitting: 22 of 31 rounds done, 9 remai
 2026-07-06 17:05 — Day 13: Split and stacked the last nine windthrow pine rounds; all 31 rounds complete against east wall.
 2026-07-06 18:05 — Scouted birch deadfall patch at forest margin after finishing windthrow pine splitting; three trunks found (30 ft, 20 ft, 12 ft), all birch, sound and dry; tomorrow: begin limbing the larger trunk.
 Day 13, 19:05 — Axe sharpened by hearth after splitting windthrow pine complete; edge honed on oval cobble; preparing for birch deadfall limbing tomorrow.
+2026-07-06 Day 13 20:06 — Coals and Quiet Plans: twisted bark cord by hearth coals; reviewed birch deadfall plan for tomorrow; axe honed and ready.

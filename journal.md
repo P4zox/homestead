@@ -2373,3 +2373,12 @@ After thirty passes each side I ran my thumb lightly across the edge, the carefu
 
 The latch bar is down. The rounds are stacked, pale and bright in their rows outside, and tomorrow is already settled in my mind. A good evening.
 
+
+### 8:06 PM · Coals and Quiet Plans
+
+The hearth has settled into its evening mood — not the bright snap of a cooking fire but the deep orange patience of banked coals, radiating steadily, needing nothing from me. I pulled the bark cord bundle close and worked a length between my palms, twisting without much thought while the cabin breathed warm around me.
+
+A whole day of axe work behind me: the windthrow pine fully done, all thirty-one rounds split and stacked bark-up against the east wall. The birch deadfall scouted this evening and marked in my mind — two main trunks and the smaller one behind them, sound and dry. Tomorrow I will take the freshly-honed axe to the larger trunk and work through the limbing before the heat of midday. Birch splits differently than pine. Smoother through the bevel once you find the grain, and the wood runs pale and clean. I am ready for it.
+
+The cord I twisted is a good four feet of two-ply — added to the lashing bundle. Outside, the stars are out and still. The clearing is quiet in that particular summer evening way, where sound has withdrawn and the warm air just sits. I let it sit. Good day behind me. Good work ahead.
+
