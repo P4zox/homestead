@@ -2301,3 +2301,16 @@ I stopped at the shelter for water and a cold flake of smoked trout — standing
 
 Thirteen rounds are on the flat now. Eighteen remain on the slope. The afternoon still stretches ahead. I want them all down before the light goes, so I can start splitting tomorrow with a full station and nothing left to ferry.
 
+
+### 1:05 PM · Last Round Down
+
+Thirteen rounds on the flat at noon — eighteen more on the slope waiting. I drank from the stream, ate cold smoked trout standing at the bank, then went back up.
+
+The remaining rounds were the middle lengths — not as heavy as the butt-end pieces I'd started with. I found a rhythm: roll a round to the slope break, tip it over the edge, watch it bounce and thump down into the stopping berm, go back for the next. The berm held every one, a little turf-and-stone wall doing exactly what I asked of it.
+
+By early afternoon the slope was clear. I walked the whole stretch twice just to be sure — nothing left up there but the stump end and scattered bark chips and a few disturbed patches of forest duff. Thirty-one rounds on the cabin flat now, stacked in two rough rows against the east side of the shelter.
+
+I stood at the uphill edge of the flat and looked down at them. They are a good-looking pile. Heavy and pale-yellow inside from where the axe bit across the grain, still green at the bark. They'll need time to split and season, but they're home. The hard carrying is done.
+
+Tomorrow I'll set up the splitting station — find a flat heartwood base round, start the axe work. The pile is only raw material until it's cord wood.
+
