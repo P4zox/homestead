@@ -2391,3 +2391,16 @@ Came back through the clearing under a full scatter of stars. The east wall of t
 
 The birch deadfall waits at the forest margin. Tomorrow: axe in hand by first light, limbing the larger trunk, the work that comes next. Tonight the latch bar drops, the coals breathe low, and I am ready to sleep.
 
+
+### 10:06 PM · Before the Dark
+
+The coals are almost gone — just a faint orange pulse at the base of the ash pile, the kind that can last the night without feeding. I am in the sleeping bag already. The cabin smells like pine smoke and split wood. Outside, through the bark rain-flap above the gable, I can hear almost nothing: a small wind, the stream somewhere distant, a single branch settle.
+
+The day was a good one. All thirty-one rounds split and stacked. The axe sharpened and hung. The birch deadfall scouted for tomorrow. The cord twisted and added to the bundle. I lie here counting it over because it is satisfying to count, not because I need to — the east wall shows it plainly enough, all those pale split faces stacked bark-up in rows.
+
+Three nights now the hook has come up bare. I will try the wider pool below the gravel bend in the morning, where the current slows and deepens. The chanterelles and smoked trout will hold me until then.
+
+Tomorrow: birch trunks to limb, and if luck holds, fish by midday.
+
+Sleep is close.
+
