@@ -2404,3 +2404,12 @@ Tomorrow: birch trunks to limb, and if luck holds, fish by midday.
 
 Sleep is close.
 
+
+### 11:05 PM · Embers, Then Dark
+
+The last coal is little more than an orange pulse under ash, and the sleeping bag holds warm. I can still smell the pine split-wood — that clean resin that soaked into my hands all afternoon through thirty-one rounds. The flat was bare of fuel this morning; now the east wall is lined with pale-faced splits stacked bark-up and the axe is driven into the chopping block, edge keened and resting. That is the whole shape of a day, and I find it satisfying in proportion to how simple it is.
+
+I am aware of my arms. The good tired is settled deep and even in the muscles, not the sharp tired of something wrong — just weight, the honest residue of a full day. The birch deadfall is out there at the forest margin, two main trunks and a smaller one in dry sound wood, waiting for tomorrow. The wider pool below the gravel bend has not given me a fish yet but the line will be there in the morning. Plans sit easy when you carry them lightly.
+
+Sleep is coming. I let it.
+
