@@ -229,3 +229,4 @@ Day 14, 2026-07-07 07:05 — Began limbing larger birch deadfall trunk (~30 ft) 
 Day 14, 09:05 — Finished limbing the larger birch deadfall trunk (30 ft, all stubs cut flush); drew up the fishing line and found a good-sized trout — first catch from the wider pool; trout cleaned and stored in cold-storage box.
 2026-07-07 10:05 — Day 14 — Began bucking the larger birch deadfall trunk into rounds; seven rounds cut free by mid-morning, roughly a third of the 30ft trunk done.
 Day 14, 11:05 AM — Continued bucking larger birch trunk through midday heat; fourteen rounds done (~two-thirds); rested at stream; trout decision deferred to tonight.
+2026-07-07 12:05 Day 14 — Finished bucking larger birch deadfall trunk; all twenty rounds cut and stacked bark-side up at forest margin; kindling bundle gathered; ready to haul to cabin flat.

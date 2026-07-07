@@ -2463,3 +2463,15 @@ With the big trunk stripped bare, I brought the axe over to the butt end and sta
 
 The birch trunk has taken the whole morning, and it deserves to. I worked through the second third between ten and eleven, the axe landing true across each marked line, the rounds dropping clean. There are fourteen now — pale yellow heartwood, denser and heavier than the pine — rolled to one side in a lengthening row. The sun climbed overhead while I wasn't watching it; sweat stings the corners of my eyes and the handle is slick in my palms. I walked down to the stream and knelt and drank from cupped hands, cold enough to make the back of my teeth ache. The trout is still in the cold-storage box, waiting on tonight's decision — smoke it and extend the supply, or eat it fresh while it's still copper-bright and sweet. I'm leaning toward fresh. There's still a third of the trunk left and the afternoon is long. I'll rest another few minutes in the shade of the birch canopy, then finish what I started.
 
+
+### 12:05 PM · Final Third, Trunk Done
+
+Went back to the birch trunk for the last push. Six rounds left — the tip end, narrower and lighter than the butt, the grain running straighter. The sun was dead overhead and the shade at the forest margin thin, so I did not linger between cuts. Let the axe find its angle and worked at a steady pace rather than a hard one: five full strokes per round, maybe six for the knottier sections. The rounds fell free one after another and the row grew.
+
+The twentieth round came loose maybe forty minutes in. I stood the axe upright and counted the whole line: twenty rounds, each a clean eighteen-inch face of pale birch heartwood, sound throughout. Not a single punky section. This was a good trunk.
+
+Spent the last stretch before noon stacking them properly — two rows, bark-side up to shed any rain, close enough together that none will roll. The kindling pile from this morning's limbing I gathered loosely and wrapped in a strip of bark. Stacked the bundle at the end of the rows. Ready to haul.
+
+The carry is the next task: several trips down to the cabin flat, rolling what I can, carrying lighter rounds on my shoulder. Not today's work — this hour was for finishing the cut. The 20ft and 12ft trunks still lie where they fell, waiting their turn.
+
+Walked back in the noon heat with the axe over my shoulder feeling clean-tired. The larger trunk is done. Tonight the trout, fresh over the hearth. That has been decided.
