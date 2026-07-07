@@ -2546,3 +2546,14 @@ By the time I return to the cabin, the coals have settled to a cherry glow. Trou
 
 The day has been long and the fire is generous. I feel the kind of tiredness that is also satisfaction.
 
+
+### 7:05 PM · Coals and Cord
+
+The supper tin is washed and set by the door. Inside, the hearth coals are still alive — I pressed three birch splits to the back stone and the fire settled into a long, low burn that should hold till near midnight. Smoke rises clean through the gable gap. I can hear the southerly moving in the pines.
+
+I pulled a bundle of inner bark from the carrying pouch and sat on the edge of the sleeping bag, back against the south wall, and twisted cord by firelight. Two arm-lengths done — good even two-ply — before my hands were ready to stop. That felt right. The coil is proper now; enough to hang a drying line inside or lash down anything that needs it after a heavy rain.
+
+The day was all work in the best way. All twenty birch rounds from the larger deadfall trunk limbed, bucked, hauled, and split by midafternoon. The east wall has a real fuel stack now — pine and birch side by side, enough to see well past the first frost. Tomorrow: the 20-foot and 12-foot trunks at the forest margin. Smaller, but they will close the gap, and the deadfall patch will be mostly cleared.
+
+I am not tired the way I was at the end of the windthrow pine. That was bone-deep. Tonight is the ordinary tiredness of honest days. The perch is in the cold-storage box. The fire is right. I will be asleep before the coals gray.
+
