@@ -2512,3 +2512,18 @@ The 20-foot and 12-foot birch trunks at the forest margin are still waiting — 
 
 Fishing line is still set at the pool. I'll check it at dusk before I cook. The trout in the cold box looks copper-bright even now; I'm leaning toward just roasting it on flat stones over the hearth coals tonight, with a few dried chanterelles alongside. Simple and good.
 
+
+### 4:05 PM · Greens for the Supper
+
+The axe is resting against the cabin wall now, and the east wall of split birch stands without a gap all the way to the corner. A good afternoon's work. My palms are tight and a little raw, but the satisfaction is the clean kind — something that wanted doing is done.
+
+I don't need to push into more heavy work today. The 20ft and 12ft trunks at the forest margin will keep until morning when my hands are fresh. So I took the knife instead of the axe and walked along the clearing margin with no particular urgency, just looking.
+
+The wood sorrel is still coming in thick along the shadier side of the trail where the pines give way to open ground — small, bright, each leaf folded like a tiny umbrella. I cut several generous handfuls, tasting one as I went: sharp, clean, a little citrusy. Good against the richness of trout. Found two young dandelion crowns lower toward the stream — tight and pale, the bitterness not yet full in them. A cluster of wild garlic at the edge where I'd found it before, narrow leaves dark green. I took a few stalks, not too many, letting the patch keep its strength.
+
+It was quiet — that particular late-afternoon quiet when the morning birds have finished and the evening ones haven't started. The stream made its sound in the near distance. I could feel the day settling into itself.
+
+Came back and set the greens in a bundle in the cold-storage box beside the trout. Tonight's supper is already arranged in my mind: trout cooked flat over the coals, greens wilted quickly in the tin beside it, wood sorrel left fresh on top for the brightness. Simple, but better than what I had the first week.
+
+The fishing line is still set at the wider pool for dusk. I'll walk down before the light goes.
+
