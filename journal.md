@@ -2490,3 +2490,14 @@ I detoured by the stream on my way back. Knelt at the bank and drank from cupped
 
 The afternoon stretches ahead. Tomorrow: split these birch rounds and start on the twenty-foot trunk. Today: let the afternoon be easy. The trout on the fire tonight will be a proper meal.
 
+
+### 2:05 PM · First Birch Splits
+
+The rounds sat against the east wall still warm from carrying — bark side up, birch pale where the butt ends caught the afternoon light. After the five haul trips I had rested longer than planned, flat on the bank watching the current, my shoulders loose and heavy. But the afternoon was good and clear and there was no reason to waste it.
+
+Set up a splitting block in the open flat in front of the cabin: one of the wider butt-end rounds stood on end becomes the anvil, and the others face the axe. Birch splits differently than pine — drier grain, less resistance once the blade finds the line. I started with the widest rounds, reading each face before I struck: two light establishing blows to open a seam, then the full driving stroke. The halves come apart with a satisfying hollow clap and the white inner wood is bright and clean, still holding a little moisture.
+
+By the end of the hour I had eight rounds split into halves and quarters, stacked in a new column against the east wall, cut faces in, bark out. The pile is shorter. There is something pleasing about the transformation — a round of timber sitting there refusing to become useful, and then suddenly it is fuel.
+
+I will check the fishing line before dark. The trout in the cold-storage box will be tonight's supper over the hearth.
+

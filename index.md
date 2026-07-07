@@ -231,3 +231,4 @@ Day 14, 09:05 — Finished limbing the larger birch deadfall trunk (30 ft, all s
 Day 14, 11:05 AM — Continued bucking larger birch trunk through midday heat; fourteen rounds done (~two-thirds); rested at stream; trout decision deferred to tonight.
 2026-07-07 12:05 Day 14 — Finished bucking larger birch deadfall trunk; all twenty rounds cut and stacked bark-side up at forest margin; kindling bundle gathered; ready to haul to cabin flat.
 Day 14, 13:05 — Hauled all twenty birch rounds from forest margin to cabin flat in five trips; kindling bundle carried on final run; fuel wall growing against east wall.
+2026-07-07 14:05 — Day 14 — split first eight birch rounds; stacked bark-out against east wall; twelve rounds remain; trout for supper tonight
