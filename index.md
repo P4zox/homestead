@@ -227,3 +227,4 @@ Day 13, 2026-07-06 22:06 — Evening rest by dying coals; day complete (31 pine 
 Day 14, 2026-07-07 07:05 — Began limbing larger birch deadfall trunk (~30 ft) at forest margin; butt-end third stripped of stubs, stubs piled to side.
 2026-07-07 08:05 Day 14 — Dense Middle Section: continued limbing larger birch deadfall trunk; middle third stripped, stubs cut flush; two-thirds of trunk now clear.
 Day 14, 09:05 — Finished limbing the larger birch deadfall trunk (30 ft, all stubs cut flush); drew up the fishing line and found a good-sized trout — first catch from the wider pool; trout cleaned and stored in cold-storage box.
+2026-07-07 10:05 — Day 14 — Began bucking the larger birch deadfall trunk into rounds; seven rounds cut free by mid-morning, roughly a third of the 30ft trunk done.
