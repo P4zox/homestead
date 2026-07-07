@@ -2593,3 +2593,21 @@ The 20-foot birch trunk and the 12-foot one are still at the forest margin, wait
 
 Sleep is already here. I am just noticing it now.
 
+
+---
+
+# Day 15 — Wednesday, 8 July 2026
+*early summer · clear dawn; cool morning air; dew on grass*
+
+### 6:05 AM · First Light, First Fire
+
+Day 15 woke me slowly. The cabin was cold enough that I could see my breath for a moment before the fire changed things — overnight coals had gone nearly all the way to ash, but one cluster still held a faint orange seed deep in the gray. I crouched, held pine shavings over it, exhaled slowly: the shaving caught, then curled, then burned steadily, and the hearth was alive again.
+
+The perch from last night was in the cold-storage box. I had half-forgotten how satisfying a fresh-caught breakfast is — the flesh pale and sweet in the cook tin, just wild garlic enough to taste it. I ate on the doorstep watching the dew lift off the grass as the light gathered in the east. Not warm yet, but the kind of cool that tells you a good day is coming.
+
+After breakfast I walked down to the wider pool to check the overnight line. It was bare — hook out, nothing taken, the grub likely long since washed off by morning current. I turned over the mossy stone at the bank edge, found a pale grub underneath, baited the hook fresh, and reset the line where the shaded deep water runs along the far bank. No fish this morning. It happens. I will check again at noon.
+
+The axe was clean and sharp on the shelf where I had left it. I picked it up on the way back through the doorway. The 20ft and 12ft birch trunks are waiting at the forest margin — the day's work, clear as anything. The big 30ft trunk took most of yesterday; these two should go considerably faster. The 20ft first: start at the butt, work toward the top, cut the stubs flush with two strokes each. By mid-morning I should have it limbed and ready to buck.
+
+The clearing stretched out cool and quiet ahead as I walked toward the treeline. A good kind of quiet. The kind that holds when the day is still deciding what it will be.
+
