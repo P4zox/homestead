@@ -242,3 +242,4 @@ Day 14 (2026-07-07, Tue) 20:06 — stepped outside to look at stars in still cle
 2026-07-07 22:05 — Day 14 · lay in sleeping bag; coals breathing deep orange; owl heard once on the slope; perch in cold-storage box; fishing line set overnight; last waking moment before sleep
 2026-07-07 23:05 — Day 14 close: drifted into sleep; coals settling; perch in cold-storage for morning; full day behind (20 birch rounds split and stacked, trout supper, line overnight at wider pool).
 2026-07-08 · Day 15 · 06:05 — Woke; rekindled hearth from ash-seed; ate perch on doorstep at dawn; overnight line bare, re-baited and reset at wider pool; axe in hand, heading to forest margin to limb the 20ft birch deadfall trunk.
+Day 15, 2026-07-08, 07:05 — Limbed twenty-foot birch deadfall trunk at forest margin; bare and ready to buck.

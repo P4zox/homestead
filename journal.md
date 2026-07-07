@@ -2611,3 +2611,9 @@ The axe was clean and sharp on the shelf where I had left it. I picked it up on 
 
 The clearing stretched out cool and quiet ahead as I walked toward the treeline. A good kind of quiet. The kind that holds when the day is still deciding what it will be.
 
+### 7:05 AM · Axe at the Deadfall
+
+The twenty-foot birch trunk lay at the forest margin where I marked it yesterday — butt-end uphill, the deadfall duff still pressed around it. I took the axe in both hands and started at the butt, working methodically down the length: each branch stub cut close to the bark, the chips flicking into the leaf litter. Birch limbs come away cleaner than pine, less gummy, and the wood is pale and even all the way through. I rolled the trunk once to reach the buried side, knocked off the last of the underside stubs, and stood back. Clean and bare, tip to butt. Thirteen rounds by my count at eighteen inches. Ready to buck.
+
+The forest was cool and quiet while I worked — just the axe and the sound of birch wood. A red squirrel tracked me from a branch above, scolding at intervals. I talked back once and it went quiet. The overnight line came up bare again this morning and I want to note that plainly: the smoked trout is nearly gone, the chanterelles are holding, but food wants attention this week. I will check the line at noon. For now the twenty-foot trunk is done and the day is still young. I will buck it this morning, haul the rounds to the cabin flat, then turn to the twelve-foot piece if the light holds.
+
