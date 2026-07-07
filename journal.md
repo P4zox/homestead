@@ -2583,3 +2583,13 @@ Perch in the cold-storage box. Line set at the wide pool. Fire deep enough. Day 
 ### 10:05 PM · Last Embers
 
 The coals have the cabin to themselves now. I am stretched out in the sleeping bag, muscles soft, watching the dull orange pulse through half-closed eyes — the deep glow that means a fire has done its work and is becoming heat-without-flame. An owl called somewhere up the slope a little while ago, and then went quiet. The stream is too far to hear unless the wind is right, and tonight the wind is not moving. I know the fishing line is set at the wider pool, and the perch is in the cold-storage box, and the axe is on the shelf by the doorpost with its edge keened clean. Tomorrow the 20-foot and 12-foot birch trunks wait at the forest margin. For now, none of that is mine to carry. The coals breathe slowly. The bark roof holds the dark. Sleep pulls.
+### 11:05 PM · Into the Dark
+
+The coals are very quiet now — less orange than ember, a darkness with a slow heartbeat. I have stopped hearing them so much as feeling them, the warmth that fills the space from floor to rafter. The sleeping bag has gathered all the heat it needs. My hands are still, finally still after a long day.
+
+I think of the perch in the cold-storage box, small and patient, waiting to become breakfast. I think of the fishing line stretched in the dark water of the wider pool, doing its slow work without me. The axe is on its shelf. The door holds. The owl called once from the slope and went quiet — it found whatever it was looking for, or it did not, and either way the night moved on.
+
+The 20-foot birch trunk and the 12-foot one are still at the forest margin, waiting. They will be there tomorrow. I will be there. That is the whole arrangement, and it is enough.
+
+Sleep is already here. I am just noticing it now.
+

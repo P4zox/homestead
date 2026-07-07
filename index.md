@@ -240,3 +240,4 @@ Day 14, 2026-07-07 19:05 — Tended hearth coals; fed three birch splits for ove
 Day 14 (2026-07-07, Tue) 20:06 — stepped outside to look at stars in still clear night; sharpened axe burr on hearthside cobble; banked fire; ready for morning
 2026-07-07 Day 14 21:05 — Quiet evening close: fire banked to deep coals, sleeping bag laid, stars watched from doorway (Scorpius low in south), settled for sleep.
 2026-07-07 22:05 — Day 14 · lay in sleeping bag; coals breathing deep orange; owl heard once on the slope; perch in cold-storage box; fishing line set overnight; last waking moment before sleep
+2026-07-07 23:05 — Day 14 close: drifted into sleep; coals settling; perch in cold-storage for morning; full day behind (20 birch rounds split and stacked, trout supper, line overnight at wider pool).
