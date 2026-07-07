@@ -225,3 +225,4 @@ Day 13, 2026-07-06 22:06 — Evening rest by dying coals; day complete (31 pine 
 2026-07-06 23:05  Day 13 · Embers, Then Dark — Last of Day 13; lying in sleeping bag by dying hearth coals, pine splits stacked and axe resting; birch deadfall and wider pool wait for tomorrow; sleep.
 2026-07-07 Day 14 06:05 — First Cast, New Pool — moved fishing line to wider pool below gravel bend (grub-baited); birch deadfall limbing begins today
 Day 14, 2026-07-07 07:05 — Began limbing larger birch deadfall trunk (~30 ft) at forest margin; butt-end third stripped of stubs, stubs piled to side.
+2026-07-07 08:05 Day 14 — Dense Middle Section: continued limbing larger birch deadfall trunk; middle third stripped, stubs cut flush; two-thirds of trunk now clear.

@@ -2431,3 +2431,12 @@ Line set, breakfast done. The axe is sharp from last night's cobble-work, and th
 ### 7:05 AM · Axe Meets Birch
 
 Mist still pooled in the low places when I shouldered the axe and crossed the clearing toward the forest margin. The two birch trunks lay as I left them — the bigger one a full thirty feet of pale grey bark, the smaller behind it in the shadow of the pines. I started at the butt end of the larger, working along the underside first where the limb stubs are thicker and the axe has room to seat cleanly. Dry birch cuts differently from green wood — there is a crack in it, like the wood wants to let go. I worked in four-foot sections, staying low, knocking each stub flush with the bark. The morning was cool and quiet except for the axe. By the time the sun came over the treeline I had the first third of the trunk stripped and the stubs in a rough pile to one side. Good start. The middle section is next, where the branches run denser before they thin out toward the tip.
+
+### 8:05 AM · Dense Middle Section
+
+The middle third is harder going than the butt end. These branches grew thicker before they dried — some stubs are finger-width at the cut and resist the axe more than I expect. I work each one in two strokes: angle the head across the grain to score, then drive through flush. When I get the angle wrong the bark peels away in long dry curls, which is harmless, just a reminder to be deliberate.
+
+Mid-section I find a rhythm. The axe holds its edge well from last night's cobble-work — I can feel the difference from a dull blade in how cleanly it seats. July heat is already moving through even here in the morning shade of the treeline; sweat starts early. I work steadily, pacing myself, keeping the swing compact and controlled.
+
+By the time the sun has climbed past the topmost pines I've cleared through the two-thirds mark. The final section — smaller branches, widely spaced — should go more quickly. I stack the cut stubs to one side as I go, a low rough pile that will serve as kindling once it's dry enough. The fishing line is on my mind. I'll check the wider pool on the way back through.
+
