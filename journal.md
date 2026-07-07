@@ -2475,3 +2475,18 @@ Spent the last stretch before noon stacking them properly — two rows, bark-sid
 The carry is the next task: several trips down to the cabin flat, rolling what I can, carrying lighter rounds on my shoulder. Not today's work — this hour was for finishing the cut. The 20ft and 12ft trunks still lie where they fell, waiting their turn.
 
 Walked back in the noon heat with the axe over my shoulder feeling clean-tired. The larger trunk is done. Tonight the trout, fresh over the hearth. That has been decided.
+
+### 1:05 PM · Twenty Rounds Home
+
+The birch rounds were waiting in two rows at the margin, bark-side up, just as I had left them after bucking. Twenty rounds, each eighteen inches, birch heartwood — heavier than pine, denser. I had counted five trips in my head already.
+
+I loaded four at a time, largest first, cradling them against my chest with forearms hooked underneath. The first trip out of the treeline I was fresh and it felt manageable. Sixty paces to the cabin flat, set them down against the east wall beside the split pine stack, and turned back. The second trip was warm work. The third trip I was sweating through the back of my shirt. By the fourth, the south breeze found me and I was glad of it.
+
+On the fifth trip I also carried the kindling bundle — all the limbing stubs I had tied in a bark-cord wrap at the margin. That went on top of the rounds as a bonus, not a burden.
+
+All twenty rounds are stacked on the cabin flat now. The east wall is becoming something: a season of fuel against a stone surface, pine split stack on one end and now birch rounds waiting to be split on the other. I looked at it for a moment before doing anything else. It is not a small thing, that row of wood.
+
+I detoured by the stream on my way back. Knelt at the bank and drank from cupped hands, then let both wrists hang in the current until the heat left my forearms. The fishing line was still downstream at the wider pool; I left it alone. There is already a trout in the cold-storage box — cleaned, bright, ready for tonight. The line can fish on its own until evening.
+
+The afternoon stretches ahead. Tomorrow: split these birch rounds and start on the twenty-foot trunk. Today: let the afternoon be easy. The trout on the fire tonight will be a proper meal.
+
