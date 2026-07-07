@@ -2579,3 +2579,7 @@ Tomorrow is already laid out: the twenty-foot birch trunk first, then the twelve
 
 Perch in the cold-storage box. Line set at the wide pool. Fire deep enough. Day fourteen is done.
 
+
+### 10:05 PM · Last Embers
+
+The coals have the cabin to themselves now. I am stretched out in the sleeping bag, muscles soft, watching the dull orange pulse through half-closed eyes — the deep glow that means a fire has done its work and is becoming heat-without-flame. An owl called somewhere up the slope a little while ago, and then went quiet. The stream is too far to hear unless the wind is right, and tonight the wind is not moving. I know the fishing line is set at the wider pool, and the perch is in the cold-storage box, and the axe is on the shelf by the doorpost with its edge keened clean. Tomorrow the 20-foot and 12-foot birch trunks wait at the forest margin. For now, none of that is mine to carry. The coals breathe slowly. The bark roof holds the dark. Sleep pulls.

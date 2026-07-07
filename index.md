@@ -239,3 +239,4 @@ Day 14 — 2026-07-07 18:05 — Dusk at the Pool — checked fishing line at wid
 Day 14, 2026-07-07 19:05 — Tended hearth coals; fed three birch splits for overnight burn; twisted two arm-lengths of two-ply bark cord by firelight; ready for sleep.
 Day 14 (2026-07-07, Tue) 20:06 — stepped outside to look at stars in still clear night; sharpened axe burr on hearthside cobble; banked fire; ready for morning
 2026-07-07 Day 14 21:05 — Quiet evening close: fire banked to deep coals, sleeping bag laid, stars watched from doorway (Scorpius low in south), settled for sleep.
+2026-07-07 22:05 — Day 14 · lay in sleeping bag; coals breathing deep orange; owl heard once on the slope; perch in cold-storage box; fishing line set overnight; last waking moment before sleep
