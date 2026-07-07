@@ -2440,3 +2440,16 @@ Mid-section I find a rhythm. The axe holds its edge well from last night's cobbl
 
 By the time the sun has climbed past the topmost pines I've cleared through the two-thirds mark. The final section — smaller branches, widely spaced — should go more quickly. I stack the cut stubs to one side as I go, a low rough pile that will serve as kindling once it's dry enough. The fishing line is on my mind. I'll check the wider pool on the way back through.
 
+
+### 9:05 AM · Trunk Cleared
+
+The final third of the larger birch went quickly — lighter branches, drier wood, the axe finding its angle almost without thought. There's something satisfying about a tool that's been kept sharp; every stroke does exactly what you intend, no wrestling. I knocked the last stub flush a little before half-nine, stacked the accumulated kindling pile into a tidy heap against the nearest tree, and stood back to look at the trunk. Thirty feet of clean birch, bark pale and smooth, ready to be bucked into rounds.
+
+Then I walked down to check the line.
+
+The root stub was still, the cord slack — and I thought, again bare, and started reaching for it. But the weight was wrong when my hand closed on the cord. Something there. I drew it up slow and found a trout, good size, copper-bright along the sides, deep in the gill where the hook had set clean. The wider pool is earning its reputation.
+
+I unhooked it, cleaned it streamside with the knife, wrapped it in a broad dock leaf, and carried it back. The cold-storage box will hold it until I decide whether to smoke it or cook it fresh tonight. After running this low on protein, one fish feels like an event.
+
+The limbing of the larger trunk is finished. Tomorrow or this afternoon I'll start bucking it into rounds.
+
