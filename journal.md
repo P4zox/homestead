@@ -2527,3 +2527,12 @@ Came back and set the greens in a bundle in the cold-storage box beside the trou
 
 The fishing line is still set at the wider pool for dusk. I'll walk down before the light goes.
 
+
+### 5:05 PM · Hearthside Prep
+
+The east wall is done. Twenty birch rounds split and stacked, every last one of them, and now the axe is leaning against the cabin wall and the day is gentling down. I brought the greens in from the cold-storage box — a small heap of wood sorrel, the two dandelion crowns, the wild garlic stalks — and set them in the cook tin with a cup of stream water to keep them from wilting further. Then I uncovered the coals in the hearth, blew on them until they caught orange, and fed in a handful of dry pine shavings, then two birch splits from the new column. The birch catches cleaner than pine — less pitch smoke, more steady heat. Good fuel.
+
+The trout is still in the box. I will pull it when the fire is where I want it. There is something satisfying in this — the work of the day becoming the meal of the evening, the cold-storage box giving back what the stream gave this morning. The hearth is drawing well through the gable gap. The cabin is filling with the smell of warming birch bark.
+
+Fishing line is still at the wider pool. I will check it at dusk, maybe an hour from now, before the light goes. If something has taken the bait overnight again, tomorrow I will have two fish. If not, I will reset it and there will be another chance. Tonight's supper is already certain, and that is enough.
+

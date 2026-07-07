@@ -234,3 +234,4 @@ Day 14, 13:05 — Hauled all twenty birch rounds from forest margin to cabin fla
 2026-07-07 14:05 — Day 14 — split first eight birch rounds; stacked bark-out against east wall; twelve rounds remain; trout for supper tonight
 2026-07-07 15:05 — Day 14: Finished splitting all 12 remaining birch rounds; full east-wall fuel stack (split pine + split birch) now complete; fishing line still set at wider pool; trout in cold box for tonight's supper.
 Day 14, 16:05 — Foraged wood sorrel, dandelion crowns, and wild garlic from clearing margin; greens stored in cold-storage box beside trout for tonight's supper.
+2026-07-07 17:05 — Day 14 — Stoked hearth with birch splits; brought greens indoors; began supper prep — trout and wilted greens over hearthfire tonight.
