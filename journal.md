@@ -2501,3 +2501,14 @@ By the end of the hour I had eight rounds split into halves and quarters, stacke
 
 I will check the fishing line before dark. The trout in the cold-storage box will be tonight's supper over the hearth.
 
+
+### 3:05 PM · Rounds to Quarters
+
+The rhythm of splitting is almost meditative by now. Back to the east-wall station after a short water break at the stream — the twelve remaining rounds were ranged in a rough row, the biggest butt-ends first as always. The axe found its groove quickly: set the round on the flat splitting stone, read the grain, one placed blow to start the check, a second to open it. Birch splits cleaner than pine; it gives willingly in long pale faces. Halves first, then each half quartered, stacked bark-out in the growing column against the wall.
+
+I finished all twelve before the shadows started to lean long. The fuel wall along the east side of the cabin is a satisfying thing to look at — the split pine stack, now the birch beside it, bark-out all the way, tight enough that a mouse would have to work for it. I ran a hand along the top course just to feel it. Solid. That is fuel for a good long stretch into winter.
+
+The 20-foot and 12-foot birch trunks at the forest margin are still waiting — they'll need limbing and bucking yet — but that is tomorrow-work and the days after. Today the larger trunk is handled, soup to nuts.
+
+Fishing line is still set at the pool. I'll check it at dusk before I cook. The trout in the cold box looks copper-bright even now; I'm leaning toward just roasting it on flat stones over the hearth coals tonight, with a few dried chanterelles alongside. Simple and good.
+
