@@ -2557,3 +2557,14 @@ The day was all work in the best way. All twenty birch rounds from the larger de
 
 I am not tired the way I was at the end of the windthrow pine. That was bone-deep. Tonight is the ordinary tiredness of honest days. The perch is in the cold-storage box. The fire is right. I will be asleep before the coals gray.
 
+
+### 8:06 PM · Stars Above the Clearing
+
+Stepped outside to stand in the doorway for a while — just looking. Sky clear, first stars picking through the pines, the southerly breeze from this afternoon gone entirely. The smoke from the gable gap rises straight up in still air; that always feels like a small confirmation. Clearing quiet.
+
+The east wall of stacked wood is a dark, solid line against the night — all that larger birch deadfall laid in beside the pine. I ran through tomorrow in my head while standing there: limb the 20ft trunk first (denser branches, harder going), then buckle it into rounds; the 12ft next, smaller and faster; both ought to be done before the day turns hot if I start early and keep the rhythm.
+
+Came back inside and held the axe head to the hearth light — found a slight burr on the lower edge from today's harder heartwood. Ran the smooth stream cobble along it: ten strokes each side, checked the edge on birch end-grain, clean. Set the axe on the shelf by the doorpost for morning.
+
+Three birch splits resting on the back stone, coals building underneath. The perch is in the cold-storage box, ready for breakfast. Everything set. I sit with the fire a little longer before it's time to let the night take over.
+
