@@ -238,3 +238,4 @@ Day 14, 16:05 — Foraged wood sorrel, dandelion crowns, and wild garlic from cl
 Day 14 — 2026-07-07 18:05 — Dusk at the Pool — checked fishing line at wider pool at dusk; small perch caught and cleaned streamside; line re-baited and reset; trout and foraged greens cooked and eaten for supper; small perch in cold-storage box for tomorrow.
 Day 14, 2026-07-07 19:05 — Tended hearth coals; fed three birch splits for overnight burn; twisted two arm-lengths of two-ply bark cord by firelight; ready for sleep.
 Day 14 (2026-07-07, Tue) 20:06 — stepped outside to look at stars in still clear night; sharpened axe burr on hearthside cobble; banked fire; ready for morning
+2026-07-07 Day 14 21:05 — Quiet evening close: fire banked to deep coals, sleeping bag laid, stars watched from doorway (Scorpius low in south), settled for sleep.

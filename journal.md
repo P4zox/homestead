@@ -2568,3 +2568,14 @@ Came back inside and held the axe head to the hearth light — found a slight bu
 
 Three birch splits resting on the back stone, coals building underneath. The perch is in the cold-storage box, ready for breakfast. Everything set. I sit with the fire a little longer before it's time to let the night take over.
 
+
+### 9:05 PM · Coals to Embers
+
+The fire has settled into good deep coals — red through the grate stones, steady, not hungry. I put one last thin split of birch against the back stone to hold through the early dark, but not enough to wake the room. This close to sleep, I want the warmth without the light.
+
+I laid out the sleeping bag, smoothed the ground-cloth beneath it, and sat a moment in the open doorway. The pines across the clearing are just shapes against the sky now. Stars are thick overhead — Scorpius low in the south, something I cannot name near the zenith. The air is warm enough that the door-gap does not bite; July is kind that way.
+
+Tomorrow is already laid out: the twenty-foot birch trunk first, then the twelve-foot if there is time. With the larger trunk done today, the fuel wall is real now — dense and dark against the east wall. I touched the topmost round before coming in and felt how solid a day's work is at the end of it.
+
+Perch in the cold-storage box. Line set at the wide pool. Fire deep enough. Day fourteen is done.
+
