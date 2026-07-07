@@ -2536,3 +2536,13 @@ The trout is still in the box. I will pull it when the fire is where I want it. 
 
 Fishing line is still at the wider pool. I will check it at dusk, maybe an hour from now, before the light goes. If something has taken the bait overnight again, tomorrow I will have two fish. If not, I will reset it and there will be another chance. Tonight's supper is already certain, and that is enough.
 
+### 6:05 PM · Dusk at the Pool
+
+The hearth inside is strong by the time I step out — I can feel its warmth through the open doorway as I go. The clearing holds gold light at this hour, the sun already behind the ridge but the sky still bright, still. The stream sounds before I see it.
+
+I pull the line in slow and steady from the wider pool. There is resistance — that particular drag that isn't snag. A small fish, perch by the blunt head and the bristled dorsal fin when I swing it clear. Not large, maybe half the weight of this morning's trout, but clean and well-hooked. I clean it streamside in three cuts, wrap it in a fold of wet bark to carry back, then re-bait the hook with a fresh grub from under the flat stone at the bank edge. Line re-set, hook dropped back into the deep shaded water on the far side.
+
+By the time I return to the cabin, the coals have settled to a cherry glow. Trout goes into the cook tin with the wood sorrel and dandelion crowns and wild garlic — the smell changes immediately, that good animal warmth of fish meeting heat. I eat on the doorstep, watching the light go silver in the clearing. The small perch into the cold-storage box for tomorrow.
+
+The day has been long and the fire is generous. I feel the kind of tiredness that is also satisfaction.
+
