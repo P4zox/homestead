@@ -2686,3 +2686,16 @@ I drove a birch stake at each corner. That is now the garden plot. Not this week
 
 Walked back to the cabin with the picture fixed in my head.
 
+
+### 3:05 PM · Breaking Ground
+
+After the afternoon cooled by a degree or two, I walked down to the south bench with the axe and a sharpened birch stick from the kindling pile. The corner stakes were still standing — south-facing bench, full afternoon light even now, the pines to the north throwing their shadows the other way.
+
+I started on the western edge where the soil ran darkest. Worked on hands and knees pulling shallow-rooted plants — dock, low grass, sprawling nettles — lifting them out by the root cluster. The soil came up with them, loose and dark, easy to crumble. Then I ran the birch stick in passes to loosen what the pulling had not freed, and turned the chunks over with my hands. The ground here is good. Deep topsoil; holds together without clumping tight.
+
+The stony corner in the northeast was as I expected — eight river-rounded stones sitting half-buried in a grittier layer. I worked them free one by one with the stick and stacked them along the north edge of the plot. They will make a clean border. Below the stones the soil changed character: sandier, lighter. Not bad, just different. I will test that corner deeper tomorrow to see if the grit clears below a foot.
+
+By the time the ridgepole shadow reached the bench, the western two-thirds of the plot was cleared down an inch or two. It is beginning to look like a real thing — a prepared surface instead of just ground.
+
+Supper soon: that trout in the cold-storage box. I am hungry.
+
