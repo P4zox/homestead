@@ -246,3 +246,4 @@ Day 15, 2026-07-08, 07:05 — Limbed twenty-foot birch deadfall trunk at forest 
 2026-07-08 08:05 Day 15 — Bucked 20ft birch deadfall trunk into ~13 rounds on slope; ready to haul
 Day 15, 09:05 — Hauled all ~13 twenty-foot birch rounds from slope to cabin flat; stacked bark-up against east wall; fuel row now spans full east wall in several rows.
 [Day 15, 2026-07-08, 10:05] Limbed and bucked 12ft birch deadfall — 8 rounds on slope; deadfall patch complete; east wall fuel row nearly finished
+2026-07-08 Day 15 11:05 — Hauled all 8 rounds from 12-ft birch trunk in three carries; split and stacked bark-out against east wall; deadfall patch fully cleared; east wall fuel row complete.

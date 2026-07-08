@@ -2639,3 +2639,16 @@ The deadfall patch is done. Three trunks pulled from the forest floor, and all t
 
 Eight rounds to haul this next hour and then the east wall will be full from corner to corner. The fishing line is still soaking at the wide pool. I'll walk down at noon and see what it brought in.
 
+
+### 11:05 AM · Last Rounds Home
+
+Eight rounds waited on the slope in a neat row — the whole twelve-foot trunk reduced, pale heartwood at the cut ends. I made three carries: three, three, two. Each one a quiet conversation with the soft pull of the slope, rolling the rounds with foot and hip, setting them bark-up at the cabin flat.
+
+Then the splitting. The axe swings truer now; I have learned where to let the weight carry and where to add wrist at the bottom of the stroke. Most of the birch split clean — straight grain through and through. A few kinked around old knots and I set those aside as kindling. The good splits went bark-out against the east wall to finish the row.
+
+I walked back to the deadfall patch when it was done. Empty slope. A few pale circles in the grass where the rounds had rested, some sawdust scattered at the bucking spots, a scatter of chips where I had limbed. Nothing left to take.
+
+The east wall fuel row is now something I can actually trust. Pine from the windthrow, birch from both trunks — bark-up and drying under the eave. I stood there a moment when the last piece went in and tried to take the whole thing in properly. It is a winter's wood, or close to it. That matters more than I can quite say standing in the July sun.
+
+The fishing line has been in the wider pool all morning. I will check it at noon.
+
