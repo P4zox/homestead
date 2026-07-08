@@ -253,3 +253,4 @@ Day 15, 2026-07-08 14:05 — Scouted garden plot on south-facing bench below cab
 2026-07-08 Day 15 15:05 — Cleared western two-thirds of garden plot; pulled weeds, loosened soil ~1-2 inches; stony NE corner cleared, eight stones set as border row along north edge
 2026-07-08 16:05 — Day 15 — Walked stream margin before supper; gathered wild garlic, wood sorrel, dandelion crowns; wagtail on the shallows; greens bundled for tonight's trout meal.
 Day 15, 17:05 — Cooked and ate supper: trout with wild garlic, wood sorrel, and dandelion crowns in the cook tin over the hearth; ate in the doorway as the light went rose over the ridgeline; evening quiet.
+2026-07-08 18:05 Day 15 — twisted bark cord in doorway at dusk; four arm-lengths added to coil; planned tomorrow garden NE corner test and root cellar daub check

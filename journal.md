@@ -2721,3 +2721,14 @@ Ate sitting in the doorway with the door propped open, looking out over the clea
 
 Washed the tin and hands in the stream when the light was low. Came back to the hearth still glowing orange. Smoke-dried chanterelles in cold storage will carry me through tomorrow. The garden NE corner wants testing; the daub wants checking. But tonight, supper is done and done well, and the clearing is quiet under a soft evening sky.
 
+
+### 6:05 PM · Cord by Firelight
+
+The rose has left the ridgeline — just the ghost of it above the pines now, the sky gone full grey-blue and darkening. Supper was good: the trout ate clean and the wild garlic held through the cooking. The cook tin is rinsed, the hearth coals are low and orange, and the air coming through the open door has that particular coolness that only arrives after sundown in summer.
+
+I pulled the birch stump to the threshold and sat with the last of the damp bark strips from the bundle — the ones I had soaking in the tin these last two days. Twisting cord in fading light is one of the easiest things there is to do with your hands. Two strips, held against the door-pin peg, rolled under the thumbs in opposition. The two-ply tightens and firms on its own. Four arm-lengths added to the coil before I lost enough light to work comfortably. Not a great count, but the motion itself was the thing — hands busy, mind free to settle.
+
+I thought about the garden. Tomorrow: check the root cellar daub first — if the second coat held without cracking overnight, those walls are done. Then the NE corner of the garden bench. The sandy texture under those border stones today surprised me a little. Sandy near the surface sometimes means clay starts deeper, or the water table changes things, or it was once a different kind of ground entirely. Worth probing two or three inches down with the digging stick to find out what is actually there before I commit to planting it. If it runs sandy all the way, I might mound the east end slightly, or route it as a separate bed for something that prefers fast-draining soil.
+
+The stream sounds steady past the south bench. Fishing line set on the deep run. Coals held without feeding. The door-latch dropped into its groove. Long day, well finished.
+
