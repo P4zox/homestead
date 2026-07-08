@@ -2710,3 +2710,14 @@ The walk was quiet. A grey wagtail picked insects off a flat stone in the shallo
 
 Returned to the cabin with greens bundled in a fold of dock leaf. Left them on the chopping block outside, knife rinsed in the stream. The hearth will need rebuilding from this afternoon's low coals; the supper fire will come together slow, the good kind of slow.
 
+
+### 5:05 PM · Supper Fire
+
+The coals I rebuilt at the end of last hour took hold easily — seasoned pine leaves a char that holds hidden heat longer than you would think. A few pine shavings, two split birch billets leaned over them, and the flames were up within minutes and the hearthstones were warming.
+
+I filleted the trout on the chopping block outside before carrying the halves in. The dock-leaf wrapping had kept it beautifully fresh — flesh still firm and pale pink. Laid both halves skin-down in the cook tin with crushed wild garlic, wood sorrel pressed flat, dandelion crowns around the edge. Set the tin on the fire and listened to the sizzle while the light outside went from gold to copper.
+
+Ate sitting in the doorway with the door propped open, looking out over the clearing. The wagtail was gone from the shallows. The light on the ridgeline turned rose. The trout was good — that clean, mineral taste of cold-stream fish, the garlic cutting through the richness, the sorrel giving a brightness almost like lemon. A proper supper.
+
+Washed the tin and hands in the stream when the light was low. Came back to the hearth still glowing orange. Smoke-dried chanterelles in cold storage will carry me through tomorrow. The garden NE corner wants testing; the daub wants checking. But tonight, supper is done and done well, and the clearing is quiet under a soft evening sky.
+
