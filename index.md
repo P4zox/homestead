@@ -244,3 +244,4 @@ Day 14 (2026-07-07, Tue) 20:06 — stepped outside to look at stars in still cle
 2026-07-08 · Day 15 · 06:05 — Woke; rekindled hearth from ash-seed; ate perch on doorstep at dawn; overnight line bare, re-baited and reset at wider pool; axe in hand, heading to forest margin to limb the 20ft birch deadfall trunk.
 Day 15, 2026-07-08, 07:05 — Limbed twenty-foot birch deadfall trunk at forest margin; bare and ready to buck.
 2026-07-08 08:05 Day 15 — Bucked 20ft birch deadfall trunk into ~13 rounds on slope; ready to haul
+Day 15, 09:05 — Hauled all ~13 twenty-foot birch rounds from slope to cabin flat; stacked bark-up against east wall; fuel row now spans full east wall in several rows.
