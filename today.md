@@ -17,3 +17,4 @@
 20:06 — Stepped out into the dark clearing; walked the edge by starlight — garden stakes barely visible at their tips, fuel row just a wall of darkness and heartwood smell; stood at south garden edge picturing it green one day; returned inside, banked coals with ash for overnight, laid down.
 21:05 — Lay in sleeping bag by nearly-dead coals; listened to stream and one owl note in the pines; thoughts on garden NE corner soil and the overnight fishing line dissolved mid-thought; drifting toward sleep.
 22:05 — Woke briefly in the dark; lay still listening to the stream through bark walls; no owl; mind drifted to garden NE corner soil and the digging stick by the doorpost; let the thought go; pulled sleeping bag up; sleep returned.
+23:05 — Lay in deep sleep past eleven; coals cold under ash; stream steady through bark walls; no owl; midnight close; fishing line set at deep run; digging stick by doorpost; dawn and its tasks still waiting.

@@ -2772,3 +2772,8 @@ I lay still a moment and let my mind settle. It went straight to the garden — 
 
 I pulled the sleeping bag up and let the thought go. Sleep came back without asking.
 
+
+### 11:05 PM · Night Holds Still
+
+Somewhere past eleven. Sleep has held since the brief surface at ten-twenty-two — I am aware enough to know the coals are cold now under their ash cap, that the stream keeps its own steady counsel outside, that no owl has spoken in hours. The bark walls are doing their work; the air inside is cool but not cold. The fishing line is set downstream in the dark. The digging stick stands by the doorpost, ready for whatever dawn asks of it. Tomorrow has its list: root cellar daub to check for cracks, the sandy NE garden corner to probe deeper with the new stick, the line to pull at first light. All of it waits patiently, as it should. The only task right now is sleep, and I am equal to it.
+
