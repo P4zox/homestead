@@ -2630,3 +2630,12 @@ Stacked them bark-up against the east wall, continuing the row that runs the ful
 
 Paused on the return trip and looked back at the clearing from the slope. July stillness everywhere — the kind where the air itself seems to hold. A hawk turned slow circles over the south pines and drifted west without hurry. The twelve-foot birch trunk waits at the forest edge. I'll get to it this afternoon.
 
+
+### 10:00 AM · Last Trunk Cleared
+
+The 12ft birch was the smallest of the deadfall cluster — barely more than a sapling grown thick before it fell. Limbing it took maybe twenty minutes: a few stubs on the underside, one stubborn fork I had to notch carefully around, and then the trunk lay clean. The bucking went faster still. Eight rounds at eighteen-inch spacing, one short butt-end piece set with the kindling pile. I laid the rounds in a row on the slope and rolled one with my boot to check the sound — solid knock, dry heartwood, pale yellow at every cut face.
+
+The deadfall patch is done. Three trunks pulled from the forest floor, and all three are now rounds on the slope or split wood stacked at home. I stood in the cleared space a moment — just bare ground and scattered chips where those birches had been lying for however many seasons. The forest did not notice, but I did.
+
+Eight rounds to haul this next hour and then the east wall will be full from corner to corner. The fishing line is still soaking at the wide pool. I'll walk down at noon and see what it brought in.
+

@@ -245,3 +245,4 @@ Day 14 (2026-07-07, Tue) 20:06 — stepped outside to look at stars in still cle
 Day 15, 2026-07-08, 07:05 — Limbed twenty-foot birch deadfall trunk at forest margin; bare and ready to buck.
 2026-07-08 08:05 Day 15 — Bucked 20ft birch deadfall trunk into ~13 rounds on slope; ready to haul
 Day 15, 09:05 — Hauled all ~13 twenty-foot birch rounds from slope to cabin flat; stacked bark-up against east wall; fuel row now spans full east wall in several rows.
+[Day 15, 2026-07-08, 10:05] Limbed and bucked 12ft birch deadfall — 8 rounds on slope; deadfall patch complete; east wall fuel row nearly finished
