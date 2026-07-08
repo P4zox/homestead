@@ -2660,3 +2660,16 @@ The timing felt almost arranged — the birch row finished this morning, a fish 
 
 The afternoon is open. The root cellar daub has had three days to cure since Day 12 — I will go look at it this afternoon, run a hand along each wall, and see if a second coat is needed to seal it tighter before the rains come. The shelter is tight, the wood is stacked, there is food for tonight. Midday on Day 15 feels like a small crest.
 
+
+### 1:05 PM · Root Cellar Coat
+
+Afternoon, and I was glad to step into the shade of the bank. The root cellar opens north-facing and stays ten degrees cooler than the clearing even on a day like this — which is exactly what I built it for. The first coat of daub I put on three days ago has gone a good pale gray, hard to the thumbnail. Good sign.
+
+I mixed the second batch at the clay bank: two parts clay from the seep, a fistful of dry sedge shredded fine between my palms, water added slowly until the mix cohered without slumping. Carried it down to the cellar in the cook tin, lid off.
+
+Second coat goes on thinner than the first — not filling, sealing. I started on the north wall, working in slow upward strokes with my open hand, pressing the fresh clay into any crack the first coat opened during drying. There weren't many. The wattle frame beneath held the first layer steady; the second bridges across it cleanly. East wall next, then south. About an hour from first touch to last smoothing pass.
+
+I pressed a thumb into the wet surface when I finished. It takes the print cleanly and holds it. By morning the coat will be skin-dry. If no new cracks open overnight, these walls are done — and the cellar will hold chill through the whole season without frost-creep undermining the clay.
+
+Stepped out into the bright afternoon and stood in the sun a moment, hands earthy, eyes adjusting. The trout is wrapped in dock leaf in the cold-storage box upstream. Tonight's supper is already decided. I'll let the daub do its work and rest the axe till morning.
+
