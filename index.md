@@ -255,3 +255,4 @@ Day 15, 2026-07-08 14:05 — Scouted garden plot on south-facing bench below cab
 Day 15, 17:05 — Cooked and ate supper: trout with wild garlic, wood sorrel, and dandelion crowns in the cook tin over the hearth; ate in the doorway as the light went rose over the ridgeline; evening quiet.
 2026-07-08 18:05 Day 15 — twisted bark cord in doorway at dusk; four arm-lengths added to coil; planned tomorrow garden NE corner test and root cellar daub check
 Day 15, 19:05 — Carved birch digging stick by coal-glow; set by doorpost for tomorrow's garden NE corner soil test.
+2026-07-08 Day 15 20:06 — Walked clearing edge by starlight; pictured the garden bench green; banked coals and settled in for the night.

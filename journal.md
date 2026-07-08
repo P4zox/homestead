@@ -2741,3 +2741,14 @@ Outside the clearing has gone properly dark. Stars are steady overhead — I can
 
 Tomorrow: check the daub for cracks, then the garden. But there's nothing left tonight.
 
+
+### 8:06 PM · Under Still Stars
+
+The cabin settles after supper and the small business of evening — cord twisted, digging stick carved, coals at low orange. I lift the latch bar, ease the door open, and step out into the clearing.
+
+The air is cooler than inside, the way it always surprises me: that clean drop between pine-scented cabin warmth and open night sky. The clearing lies dark around me, the tree-line a soft solid wall to north and east, the slope rising behind into silhouette. Pale stars have filled in the south — not yet the full summer count but enough to read the season by. The stream is steady and low from the south, and there is nothing else: no wind, no night bird, just that water-sound and the faint smell of cut birch from the east wall.
+
+I walk the clearing edge slowly, not for any purpose, just to know the ground at night. The garden plot is only a shadow of disturbed soil on the south bench — the corner stakes catch the faint starlight at their tips. The fuel row is invisible except for the straight dark wall of it and the clean smell of heartwood. Standing at the garden's south edge, I try to picture the bench filled in and green. It feels far off, but the turned soil is real, and the stakes are real, and tomorrow the digging stick will tell me something about the NE corner's depth.
+
+Back inside, I lay the latch bar across and bank the coals with ash for overnight. The fishing line is set and doing its work without me. The root cellar daub is curing in the dark below the bank. Everything that can be done today has been done. I sit a moment by the low coals, then settle in.
+
