@@ -2673,3 +2673,16 @@ I pressed a thumb into the wet surface when I finished. It takes the print clean
 
 Stepped out into the bright afternoon and stood in the sun a moment, hands earthy, eyes adjusting. The trout is wrapped in dock leaf in the cold-storage box upstream. Tonight's supper is already decided. I'll let the daub do its work and rest the axe till morning.
 
+
+### 2:05 PM · Reading the Slope
+
+The daub in the root cellar needs nothing from me now — it wants only air and time. The trout won't need tending until supper. So this afternoon I took a tool I rarely use: empty hands and a slow walk.
+
+I went out to the open ground that falls away south and west from the cabin — the ground I've been looking at every day without once walking it deliberately. The slope here is gentle, the soil lighter than the forest floor, more topsoil where the old grass has been slowly working it. Twenty paces from the tree line I found what I was looking for: a flat bench, maybe eighteen paces wide and eight deep, where the slope eases before dropping again. Full sun from midmorning through late afternoon. The pines only shade it when the light goes gold.
+
+I spent the hour walking the bench heel-to-toe, crouching to pinch and press the soil. Most of it is workable — one stony corner, but two-thirds of the bench runs deeper and dark. I pulled a few handfuls of weeds and turned them under with my heel to feel how the ground held. It held well.
+
+I drove a birch stake at each corner. That is now the garden plot. Not this week, probably — the root cellar still needs to finish curing, there are other tasks ahead — but the site is chosen and marked, and knowing where something will go is half of doing it.
+
+Walked back to the cabin with the picture fixed in my head.
+

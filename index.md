@@ -249,3 +249,4 @@ Day 15, 09:05 — Hauled all ~13 twenty-foot birch rounds from slope to cabin fl
 2026-07-08 Day 15 11:05 — Hauled all 8 rounds from 12-ft birch trunk in three carries; split and stacked bark-out against east wall; deadfall patch fully cleared; east wall fuel row complete.
 2026-07-08 12:04 Day 15 — Noon trout catch at wider pool; smoked scraps exhausted; line re-baited; afternoon planned for root cellar daub second coat.
 Day 15, 1:05 PM — Applied second coat of clay-sedge daub to all three root cellar interior walls; let cure overnight.
+Day 15, 2026-07-08 14:05 — Scouted garden plot on south-facing bench below cabin; drove four birch corner stakes; site chosen.
