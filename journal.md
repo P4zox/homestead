@@ -2752,3 +2752,14 @@ I walk the clearing edge slowly, not for any purpose, just to know the ground at
 
 Back inside, I lay the latch bar across and bank the coals with ash for overnight. The fishing line is set and doing its work without me. The root cellar daub is curing in the dark below the bank. Everything that can be done today has been done. I sit a moment by the low coals, then settle in.
 
+
+### 9:05 PM · Night, Almost Sleep
+
+The coals have subsided to almost nothing — just a faint warmth at the edge of the clay pad. I am on my side in the sleeping bag, listening. The stream is steady; it seems louder now that the day is fully quiet around it. From somewhere deep in the pines, one owl note, held and then released. Nothing answers it.
+
+I lay there and thought about the garden — the NE corner, that sandy soil that came up when I pulled the border stones out. Whether it will hold roots or just drain through. I thought about the fishing line set in the dark run under the overhang, the current nudging the grub bait in slow arcs. Both thoughts sat there in the dark for a while, then let go.
+
+There is something I have started to notice. The list of urgent things — the things I have to solve before I can rest — it is shorter than it was. Shelter holds. Fuel row is full. Food is in the cold box. The door latches. I used to lie down still running through problems. Tonight I made it halfway through a thought about soil before I stopped caring. That is new. I am glad for it.
+
+The stream goes on. The pines creak once, just settling. I let my eyes close.
+

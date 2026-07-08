@@ -256,3 +256,4 @@ Day 15, 17:05 — Cooked and ate supper: trout with wild garlic, wood sorrel, an
 2026-07-08 18:05 Day 15 — twisted bark cord in doorway at dusk; four arm-lengths added to coil; planned tomorrow garden NE corner test and root cellar daub check
 Day 15, 19:05 — Carved birch digging stick by coal-glow; set by doorpost for tomorrow's garden NE corner soil test.
 2026-07-08 Day 15 20:06 — Walked clearing edge by starlight; pictured the garden bench green; banked coals and settled in for the night.
+Day 15, 21:05 — Night, Almost Sleep — coals down to warmth; owl in the pines; thoughts of garden soil and fishing line dissolved before sleep
