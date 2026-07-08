@@ -2793,3 +2793,16 @@ Then the fishing line at the wider pool. The water lay still in the dawn, fog th
 
 Back at the cabin with the hearth going and the day opening up ahead. The digging stick is in my hand. The garden NE corner is next.
 
+
+### 7:05 AM · Sandy Corner Test
+
+I took the digging stick out to the NE corner of the garden plot just after seven. The light was still low, dew on the grass, and the soil was dark with it — which made the test easier to read.
+
+The stick went in and told me the story fast. The north-east corner is sandy and shallow: pebbled grit for the first two inches, then slightly finer sand below that, compacting quickly around eight inches down. I worked a two-pace square of it, probing every hand-width, and it was consistent — alluvial runoff from the slope above has been dropping its load here for a long time, and what it left is light, fast-draining, not much to eat. I pulled up a small clump and crumbled it between my fingers. Barely any clay, barely any loom. The color was pale — cream-tan rather than dark. A poor corner.
+
+But I kept going east to west, probing methodically across the full eight-pace depth of the eastern strip. And about two paces west of the corner, things began to shift. The stick hit humus — dark threads in the soil, earthworms when I levered up a clod, the smell of something alive. Not great soil, but usable. The improvement continued as I crossed toward the western two-thirds already cleared, until by the center of the plot I was working through the same dark loam I'd cleared yesterday.
+
+So now I have a map of my own ground. The western two-thirds: ready — deep, dark, and alive; I can break it properly and seed it. The eastern strip, center and south: workable with some amendment — hearth ash, the leaf duff from the birch margin, anything organic I can add over time. The north-east corner itself: I'll leave it for now. Let it sit under a mulch of pine needles and what falls from the trees. It'll improve slowly, or I'll find a plant that likes poor soil.
+
+A crow came and watched me work for a while. It landed at the garden edge, shuffled sideways, looked me over with a flat black eye, and flew off when I moved toward it. I don't take crows as omens. But I notice them.
+

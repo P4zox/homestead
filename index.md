@@ -260,3 +260,4 @@ Day 15, 21:05 — Night, Almost Sleep — coals down to warmth; owl in the pines
 Day 15, 22:05 — Woke briefly in the night; listened to the stream; let thoughts of garden and fishing line go; settled back into sleep.
 2026-07-08 Day 15 23:05 — Night holds still; coals cold under ash; stream steady; deeply asleep approaching midnight; line set, digging stick by doorpost for dawn.
 2026-07-09 Day 16 06:05 — Root cellar second coat daub confirmed cured and sound at dawn; fishing line reset (bare overnight); garden NE corner soil test next.
+2026-07-09 07:05 — Day 16 — Garden soil test: NE corner confirmed sandy/shallow; eastern strip assessed; western two-thirds ready for deeper breaking; soil map now clear.
