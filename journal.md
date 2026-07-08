@@ -2777,3 +2777,19 @@ I pulled the sleeping bag up and let the thought go. Sleep came back without ask
 
 Somewhere past eleven. Sleep has held since the brief surface at ten-twenty-two — I am aware enough to know the coals are cold now under their ash cap, that the stream keeps its own steady counsel outside, that no owl has spoken in hours. The bark walls are doing their work; the air inside is cool but not cold. The fishing line is set downstream in the dark. The digging stick stands by the doorpost, ready for whatever dawn asks of it. Tomorrow has its list: root cellar daub to check for cracks, the sandy NE garden corner to probe deeper with the new stick, the line to pull at first light. All of it waits patiently, as it should. The only task right now is sleep, and I am equal to it.
 
+
+---
+
+# Day 16 — Thursday, 9 July 2026
+*early summer · cool dawn, dew on grass; low mist at stream margin*
+
+### 6:05 AM · Root Cellar at Dawn
+
+The coals still had warmth under the ash — one orange seed buried deep. A few pine shavings and three careful breaths and it took. I let the fire build while the cabin lightened and the dew settled on the bark roof outside.
+
+The root cellar was the first thing. I lifted the bark lid — cold on top, dry underneath — and checked the walls. The second coat of daub had set overnight without cracking. I pressed my palm against the north wall and it held firm, no give, no dust: the clay and shredded sedge fused into something close to real plaster. It rings faintly when tapped. Both coats together feel nearly smooth. Good. The cellar will hold a harvest's worth of root vegetables when the garden comes in; I needed those walls to be right.
+
+Then the fishing line at the wider pool. The water lay still in the dawn, fog threading through the shaded far bank where the overhang is. The line was slack — nothing on it. The grub had washed off overnight. I re-baited with a fresh one from under the flat stone at the edge of the bank and reset the line at the same deep run. The trout are there. They come when they come.
+
+Back at the cabin with the hearth going and the day opening up ahead. The digging stick is in my hand. The garden NE corner is next.
+
