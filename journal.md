@@ -2732,3 +2732,12 @@ I thought about the garden. Tomorrow: check the root cellar daub first — if th
 
 The stream sounds steady past the south bench. Fishing line set on the deep run. Coals held without feeding. The door-latch dropped into its groove. Long day, well finished.
 
+
+### 7:05 PM · Birch Stick, Carved
+
+The coals have settled to a slow pulse, orange in the dark — enough light to read the grain of wood by. I found a straight piece among the kindling: a birch heartwood offcut from the twelve-foot trunk, no knots through it, maybe arm's length long. The knife took the bark off in one clean draw from butt to tip, then I sat back on the stump and began working the end: slow angled strokes toward the center, shavings curling to the floor, a faint smell like rain. The wood is close-grained and pale, almost white in the coal-glow. Half an hour to get the point right — firm and thumb-width, tapered to probe without snapping under pressure. Just the thing for working into that sandy NE corner of the garden plot and reading what lies below two inches.
+
+Outside the clearing has gone properly dark. Stars are steady overhead — I can see them through the open door, a tilted band across the south slope. The stream sounds very even tonight, no variation, and there is no wind at all. The coals shifted once with a soft creak and went still. I set the finished stick against the wall by the doorpost, where I'll find it first thing tomorrow. Then I added one short birch round to the coals — not to build a fire, just to hold a bed of warmth through the night.
+
+Tomorrow: check the daub for cracks, then the garden. But there's nothing left tonight.
+
