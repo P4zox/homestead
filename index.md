@@ -247,3 +247,4 @@ Day 15, 2026-07-08, 07:05 — Limbed twenty-foot birch deadfall trunk at forest 
 Day 15, 09:05 — Hauled all ~13 twenty-foot birch rounds from slope to cabin flat; stacked bark-up against east wall; fuel row now spans full east wall in several rows.
 [Day 15, 2026-07-08, 10:05] Limbed and bucked 12ft birch deadfall — 8 rounds on slope; deadfall patch complete; east wall fuel row nearly finished
 2026-07-08 Day 15 11:05 — Hauled all 8 rounds from 12-ft birch trunk in three carries; split and stacked bark-out against east wall; deadfall patch fully cleared; east wall fuel row complete.
+2026-07-08 12:04 Day 15 — Noon trout catch at wider pool; smoked scraps exhausted; line re-baited; afternoon planned for root cellar daub second coat.

@@ -2652,3 +2652,11 @@ The east wall fuel row is now something I can actually trust. Pine from the wind
 
 The fishing line has been in the wider pool all morning. I will check it at noon.
 
+### 12:04 PM · Noon at the Pool
+
+Walked to the wider pool just after noon, the sun overhead and the pine shadows drawn short on the far bank. The line was angled wrong — pulled tight into the current, not drifting slack as I had left it. I crouched at the bank and lifted the cord between two fingers and felt the answer right away: something steady and real working against it. Pulled in slow and a trout came in clean, a hand and a half long, dark spots and pale belly, fighting the whole way until it was in the grass beside me. I cleaned it right there at the bank with the knife, rinsed my hands in the cold water.
+
+The timing felt almost arranged — the birch row finished this morning, a fish at noon. The smoked scraps in the cold-storage box were nearly gone; this trout means a real supper tonight rather than chanterelles alone. I re-baited the hook with another fresh grub from under the mossy stone and reset the line at the same deep run below the overhang on the far bank, then walked back with the cleaned fish wrapped in a broad dock leaf.
+
+The afternoon is open. The root cellar daub has had three days to cure since Day 12 — I will go look at it this afternoon, run a hand along each wall, and see if a second coat is needed to seal it tighter before the rains come. The shelter is tight, the wood is stacked, there is food for tonight. Midday on Day 15 feels like a small crest.
+
