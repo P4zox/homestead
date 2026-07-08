@@ -2763,3 +2763,12 @@ There is something I have started to notice. The list of urgent things — the t
 
 The stream goes on. The pines creak once, just settling. I let my eyes close.
 
+
+### 10:05 PM · Woke, Let Go
+
+Woke in the dark — not startled, just surfaced the way you do when sleep is still shallow. The coals had gone nearly cold; the shelter held the day's warmth with nothing left to feed it. Stream sound reached me through the bark walls, steady and unchanged. No owl now.
+
+I lay still a moment and let my mind settle. It went straight to the garden — the northeast corner, that sandy soil below the stone row, the digging stick waiting by the doorpost. Tomorrow I'll know what it wants. The fishing line will have told me something too, whatever is on it by dawn.
+
+I pulled the sleeping bag up and let the thought go. Sleep came back without asking.
+
