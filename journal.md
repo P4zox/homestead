@@ -2699,3 +2699,14 @@ By the time the ridgepole shadow reached the bench, the western two-thirds of th
 
 Supper soon: that trout in the cold-storage box. I am hungry.
 
+
+### 4:05 PM · Supper Greens
+
+The garden plot tired my hands more than the chopping does — all that low crouching, picking by root, pressing the birch stick through topsoil. By mid-afternoon I had straightened and noticed the light had shifted, the bench already in shadow from the treeline. I left the eastern third for another day and walked back toward the cabin with soil on my palms.
+
+An hour before supper, I took the knife and followed the stream south, where the bank stays shaded and wet and the things I want are usually there. Wild garlic first — a good handful, bulbs small and pale, green blades coming with them. Sorrel after, the clover-leaf kind with the clean tart snap. Then dandelion crowns where the stream flattens and slows, their roots going dark in the soft bank mud. I cut them just above the crown and left the tap-roots in the ground.
+
+The walk was quiet. A grey wagtail picked insects off a flat stone in the shallows, tail tipping steadily, unbothered by me. I stopped to watch it work for a moment and felt no urge to keep moving. The trout has been in the cold-storage box since noon, wrapped in dock leaf, and it will stay good until I want it.
+
+Returned to the cabin with greens bundled in a fold of dock leaf. Left them on the chopping block outside, knife rinsed in the stream. The hearth will need rebuilding from this afternoon's low coals; the supper fire will come together slow, the good kind of slow.
+

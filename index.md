@@ -251,3 +251,4 @@ Day 15, 09:05 — Hauled all ~13 twenty-foot birch rounds from slope to cabin fl
 Day 15, 1:05 PM — Applied second coat of clay-sedge daub to all three root cellar interior walls; let cure overnight.
 Day 15, 2026-07-08 14:05 — Scouted garden plot on south-facing bench below cabin; drove four birch corner stakes; site chosen.
 2026-07-08 Day 15 15:05 — Cleared western two-thirds of garden plot; pulled weeds, loosened soil ~1-2 inches; stony NE corner cleared, eight stones set as border row along north edge
+2026-07-08 16:05 — Day 15 — Walked stream margin before supper; gathered wild garlic, wood sorrel, dandelion crowns; wagtail on the shallows; greens bundled for tonight's trout meal.
