@@ -263,3 +263,4 @@ Day 15, 22:05 — Woke briefly in the night; listened to the stream; let thought
 2026-07-09 07:05 — Day 16 — Garden soil test: NE corner confirmed sandy/shallow; eastern strip assessed; western two-thirds ready for deeper breaking; soil map now clear.
 2026-07-09 Day 16 08:05 — First Turn of Ground; began breaking western two-thirds of garden plot with digging stick; first full row turned to planting depth; dark loam, earthworms throughout
 Day 16 [2026-07-09 09:05] — Continued garden ground-breaking; second row of western two-thirds turned; earthworms throughout; crow on pine bough overhead.
+2026-07-09 Day 16 10:05 — Turned third garden row with digging stick; dark loam and earthworms throughout; four rows remaining; crow still watching from pine bough.
