@@ -2954,3 +2954,16 @@ The air was warm and still. No wind. No owls. Just the stream below the ridge so
 
 Coals banked under ash. Sleeping bag unrolled. The latch bar dropped. I will re-bait the fishing line at first light and check the garden before anything else — look for tracks, see if the plants held through the night. For now: enough. Good night.
 
+
+### 11:05 PM · Into Sleep
+
+The sleeping bag holds the warmth from the hearth, or I hold it — hard to say after a while. The coals are banked under ash and will not need me until morning. I can hear the pines settling, very small sounds at the edges of what I can make out, and farther off the stream making its one continuous note in the dark.
+
+I keep thinking about the roots in the ground. Sixteen garlic bulbs, fourteen dandelion crowns, fourteen sorrel clumps — forty-four separate lives, each pressed into the amended soil today, each now doing whatever roots do in the dark, which is enough. By the time winter comes those plants may have put on real growth. Maybe. Gardens are a kind of faith: you put something in the ground and you trust the ground back.
+
+That trust is not nothing.
+
+The smoke from supper is gone from the cabin now — just the faint damp-stone smell of the clay hearth and the woodsmoke soaked into the log walls. Which is to say it smells like home now. That happened quietly, somewhere between the first fire and this night.
+
+My eyes are already closed. The stream does not stop. The pines do not stop. The roots are in the ground.
+
