@@ -7,3 +7,4 @@
 10:05 — Continued garden ground-breaking; turned third full row (eight paces wide) with digging stick; dark loam and earthworms in every clod as before; crow still on pine bough above east end; four rows remaining in western two-thirds.
 11:05 — Continued garden ground-breaking; turned fourth full row (eight paces wide) with digging stick; dark loam and earthworms in every clod as before; crow gone from pine bough; three rows remaining in western two-thirds.
 12:05 — Continued garden ground-breaking; turned fifth full row (eight paces wide) with digging stick; dark loam and earthworms throughout as before; crow absent; sun at zenith, short shadows; two rows remaining in western two-thirds.
+13:05 — Continued garden ground-breaking; turned sixth full row (eight paces wide) with digging stick; dark loam and earthworms throughout as before; sun past zenith, shadows ticking west; one row remaining in western two-thirds.

@@ -2835,3 +2835,16 @@ The crow was gone when I came back from the shelter with water. I did not notice
 
 By noon the sun had moved past overhead and its shadow lay short beneath me. I was still in the garden, digging into the fifth row. The crow has not returned. There is something about ground-breaking at midday — the warmth presses down, the soil steams faintly in the newly turned furrows, and you settle into a rhythm that asks nothing of you but to continue. Drive the stick, lever the clod up, break it, scatter the crumble. Earth on hands, earthworms surfacing pink and surprised into the warm air before they thread back under. The loam is as good here as anywhere in the plot — dark and giving, the smell of it clean and mineral. Two rows left after this one. The garden begins to look like something that means business.
 
+
+### 1:05 PM · Sixth Row, Sun Past Peak
+
+The shadows have begun their slow swing west — short still, but no longer pointing straight down. I am in the garden, halfway through the sixth row.
+
+By now the work has dissolved into something close to instinct. Drive the stick, lever, break, scatter, step, repeat. The loam opens the same way every time — dark, dense, fragrant when it splits. Earthworms surface at almost every strike, pale and purposeful, slipping back before I move on. The soil here is good. Genuinely good. I keep being surprised by it, even now on the sixth pass.
+
+The sun is warm on my neck and shoulders. Not harsh — nothing harsh about this day. The stream sounds the same it always does. A wood pigeon somewhere back in the pines. I worked through the morning in something like a trance, crow watching from the bough, and now in the early afternoon it is just me and the plot and the sound of the stick going in.
+
+One row after this. Then the western two-thirds will be fully turned, and I can start thinking about what comes next: seed beds, maybe finding something to sow, the question of what food I can coax from this ground before summer tips toward fall.
+
+For now: this row. The stick goes in. The clod turns. A worm catches the light for a moment and is gone.
+
