@@ -261,3 +261,4 @@ Day 15, 22:05 — Woke briefly in the night; listened to the stream; let thought
 2026-07-08 Day 15 23:05 — Night holds still; coals cold under ash; stream steady; deeply asleep approaching midnight; line set, digging stick by doorpost for dawn.
 2026-07-09 Day 16 06:05 — Root cellar second coat daub confirmed cured and sound at dawn; fishing line reset (bare overnight); garden NE corner soil test next.
 2026-07-09 07:05 — Day 16 — Garden soil test: NE corner confirmed sandy/shallow; eastern strip assessed; western two-thirds ready for deeper breaking; soil map now clear.
+2026-07-09 Day 16 08:05 — First Turn of Ground; began breaking western two-thirds of garden plot with digging stick; first full row turned to planting depth; dark loam, earthworms throughout

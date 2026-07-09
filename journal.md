@@ -2806,3 +2806,14 @@ So now I have a map of my own ground. The western two-thirds: ready — deep, da
 
 A crow came and watched me work for a while. It landed at the garden edge, shuffled sideways, looked me over with a flat black eye, and flew off when I moved toward it. I don't take crows as omens. But I notice them.
 
+
+### 8:05 AM · First Turn of Ground
+
+I carry the digging stick to the western edge of the garden and begin. Drive it in at an angle, lean into the handle, lever up a fat clod of dark loam — it comes easy, almost willingly. I break it apart with boot and knuckle, scatter the clods flat, move a half-step east. Drive in, lever, break, scatter. The rhythm settles quickly into something meditative.
+
+The mist is lifting off the stream now, thinning to nothing as the sun clears the tree line and touches the plot. The soil here is exactly what the test showed — dark, cool, threaded through with pale earthworm casts. Every third or fourth clod turns up a worm, thick and healthy, recoiling into fresh air. A good sign. The fertility is here; I just have to open the ground to it.
+
+I work from west to east across the first full row, covering the whole eight-pace width. By the time I reach the far end my forearms ache pleasantly, and I look back to see the row lying open and roughed-over, the surface broken into fist-sized clumps, the subsoil exposed between them. One row down. Five or six to go before the western two-thirds is fully turned.
+
+The crow is back on the garden edge, watching again. I ignore it. We have an understanding.
+
