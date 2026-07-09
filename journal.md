@@ -2905,3 +2905,18 @@ Set them at the north edge of the eastern garden strip, in the shadow zone where
 
 By the time I straightened and looked west, the light had turned gold over the tree line. The garden has taken shape now — garlic rows pressed firm, dandelion crowns tamped at soil level, sorrel clumps along the north edge. Things that will come back year after year if I keep my end of the deal. The fishing line is still out at the deep run. I should check it before the light goes.
 
+
+### 7:05 PM · Line at Dusk
+
+The garden put me right today — all four plantings in the ground by the time the pine shadows reached the eastern strip. Wild garlic, dandelion crowns, wood sorrel along the north edge. I watered them in and left the digging stick propped at the plot edge and stood there longer than I needed to, just looking. Fourteen transplants, fourteen roots, fourteen chances.
+
+But the line had been out since first light and the light was nearly gone.
+
+I walked the stream path while the last sun caught the tops of the pines and turned the trunks copper. The wider pool was calm — no ring from any rise, no surface movement. I crouched at the bank under the overhang and reached in and pulled.
+
+Weight. Real weight, slow and steady on the line — not snag, but life and a little exhaustion. A trout, a good one, thick through the shoulders, close to nine inches. It had taken the grub sometime in the afternoon and worn itself down on the line. I killed it clean against a flat stone, cleaned it at the bank, washed my hands in the cold current.
+
+Two days ago it was the smoke rack. Yesterday the root cellar walls cured overnight without a crack. Today it was the garden finished and a trout at dusk.
+
+I carried it back to the cabin on a birch stick. The fire is low but it will come up. Tonight I cook on the hearth.
+
