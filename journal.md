@@ -2896,3 +2896,12 @@ Set them in the eastern strip, west of the garlic rows, leaving room between: ea
 
 Dandelion is a steadier plant than people give it credit for. It holds in cold, holds in poor soil, and still gives you leaves early and root through the whole season. It belongs here, and the garden has a better shape with it in.
 
+
+### 6:05 PM · Sorrel from the Shade
+
+Took the digging stick and cook tin back to the forest margin as the afternoon warmth began thinning. The wood sorrel grows in patches under the birch canopy where the light comes through in coins — small plants, three heart-shaped leaflets folded softly, a faint sour-green smell when you brush them. I worked carefully, slipping the stick under each clump to keep the root mat intact, lifting whole tufts with soil still clinging. Fourteen clusters packed into the cook tin, the leaves pressing together in a soft heap.
+
+Set them at the north edge of the eastern garden strip, in the shadow zone where the plot dips a little cooler in late afternoon. They will want that shelter from the full midday overhead; wood sorrel comes from the shade and does not forget it. Each clump eased into a small hollow, root mat bedded in, soil firmed with a palm. One trip to the stream to water them in.
+
+By the time I straightened and looked west, the light had turned gold over the tree line. The garden has taken shape now — garlic rows pressed firm, dandelion crowns tamped at soil level, sorrel clumps along the north edge. Things that will come back year after year if I keep my end of the deal. The fishing line is still out at the deep run. I should check it before the light goes.
+

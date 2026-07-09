@@ -271,3 +271,4 @@ Day 16, 14:05 — seventh (final) row of western two-thirds turned; western two-
 [2026-07-09 15:05] Day 16 — Amended eastern garden strip with hearth ash and forest leaf duff; NE corner mulched with pine needles; full garden plot now prepared for seeding.
 2026-07-09 16:05 Day 16 — Transplanted sixteen wild garlic bulbs from birch-deadfall patch into eastern garden strip; two rows of eight, firmed in.
 Day 16, 2026-07-09 17:05 — Transplanted fourteen dandelion roots from clearing margin into eastern garden strip, west of garlic rows; tamped and watered.
+2026-07-09 18:05 — Day 16: Fourteen wood sorrel clumps transplanted from forest margin to north edge of eastern garden strip; watered in; light gold over tree line; fishing line still to check.
