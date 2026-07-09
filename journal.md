@@ -2929,3 +2929,15 @@ The cabin smells different now. Woodsmoke and fish-fat mingling, something domes
 
 Tomorrow I will re-bait the line at first light and reset it at the deep run under the overhang. Tonight: coals banked under ash, sleeping bag pulled close, the door latched, the clearing dark and still beyond.
 
+### 9:06 PM · Stars and Quiet Hands
+
+The garden is in. All day, just work — soil turning and root-setting and watering in small trips back and forth to the stream — and at the end of it the plot held garlic rows, dandelion crowns, wood sorrel along the shaded north edge, all of it settled for the night. The trout was good: fat from the deep pool, cooked on the hearthstone, eaten at the doorway while the first stars rose over the eastern tree line.
+
+Now it is full dark. I am sitting on the threshold log with my back against the doorframe, the cabin warm behind me, the clearing cool ahead. The stars are out properly — more than I can count over the open south end of the clearing. The coals inside are ticking softly under their ash blanket. I have a bundle of bark strips in my lap and I am twisting cord by feel in the dark — the motion is learned now, thumb-over-thumb, no need to watch my hands.
+
+The garden will need a few days to show signs. The garlic was already well-rooted when I lifted it from the deadfall patch; it should settle fast. The dandelion taproots were long and clean. The sorrel had soil still clinging to every root mat. I put it in the afternoon-shadow strip along the north edge because that is what it came from — birch shade, low light, cool mornings. We will see if it agrees.
+
+Tomorrow: re-bait the fishing line at the pool at dawn, walk the garden in morning light for any overnight disturbance (the crow has been watching all week and may be curious about the fresh earth), and think about what the garden needs next — some kind of stakes or markers, maybe a simple windbreak along the west edge where the afternoon breeze picks up.
+
+For now the cord is in my hands and the stars are overhead and the faint wood-smoke smell from the cabin is still with me. That is enough for a good day.
+
