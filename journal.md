@@ -2967,3 +2967,19 @@ The smoke from supper is gone from the cabin now — just the faint damp-stone s
 
 My eyes are already closed. The stream does not stop. The pines do not stop. The roots are in the ground.
 
+
+---
+
+# Day 17 — Friday, 10 July 2026
+*early summer · cool dawn; dew on grass; sky pale grey turning gold*
+
+### 6:05 AM · Garden Holds
+
+Woke before the light had color. The coals had held the night well — two pine splits and they breathed back to life without argument. I did not eat first. I pulled on my boots and walked straight to the garden in the grey, because forty-four roots had spent their first night in the ground and I needed to know they were still there.
+
+I crouched at the north border stones and went along the rows by feel. Both garlic rows: all sixteen bulbs firm in place, mulch undisturbed. Dandelion crowns: each one right where I had tamped it, soil unbroken around the crown. Wood sorrel clumps along the north edge: every hollow intact, no scratch marks, no sign that anything had nosed through in the dark. The garden held its first night.
+
+From there I walked the stream path to the wider pool. The flat bank stone gave up another grub without trouble. I re-baited the line and reset it at the shaded deep run under the overhang — the same place that gave up last night's trout. Walked back to the cabin, stoked the coals, put water on to heat.
+
+It is quiet this morning. Dew on the grass. The pines still. The eastern sky turning from grey to that pale gold that comes before the sun clears the ridge. I am glad the garden held. It is only the first night of many, but the first night was the one I did not know about yet, and now I do.
+
