@@ -269,3 +269,4 @@ Day 16 [2026-07-09 09:05] — Continued garden ground-breaking; second row of we
 Day 16 13:05 — Turned sixth row of garden plot (western two-thirds); one row remaining; midday, sun past zenith, loam and earthworms throughout.
 Day 16, 14:05 — seventh (final) row of western two-thirds turned; western two-thirds ground-breaking complete; plot ready for seeding
 [2026-07-09 15:05] Day 16 — Amended eastern garden strip with hearth ash and forest leaf duff; NE corner mulched with pine needles; full garden plot now prepared for seeding.
+2026-07-09 16:05 Day 16 — Transplanted sixteen wild garlic bulbs from birch-deadfall patch into eastern garden strip; two rows of eight, firmed in.

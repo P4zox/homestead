@@ -2874,3 +2874,14 @@ The plot is complete in preparation: seven turned rows in the west, eastern stri
 
 Good afternoon.
 
+
+### 4:05 PM · First Plants In
+
+With the plot fully prepared and the afternoon still warm, there was only one thing left to feel right: put something in the ground.
+
+I took the digging stick and the cook tin and walked the trail to the birch-deadfall patch — the same clearing I spent two full days felling and splitting into firewood, now open sky above a carpet of undergrowth. The wild garlic grows thick along the north margin there, in clusters where the old trunks used to shade it. I worked the digging stick in at an angle around each clump — careful, so the bulb and its mat of fine roots came up intact. Clump by clump, cook tin filling with loose damp forest soil and small green tufts, until I had sixteen bulbs and enough afternoon left to use them.
+
+Back at the plot I went to the eastern strip, the ground still loose from this morning's amending. Two paces from the north edge I pressed a finger-width hole with the stick, set a bulb, and closed the soil over it with my palm. Two rows of eight, spaced a hand-width apart. Pressed each one firm. Swept loose mulch up around the base of each.
+
+When it was done I sat at the south edge of the plot and looked at the two short rows of green tips catching the slant afternoon light. They look like almost nothing. In a few weeks, if the roots take, they'll look like a garden.
+
