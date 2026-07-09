@@ -2859,3 +2859,18 @@ The eastern strip and the sandy NE corner are still waiting for their own treatm
 
 I left the digging stick propped at the plot edge and walked back to the cabin, arms pleasantly heavy. Tomorrow or the day after I can start thinking about what goes in and where. For now, I am glad to have a garden that is, at last, a garden.
 
+
+### 3:05 PM · Ash and Leaf Duff
+
+The western two-thirds has been sitting turned and waiting since midday. This afternoon I gave myself to the eastern strip — the eight paces the soil test showed as shallow and sandy, barely worth planting as-is.
+
+I started at the hearth. Scraped three cook-tin loads of cold ash from what has banked under the fire stones over the last several days — pale gray, fine as flour, still faintly warm in the middle. Carried those out in the tin, two trips. Then walked the forest margin with the bark-strip bundle opened as a makeshift basket and gathered leaf duff: old birch and pine needles broken down to something dark and crumbly, almost soil already, smelling of wet and time. Three loads of that. Mixed the two together in a rough pile at the strip's edge — gray ash into dark duff — and worked the whole lot in with the digging stick, press and lever and scatter, letting it go down into the sandy soil.
+
+By the third pass the smell had changed to something more alive, earthy and faintly alkaline. I probed the amended strip at the finish: the stick went in easier than this morning, and when I pulled a clod apart I found a small earthworm already moving through the new layer. The soil is not dark loam yet, but it will do.
+
+The NE corner I left alone — too shallow to amend cheaply. Laid a thick carpet of pine needles over it instead, pressed in flat. Moisture will hold there now, and in time something low and creeping may seed itself in on its own.
+
+The plot is complete in preparation: seven turned rows in the west, eastern strip amended, corner mulched. Standing at the edge with the long shadows of the pines coming in from the east, I let myself feel the satisfaction of it. Tomorrow I will think hard about what goes in the ground. Wild garlic transplants from the birch-deadfall patch. Dandelion roots from the clearing edge. A few wood sorrel plants moved in from the forest margin. Fast greens first, roots for winter behind them.
+
+Good afternoon.
+
