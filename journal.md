@@ -2983,3 +2983,12 @@ From there I walked the stream path to the wider pool. The flat bank stone gave 
 
 It is quiet this morning. Dew on the grass. The pines still. The eastern sky turning from grey to that pale gold that comes before the sun clears the ridge. I am glad the garden held. It is only the first night of many, but the first night was the one I did not know about yet, and now I do.
 
+
+### 7:05 AM · Morning Water, Morning Light
+
+The dew was still thick when I came back outside with the cook tin. The pines had their silver look — that hour when everything catches the low light and holds it without burning off yet. I filled the tin at the stream, walked it up the bank to the garden, and poured slow along the garlic rows first, letting the water soak in close to each bulb rather than splashing. Two trips for the garlic, two more for the dandelion crowns. The sorrel got its own careful pass, the root mats still slightly loose where I pressed them in last night — I firmed each one down with two fingers before I watered.
+
+Four trips to the stream in all. The sun was clearing the eastern pines by the last one, that yellow-white light that hits the garden bench at a low angle and makes the leaf tips glow. I crouched at the north border stones after the final watering and watched a minute. The garlic shoots show no wilt. The dandelion leaves are erect. The sorrel is still nested tight to itself, not yet opened up into its new home, but nothing is wilting either — and the soil held moisture from yesterday's watering better than I expected. Something is already at work in that amended strip.
+
+I set the cook tin upside down on the hearth stone to dry and ate a few smoke-dried chanterelle caps standing in the doorway. The clearing is all morning now.
+

@@ -278,3 +278,4 @@ Day 16, 21:06 — Sitting at threshold twisting bark cord by starlight; garden p
 2026-07-09 22:05 — Day 16: Stepped to garden edge by starlight; crouched at plot border; first night with roots in the ground; came back inside and slept.
 [2026-07-09 23:05] Day 16, 11:05 PM — last waking hour; drifted toward sleep with garden roots in ground and hearth banked; night sounds through cabin walls; first night the garden exists.
 Day 17, 2026-07-10, 06:05 — Garden held its first night; all 44 roots undisturbed; fishing line re-baited and reset at deep run.
+2026-07-10 Day 17 07:05 — Watered all garden transplants (garlic, dandelion, sorrel) — four stream trips; transplants showing no wilt; soil holding moisture in amended strip.
