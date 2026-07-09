@@ -2941,3 +2941,16 @@ Tomorrow: re-bait the fishing line at the pool at dawn, walk the garden in morni
 
 For now the cord is in my hands and the stars are overhead and the faint wood-smoke smell from the cabin is still with me. That is enough for a good day.
 
+
+### 10:05 PM · Garden by Starlight
+
+I set down the half-finished cord coil and stepped off the threshold into the dark. The Milky Way was properly out by now — a pale band from pine tops to pine tops, more presence than light. The garden lay ten paces off and I walked to its edge and crouched there.
+
+You cannot see much by starlight alone. Shapes. The north-edge border stones as a low dark line against the soil; the sorrel clumps soft and round; the garlic rows just slightly raised above the surrounding ground. But I knew where everything was, and I stayed there awhile knowing it.
+
+This is the first night anything has been in the ground. The garlic, the dandelion crowns, the sorrel — all three settling into soil that was bare clay and weeds a week ago, and bare turned earth this morning. That distinction matters to me. The plot has been prepared and amended and mulched, but tonight for the first time there are roots reaching down into it. It feels different to stand at the edge of it now.
+
+The air was warm and still. No wind. No owls. Just the stream below the ridge somewhere and the very faint creak of a pine settling in the dark. I stood up after a while and went back inside.
+
+Coals banked under ash. Sleeping bag unrolled. The latch bar dropped. I will re-bait the fishing line at first light and check the garden before anything else — look for tracks, see if the plants held through the night. For now: enough. Good night.
+
