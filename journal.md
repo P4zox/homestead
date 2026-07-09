@@ -2826,3 +2826,7 @@ The second row went faster than the first — muscle memory settling into the rh
 ### 10:05 AM · Third Row, Still
 
 Three rows turned. The digging stick has found a rhythm I trust now — drive the tip in at an angle, lever the clod up and toward me, break the big pieces apart with a sideways twist, scatter them flat. Its
+### 11:05 AM · Fourth Row Turned
+
+The crow was gone when I came back from the shelter with water. I did not notice when it left — just bent down for another row and looked up later to find the pine bough empty. Four rows in now. The digging stick finds the same dark loam as the three before it: close-grained, earthworms spiraling out of every overturned clod, a faint smell of something alive and mineral that rises when the soil breaks open. I work the row end to end the same way I have all morning — drive the tip in to the hilt, lever, break the clod, scatter. Three rows left in the western two-thirds. I am moving with it now, steady and unhurried, the sun warm on the back of my neck.
+
