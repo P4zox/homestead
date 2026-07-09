@@ -2920,3 +2920,12 @@ Two days ago it was the smoke rack. Yesterday the root cellar walls cured overni
 
 I carried it back to the cabin on a birch stick. The fire is low but it will come up. Tonight I cook on the hearth.
 
+
+### 8:00 PM · Trout by Firelight
+
+The trout came off the birch stick and onto the hearthstone while evening settled around the cabin. I had banked the coals before walking to the pool, and they were still deep orange under the ash when I got back — a few splits of dry pine brought the flame up in minutes. The fish went on a flat stone pulled close to the edge of the fire, and I crouched there watching it, turning it once with the knife handle when the skin blistered and lifted free.
+
+The cabin smells different now. Woodsmoke and fish-fat mingling, something domestic that I did not expect to notice, something I can only call home. I ate slowly, sitting in the doorway with my back against one doorpost, watching the first stars come up above the eastern tree line. The garden is in the ground. The root cellar walls are plastered and holding chill. The firewood row runs the full length of the east wall. Tonight was just the fire, and the trout, and the quiet settling over the clearing.
+
+Tomorrow I will re-bait the line at first light and reset it at the deep run under the overhang. Tonight: coals banked under ash, sleeping bag pulled close, the door latched, the clearing dark and still beyond.
+
