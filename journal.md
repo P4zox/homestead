@@ -2817,3 +2817,8 @@ I work from west to east across the first full row, covering the whole eight-pac
 
 The crow is back on the garden edge, watching again. I ignore it. We have an understanding.
 
+
+### 9:05 AM · Second Row Turned
+
+The second row went faster than the first — muscle memory settling into the rhythm of drive, lever, break, scatter. The dark loam turns easily here; every third clod comes up threaded with earthworms, which I take as the best possible sign. The crow has moved from the garden edge to a pine bough above the plot's east end, watching with that tilted-head stillness it seems to reserve for things it finds harmless but worth observing. Sun is fully on the clearing now, warm on my back and shoulders, which have finally unlocked past the early stiffness. Two rows down, five to go. The morning feels long enough to hold more of them.
+
