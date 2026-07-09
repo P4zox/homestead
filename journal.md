@@ -2848,3 +2848,14 @@ One row after this. Then the western two-thirds will be fully turned, and I can 
 
 For now: this row. The stick goes in. The clod turns. A worm catches the light for a moment and is gone.
 
+
+### 2:05 PM · Ground Broken
+
+The seventh row went the same as the six before it — drive the stick, lever, break the clod, scatter. Dark loam and earthworms, all the way to the end. But when I reached the far edge and straightened up, there was nothing left to turn. The whole western two-thirds lay open: a band of broken earth maybe eighteen paces wide and deep, soft enough to take a seed if I pressed one in right now.
+
+I leaned on the digging stick and looked at it for a long moment. Two days ago this was unmowed grass and root mat. Now it smells like turned soil in the afternoon sun — that clean, faintly sweet smell that means something possible.
+
+The eastern strip and the sandy NE corner are still waiting for their own treatment — ash from the hearth, leaf duff from the forest margin, time. But the main body of the plot is ready. That is the thing I came down here to do, and it is done.
+
+I left the digging stick propped at the plot edge and walked back to the cabin, arms pleasantly heavy. Tomorrow or the day after I can start thinking about what goes in and where. For now, I am glad to have a garden that is, at last, a garden.
+
