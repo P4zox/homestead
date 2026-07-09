@@ -2830,3 +2830,8 @@ Three rows turned. The digging stick has found a rhythm I trust now — drive th
 
 The crow was gone when I came back from the shelter with water. I did not notice when it left — just bent down for another row and looked up later to find the pine bough empty. Four rows in now. The digging stick finds the same dark loam as the three before it: close-grained, earthworms spiraling out of every overturned clod, a faint smell of something alive and mineral that rises when the soil breaks open. I work the row end to end the same way I have all morning — drive the tip in to the hilt, lever, break the clod, scatter. Three rows left in the western two-thirds. I am moving with it now, steady and unhurried, the sun warm on the back of my neck.
 
+
+### 12:05 PM · Fifth Row, Noon
+
+By noon the sun had moved past overhead and its shadow lay short beneath me. I was still in the garden, digging into the fifth row. The crow has not returned. There is something about ground-breaking at midday — the warmth presses down, the soil steams faintly in the newly turned furrows, and you settle into a rhythm that asks nothing of you but to continue. Drive the stick, lever the clod up, break it, scatter the crumble. Earth on hands, earthworms surfacing pink and surprised into the warm air before they thread back under. The loam is as good here as anywhere in the plot — dark and giving, the smell of it clean and mineral. Two rows left after this one. The garden begins to look like something that means business.
+
