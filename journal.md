@@ -2885,3 +2885,14 @@ Back at the plot I went to the eastern strip, the ground still loose from this m
 
 When it was done I sat at the south edge of the plot and looked at the two short rows of green tips catching the slant afternoon light. They look like almost nothing. In a few weeks, if the roots take, they'll look like a garden.
 
+
+### 5:05 PM · Dandelion Roots Set
+
+The wild garlic is in and the pine shadows have started walking across the garden from the east. That was the sign to move — I took the digging stick and cook tin to the clearing margin, to the place where the grass gives way to the first trees and the dandelion rosettes crowd together in that ragged, low belt. They look slight above ground, but the roots go deep; I learned to probe first and pry slow to keep the taproot whole.
+
+Worked along the margin for a while, choosing the biggest rosettes, the ones with the darkest crowns. Managed fourteen good ones before the soil went thin and ran into stones beneath — enough. Packed a fist of their own earth around each root in the cook tin and carried them back.
+
+Set them in the eastern strip, west of the garlic rows, leaving room between: each root to knuckle depth, the crown just at soil level, pressed firm with the heel of my hand. Watered them in with two trips to the stream and back, pouring slowly at the base. The earth took them without complaint.
+
+Dandelion is a steadier plant than people give it credit for. It holds in cold, holds in poor soil, and still gives you leaves early and root through the whole season. It belongs here, and the garden has a better shape with it in.
+
