@@ -2992,3 +2992,14 @@ Four trips to the stream in all. The sun was clearing the eastern pines by the l
 
 I set the cook tin upside down on the hearth stone to dry and ate a few smoke-dried chanterelle caps standing in the doorway. The clearing is all morning now.
 
+
+### 8:14 AM · First Strawberries
+
+The clearing was fully lit by the time I finished morning chores, sunlight pressing in hard from the east through a gap in the pines. I walked the forest margin with no particular aim — just letting the morning show me what it had.
+
+At the east edge, where the trees have not yet cast shadow this early in the day, I found them: wild strawberries, low to the ground, scattered through the grass in the strip of morning warmth. Small things, barely the size of the last joint of my little finger, but red all the way through — not the pale blush of something unready. I went down on hands and knees and worked the strip slowly, turning leaves, following runners. The scent came up when I disturbed the plants, that sharp sweetness that has no analogue.
+
+I picked for perhaps half an hour and came back with two heaping handfuls. Not enough to preserve, not enough for a proper meal — but the taste was something. Concentrated beyond the size, acidic and sweet at once, a reminder that the world is not sparse if you look at the right level.
+
+The patch stretches along the east margin for twenty or thirty paces. Most of the berries are still pale or turning. I will come back in a few days and they will be waiting.
+
