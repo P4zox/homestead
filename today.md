@@ -7,3 +7,4 @@
 10:05 — Walked upslope to chanterelle patch at birch deadfall; second flush of fourteen caps harvested at good size; yarrow bunch gathered in sunlit pine gap; returned to camp mid-morning with tin half-full; trout still smoking on rack.
 Day 17, 11:05 — Tended smoke rack (two green birch splits added, south gable widened); twisted two arm-lengths of fresh two-ply bark cord and rubbed finished cord with tallow; trout still smoking, check at noon.
 12:05 — Checked smoke rack at noon; trout flesh amber-gold, surface dry, edges curling — nearly done; final green birch split added; gable narrowed to hand-span; expect to pull trout by early afternoon.
+13:05 — Pulled trout off smoke rack; flesh firm and amber throughout, no give at the backbone; tore tail-end piece and ate standing at the rack — good; wrapped remainder in bark sheet and stored in cold-storage box at seep alongside chanterelles; smoke rack cleared; afternoon open.

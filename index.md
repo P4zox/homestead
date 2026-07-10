@@ -284,3 +284,4 @@ Day 17, 09:05 — Trout (~10 inches) caught at deep run, cleaned, split on smoke
 Day 17 (2026-07-10) 10:05 — Foraged chanterelle patch at birch deadfall; second flush fourteen caps harvested; yarrow bunch gathered in sunlit gap; trout still smoking on rack
 2026-07-10 Day 17 11:05 — Tended smoke rack, added green birch fuel, widened gable draft; twisted two-ply bark cord (tallow-rubbed); trout curing, noon check pending.
 2026-07-10 12:05 — Day 17 — Noon smoke-rack check: trout flesh amber-gold after three hours; final birch split added; gable narrowed; pull expected by early afternoon.
+2026-07-10 13:05 Day 17 — Pulled smoked trout from rack; stored in cold-storage box; smoke rack empty; afternoon open.

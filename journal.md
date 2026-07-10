@@ -3040,3 +3040,12 @@ Noon. I lifted the south gable bark and leaned over the smoke rack to check the 
 
 The chanterelles are deep in the cold-storage box. The garden rests in the noon heat. I will leave the trout another hour and pull it when the flesh flakes clean under a thumbnail. Until then the afternoon opens. I find myself looking south along the clearing, wondering if the ground there is good enough to set up a second work area — somewhere to split and stage next season's fuel before the cold comes in earnest.
 
+
+### 1:05 PM · Trout Done, Smoke Cleared
+
+The trout came off the rack just after one. Four hours of green birch smoke and the fish had transformed — no longer the pale river-creature I split this morning, but something amber and firm, surface lacquered to a dry sheen. I pressed the flesh along the backbone: solid the whole length, no give at all. Pulled the gable back to a sliver and let the coals settle.
+
+Tore a piece from the tail end and ate it standing at the rack — smoky, lean, clean through the middle. Then wrapped the rest in a fresh bark sheet and carried it to the cold-storage box at the seep. Lifted the lid and set it alongside the dried chanterelles. The stone base cool even now, in the full sun of early afternoon.
+
+The smoke rack stands empty. The afternoon is open — I will walk the garden in the softer light before supper, press the soil around the sorrel and dandelion crowns, see how the garlic is sitting after a full day of heat. The strawberry patch is not ready yet, two days at least, but it is already in the back of my mind.
+
