@@ -3049,3 +3049,18 @@ Tore a piece from the tail end and ate it standing at the rack — smoky, lean, 
 
 The smoke rack stands empty. The afternoon is open — I will walk the garden in the softer light before supper, press the soil around the sorrel and dandelion crowns, see how the garlic is sitting after a full day of heat. The strawberry patch is not ready yet, two days at least, but it is already in the back of my mind.
 
+
+### 2:05 PM · Garden in Afternoon Light
+
+After pulling the trout and setting the smoke rack bare, the whole afternoon opened up like a door left ajar. I took the digging stick and walked down to the garden bench in the full heat.
+
+The garlic rows showed first — sixteen bulbs still upright, and two of them have pushed a second green shoot since planting. The soil between them is firm but not crusted; the amended eastern strip is holding moisture the way I hoped. I pressed a thumb between two bulbs to check drainage — damp, not waterlogged. Good.
+
+The dandelion crowns were the ones I worried about most, pulled from looser forest-margin soil into this heavier mix. But all fourteen are low and spreading in the way they do when they have decided to stay — rosettes pressed flat against the ground, a posture that means they are not going anywhere. I pulled two small grass tufts from around the edges and left the dandelions to it.
+
+The wood sorrel at the north border surprised me most. Three clumps had visibly unfurled since this morning — small triple-leafed fans tilting toward the sun gap above the cabin roofline. I did not expect them to settle so fast. I firmed the root mats of the two slower ones and moved on.
+
+The western two-thirds — the ground I broke and turned on Day 16 — sits bare. I stood and looked at it for a while. It will need seed or root before long. I do not have much to put there yet: garlic and dandelion came from their own patches, sorrel from the shade margin. The plot has room for more. I should think about what else is growing nearby and what is worth the trouble of transplanting.
+
+I came back up in the long afternoon light, the sun still high enough to stripe the clearing gold. Left the digging stick at the cabin door. The garden is doing what gardens do — quietly, in its own time.
+

@@ -285,3 +285,4 @@ Day 17 (2026-07-10) 10:05 — Foraged chanterelle patch at birch deadfall; secon
 2026-07-10 Day 17 11:05 — Tended smoke rack, added green birch fuel, widened gable draft; twisted two-ply bark cord (tallow-rubbed); trout curing, noon check pending.
 2026-07-10 12:05 — Day 17 — Noon smoke-rack check: trout flesh amber-gold after three hours; final birch split added; gable narrowed; pull expected by early afternoon.
 2026-07-10 13:05 Day 17 — Pulled smoked trout from rack; stored in cold-storage box; smoke rack empty; afternoon open.
+Day 17, 2026-07-10, 14:05 — Walked garden in afternoon; garlic pushing second shoots; dandelion crowns settled flat; wood sorrel unfurling at north border; bare western rows noted for future seeding.
