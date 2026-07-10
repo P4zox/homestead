@@ -3011,3 +3011,16 @@ Walked to the stream at the first real warmth of morning, the sun clearing the p
 Bled it at the water's edge, cleaned it on a flat stone, returned the entrails to the current. Carried it back to the smoke rack south of the shelter, split it lengthways, skin-side down on the middle crossbar. The hearth coals were low from the morning; I laid in two splits of green birch to damp the heat and throw more smoke. South gable cracked just enough to keep a draft without pulling too hard. It'll want a few hours at least.
 
 The garden looked steady as I passed — sorrel leaves uncurling a little further, the garlic tips holding their color. Everything settling toward itself, the way transplants do when they've decided to stay. I'll check the rack at midday.
+
+### 10:05 AM · Upslope, Tin Full
+
+The trout had been on the rack an hour and the smoke was holding — I could tell from the draft through the south gable, the way it pulled without wavering. Nothing to do but leave it and walk.
+
+The chanterelle patch is ten minutes upslope, maybe less now that I know the way: up through the first line of pines, past the split boulder, into the bowl where three old birches came down in the same windthrow. The duff there is deep and stays damp. I had marked the patch on the first find and gone back twice since, and each time there was something new — the mycelium keeps fruiting through the summer in small waves. Today there was a second flush along the biggest log: fourteen caps, most at the right size, only the outermost two or three beginning to flatten and split at the rim. I worked through them slowly, keeping the good ones, leaving the smallest to come on. The tin was half-full by the time I reached the far end of the log.
+
+I sat there a moment after, on the birch bark. The bowl was quiet except for wind moving high in the pines above me. I could not see the cabin from that angle — trees and slope in the way — but I knew the smoke was going. There is a particular comfort in leaving work that can do its own tending for a while.
+
+On the way back down I found yarrow growing in a sunlit gap between two pine trunks: wide flat heads of white flowers, feathery leaves, the smell sharp and clean. I pulled a small bunch without taking the roots — enough to bundle and hang to dry. Bruised leaf on a cut stops small bleeding; dried it keeps long. It is the kind of thing that earns its place long before you need it.
+
+Back in camp by mid-morning. The rack still going, smoke thin and steady. More chanterelles in the tin than I expected. A good hour.
+
