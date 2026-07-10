@@ -3064,3 +3064,16 @@ The western two-thirds — the ground I broke and turned on Day 16 — sits bare
 
 I came back up in the long afternoon light, the sun still high enough to stripe the clearing gold. Left the digging stick at the cabin door. The garden is doing what gardens do — quietly, in its own time.
 
+
+### 3:05 PM · Nettles at the Bend
+
+The afternoon was open and warm, the clearing very still in the full summer heat. The bare western rows have been sitting in the back of my mind all day — seven turned rows with nothing in them yet, good dark loam waiting. After the garden walk at two I felt the pull to do something about it, not just note the gap but start closing it.
+
+I walked the stream north of camp, past the cold seep and the storage box, into the section where the bank is shaded and mossy. The stream curves there, cutting under the bank, and in that damp shadow I found what I was looking for: a long stand of stinging nettles — knee-high, the leaves still fresh and dark, not yet gone coarse in the heat. Useful in two ways: steamed or blanched they're good eating, strong and green, and the roots transplant well if the soil stays damp.
+
+I cut a double handful of the upper shoots using a folded strip of birch bark to grip them — the sting is mild when you're quick — and carried them back in the bark wrap. Along the way, in a sunlit gap where a pine came down last season, I found broad-leafed plantain growing low in the disturbed ground. Cut a dozen leaves. Not something I'd plant in the garden but good to know is there — the leaves draw out a sting when crushed, and they work on small cuts.
+
+Back at camp I set the nettles in the cook tin with a little stream water to keep them fresh until supper. The nettle patch is twenty or so paces north of the seep, easy to find again. In a few days, when the soil cools toward evening, I'll go back and lift a few root clumps for the western rows. Nettles like the stream margin, but they're forgiving — they'll grow in the garden if I water them in.
+
+The afternoon light has moved far enough now that the garden's west rows are in partial shade. Good. Whatever I put there next can go in cool.
+
