@@ -3088,3 +3088,12 @@ Back at the garden, I set each clump into a hand-depth hole in the first and sec
 
 The western rows are still mostly bare, but they are no longer only bare. The first plantings are in the ground.
 
+
+### 5:05 PM · First Nettle Supper
+
+The cook tin went over the coals just as the light started pulling long and gold toward the pines. While the water came to a simmer I hung the dozen plantain leaves — one by one along the lowest smoke-rack crossbar, leaves flat, stems tucked over the wood. Then I added a small handful of dried chanterelles from the cold-storage box and watched them plump in the warming broth.
+
+Nettles lose their sting the moment heat reaches them. I had half-known that before, but seeing it was different: the leaves collapsed, the broth went dark and earthy, and the sharp edge I had been so careful around simply disappeared. I ate standing at the doorway with the tin balanced on the lintel — nettle leaves silky, chanterelles soft and rich, broth good down to the bottom of the tin.
+
+The clearing held its evening quiet. The garden rows were a dark line below, the new nettle clumps barely visible in the long grass. I thought about the week behind me: everything I have grown or caught or built has wound up in that square of turned earth or in my body, which is really the same thing. This is what the work is for. Not the list of it. The eating.
+
