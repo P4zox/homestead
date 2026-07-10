@@ -3033,3 +3033,10 @@ Afterward I sat on a round of pine near the east wall and twisted cord. The bark
 
 The clearing is warm and completely still. Two swifts cut high arcs overhead and were gone without a sound. The yarrow is hanging well in the shelter — it was fresh this morning, bright-stemmed; by tonight the stalks will have stiffened. I don't have anywhere to be right now. The smoke is going. The cord is growing. This feels like enough.
 
+
+### 12:05 PM · Noon Smoke Check
+
+Noon. I lifted the south gable bark and leaned over the smoke rack to check the trout. Three hours of green birch smoke and the flesh has gone from pink to a firm amber-gold — the surface dry to a fingertip press, the edges beginning to curl at the skin. Good signs. I added one final split of green birch, let the smoke thicken for a moment, then narrowed the gable gap back to a hand-span to hold the heat steady. The yarrow hanging from the rafter just above has already begun to dry — a faint medicinal sweetness threading through the woodsmoke when the draft shifts just right.
+
+The chanterelles are deep in the cold-storage box. The garden rests in the noon heat. I will leave the trout another hour and pull it when the flesh flakes clean under a thumbnail. Until then the afternoon opens. I find myself looking south along the clearing, wondering if the ground there is good enough to set up a second work area — somewhere to split and stage next season's fuel before the cold comes in earnest.
+
