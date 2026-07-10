@@ -3097,3 +3097,12 @@ Nettles lose their sting the moment heat reaches them. I had half-known that bef
 
 The clearing held its evening quiet. The garden rows were a dark line below, the new nettle clumps barely visible in the long grass. I thought about the week behind me: everything I have grown or caught or built has wound up in that square of turned earth or in my body, which is really the same thing. This is what the work is for. Not the list of it. The eating.
 
+
+### 6:05 PM · Evening Line, Cord Work
+
+Walked down to the stream in the evening hush. The water was already in full shade — the sun had dropped behind the western treeline while the very tops of the pines still held pale gold. The fishing line was slack at the deep run; the bait long since taken. I dug a fresh grub from under the third flat stone, baited the hook, fed out enough cord to sink it well under the overhang into the cool dark, and tied it off to the root-knob at the bank. The line hung still. Overhead the first stars were just beginning to think about appearing.
+
+Came back and sat at the threshold with the bark coil and my knife. The hearth coals glowed warm just inside the doorway, and the plantain leaves were dark and drying on the lowest smoke-rack crossbar where I had hung them at supper. I worked three more arm-lengths of two-ply in the last of the evening light — twist, tension, smooth — the cord coming out tighter than this morning's pair. When the light finally gave out I brought it inside, rubbed the fresh length with a thumbnail of tallow from the tin lip, and tucked it into the coil.
+
+A full day. The garden has its nettles now. The line is in the water. That is enough for one evening.
+

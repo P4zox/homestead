@@ -289,3 +289,4 @@ Day 17, 2026-07-10, 14:05 — Walked garden in afternoon; garlic pushing second 
 Day 17 · 2026-07-10 · 15:05 — Walked stream bank north; found nettle stand at shady bend twenty paces past cold seep; harvested shoots for supper; plantain cut from pine-fall gap; nettle patch marked for root transplant to western garden rows.
 2026-07-10 16:05 Day 17 — Transplanted six nettle root clumps from the north-seep stand into the first two western garden rows; watered in.
 Day 17, 17:05 (Fri 10 Jul 2026) — Cooked nettle-chanterelle supper on hearth; hung plantain leaves on smoke rack to dry; ate at doorway as clearing went to evening.
+2026-07-10 18:05 — Day 17 — Grub-baited fishing line reset at deep run for overnight; three arm-lengths two-ply cord twisted at threshold; tallow-rubbed and coiled; plantain drying; night settling.
