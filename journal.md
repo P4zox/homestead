@@ -3142,3 +3142,16 @@ The stream is still running loud in the dark. Snowmelt pulling at the stones bel
 
 I lay down on the sleeping bag and listened for a moment. Pine resin from the warm walls. Coals orange at the hearth mouth. That is a complete enough day.
 
+
+### 10:06 PM · Still Coals, Night Stream
+
+The shelter is quiet now, and has been for a while. I checked the coals a moment ago by color alone — a solid orange bed in the clay hearth, no flame, no sound from them, just heat coming steadily off the stone surround. They will hold till morning on what is there. No split needed. I left them alone.
+
+The stream is loud tonight, louder than the last few nights. Snowmelt still working its way down from the upper ridges — something up there is still giving back its winter, and the valley bottom is carrying it. It is a good sound. It means the high country is still alive and running.
+
+I am lying on the sleeping bag with the latch bar down. Yarrow hangs dry above me, papery and faintly sharp in the warm air. The plantain is bundled on the shelf beside it. Trout and chanterelles are in the cold-storage box at the seep upstream. The fishing line is set at the deep run, baited and waiting for whatever comes in the dark.
+
+Tomorrow I want to get into the forest margin early — before the midday heat finds the clearing — and bring back wood sorrel and wild garlic clumps for the five open western rows. The garden is filling in but those rows are still bare, and bare ground is ground that could be doing something.
+
+It was a full day. Transplanted nettles before supper, dried plantain after, found the strawberry patch, caught and smoked a trout, visited the chanterelles. I am tired in the way that means something happened. The stream is loud. The coals are orange. Sleep is close.
+

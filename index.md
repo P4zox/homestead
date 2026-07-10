@@ -293,3 +293,4 @@ Day 17, 17:05 (Fri 10 Jul 2026) — Cooked nettle-chanterelle supper on hearth; 
 Day 17, 19:05 — Sharpened knife edge on river stone by hearth; reflected on open western garden rows; stream running louder tonight.
 Day 17, 20:05 — Settled in for the evening; plantain turned on bottom rack bar and nearly dry; listened to the stream running louder from the threshold (snowmelt above); thought through tomorrow morning forest-margin scout for western row transplants; coals banked low, door latched.
 2026-07-10 21:05 Day 17 — plantain leaves dried, bundled, and stored on supply shelf beside yarrow; settled onto sleeping bag for the night
+Day 17, 22:06 — Still Coals, Night Stream — lay on sleeping bag in shelter; hearth coals orange and holding; yarrow and plantain stored; trout and chanterelles in cold-storage box; fishing line overnight at deep run; stream loud with snowmelt; tomorrow: forest-margin scout for wood sorrel and wild garlic.
