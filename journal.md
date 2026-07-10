@@ -3155,3 +3155,15 @@ Tomorrow I want to get into the forest margin early — before the midday heat f
 
 It was a full day. Transplanted nettles before supper, dried plantain after, found the strawberry patch, caught and smoked a trout, visited the chanterelles. I am tired in the way that means something happened. The stream is loud. The coals are orange. Sleep is close.
 
+### 11:06 PM · Stream Running Loud
+
+Lying on the sleeping bag with the latch bar down. Hearth coals solid orange — no split needed, they will hold through the night. I checked them an hour ago; same as now. Good.
+
+The stream is running loud tonight. Louder than yesterday. Snowmelt from the upper ridges, I think, finding its way down through root and stone into this same stream I drink from and fish in and think beside. It runs almost like rain, but steadier — not falling, arriving. I find it easier to sleep to than silence.
+
+Seventeen days. The garden holds nettle clumps now, garlic showing second shoots on two bulbs, wood sorrel uncurling since morning. Trout wrapped in bark in the cold-storage box. Plantain dried and rolled on the supply shelf beside the yarrow. The door is latched and the latch bar holds — I cut that bar myself, bored the keeper groove with the knife tip, and it drops clean every time. Such a small thing. It means something to wake in the dark to a sound and already know the door is secure.
+
+Tomorrow: out early, forest margin before the heat flattens the day. Five open western rows to fill — wood sorrel for the shaded far rows, more wild garlic along the edge where the amended strip is doing well. The plan is already made. What is left is sleep, and then the grey light of morning finding the pines.
+
+The stream keeps running. I let it carry me down.
+
