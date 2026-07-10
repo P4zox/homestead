@@ -3131,3 +3131,14 @@ Sitting now on the sleeping bag with the coals cooling quietly, I am thinking th
 
 The knife is in the shelf notch, clean and sharp. The latch bar is down. The coals will hold low until morning.
 
+
+### 9:05 PM · Plantain Dried, Settled In
+
+The coals held steady from the last split — warm but not hot, the shelter holding its heat well. I reached down and ran a thumb along each plantain leaf on the bottom rack bar: papery through and through, that dry-leaf crinkle when you press them. Twelve leaves, all done.
+
+I lifted them off one at a time, stacked them flat with stem-ends aligned, rolled them into a tight bundle inside a strip of birch bark, and bound it closed with two turns of bark cord. The bundle went on the supply shelf beside the yarrow — both medicinal, both dried, both where I will remember them.
+
+The stream is still running loud in the dark. Snowmelt pulling at the stones below the bank. The fishing line is out at the deep run tending itself. Five open western rows waiting in the garden. Tomorrow the forest-margin scout before the heat rises.
+
+I lay down on the sleeping bag and listened for a moment. Pine resin from the warm walls. Coals orange at the hearth mouth. That is a complete enough day.
+
