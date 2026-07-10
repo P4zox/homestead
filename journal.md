@@ -3003,3 +3003,11 @@ I picked for perhaps half an hour and came back with two heaping handfuls. Not e
 
 The patch stretches along the east margin for twenty or thirty paces. Most of the berries are still pale or turning. I will come back in a few days and they will be waiting.
 
+
+### 9:05 AM · Trout, Ten Inches
+
+Walked to the stream at the first real warmth of morning, the sun clearing the pines to the east and hitting the water in long, bright slats. The line had pulled itself taut against the current — I could see the angle from the bank before I even reached the water. Waded in to the knee and felt the weight as I lifted. A good trout, maybe ten inches, dark-spotted and thick through the shoulders, sitting heavy in the current the way a well-fed fish does.
+
+Bled it at the water's edge, cleaned it on a flat stone, returned the entrails to the current. Carried it back to the smoke rack south of the shelter, split it lengthways, skin-side down on the middle crossbar. The hearth coals were low from the morning; I laid in two splits of green birch to damp the heat and throw more smoke. South gable cracked just enough to keep a draft without pulling too hard. It'll want a few hours at least.
+
+The garden looked steady as I passed — sorrel leaves uncurling a little further, the garlic tips holding their color. Everything settling toward itself, the way transplants do when they've decided to stay. I'll check the rack at midday.

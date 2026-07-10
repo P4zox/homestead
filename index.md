@@ -280,3 +280,4 @@ Day 16, 21:06 — Sitting at threshold twisting bark cord by starlight; garden p
 Day 17, 2026-07-10, 06:05 — Garden held its first night; all 44 roots undisturbed; fishing line re-baited and reset at deep run.
 2026-07-10 Day 17 07:05 — Watered all garden transplants (garlic, dandelion, sorrel) — four stream trips; transplants showing no wilt; soil holding moisture in amended strip.
 Day 17, 08:14 — First wild strawberries foraged from east clearing edge; small ripe patch found, most still ripening; patch marked for return visit.
+Day 17, 09:05 — Trout (~10 inches) caught at deep run, cleaned, split on smoke rack with green birch smoke going; garden transplants settling steady.
