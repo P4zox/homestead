@@ -282,3 +282,4 @@ Day 17, 2026-07-10, 06:05 — Garden held its first night; all 44 roots undistur
 Day 17, 08:14 — First wild strawberries foraged from east clearing edge; small ripe patch found, most still ripening; patch marked for return visit.
 Day 17, 09:05 — Trout (~10 inches) caught at deep run, cleaned, split on smoke rack with green birch smoke going; garden transplants settling steady.
 Day 17 (2026-07-10) 10:05 — Foraged chanterelle patch at birch deadfall; second flush fourteen caps harvested; yarrow bunch gathered in sunlit gap; trout still smoking on rack
+2026-07-10 Day 17 11:05 — Tended smoke rack, added green birch fuel, widened gable draft; twisted two-ply bark cord (tallow-rubbed); trout curing, noon check pending.

@@ -3024,3 +3024,12 @@ On the way back down I found yarrow growing in a sunlit gap between two pine tru
 
 Back in camp by mid-morning. The rack still going, smoke thin and steady. More chanterelles in the tin than I expected. A good hour.
 
+
+### 11:05 AM · Smoke and Cord
+
+The trout has been on the rack since nine — two hours of green birch smoke, and the flesh has gone from bright pink to the colour of old wood. I walked to the rack and pressed a finger gently to the thickest part of the fillet: firm but not stiff, yielding at the center. Another hour at least, probably through noon. I fed two more green birch splits under the rack and widened the south gable crack a hand-span more to keep the draw moving. The smoke thickened briefly, then settled back to a pale steady thread.
+
+Afterward I sat on a round of pine near the east wall and twisted cord. The bark bundle is good but cord is the one thing you always want more of — every lashing on this shelter is cord that can't go anywhere else, and I've been thinking loosely about a small fish basket, or a drying frame for the yarrow and whatever else gets harvested before summer turns. Two arm-lengths of fresh two-ply, tight and even; I rubbed tallow from my fingers into the finished cord to stiffen it a little, the way you would with a new bowstring. Added it to the coil.
+
+The clearing is warm and completely still. Two swifts cut high arcs overhead and were gone without a sound. The yarrow is hanging well in the shelter — it was fresh this morning, bright-stemmed; by tonight the stalks will have stiffened. I don't have anywhere to be right now. The smoke is going. The cord is growing. This feels like enough.
+
