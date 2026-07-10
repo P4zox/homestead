@@ -287,3 +287,4 @@ Day 17 (2026-07-10) 10:05 — Foraged chanterelle patch at birch deadfall; secon
 2026-07-10 13:05 Day 17 — Pulled smoked trout from rack; stored in cold-storage box; smoke rack empty; afternoon open.
 Day 17, 2026-07-10, 14:05 — Walked garden in afternoon; garlic pushing second shoots; dandelion crowns settled flat; wood sorrel unfurling at north border; bare western rows noted for future seeding.
 Day 17 · 2026-07-10 · 15:05 — Walked stream bank north; found nettle stand at shady bend twenty paces past cold seep; harvested shoots for supper; plantain cut from pine-fall gap; nettle patch marked for root transplant to western garden rows.
+2026-07-10 16:05 Day 17 — Transplanted six nettle root clumps from the north-seep stand into the first two western garden rows; watered in.

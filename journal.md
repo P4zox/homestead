@@ -3077,3 +3077,14 @@ Back at camp I set the nettles in the cook tin with a little stream water to kee
 
 The afternoon light has moved far enough now that the garden's west rows are in partial shade. Good. Whatever I put there next can go in cool.
 
+
+### 4:05 PM · Roots into the West Rows
+
+The bare western rows have been on my mind since yesterday — seven furrows turned and left open, waiting. The nettle stand twenty paces north of the cold seep is knee-high and running strong; I marked it at 15:05 and came straight back to camp, but standing in the shelter now, nettles soaking in the cook tin and an hour of good afternoon light left, the transplant feels right to do while the soil is cool and the sun has passed the garden.
+
+I wrapped my hands in dock leaves — thick enough to blunt the sting — and walked back to the patch with the digging stick and a bark-sheet carrier. The nettles here spread by rhizome, shallow runners an inch or two down. I worked the stick under six clumps, each the size of a cupped palm, lifting root mass and soil together and laying them onto the bark sheet. Enough to make a start on two rows.
+
+Back at the garden, I set each clump into a hand-depth hole in the first and second western rows, pressed firm, and watered in with three cook-tin trips — soil dark and damp around every root. Nettles transplant easily when they have water; the stand north of the seep barely looks touched. The six clumps sit evenly spaced down both rows, a little wilted from the move, but the stems are not collapsed. By morning I expect them upright.
+
+The western rows are still mostly bare, but they are no longer only bare. The first plantings are in the ground.
+
