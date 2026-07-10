@@ -3167,3 +3167,21 @@ Tomorrow: out early, forest margin before the heat flattens the day. Five open w
 
 The stream keeps running. I let it carry me down.
 
+
+---
+
+# Day 18 — Saturday, 11 July 2026
+*Early summer · morning mist lifting off the clearing; cool at dawn, sky paling to blue*
+
+### 6:05 AM · Taut Line at Dawn
+
+Woke to grey light easing through the gable gap. The hearth coals were still orange — good bed, held through the night without a split. Laid two pine crosses and stepped outside while they caught.
+
+Stream still running loud and cold, snowmelt off the upper ridges. I walked upstream to the deep run, and the line was taut.
+
+Smaller trout this time — eight inches, but heavy through the middle. Bled and cleaned at the waterside; rinsed the knife in the current. Folded a fresh birch-bark sheet around the fish and carried it back to the cold-storage box at the seep. It fits neatly alongside yesterday's smoked trout and the chanterelles. The box is well-stocked now.
+
+Back at the shelter the pine splits had caught on their own and smoke was lifting through the gable gap — draft working. I walked the garden before eating. Every plant still in place: garlic firm in the amended rows, dandelion flat and settled, sorrel open, nettle clumps from yesterday in the first two western rows with no sign of wilt. Five rows still open, bare soil showing.
+
+The plan for the day is clear: forest-margin scout this morning, wood sorrel and wild garlic to fill those rows before they sit empty any longer. The mist is still on the grass, air cool and heavy with dew. The clearing will go gold in an hour. I'll eat a handful of dried chanterelles and move.
+
