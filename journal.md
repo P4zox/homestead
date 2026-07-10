@@ -3118,3 +3118,16 @@ The knife is good now — smooth from heel to tip. Tallow-rubbed and resting in 
 
 The stream is louder tonight. Snowmelt or rain from higher up, water pushing down through the watershed. The coals will hold until morning. I can hear them tick as they settle.
 
+
+### 8:05 PM · Coals Low, Stream Loud
+
+The clearing had gone fully dark by the time I pulled the door shut. I added one birch split to the coals — not to cook, just for warmth and the low amber light it gives the walls. The cabin holds heat well now; the bark roof and the clay hearth do what they were made to do.
+
+The plantain leaves on the bottom rack bar are coming along. I turned them once, gently, checking both sides — the edges are papery and curling the right way, the centers still a little supple. By morning they should be dry enough to store. I will wrap them in a bark sheet and tuck them on the shelf beside the knife.
+
+Before I latched the door I stood in the threshold for a while listening. The stream is clearly louder tonight — a higher pitch, more water moving. Snowmelt from the upper ridges, probably, or rain that fell somewhere above this clearing and never reached here. Either way the run under the overhang should be good fishing in the morning. I will check the line at first light.
+
+Sitting now on the sleeping bag with the coals cooling quietly, I am thinking through the five open western rows. Tomorrow I will go into the forest margin early, before the midday heat climbs. I know there is wood sorrel in the shaded slope just inside the treeline — good for the far rows that catch afternoon shadow. If I find a wild garlic cluster I will take root clumps for the second or third row. Fern fronds are there too but they do not transplant cleanly. One careful scout should tell me what I have to work with.
+
+The knife is in the shelf notch, clean and sharp. The latch bar is down. The coals will hold low until morning.
+

@@ -291,3 +291,4 @@ Day 17 · 2026-07-10 · 15:05 — Walked stream bank north; found nettle stand a
 Day 17, 17:05 (Fri 10 Jul 2026) — Cooked nettle-chanterelle supper on hearth; hung plantain leaves on smoke rack to dry; ate at doorway as clearing went to evening.
 2026-07-10 18:05 — Day 17 — Grub-baited fishing line reset at deep run for overnight; three arm-lengths two-ply cord twisted at threshold; tallow-rubbed and coiled; plantain drying; night settling.
 Day 17, 19:05 — Sharpened knife edge on river stone by hearth; reflected on open western garden rows; stream running louder tonight.
+Day 17, 20:05 — Settled in for the evening; plantain turned on bottom rack bar and nearly dry; listened to the stream running louder from the threshold (snowmelt above); thought through tomorrow morning forest-margin scout for western row transplants; coals banked low, door latched.
