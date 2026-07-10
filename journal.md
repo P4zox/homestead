@@ -3106,3 +3106,15 @@ Came back and sat at the threshold with the bark coil and my knife. The hearth c
 
 A full day. The garden has its nettles now. The line is in the water. That is enough for one evening.
 
+### 7:05 PM · Knife and Firelight
+
+Added two splits to the coals when I came back in. The fire has settled — low, even, giving off more warmth than light.
+
+I got out the flat oval river stone and worked on the knife edge. The blade has been earning its keep: trout, dock, nettle stems, digging stick work. Still sharp, but the upper half of the edge had gone rough in a way I had been meaning to address for days. Sat at the hearth and ground it slowly, stone steady on my knee, and let my mind run while my hands worked.
+
+Five western rows still bare. The nettles will spread from the clumps I set today, but not this season — they need a full root year. The far two rows fall into pine shadow by late afternoon; sorrel or wood sorrel would manage that. Something that stores well for winter is worth a morning scouting the forest margin. Wild garlic prefers the shadowed edge. Tomorrow, before the heat.
+
+The knife is good now — smooth from heel to tip. Tallow-rubbed and resting in the shelf notch above the hearth. Outside, the plantain shifts on the bottom rack bar in the evening breeze, the leaves going papery at the edges. Good.
+
+The stream is louder tonight. Snowmelt or rain from higher up, water pushing down through the watershed. The coals will hold until morning. I can hear them tick as they settle.
+
