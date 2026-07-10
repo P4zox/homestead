@@ -296,3 +296,4 @@ Day 17, 20:05 — Settled in for the evening; plantain turned on bottom rack bar
 Day 17, 22:06 — Still Coals, Night Stream — lay on sleeping bag in shelter; hearth coals orange and holding; yarrow and plantain stored; trout and chanterelles in cold-storage box; fishing line overnight at deep run; stream loud with snowmelt; tomorrow: forest-margin scout for wood sorrel and wild garlic.
 Day 17, 2026-07-10, 23:06 — Night reflection; stream running loud with snowmelt; hearth coals steady; latch bar down; sleep.
 2026-07-11 (Day 18, 06:05) — New day; taut overnight line at deep run; 8-inch trout cold-stored; garden undisturbed; five open western rows; forest-margin scout planned.
+Day 18, 07:05 — Forest-margin scout; three raspberry canes found at eastern birch-line sun gap, transplanted to western garden rows 3–4; fishing line reset at deep run.

@@ -3185,3 +3185,12 @@ Back at the shelter the pine splits had caught on their own and smoke was liftin
 
 The plan for the day is clear: forest-margin scout this morning, wood sorrel and wild garlic to fill those rows before they sit empty any longer. The mist is still on the grass, air cool and heavy with dew. The clearing will go gold in an hour. I'll eat a handful of dried chanterelles and move.
 
+
+### 7:05 AM · Raspberry Canes Found
+
+The mist had mostly lifted by the time I reached the birch-line at the eastern forest edge — still cool in the shadows, dew beading on every leaf. I followed the tree line south, watching underfoot for wood sorrel rosettes or garlic crowns. Found both in smaller patches than I had hoped: three clusters of wood sorrel pressed against a fallen birch, and a scattering of garlic along the bank. But what stopped me was a thicket of raspberry canes I nearly walked past — a loose cluster where the birch opened into a sun gap, waist-high, this year's bright green shoots rising off older brown wood. Not fruiting yet, but the leaves were right and the thorns unmistakable.
+
+I dug three canes with the digging stick, working under the root crowns to keep the pale roots whole. Wrapped them loose in a curl of birch bark to hold moisture. On the way back I stopped at the deep run and reset the fishing line — fresh bait tucked under the rock ledge — then carried the canes home to the garden.
+
+Planted two in row 3, one in row 4. Watered each in with two cook-tin trips from the stream. They lean a little but stand. Raspberries take their time — no fruit this summer — but a cane row come spring means something real. Three western rows still open.
+
