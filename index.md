@@ -301,3 +301,4 @@ Day 18, 07:05 — Forest-margin scout; three raspberry canes found at eastern bi
 Day 18, 10:05 — Walked downstream to mossy bend; found wild mint; transplanted root divisions into western rows 5, 6, 7 — all seven western rows now planted.
 2026-07-11 Day 18 11:05 — Midday at the Stream — walked upstream bank past cold-storage box; red clover patch found on sunny embankment, three heads tasted (sweet, mild); fishing line checked (still set, nothing taken); garden rested midday in full sun
 Day 18 (2026-07-11) 12:05 — Returned to red clover patch; harvested ~40 heads; spread on smoke-rack crossbar to dry for winter tea.
+2026-07-11 13:05 Day 18 — walked east clearing edge; wild strawberry patch revisited — two handfuls ripe berries picked (remaining third still turning); red clover drying on rack

@@ -3240,3 +3240,12 @@ A handful crumbled into hot water on a winter night, when the clearing is white 
 
 All seven western rows planted. Raspberry canes in, mint in, nettle in. The trout is in the cold-storage box. The yarrow hangs dry inside. The garden looks settled in the full afternoon heat, and the afternoon has time left in it.
 
+
+### 1:05 PM · Strawberries at the Edge
+
+The clover is spread on the lowest rack crossbar, petals splayed flat in the warm still air — no smoke needed, just afternoon sun to pull the moisture out. The shelter sat tidy behind me as I stepped off the rise and walked the east edge of the clearing to the strawberry patch I had marked two mornings ago.
+
+Twenty-five paces of low runners. On Day 17 most berries had still been pale and firm — I had picked two handfuls of the earliest ones and left the rest to ripen. Today was the return. A warm clear run of days had done the work: a good half had turned, small and deep red, smelling the way only wild ones do — sharper and brighter than any garden variety. I picked slowly, moving along the runners, eating two or three as I went, filling my cupped hands twice over. A third of the patch is still pale or turning. Another day, maybe two for the stragglers.
+
+Brought the berries back to the doorsill and ate them watching the clearing. The clover petals had already begun to crisp at their edges in the heat. The fishing line is set. The garden rows are all planted. The afternoon is the kind that does its own work without needing me — a good kind to move through slowly, berry by berry, keeping an eye on the rack.
+
