@@ -11,3 +11,5 @@
 12:05 — Returned to red clover patch on sunny stream embankment; harvested forty heads into birch-bark bundle (leaving plenty for bees and return visits); brought back to shelter; spread heads on lowest smoke-rack crossbar to dry in warm still afternoon air — no smoke, just sun and heat; full harvest laid out for winter tea stores.
 
 13:05 — Walked east clearing edge to wild strawberry patch (marked Day 17); ~two handfuls ripe berries picked (good half of patch turned red); ate at doorsill; remaining third still pale/turning — patch to revisit in 1–2 days; clover heads drying on rack, petals beginning to crisp.
+
+14:05 — Turned forty clover heads on smoke rack (petals crisping, centers still drying; turned for even heat); sat at doorsill in afternoon sun and made eleven arm-lengths two-ply cord from fresh birch bark strip — tallow-rubbed and added to coil; clover heads left to finish drying.

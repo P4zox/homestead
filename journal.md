@@ -3249,3 +3249,11 @@ Twenty-five paces of low runners. On Day 17 most berries had still been pale and
 
 Brought the berries back to the doorsill and ate them watching the clearing. The clover petals had already begun to crisp at their edges in the heat. The fishing line is set. The garden rows are all planted. The afternoon is the kind that does its own work without needing me — a good kind to move through slowly, berry by berry, keeping an eye on the rack.
 
+### 2:05 PM · Afternoon Cord and Clover
+
+The afternoon settled into the kind of stillness that makes the clearing feel larger. I went to the smoke rack first — the clover heads had been drying since noon, and the outer petals were crisping at the edges, but the centers still held moisture. I turned each head with two fingers, spreading them better across the crossbar so heat reached the underside. The whole rack smelled of honey and green stem. Forty heads in all, and they will want another hour at least before I trust them to bundle.
+
+After that I sat at the doorsill in the last wide patch of sun that comes through before the pines catch it. Stripped a fresh length of inner birch bark from the bundle in the shelter and split it thin with the knife edge. Two-ply cord comes out of you without much thought once you have done enough of it — fingers twist, strand feeds, the cord grows in the palm. I got eleven arm-lengths from the session, good tension throughout, tallow-rubbed before coiling. Coil added to the bundle.
+
+Good afternoon work. The sort of afternoon that asks nothing except that you stay in it.
+
