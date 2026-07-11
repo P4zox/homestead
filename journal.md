@@ -3365,3 +3365,19 @@ I am lying full-length in the sleeping bag with tomorrow already half-mapped: st
 
 Sleep pulls even as I think it. The last thing I am aware of is the stream and the smell of old woodsmoke and the dark pressing soft against the gable gap. That is enough. That is, in fact, quite a lot.
 
+
+---
+
+# Day 19 — Sunday, 12 July 2026
+*early summer · cool grey pre-dawn; heavy dew; mist lifting; sky clearing*
+
+### 6:05 AM · Grey Line at Dawn
+
+Woke before full light, the gable gap paling from black to grey. The coals had kept a thread of orange under the ash — two pine splits and they took again, a small crackle filling the shelter before I was fully awake.
+
+Pulled on my boots and walked straight to the deep run. The air was cold this morning, colder than yesterday, dew sitting thick on every blade of grass and the birch leaves collecting drops at their tips. The overnight line hung slack under the overhang. No catch. I re-tied the knot, checked the bait, re-notched the alder stick, and left it in the shade.
+
+Walked back past the garden on my way in. The mint clumps in rows five through seven were low and level, no wilt — they are settling in, just quietly. Nettle tips in rows one and two were beaded with dew. Raspberry canes upright in three and four. Garlic second shoots still up on the two bulbs that pushed them. Everything where I left it, everything quiet.
+
+Back at the shelter now with yarrow tea on over the coals. The sky above the pines is turning pale gold at the ridgeline but the sun is not over it yet. Sunday. Day nineteen. The morning feels clean after yesterday's full work — today can move at whatever pace it finds.
+
