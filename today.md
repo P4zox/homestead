@@ -7,3 +7,5 @@
 10:05 — Walked downstream to stream bend east of cold-storage box; found dense wild mint mat at mossy outcrop; dug root divisions with digging stick in dock-leaf wraps; transplanted six clumps into each of western rows 5, 6, and 7 — all seven western rows now planted; watered in with three cook-tin trips each row.
 
 11:05 — Walked downstream to check fishing line at deep run (still set, no catch); followed bank upstream thirty paces past cold-storage box to sunny embankment; found red clover patch in full bloom — pulled three heads and ate fresh (sweet and mild); patch noted for drying; midday rest in warm clearing sun.
+
+12:05 — Returned to red clover patch on sunny stream embankment; harvested forty heads into birch-bark bundle (leaving plenty for bees and return visits); brought back to shelter; spread heads on lowest smoke-rack crossbar to dry in warm still afternoon air — no smoke, just sun and heat; full harvest laid out for winter tea stores.

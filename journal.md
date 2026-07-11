@@ -3229,3 +3229,14 @@ Red clover there — a good patch of it, heads fat and well open, three or four 
 
 The clearing at midday is warm and still. The mist is long gone. In the garden I could see the garlic, the dandelion crowns, the mint clumps — everything sitting quiet and flat in the sun, doing the invisible work of settling in. A good morning's work, and a good place to let it rest a moment.
 
+
+### 12:05 PM · Clover on the Rack
+
+After the morning rush of planting and walking, the noon hour found me loose-limbed and glad of the stillness. I ate those three fresh heads at the embankment and thought: come back with the birch-bark bundle.
+
+So I did. The red clover is full at this time of year — heads round and tight, damp at the base by morning but dry now under the noon sun. I pulled forty-odd, working slowly up the bank, leaving plenty for the bees and the next visit. Brought them back and spread them across the lowest smoke-rack crossbar in the warm still air south of the shelter. No smoke, just sun and heat. By tomorrow evening they will be dry enough to store in the bark bundle with the plantain.
+
+A handful crumbled into hot water on a winter night, when the clearing is white and the stream runs slow under ice — that is what I am building toward. Not abstractly, not "someday." Right now, today, clover on the rack.
+
+All seven western rows planted. Raspberry canes in, mint in, nettle in. The trout is in the cold-storage box. The yarrow hangs dry inside. The garden looks settled in the full afternoon heat, and the afternoon has time left in it.
+
