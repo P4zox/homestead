@@ -3267,3 +3267,16 @@ When the cold comes and the clearing is white and the stream is ice at the edges
 
 The thicker heads still on the stone have maybe an hour of direct light left. I'll bundle them separately before supper and add them to the parcel.
 
+
+### 4:05 PM · Bundle Sealed
+
+The clover heads I moved to the doorsill stone an hour ago — the thick-centered ones that needed a little more sun — were done when I checked them. Papery at the center, light in the palm. I folded them into the bark bundle with the rest, retied both ends, and set it back on the supply shelf between the plantain and the yarrow.
+
+That shelf is starting to look like something. Three bundles of winter medicine and tea: plantain, clover, yarrow. I ran my hand along them briefly, just to feel the row of it.
+
+Then I walked the garden in the leaning afternoon light. Everything transplanted today was still upright. The mint clumps in rows 5, 6, and 7 had not wilted — leaves flat, no curl at the edges. The raspberry canes in rows 3 and 4 stood straight. The nettles in the first two rows looked settled. Even the garlic in the eastern strip still has second shoots reaching up on two bulbs.
+
+All seven western rows planted, the eastern strip established. Standing at the north edge and looking south across the whole plot in the angled light, I felt something close to satisfaction. The garden is done for now — not in the sense that it will not need tending, but in the sense that every row has something in it.
+
+I came back and put a dry pine split on the coals. Supper soon.
+

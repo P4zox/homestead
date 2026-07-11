@@ -15,3 +15,5 @@
 14:05 — Turned forty clover heads on smoke rack (petals crisping, centers still drying; turned for even heat); sat at doorsill in afternoon sun and made eleven arm-lengths two-ply cord from fresh birch bark strip — tallow-rubbed and added to coil; clover heads left to finish drying.
 
 15:05 — Checked clover heads on smoke rack — most fully dry (papery crinkle, no give at center); gathered into birch-bark fold, tied both ends with cord from coil, stored on supply shelf beside plantain; handful of thick-centered heads moved to doorsill stone to finish in direct afternoon sun; will add to bundle before supper.
+
+16:05 — Checked doorsill clover heads — papery and done; folded into main bundle, retied both ends, stored on supply shelf alongside plantain and yarrow (winter tea bundle complete); walked garden in leaning afternoon light — mint clumps in rows 5–7 holding flat, raspberry canes upright, nettle clumps settled in rows 1–2, garlic second shoots still up; came back, put dry pine split on coals for supper fire.
