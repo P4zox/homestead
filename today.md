@@ -29,3 +29,5 @@
 21:05 — Pulled smooth grey stream cobble from supply shelf; sharpened knife by hearth glow — slow ovals on the flat, lighter hiss at the bevel; edge tested, wiped on dried plantain leaf; knife and cobble back on shelf; banked fire with two slow splits; latch bar down; owl called once more upslope.
 
 22:05 — Lying in sleeping bag by banked coals; owl called twice upslope, stream steady through the dark; day fully settled; drifting toward sleep with tomorrow already half-formed.
+
+23:05 — Lying in sleeping bag; coals nearly ash; owl quiet upslope; stream steady through the dark; day fully done; sleep close.

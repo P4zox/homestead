@@ -3356,3 +3356,12 @@ Tomorrow: strawberry patch again if the remaining third has turned. Deep run bef
 
 The coals dim a little and my eyes start closing.
 
+
+### 11:05 PM · Last Light, Still
+
+The coals are nearly ash now — just the faintest orange line at the edge of one split, enough to see the shape of the shelter by. Owl upslope, two short calls, then nothing. Stream going steady through the dark like it always does.
+
+I am lying full-length in the sleeping bag with tomorrow already half-mapped: strawberry patch at first light, fishing line at the deep run, the garden as the dew lifts. Seven western rows planted, winter tea bundled on the shelf, knife edge true. The day was good and complete, and I did not waste it.
+
+Sleep pulls even as I think it. The last thing I am aware of is the stream and the smell of old woodsmoke and the dark pressing soft against the gable gap. That is enough. That is, in fact, quite a lot.
+

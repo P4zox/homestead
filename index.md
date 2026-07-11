@@ -313,3 +313,4 @@ Day 18, 2026-07-11, 20:06 — Stepped outside after cord-making; sat on granite 
 Day 18, 21:05 — Sharpened knife on smooth stream cobble by firelight; coals banked with two slow splits; latch bar down; quiet end to a full day.
 
 Day 18 · 2026-07-11 · 10:05 PM — Night Settles In: lying in sleeping bag, coals banked, owl upslope, stream in the dark; day complete.
+2026-07-11 Day 18 23:05 — Last Light, Still: lying in sleeping bag, coals nearly ash, owl quiet, stream steady; day done and complete.
