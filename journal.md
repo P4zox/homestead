@@ -3343,3 +3343,16 @@ When the edge felt right I wiped the blade on a dried plantain leaf and laid the
 
 Maybe twenty minutes in all. Banked the fire with two slow splits before lying down. Latch bar down. The line is set at the deep run; the garden is fully planted; the tea bundle is on the shelf. I cannot think of a thing left undone tonight. That is a good feeling — a small, plain accounting at the end of a full day.
 
+
+### 10:05 PM · Night Settles In
+
+Lying in the sleeping bag with both hands under my head, watching the faint pulse at the bottom of the hearth. The ash has gone pale over the coals; they will hold until morning. The shelter is close and warm — not summer warm, but the warmth of a built thing that keeps the night out. Through the gable gap, pure darkness and faint stars.
+
+The day was full without being hurried. Mint in, clover dried and bundled and shelved, cord added to the coil, knife edge true. I am aware of all those things sitting where they belong — on the shelf, in the garden rows, coiled on the peg — and the awareness is quiet and good.
+
+An owl called twice from the ridge slope while I was inside. The stream runs steadier at night, or seems to. Nothing to do now but let the darkness work.
+
+Tomorrow: strawberry patch again if the remaining third has turned. Deep run before first light. Garden walk at dawn. Everything else will show itself.
+
+The coals dim a little and my eyes start closing.
+
