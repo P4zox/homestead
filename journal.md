@@ -3319,3 +3319,16 @@ It is a good end to a full day. The last western row went in this morning; all s
 
 The fire pops once and settles. I twist another length, tallow-rub it against my palm, add it to the coil. Nine arm-lengths when I finally set it down. Outside the stream sounds closer in the dark; the fishing line is waiting at the deep run, hook still baited. Everything else is settled in for the night.
 
+
+### 8:06 PM · Stars, Still Air
+
+The cord coil is growing heavier. After the last arm-length was tallow-rubbed I set it on the supply shelf and felt the pull of the open air — the shelter holds warmth now like a living thing, but eight in the evening in high summer is a different kind of warmth outside, the kind that does not press.
+
+Lifted the latch bar and stepped out. The clearing at night in July is something I forget until I am in it: the birch-line faint silver at the edges, the dark spine of the slope behind, the stream audible from here in the stillness. Stars from horizon to horizon — no moon yet, so they come all the way down to the treeline. Cassiopeia already high. The Big Dipper swung well west. I stood at the doorsill long enough to let my eyes adjust, then moved to the flat granite slab south of the shelter and sat.
+
+An owl called once upslope and went quiet. The stream runs with less urgency now than in snowmelt weeks — steadier, lower register. Nothing requiring attention. Nothing asking anything. I sat with elbows on knees and let the night go as it would.
+
+The garden rows are invisible in the dark but I know them by placement: mint clumps in the far western rows, garlic shoots in the east, the strawberry patch beyond the clearing edge. They exist even when I cannot see them, which is most of the time. That is a thing worth knowing about the garden.
+
+Came back in when the dew started settling on my arms. Coals still orange under ash. Latch bar down. Everything where it belongs.
+

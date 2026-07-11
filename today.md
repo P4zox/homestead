@@ -23,3 +23,5 @@
 18:05 — Lifted latch bar and walked down to deep run in warm evening light; overnight line undisturbed — hook still baited, retied on fresh notch in alder stick, settled back under overhang; sat on flat granite slab by the run watching water in last side-light; thrush called upslope, birch understory going grey-green; checked cold-storage box on return — lid firm, weight stone centered, chanterelles good; walked garden at near-dusk — could not make out plants, only rows, all quiet; back in shelter, latch bar down, coals slow orange under ash.
 
 19:05 — Evening cord-making by hearth light; nine arm-lengths two-ply twisted and tallow-rubbed, added to coil; coals holding slow orange under ash; shelter quiet.
+
+20:06 — Lifted latch bar after cord-making and stepped outside into warm still evening; sat on flat granite slab south of shelter; cloudless sky with stars edge to edge and no moon — Cassiopeia high, Dipper swung west; owl called once upslope and went quiet; stream low and steady; dew began settling on arms; came back inside; coals still orange under ash; latch bar down.
