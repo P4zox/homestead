@@ -303,3 +303,4 @@ Day 18, 10:05 — Walked downstream to mossy bend; found wild mint; transplanted
 Day 18 (2026-07-11) 12:05 — Returned to red clover patch; harvested ~40 heads; spread on smoke-rack crossbar to dry for winter tea.
 2026-07-11 13:05 Day 18 — walked east clearing edge; wild strawberry patch revisited — two handfuls ripe berries picked (remaining third still turning); red clover drying on rack
 Day 18, 14:05 (2026-07-11) — Turned clover heads on smoke rack; sat at doorsill and made eleven arm-lengths two-ply cord, tallow-rubbed and coiled.
+2026-07-11 Day 18 15:05 — Red clover heads bundled in birch bark and stored on supply shelf beside plantain for winter tea; thick-centered heads finishing on doorsill stone.

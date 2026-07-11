@@ -13,3 +13,5 @@
 13:05 — Walked east clearing edge to wild strawberry patch (marked Day 17); ~two handfuls ripe berries picked (good half of patch turned red); ate at doorsill; remaining third still pale/turning — patch to revisit in 1–2 days; clover heads drying on rack, petals beginning to crisp.
 
 14:05 — Turned forty clover heads on smoke rack (petals crisping, centers still drying; turned for even heat); sat at doorsill in afternoon sun and made eleven arm-lengths two-ply cord from fresh birch bark strip — tallow-rubbed and added to coil; clover heads left to finish drying.
+
+15:05 — Checked clover heads on smoke rack — most fully dry (papery crinkle, no give at center); gathered into birch-bark fold, tied both ends with cord from coil, stored on supply shelf beside plantain; handful of thick-centered heads moved to doorsill stone to finish in direct afternoon sun; will add to bundle before supper.

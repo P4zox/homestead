@@ -3257,3 +3257,13 @@ After that I sat at the doorsill in the last wide patch of sun that comes throug
 
 Good afternoon work. The sort of afternoon that asks nothing except that you stay in it.
 
+### 3:05 PM · Clover, Bundled
+
+The heads had three hours of warm still air on the rack. I checked each one — rubbed the center between my fingers and listened for the papery crinkle that means the moisture has gone. Most were ready. A handful of the thicker heads still held a little give at their centers; those I set aside on the doorsill stone to finish in the last of the direct sun while I worked with the rest.
+
+The dry ones I gathered into my palm and bundled them loose in a folded length of birch bark, tied at both ends with a short piece of cord from the coil. Not too tight — they need air, not pressure. I set the bundle on the supply shelf beside the plantain parcel. The two packages sit there together now: broad leaves and round heads, both for winter.
+
+When the cold comes and the clearing is white and the stream is ice at the edges, I'll steep these in boiling water from the cook tin and remember today — the stillness of it, the clover smell coming off the rack, the warm stone of the doorsill underfoot in the afternoon sun.
+
+The thicker heads still on the stone have maybe an hour of direct light left. I'll bundle them separately before supper and add them to the parcel.
+
