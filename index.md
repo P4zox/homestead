@@ -299,3 +299,4 @@ Day 17, 2026-07-10, 23:06 — Night reflection; stream running loud with snowmel
 Day 18, 07:05 — Forest-margin scout; three raspberry canes found at eastern birch-line sun gap, transplanted to western garden rows 3–4; fishing line reset at deep run.
 2026-07-11 09:08 — Day 18 — cooked fresh trout and chanterelles over the hearth; ate on the doorsill in morning sun; three garden rows still open
 Day 18, 10:05 — Walked downstream to mossy bend; found wild mint; transplanted root divisions into western rows 5, 6, 7 — all seven western rows now planted.
+2026-07-11 Day 18 11:05 — Midday at the Stream — walked upstream bank past cold-storage box; red clover patch found on sunny embankment, three heads tasted (sweet, mild); fishing line checked (still set, nothing taken); garden rested midday in full sun

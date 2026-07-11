@@ -5,3 +5,5 @@
 09:08 — Cooked the fresh morning trout with dried chanterelles in the cook tin over the hearth; ate sitting on the doorsill in full morning sun while the mist finished lifting off the clearing; three open western garden rows still waiting for afternoon.
 
 10:05 — Walked downstream to stream bend east of cold-storage box; found dense wild mint mat at mossy outcrop; dug root divisions with digging stick in dock-leaf wraps; transplanted six clumps into each of western rows 5, 6, and 7 — all seven western rows now planted; watered in with three cook-tin trips each row.
+
+11:05 — Walked downstream to check fishing line at deep run (still set, no catch); followed bank upstream thirty paces past cold-storage box to sunny embankment; found red clover patch in full bloom — pulled three heads and ate fresh (sweet and mild); patch noted for drying; midday rest in warm clearing sun.

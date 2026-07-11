@@ -3218,3 +3218,14 @@ All seven western rows planted now. The garden doesn't look like much yet — lo
 
 Stood at the north edge for a moment before coming back. Light striking the transplants, water soaking in. Quiet.
 
+
+### 11:05 AM · Midday at the Stream
+
+The morning spent itself well. Seven rows planted, the whole western section given its inhabitants — nettles, raspberries, mint settling in while the soil is still warm and loose from recent digging. After the third cook-tin trip to water in the mint clumps I stood and stretched and found I had nothing pressing. So I walked down to the stream without a plan, just to check the line and breathe a little.
+
+The deep run was quiet. Line still set, no tension, nothing taken. I crouched at the bank and watched a small fish drift through the shallows upstream of the hook, nosing at the algae-green stones and choosing not to investigate the bait. The water here is cold even now — the snowmelt from upslope keeps the temperature down through July, which is why the cold-storage box works. I followed the bank upstream maybe thirty paces past the box, picking along where the ground rises above the waterline into a low sunny embankment.
+
+Red clover there — a good patch of it, heads fat and well open, three or four bees working the nearest crowns. I pulled three heads and chewed them on the walk back. Sweet, a little grassy, a faint green bitterness at the center. Useful to know. Dried clover flower makes a mild tea; on the cold nights that are still coming — and they are always still coming — it would be something warm that cost me almost nothing. I marked the spot in my mind. Not every find has to be urgent.
+
+The clearing at midday is warm and still. The mist is long gone. In the garden I could see the garlic, the dandelion crowns, the mint clumps — everything sitting quiet and flat in the sun, doing the invisible work of settling in. A good morning's work, and a good place to let it rest a moment.
+
