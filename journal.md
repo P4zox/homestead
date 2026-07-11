@@ -3280,3 +3280,16 @@ All seven western rows planted, the eastern strip established. Standing at the n
 
 I came back and put a dry pine split on the coals. Supper soon.
 
+
+### 5:05 PM · Supper at the Doorsill
+
+The coals had been waiting on a single pine split since mid-afternoon, patient and orange by the time I came back from the garden. Good timing, or close enough to it.
+
+I went up to the cold-storage box, lifted the bark lid with both hands, and felt the cool seep off the water. The smoked trout was in its bark wrapper, still firm from the morning smoke, dark amber along the skin. I pulled out a handful of dried chanterelle caps alongside it — the tin still has good supply — and set the lid back and weighted it with the flat stone.
+
+In the cook tin over the coals, the trout flaked into the chanterelles with a little stream water. The smell that came up was smoke and forest and something roasted at the edges. I sat in the doorway and watched the clearing. The mint in rows five, six, and seven was invisible at this angle, but the garlic tips caught the last slant of sun and held it gold for a moment. Raspberry canes standing straight. Everything I put in the ground today still in the ground.
+
+Ate with the door open. The sky was deep blue — cloudless still, warm. After I rinsed the cook tin at the stream I stood there a moment longer than needed, listening to the water move over the stones. A good day to account for: all seven western rows planted, clover bundled and stored, wild strawberries sweet on the tongue in the afternoon. Fire waiting when I got back each time.
+
+Banked the coals with two slow-burn pieces for the night. The latch bar is down.
+

@@ -17,3 +17,5 @@
 15:05 — Checked clover heads on smoke rack — most fully dry (papery crinkle, no give at center); gathered into birch-bark fold, tied both ends with cord from coil, stored on supply shelf beside plantain; handful of thick-centered heads moved to doorsill stone to finish in direct afternoon sun; will add to bundle before supper.
 
 16:05 — Checked doorsill clover heads — papery and done; folded into main bundle, retied both ends, stored on supply shelf alongside plantain and yarrow (winter tea bundle complete); walked garden in leaning afternoon light — mint clumps in rows 5–7 holding flat, raspberry canes upright, nettle clumps settled in rows 1–2, garlic second shoots still up; came back, put dry pine split on coals for supper fire.
+
+17:05 — Fetched smoked trout (bark-wrapped) and dried chanterelle caps from cold-storage box; heated together in cook tin over hearth coals; ate supper at doorsill in last afternoon light; rinsed cook tin at stream; banked fire — two slow-burn pieces over coals; latch bar down.
