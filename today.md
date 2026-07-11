@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 
 06:05 — Woke to grey pre-dawn light through the gable gap; cold air and dew-smell; two pine splits coaxed the coals back; walked to deep run at first light — overnight line undisturbed, hook still baited, no catch; re-notched alder stick and left line set; walked back past garden — all rows undisturbed, dew heavy on mint clumps and nettle tips, raspberry canes upright, garlic second shoots still up; cold-storage box lid firm; returned to shelter; yarrow tea on over the coals; sun not yet over the ridge; morning quiet and cool.
+07:05 — Yarrow tea at doorsill while sun cleared the pine ridge; walked east strawberry patch — remaining third turned overnight, three handfuls picked, ate most standing at the patch (warm and sweet, a small abundance); patch largely spent now, left to reset; returned to doorsill; morning bright and warming; fishing line still set at deep run.

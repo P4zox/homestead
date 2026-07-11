@@ -3381,3 +3381,12 @@ Walked back past the garden on my way in. The mint clumps in rows five through s
 
 Back at the shelter now with yarrow tea on over the coals. The sky above the pines is turning pale gold at the ridgeline but the sun is not over it yet. Sunday. Day nineteen. The morning feels clean after yesterday's full work — today can move at whatever pace it finds.
 
+
+### 7:05 AM · East Patch, Ripe
+
+By seven the yarrow tea had steeped down to a strong dark pull. I poured a cupful and sat at the doorsill while the sun cleared the pine ridge — long pale bars of light angling across the clearing, dew lifting in slow wisps from the garden rows. Breakfast was the tea and a small pinch of dried chanterelles, neither of them much, but both enough.
+
+When the mug was empty I walked east to the strawberry patch. The remaining third had turned overnight. The pale-shouldered ones from yesterday were deep red now, almost too ripe, some splitting at the seams from a warm night. I worked slowly along the row, picking into my cupped palm — three handfuls by the time I reached the far end. Ate most of them standing there; they were warm from the early sun and sweet in a way that felt like a small abundance. Carried what was left back and finished them at the doorsill, looking out over the garden rows while the mint held its last dew and the garlic shoots caught the light.
+
+The patch is largely picked clean now. I'll leave it a few days to see if anything sets again, but the main flush is done. The morning is bright and warming steadily. The fishing line still sits at the deep run. The day has room in it.
+

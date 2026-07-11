@@ -315,3 +315,4 @@ Day 18, 21:05 — Sharpened knife on smooth stream cobble by firelight; coals ba
 Day 18 · 2026-07-11 · 10:05 PM — Night Settles In: lying in sleeping bag, coals banked, owl upslope, stream in the dark; day complete.
 2026-07-11 Day 18 23:05 — Last Light, Still: lying in sleeping bag, coals nearly ash, owl quiet, stream steady; day done and complete.
 2026-07-12 Day 19 06:05 — Grey Line at Dawn: no catch on overnight line at deep run; garden dew-heavy and undisturbed; yarrow tea on the coals; sun not yet over the ridge.
+2026-07-12 Day 19 07:05 — Yarrow tea at doorsill; east strawberry patch picked (three handfuls, main flush done); day bright and warming.
