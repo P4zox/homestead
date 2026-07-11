@@ -3194,3 +3194,14 @@ I dug three canes with the digging stick, working under the root crowns to keep 
 
 Planted two in row 3, one in row 4. Watered each in with two cook-tin trips from the stream. They lean a little but stand. Raspberries take their time — no fruit this summer — but a cane row come spring means something real. Three western rows still open.
 
+
+### 9:08 AM · Morning Meal, Doorsill
+
+Came back from the garden rows with the sun climbing and decided the trout from the overnight line had waited long enough. It had been in the cold-storage box since dawn — eight inches, cleaned at the streamside, bark-wrapped and cool. Brought it up to the shelter with a handful of dried chanterelles from the supply shelf and built the cook fire back up from low coals.
+
+One dry pine split was enough. The coals underneath caught fast, and the small flame evened out in a few minutes to something steady and useful. A splash of stream water into the cook tin, chanterelles dropped in to soften, trout laid alongside, a sheet of bark set over the top to hold the steam. I stood at the hearth watching the bark sides of the tin darken from moisture and the smell shift from raw to something close to ready.
+
+Ten minutes, maybe a little more. The chanterelles had puffed and darkened. The trout flesh turned white-opaque, came away clean from the spine when I pressed the knife tip into the thickest part. I carried the tin to the doorsill and ate there — bark lid inverted as a makeshift plate, knife working the fish apart from the bone. A jay called once from the pines upslope and then went quiet. The last of the cool mist smell was burning off the east clearing edge, and the light had gone from grey to full morning gold.
+
+Simple meal. The kind that settles the morning into place. The food stores are holding well — smoked trout still in the box alongside today's fresh catch, chanterelles good, the garden undisturbed and slowly taking hold. Three western rows still open for whenever the afternoon light comes down off its sharpest angle. There's no rush. The hearth is banked low, the door is open, and the stream is running constant below the clearing. A good hour to eat and let the rest wait.
+
