@@ -3293,3 +3293,20 @@ Ate with the door open. The sky was deep blue — cloudless still, warm. After I
 
 Banked the coals with two slow-burn pieces for the night. The latch bar is down.
 
+
+### 6:05 PM · Long Light, Running Water
+
+After supper, the clearing held its warmth like a cupped hand. I lifted the latch bar and stepped back out into it — the light still golden at this hour in early summer, the shadows long and blue-edged across the grass.
+
+The path to the stream has started to show itself: a slight pale track through the green where I have walked it enough times now. I followed it down to the deep run without rushing. The overnight line was undisturbed — hook still baited, which meant no evening strike yet. I retied it on a fresh notch in the alder stick and let it settle back under the overhang where the trout hold in shadow.
+
+I sat on the flat granite slab beside the run for a while. Not working, not counting what I have or what I still need — just watching. The water was low enough now that the big submerged stone near the opposite bank showed at its crown. Snowmelt is finished; the stream is running on its own now, whatever deep rain it has stored in the hill. It moves quieter than it did a month ago.
+
+A single thrush called somewhere up in the pines, held it for four or five notes, then stopped. The birch understory across the bank was already going grey-green where the direct light had left it. The pines above caught the last orange side-light on their bark and glowed.
+
+I checked the cold-storage box on my way back — lid firm, weight stone still centered. The dried chanterelles inside smell right: earthy, a little sweet, that dusty warmth that means they have cured properly. I did not take any. Just wanted to know they were there.
+
+Passed the garden in near-dusk. Could not make out the individual plants anymore, only the rows — the bare soil between clumps a shade lighter than the grass beyond the border stones. Everything was quiet.
+
+Back inside now, latch bar down again. The coals have held a slow orange under the ash. Tomorrow will come with whatever it brings. Tonight the tea bundle is on the shelf, the fish line is set, and the shelter smells faintly of woodsmoke and dried yarrow. I am, by any honest measure, alright.
+
