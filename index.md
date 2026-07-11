@@ -310,3 +310,4 @@ Day 18, 17:05 — Supper: smoked trout and dried chanterelles at doorsill in las
 
 [2026-07-11] Day 18, 19:05 — Evening cord-making by hearth light; nine arm-lengths twisted and tallow-rubbed; garden fully planted, winter tea shelved; fishing line set overnight at deep run.
 Day 18, 2026-07-11, 20:06 — Stepped outside after cord-making; sat on granite slab under cloudless summer stars; owl once upslope; stream steady and low; dew settled; back inside with coals still orange and latch bar down.
+Day 18, 21:05 — Sharpened knife on smooth stream cobble by firelight; coals banked with two slow splits; latch bar down; quiet end to a full day.

@@ -25,3 +25,5 @@
 19:05 — Evening cord-making by hearth light; nine arm-lengths two-ply twisted and tallow-rubbed, added to coil; coals holding slow orange under ash; shelter quiet.
 
 20:06 — Lifted latch bar after cord-making and stepped outside into warm still evening; sat on flat granite slab south of shelter; cloudless sky with stars edge to edge and no moon — Cassiopeia high, Dipper swung west; owl called once upslope and went quiet; stream low and steady; dew began settling on arms; came back inside; coals still orange under ash; latch bar down.
+
+21:05 — Pulled smooth grey stream cobble from supply shelf; sharpened knife by hearth glow — slow ovals on the flat, lighter hiss at the bevel; edge tested, wiped on dried plantain leaf; knife and cobble back on shelf; banked fire with two slow splits; latch bar down; owl called once more upslope.

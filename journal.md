@@ -3332,3 +3332,14 @@ The garden rows are invisible in the dark but I know them by placement: mint clu
 
 Came back in when the dew started settling on my arms. Coals still orange under ash. Latch bar down. Everything where it belongs.
 
+
+### 9:05 PM · Edge by Firelight
+
+After stepping back in from the granite slab, the shelter felt close and warm after all that sky. I pulled the smooth grey stream cobble from the supply shelf — I have been meaning to use it for days. The knife had dulled slightly from all the bark-stripping and clover stems: not urgently, but enough that I feel the difference when I press a thumbnail to the edge.
+
+I sat with the cobble in my lap and worked the blade in slow ovals by the hearth glow. The sound is particular — a thin whisper on the flat, then a lighter hiss at the edge bevel. No rush. The coals are orange and low and not going anywhere. Outside, the owl called again from somewhere upslope. Same voice or another; hard to say.
+
+When the edge felt right I wiped the blade on a dried plantain leaf and laid the knife back on the shelf. The cobble goes back too. Small thing, well done.
+
+Maybe twenty minutes in all. Banked the fire with two slow splits before lying down. Latch bar down. The line is set at the deep run; the garden is fully planted; the tea bundle is on the shelf. I cannot think of a thing left undone tonight. That is a good feeling — a small, plain accounting at the end of a full day.
+
