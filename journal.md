@@ -3205,3 +3205,16 @@ Ten minutes, maybe a little more. The chanterelles had puffed and darkened. The 
 
 Simple meal. The kind that settles the morning into place. The food stores are holding well — smoked trout still in the box alongside today's fresh catch, chanterelles good, the garden undisturbed and slowly taking hold. Three western rows still open for whenever the afternoon light comes down off its sharpest angle. There's no rush. The hearth is banked low, the door is open, and the stream is running constant below the clearing. A good hour to eat and let the rest wait.
 
+
+### 10:05 AM · Mint Along the Bend
+
+After the meal I took the digging stick and walked downstream — no particular urgency, just the sense that those three open rows were ready to receive something and the warm morning still had cool air in it near the water.
+
+Twenty paces past the cold-storage box the stream bends east, slowing against a mossy outcrop. That bend has always been damp and shaded, and I wondered if mint might grow there. It did. A dense mat of it along the margin, stems no taller than my hand, root mass threaded through dark wet soil just below the surface. The smell when I crouched and pinched a leaf was immediate — cool and sharp against the warm air.
+
+I dug root divisions with the digging stick, keeping the soil clustered around each clump. Wrapped them in a wide dock leaf and carried them back in four trips. Row five first, then six and seven — each one pressed in firm, heeled down with the back of my hand, watered from three cook-tin trips. Six clumps to each row, roughly spaced.
+
+All seven western rows planted now. The garden doesn't look like much yet — low shoots, some still settling — but it has a shape I can read: nettles in front, raspberries at the back, mint at the far end. The east strip is more scattered — garlic, dandelion, sorrel — but it's filling in with its own logic.
+
+Stood at the north edge for a moment before coming back. Light striking the transplants, water soaking in. Quiet.
+

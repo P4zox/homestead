@@ -298,3 +298,4 @@ Day 17, 2026-07-10, 23:06 — Night reflection; stream running loud with snowmel
 2026-07-11 (Day 18, 06:05) — New day; taut overnight line at deep run; 8-inch trout cold-stored; garden undisturbed; five open western rows; forest-margin scout planned.
 Day 18, 07:05 — Forest-margin scout; three raspberry canes found at eastern birch-line sun gap, transplanted to western garden rows 3–4; fishing line reset at deep run.
 2026-07-11 09:08 — Day 18 — cooked fresh trout and chanterelles over the hearth; ate on the doorsill in morning sun; three garden rows still open
+Day 18, 10:05 — Walked downstream to mossy bend; found wild mint; transplanted root divisions into western rows 5, 6, 7 — all seven western rows now planted.
