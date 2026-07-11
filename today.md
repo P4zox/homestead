@@ -21,3 +21,5 @@
 17:05 — Fetched smoked trout (bark-wrapped) and dried chanterelle caps from cold-storage box; heated together in cook tin over hearth coals; ate supper at doorsill in last afternoon light; rinsed cook tin at stream; banked fire — two slow-burn pieces over coals; latch bar down.
 
 18:05 — Lifted latch bar and walked down to deep run in warm evening light; overnight line undisturbed — hook still baited, retied on fresh notch in alder stick, settled back under overhang; sat on flat granite slab by the run watching water in last side-light; thrush called upslope, birch understory going grey-green; checked cold-storage box on return — lid firm, weight stone centered, chanterelles good; walked garden at near-dusk — could not make out plants, only rows, all quiet; back in shelter, latch bar down, coals slow orange under ash.
+
+19:05 — Evening cord-making by hearth light; nine arm-lengths two-ply twisted and tallow-rubbed, added to coil; coals holding slow orange under ash; shelter quiet.

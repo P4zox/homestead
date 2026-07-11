@@ -3310,3 +3310,12 @@ Passed the garden in near-dusk. Could not make out the individual plants anymore
 
 Back inside now, latch bar down again. The coals have held a slow orange under the ash. Tomorrow will come with whatever it brings. Tonight the tea bundle is on the shelf, the fish line is set, and the shelter smells faintly of woodsmoke and dried yarrow. I am, by any honest measure, alright.
 
+
+### 7:05 PM · Cord by Firelight
+
+The shelter is quiet. Coals in the corner put out orange light through a thin layer of ash, just enough to work by without adding another split. I have settled against the west wall with the bark strip bundle across my knees and started twisting — steady pull and roll, the cord building arm-length by arm-length.
+
+It is a good end to a full day. The last western row went in this morning; all seven planted now, the garden closed and waiting on whatever the soil decides. Red clover dried by afternoon, bundled and shelved beside the plantain and yarrow. The winter tea row is complete — three bundles in a line on the supply shelf, enough to matter when January comes.
+
+The fire pops once and settles. I twist another length, tallow-rub it against my palm, add it to the coil. Nine arm-lengths when I finally set it down. Outside the stream sounds closer in the dark; the fishing line is waiting at the deep run, hook still baited. Everything else is settled in for the night.
+
