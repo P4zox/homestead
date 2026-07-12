@@ -324,3 +324,4 @@ Day 19, 12:05 — Tended smoke rack smolder at midday; light lunch of wood sorre
 Day 19, 13:05 — Smoke rack tended (caps progressing, gill-rows darkening); fourteen arm-lengths of two-ply cord twisted in east wall shade.
 Day 19 (2026-07-12) 14:05 — Two smoke-dried chanterelle caps pulled from rack and cold-stored; fishing line checked at deep run, no catch, re-set.
 Day 19, 15:05 — Descended into root cellar during afternoon heat; stone floor cold, daub walls dry, stores inventoried — caps, trout, tea bundle all sound; emerged to the cold seep, listened to the stream.
+2026-07-12 16:05 Day 19 — bark vessel formed in afternoon shade; corner seams stitched with cord, pine resin sealed on inner seams, curing for supper

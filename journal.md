@@ -3479,3 +3479,14 @@ It is not winter. It is high summer and the garden is growing and the stream is 
 
 The jay called once upslope. The strawberry patch is resting. Six caps wait by the hearth for tonight.
 
+
+### 4:05 PM · First Vessel
+
+The afternoon heat has eased just enough to work. I settled into the east-wall shade with the bark bundle and the coil — the cord-making yesterday reminded me I have been wanting a proper vessel, not just the cook tin and folded bark scraps. Something to carry mushrooms, berries, water.
+
+I chose the widest piece — a sheet about the width of my two hands, kept pliable wrapped against the inside wall. Scored a fold along the centre, then bent each end up in a boat shape, overlapping the corners and piercing them through with the knife tip. Stitched the corner seams with two-ply cord, pulling each loop snug. The pine resin bead from this morning went next: held near the coals until soft, thumb-smeared along both inner seams while still tacky. It will cure through supper; I will test it with water by morning.
+
+It is not much to look at. The sides flare where I wanted them straight, and one corner seam has more tension than the other. But it held its shape when I lifted it, and it has the right intention — a real thing, not just a folded scrap. There is something particular about making a container: it means you expect to carry something back.
+
+The sun is off the garden rows now. Six chanterelles by the hearth, ready for dusk.
+
