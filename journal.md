@@ -3490,3 +3490,12 @@ It is not much to look at. The sides flare where I wanted them straight, and one
 
 The sun is off the garden rows now. Six chanterelles by the hearth, ready for dusk.
 
+
+### 5:05 PM · Low Light, Supper Starting
+
+Walked to the deep run in the slanted late-afternoon light — the alder notch undisturbed, hook sitting clean in the current, bait still whole. No catch. Reset the notch, left the line to ride overnight. On the way back I walked the stream bank north a short stretch, where the light falls thin through the birch and the shallows run slow and cold near the cold seep. A handful of watercress growing from the mud there — dark green and sharp-smelling, roots already in cold water. Pinched it free, rinsed it at the seep, folded it into a bark scrap to carry back.
+
+Back at the shelter the hearth coals were still alive under their grey skin. Two pine splits, a breath or two, and the fire came up properly. Set the cook tin over it with a splash of stream water and the six chanterelle caps — they'll steam rather than fry in this heat, which suits them. The smell of them warming fills the shelter in a way that is starting to feel ordinary and good, the way woodsmoke once did, the way cold stone does at dawn.
+
+The bark vessel in the east-wall shade is holding its shape. The pine resin on the inner seams has set to a dull tack — no more give when I press a thumbnail against it. Tomorrow morning I'll fill it from the run and see if it holds. For now: supper on, long light over the clearing, the fishing line out, and nothing left urgent to do before dark.
+

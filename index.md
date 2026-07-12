@@ -325,3 +325,4 @@ Day 19, 13:05 — Smoke rack tended (caps progressing, gill-rows darkening); fou
 Day 19 (2026-07-12) 14:05 — Two smoke-dried chanterelle caps pulled from rack and cold-stored; fishing line checked at deep run, no catch, re-set.
 Day 19, 15:05 — Descended into root cellar during afternoon heat; stone floor cold, daub walls dry, stores inventoried — caps, trout, tea bundle all sound; emerged to the cold seep, listened to the stream.
 2026-07-12 16:05 Day 19 — bark vessel formed in afternoon shade; corner seams stitched with cord, pine resin sealed on inner seams, curing for supper
+[2026-07-12 17:05] Day 19 — Checked fishing line at deep run (no catch, reset overnight); gathered watercress from stream bank near cold seep; chanterelle caps set to steam in cook tin over hearth; bark vessel resin set to dull tack — water test in the morning.
