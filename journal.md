@@ -3536,3 +3536,14 @@ Stood barefoot at the doorstep for a minute or two. The night was warm enough it
 
 Went back inside and barred the latch. The bark vessel sat firm. Everything I have is small but sound. Sleep came back easily.
 
+
+### 10:05 PM · Deep of Night
+
+Surfaced again past ten — not fully awake, just near enough to feel the shelter warm around me and hear the total stillness outside. Coals gone dark now, no glow at all. The bark vessel is a shape in the east-wall shadow, set firm, waiting for morning. The fishing line somewhere out at the deep run — I trust it by now, the way you trust something you have reset enough times it has become habit.
+
+No owl tonight. One cricket still going past the cold-storage box. The gable gap showed a strip of sky, and the stars still moving their slow way west.
+
+Tomorrow will come. Bark vessel. Fishing line. Garden. The hands will remember the order before I do.
+
+Sleep came back before I finished the thought.
+

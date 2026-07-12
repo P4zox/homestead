@@ -330,3 +330,4 @@ Day 19, 2026-07-12, 18:05 — Supper at doorsill: chanterelle caps and watercres
 2026-07-12 19:05 — Day 19 · Cord and Quiet — cord-making by hearth light; eleven arm-lengths two-ply added to coil; bark vessel resin set firm; fishing line at deep run overnight.
 2026-07-12 Day 19 20:05 — Stepped outside after cord-work to watch first stars appear over pine ridge; stood at clearing edge in warm still air; Cassiopeia shaping up, cricket starting south of cold-storage box; barred latch, coals banked for the night.
 2026-07-12 21:05 Day 19 — Still Night, Stars Full — Woke briefly in the warm night; stepped to the doorsill; Milky Way overhead, garden rows silver-dark, everything sound; returned to sleep.
+Day 19, 22:05 — Second waking in the deep of night; coals gone dark; bark vessel set firm in east-wall shadow; one cricket still past cold-storage box; gable gap framed stars moving west; sleep returned.
