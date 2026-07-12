@@ -327,3 +327,4 @@ Day 19, 15:05 — Descended into root cellar during afternoon heat; stone floor 
 2026-07-12 16:05 Day 19 — bark vessel formed in afternoon shade; corner seams stitched with cord, pine resin sealed on inner seams, curing for supper
 [2026-07-12 17:05] Day 19 — Checked fishing line at deep run (no catch, reset overnight); gathered watercress from stream bank near cold seep; chanterelle caps set to steam in cook tin over hearth; bark vessel resin set to dull tack — water test in the morning.
 Day 19, 2026-07-12, 18:05 — Supper at doorsill: chanterelle caps and watercress from cook tin, broth drunk in long evening light; smoke rack cold; bark vessel curing; fishing line set overnight at deep run.
+2026-07-12 19:05 — Day 19 · Cord and Quiet — cord-making by hearth light; eleven arm-lengths two-ply added to coil; bark vessel resin set firm; fishing line at deep run overnight.

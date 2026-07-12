@@ -3508,3 +3508,7 @@ The smoke rack has gone cold — nothing left to smoke — and the column that d
 
 I sat a while after, tin cooling on my knee, listening. One thrush high in the pines. The stream pulling steady over its stones. A jay settling somewhere in the birch stand upslope. Evening like a cloth drawn over the day. Tomorrow the bark vessel gets its water test. Tonight: cord by hearth light, then sleep.
 
+### 7:05 PM · Cord and Quiet
+
+The coals from supper were still good when I pulled the bark bundle close and settled against the west wall. Two-ply cord, started in the afternoon and still warm in the hands — rolled between palms, left then right, tightening into itself with each pass. Firelight this hour is golden and small, just enough to work by. The pine splits catch, settle, send smoke straight up through the gable gap into the dark above. Outside: nothing moving, no breeze, the thrush long since quiet. I worked steadily until the fire dropped to a soft glow — eleven arm-lengths added to the coil, tight and even, no weak splices. The day felt complete at supper; this was just the last useful hour of it, hands busy while the mind went easy. Bark vessel holds its shape in the east-wall shadow, resin set firm. Fishing line bowing at the deep run. When the coals soften to ash I will bar the latch and sleep. Tomorrow: water-test the vessel at first light.
+
