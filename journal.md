@@ -3547,3 +3547,7 @@ Tomorrow will come. Bark vessel. Fishing line. Garden. The hands will remember t
 
 Sleep came back before I finished the thought.
 
+### 11:05 PM · Last Stars, Still
+
+Third waking — barely a waking at all: a long breath, eyes open to the gable gap, stars at their highest arc beginning the slow wheel west. The clearing warm and perfectly still. Cricket still going past the cold-storage box, steady and unhurried. Bark vessel firm in its corner, pine resin set to dull tack. Cord coil heavy on the shelf. Fishing line somewhere in the dark water at the deep run. Everything I meant to do today got done; everything tomorrow asks can wait until morning light. Sleep returned before the thought finished.
+
