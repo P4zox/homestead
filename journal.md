@@ -3525,3 +3525,14 @@ There is something in standing in a place you made and feeling it quiet at your 
 
 I went back inside, pulled the door shut, and dropped the latch bar. The coals will hold through till first light.
 
+
+### 9:05 PM · Still Night, Stars Full
+
+Woke in the warmth — shelter dark, coals nearly grey, bark vessel waiting in the east-wall shadow for tomorrow's water test. Lay still a moment: only the faint rush of the stream and the cricket, still calling past the cold-storage box.
+
+Lifted the latch bar and leaned the door aside. The Milky Way was running straight overhead, edge to edge, the way it only shows on nights without a breath of wind. Every star hard and fixed. Cassiopeia still northwest. The garden rows dark below, invisible but known — garlic, dandelions, nettles thickening, mint that smells faintly even without touching. The smoke rack a black silhouette against the sky.
+
+Stood barefoot at the doorstep for a minute or two. The night was warm enough it cost nothing to stand still in it. Far upslope, one pine shivered in a breath I couldn't feel at clearing height. No owl. No animals. The fishing line somewhere in the dark at the deep run, still waiting.
+
+Went back inside and barred the latch. The bark vessel sat firm. Everything I have is small but sound. Sleep came back easily.
+
