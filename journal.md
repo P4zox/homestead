@@ -3468,3 +3468,14 @@ Three hours over the birch smolder was enough. I lifted the two caps from the sm
 Then I walked to the deep run to check the fishing line, as I'd planned. The line still bowed in the current; the alder notch was undisturbed. Nothing had taken the hook. I watched the water under the overhang for a moment — dark and cold even in this heat — then re-notched the stick and left it set. There's time. The line works while I don't.
 
 The afternoon is the quietest part of the day here. Smoke still drifting off the rack, but the main work is done. Six smaller caps by the hearth for supper, cord coil growing, garden undisturbed in the heat. I'm not restless. There's enough.
+
+### 3:05 PM · Into the Cool Dark
+
+The heat pressed full weight on the clearing by mid-afternoon — no wind, the smoke column from the now-empty rack barely moving, trailing south over the garden rows in a slow lean. I pulled the weighted bark lid off the root cellar and went down into the cool dark. Not for any urgent reason, just to get out of the sun and see how things stood.
+
+The stone floor holds the chill remarkably well. The wattle-and-daub walls on all three sides were dry to the touch, no sign of moisture creep, the daub set hard and smooth as it was after the second coat cured weeks ago. The cellar smelled of cold earth and bark and something faintly sweet — the smoke-dried chanterelles from the cold-storage box upstream, maybe, or just the accumulated memory of every small thing stored here. I crouched in the dimness and took account: the stores are still modest, but they are real. A good supply of smoke-dried caps, building slowly. Two batches of trout cold-stored and held. The tea bundle on the supply shelf inside the shelter. A root cellar that stays cold through the hottest part of the day.
+
+It is not winter. It is high summer and the garden is growing and the stream is running clear. But the root cellar already feels less like an empty space I dug and more like a promise I have made to myself about January — the dark months that are coming regardless of how warm it is right now. I climbed back out into the afternoon light, which felt almost loud after the quiet dark, set the weighted bark lid back in place, and stood a moment by the cold seep with my feet in the moss, listening to water run over stones.
+
+The jay called once upslope. The strawberry patch is resting. Six caps wait by the hearth for tonight.
+
