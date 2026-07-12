@@ -3499,3 +3499,12 @@ Back at the shelter the hearth coals were still alive under their grey skin. Two
 
 The bark vessel in the east-wall shade is holding its shape. The pine resin on the inner seams has set to a dull tack — no more give when I press a thumbnail against it. Tomorrow morning I'll fill it from the run and see if it holds. For now: supper on, long light over the clearing, the fishing line out, and nothing left urgent to do before dark.
 
+
+### 6:05 PM · Supper at Doorsill
+
+The chanterelles had been steaming for the better part of an hour when I lifted the tin and breathed the broth — mushroom-rich and a little green from the watercress laid across the caps. I brought it to the doorsill and ate there, sitting on the sill with legs dangling and the evening settling around me.
+
+The smoke rack has gone cold — nothing left to smoke — and the column that drifted all afternoon has stopped. Garden rows are still in the long last light. Nettles, mint, raspberry canes, garlic — all of them dark and undisturbed. The chanterelles were tender, the watercress sharp enough to cut the richness, and I ate every drop of broth.
+
+I sat a while after, tin cooling on my knee, listening. One thrush high in the pines. The stream pulling steady over its stones. A jay settling somewhere in the birch stand upslope. Evening like a cloth drawn over the day. Tomorrow the bark vessel gets its water test. Tonight: cord by hearth light, then sleep.
+
