@@ -3390,3 +3390,16 @@ When the mug was empty I walked east to the strawberry patch. The remaining thir
 
 The patch is largely picked clean now. I'll leave it a few days to see if anything sets again, but the main flush is done. The morning is bright and warming steadily. The fishing line still sits at the deep run. The day has room in it.
 
+
+### 8:05 AM · Deadfall Check
+
+The dew was still heavy in the shade when I ducked into the birch-pine margin, axe left at the shelter — just the knife and a folded bark-scrap for gathering. The chanterelle patch at the birch deadfall is a ten-minute walk east along the stream, then a short angle upslope through a stand of younger birch where the light comes in dappled.
+
+I found the deadfall log quieter than I'd hoped. The second-flush caps I pulled two days ago had left clean cuts, and the mycelium needs time. Only three small pins were showing — too young to take, barely thumb-width. I crouched and looked at them for a moment. They'll be ready in another two or three days if the weather holds warm and the morning dews keep coming.
+
+But the margin rewarded the walk anyway. Twenty paces further north along the birch line, where a second log lies half-buried in leaf duff, I found a cluster I hadn't noticed before — eight chanterelle caps, most of them two fingers wide, wavy-edged and egg-yolk gold. Older growth on a log I'd walked past before without stopping. I took them clean with the knife and folded them into the bark scrap.
+
+On the way back, I spotted a handful of wood sorrel in the cool shadow of a mossy granite slab. Not enough to bother transplanting, but I pinched a few sprigs for the cook tin. There is more food here than I find each time — the forest keeps showing me things I missed.
+
+Back at the shelter by mid-morning, I spread the eight caps on the cold-storage box lid to look at them in the light. Good firm flesh, no soft spots. Enough for a real meal tonight, and maybe enough to smoke two or three of the largest ones for the store.
+

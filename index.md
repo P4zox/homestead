@@ -316,3 +316,4 @@ Day 18 · 2026-07-11 · 10:05 PM — Night Settles In: lying in sleeping bag, co
 2026-07-11 Day 18 23:05 — Last Light, Still: lying in sleeping bag, coals nearly ash, owl quiet, stream steady; day done and complete.
 2026-07-12 Day 19 06:05 — Grey Line at Dawn: no catch on overnight line at deep run; garden dew-heavy and undisturbed; yarrow tea on the coals; sun not yet over the ridge.
 2026-07-12 Day 19 07:05 — Yarrow tea at doorsill; east strawberry patch picked (three handfuls, main flush done); day bright and warming.
+Day 19, 08:05 — Foraged forest margin east of birch-pine line; found new chanterelle cluster on second buried log (8 caps, good size); three pins left on deadfall to grow; wood sorrel gathered; food stored for supper.
