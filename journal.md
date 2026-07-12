@@ -3438,3 +3438,16 @@ I built the smoke fire south of the shelter — a small green-birch-scrap pile c
 
 The six smaller caps are on a bark scrap near the hearth, waiting for supper. The fishing line is still set at the deep run; I will check it mid-afternoon. Cook at dusk with whatever the day has given.
 
+
+### 12:05 PM · Midday Shade
+
+The sun had climbed to its full height, and the clearing went still with it. No breeze. The smoke from the rack rose straight up in a pale thread and curled lazily south over the garden rows.
+
+I added two short lengths of green birch to the smolder beneath the rack and watched the caps — the two largest darkening slowly at the edges, moisture still visible at the underside gill-rows. Another few hours. They were in no hurry, and I was in no hurry to push them.
+
+Lunch was wood sorrel sprigs on a flat river stone, bright and sour, pleasant in the heat. I poured a little water from the tin over a pinch of dried chanterelle crumbled off the cold-storage supply, let it steep while I sat in the doorway shadow. The broth came out amber and faintly earthy; I drank it slowly, watching the smoke thread rise and bend.
+
+The garden sat quiet. No wind to move the mint or stir the nettle tips. Long light over everything, and the distant sound of the stream finding its way over the stones.
+
+I let myself sit through the full midday hour without a plan. The caps are smoking. The line is set. The rows are watered. The world does not require anything of me right now. I can be here in the shade of the doorway, in no particular urgency, and that is enough.
+

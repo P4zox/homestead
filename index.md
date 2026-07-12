@@ -320,3 +320,4 @@ Day 19, 08:05 — Foraged forest margin east of birch-pine line; found new chant
 2026-07-12 09:05 — Day 19: Watered all seven garden rows (four cook-tin trips); transplants holding — nettles greening, garlic darkening, mint spreading; fishing line still set.
 Day 19, 10:05 — Walked pine-birch slope upslope; found flat granite shelf overlook with clearing view; noted fallen birch and standing birch stand as future resource; collected pine resin bead.
 2026-07-12 11:05 Day 19 — Sorted chanterelle caps; two largest on smoke rack over birch smolder; six for supper.
+Day 19, 12:05 — Tended smoke rack smolder at midday; light lunch of wood sorrel and chanterelle broth at doorsill; rested in peak-heat shade; two caps still smoking steadily.
