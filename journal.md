@@ -3569,3 +3569,12 @@ Then the vessel test. Filled it at the shallows and crouched there watching. A m
 
 Two good pieces of news before the morning warmed. The fish goes on the smoke rack. The vessel goes on the shelf with the rest of the tools — it works now. That's what I needed to know.
 
+
+### 7:05 AM · Morning Fire
+
+The morning was still holding its cool when I pulled the flint from the shelf and crouched to the hearth. The trout from the overnight line — small, fresh, nothing to store — deserved a fire more than the smoke rack. I clipped two garlic stems from the eastern strip and gathered a handful of wood sorrel from the border, then nested the fish in the cook tin with the garlic pressed flat against it and the sorrel scattered over. Two flat river stones held the tin above the coals, and I let it sit while the yarrow tea steeped in the bark vessel on the hearthside stone.
+
+The sun came up over the east ridge while the fish cooked — that particular pale gold it makes when it first clears the trees and falls across the doorsill. By the time the trout was white and flaking apart at the touch, the tea was cool enough to drink. I took both to the doorsill and ate there with the bark vessel warm in my hands. The garden rows were still dark-damp from yesterday's four trips to the stream. A blackbird called twice from the birch-line and went quiet.
+
+Some mornings ask little of you. The fire, the fish, the tea, the sun moving at its own pace across the stones. I finished both and sat a while longer than I needed to, watching the light reach the smoke rack and the tops of the stacked wood against the east wall. Then I rinsed the tin at the stream, reset it on the shelf, and put out the hearthfire coals with a little stream water. The day is still early.
+
