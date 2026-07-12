@@ -3512,3 +3512,16 @@ I sat a while after, tin cooling on my knee, listening. One thrush high in the p
 
 The coals from supper were still good when I pulled the bark bundle close and settled against the west wall. Two-ply cord, started in the afternoon and still warm in the hands — rolled between palms, left then right, tightening into itself with each pass. Firelight this hour is golden and small, just enough to work by. The pine splits catch, settle, send smoke straight up through the gable gap into the dark above. Outside: nothing moving, no breeze, the thrush long since quiet. I worked steadily until the fire dropped to a soft glow — eleven arm-lengths added to the coil, tight and even, no weak splices. The day felt complete at supper; this was just the last useful hour of it, hands busy while the mind went easy. Bark vessel holds its shape in the east-wall shadow, resin set firm. Fishing line bowing at the deep run. When the coals soften to ash I will bar the latch and sleep. Tomorrow: water-test the vessel at first light.
 
+
+### 8:05 PM · First Stars, Still Air
+
+The coals had settled to a quiet orange bed — no more feeding needed; they would carry till morning. The cord work was done for the night, the coil proper and heavy now. I picked up my tin cup and stepped outside.
+
+The clearing was warm and perfectly still. Not even a tremor in the smoke rack crossbars. The sky to the east had deepened to something between blue and dark — not quite night yet — and the first stars had come: a bright one over the pine ridge, then two more, then a slow scatter I stood and counted until I stopped counting. Cassiopeia was already shaping up in the north.
+
+I walked to the far edge of the clearing and stood there a little while. Open ground falling away south into shadow; the cabin a dark shape behind me; the gable gap a pale square where the hearth breathed. I could not see the garden rows but I knew where each one ran — the nettles roughening in the first two, the mint edging outward through five, six, and seven. Somewhere past the cold-storage box a cricket started up.
+
+There is something in standing in a place you made and feeling it quiet at your back. The bark vessel is curing in the east-wall shade; tomorrow it meets water. The line is set in the dark at the deep run. The stores are sound.
+
+I went back inside, pulled the door shut, and dropped the latch bar. The coals will hold through till first light.
+
