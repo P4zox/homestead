@@ -3429,3 +3429,12 @@ No mushrooms up top — too dry, too much duff. A few unrecognized woody caps un
 
 Slipped a little on the dry needles descending. Reached the doorsill late morning. The clearing felt wide and bright after the dark pine shade, and the chanterelles were still there waiting.
 
+
+### 11:05 AM · Smoke and Sort
+
+The eight caps were still fanned out on the cold-storage lid, right where I had left them after coming down from the overlook. The late-morning light was direct now, picking up the gold in the gill-faces. I sorted through them slowly — pressing the flesh of each one between thumb and forefinger. Six came away yielding, smaller and softer, the kind that cook fast and well over a fire. Two stood apart: heavier, with a thumb-width of firm cap at the crown. Those are the ones worth smoking.
+
+I built the smoke fire south of the shelter — a small green-birch-scrap pile coaxed to a low, cool smolder before arranging the two large caps gill-side-down on the ridgepole. White smoke curled up and drifted south. Birch smoke is pale and clean. It will take a few hours to pull the moisture out properly. I stood in the drift for a moment and it smelled of the forest going into the cold season — a smell I am beginning to associate with preparation, with things being taken care of.
+
+The six smaller caps are on a bark scrap near the hearth, waiting for supper. The fishing line is still set at the deep run; I will check it mid-afternoon. Cook at dusk with whatever the day has given.
+
