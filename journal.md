@@ -3451,3 +3451,12 @@ The garden sat quiet. No wind to move the mint or stir the nettle tips. Long lig
 
 I let myself sit through the full midday hour without a plan. The caps are smoking. The line is set. The rows are watered. The world does not require anything of me right now. I can be here in the shade of the doorway, in no particular urgency, and that is enough.
 
+
+### 1:05 PM · Smoke and Cord
+
+Came out of the midday rest with the sun still high and the clearing bone-still. The two large chanterelle caps had been on the rack for two hours — I lifted the edge of each to check: gill-rows still moist but darkening at the tips now, edges beginning to curl inward. Going right. Tucked them back, worked a birch split tip-first into the smolder's heart and blew once to wake the coals. The pale smoke thickened and drifted south again in its slow column over the garden rows.
+
+I settled into the east wall's shade with the cord bundle in my lap. Twisted fourteen arm-lengths of fresh two-ply this afternoon — birch bark strips split thin as thread and rolled against my thigh in slow, even pulls. The cord grows without hurry. There is something right about this kind of work: hands occupied, mind loose, smoke overhead, the forest quiet at the clearing edge. Nothing to hear but insects and one jay calling somewhere upslope.
+
+Mid-afternoon I'll walk to the deep run and check the line. For now — shade, and cord, and summer.
+
