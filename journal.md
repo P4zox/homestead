@@ -3412,3 +3412,20 @@ I stood at the south end when I was done and looked the whole plot over. Seven r
 
 Stopped at the deep run on the way back to refill the tin for drinking. The fishing line bowed in the current where the water rounds the overhang — untouched. I left it. The chanterelle caps were still on the cold-storage box lid when I got home. I will sort them after midday — smoke the two or three largest and save the rest for supper tonight.
 
+
+### 10:05 AM · Upslope, Mid-Morning
+
+The chanterelles were spread on the cold-storage lid and the garden was watered and the sun was climbing fast. I left everything where it was and walked upslope.
+
+I have looked at that pine ridge every morning through the gable gap and thought about it without ever going. Most of my ranging has been toward the stream and east along the birch margin — where the food is. But this morning I had an hour and no urgent thing to do, so I went up.
+
+The first band is birch, younger and close-spaced, the ground soft with old leaves. Then the pines open up — older trees, taller, more air between them, the floor dry needle-duff and root humps. Cooler by several degrees. Light through there is patchy and soft instead of open-clearing bright, and I was glad of it.
+
+Two things worth knowing. A stand of five straight white birch about forty paces up, and across their roots a dry fallen birch — fifteen feet or so, not punky, bark intact. Too much fuel already stacked, so I left it, but it is there when I need it: good bark for a vessel someday, or tinder, or more weatherproofing if the roof ever wants it.
+
+Farther up, twenty paces past the birch stand, the slope pushes out a flat granite shelf at chest height, maybe six feet wide and nearly level. I stepped up onto it. South, past the birch tops: the cabin roof, the garden rows looking small and orderly from above, the smoke rack dark against the green edge of the clearing, and beyond it the meadow falling open all the way to the sky. I had not seen my own place from outside before. It looked like something that belonged here.
+
+No mushrooms up top — too dry, too much duff. A few unrecognized woody caps under the fallen birch that I left alone. On the way back down, one bead of resin on a broken pine branch, amber and firm — tucked into my knife sheath fold for tinder or waterproofing when the need comes.
+
+Slipped a little on the dry needles descending. Reached the doorsill late morning. The clearing felt wide and bright after the dark pine shade, and the chanterelles were still there waiting.
+

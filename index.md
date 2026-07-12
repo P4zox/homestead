@@ -318,3 +318,4 @@ Day 18 · 2026-07-11 · 10:05 PM — Night Settles In: lying in sleeping bag, co
 2026-07-12 Day 19 07:05 — Yarrow tea at doorsill; east strawberry patch picked (three handfuls, main flush done); day bright and warming.
 Day 19, 08:05 — Foraged forest margin east of birch-pine line; found new chanterelle cluster on second buried log (8 caps, good size); three pins left on deadfall to grow; wood sorrel gathered; food stored for supper.
 2026-07-12 09:05 — Day 19: Watered all seven garden rows (four cook-tin trips); transplants holding — nettles greening, garlic darkening, mint spreading; fishing line still set.
+Day 19, 10:05 — Walked pine-birch slope upslope; found flat granite shelf overlook with clearing view; noted fallen birch and standing birch stand as future resource; collected pine resin bead.
