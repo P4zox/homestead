@@ -3403,3 +3403,12 @@ On the way back, I spotted a handful of wood sorrel in the cool shadow of a moss
 
 Back at the shelter by mid-morning, I spread the eight caps on the cold-storage box lid to look at them in the light. Good firm flesh, no soft spots. Enough for a real meal tonight, and maybe enough to smoke two or three of the largest ones for the store.
 
+
+### 9:05 AM · Tending the Rows
+
+Four trips from the deep run with the cook tin, one for every two rows. I tipped the water gently at the base of each transplant — nettles first in rows one and two, then the raspberry canes in three and four, then the long mint stretch in five, six, and seven, then the garlic and dandelion and wood sorrel in the eastern strip. The nettles had some color in their pale tips now, a proper green coming through. The raspberry canes stood without leaning. The mint had spread just slightly at the edges — or maybe the morning light made it seem so. The garlic shoots in the eastern strip were darkening, which I take as a good sign; the dandelion crowns were holding, the wood sorrel along the north shadow zone looked settled and at ease.
+
+I stood at the south end when I was done and looked the whole plot over. Seven rows, all planted, all holding. I had not stopped to feel much while I was digging and hauling and transplanting — it was just the next work in the order it needed doing. But standing there with an empty tin and the sun past the ridge-line and the garden alive in front of me, I felt something clean and uncomplicated. This ground is going to feed me into the cold months. Not certain, but real enough to stand on.
+
+Stopped at the deep run on the way back to refill the tin for drinking. The fishing line bowed in the current where the water rounds the overhang — untouched. I left it. The chanterelle caps were still on the cold-storage box lid when I got home. I will sort them after midday — smoke the two or three largest and save the rest for supper tonight.
+
