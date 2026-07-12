@@ -3551,3 +3551,21 @@ Sleep came back before I finished the thought.
 
 Third waking — barely a waking at all: a long breath, eyes open to the gable gap, stars at their highest arc beginning the slow wheel west. The clearing warm and perfectly still. Cricket still going past the cold-storage box, steady and unhurried. Bark vessel firm in its corner, pine resin set to dull tack. Cord coil heavy on the shelf. Fishing line somewhere in the dark water at the deep run. Everything I meant to do today got done; everything tomorrow asks can wait until morning light. Sleep returned before the thought finished.
 
+
+---
+
+# Day 20 — Monday, 13 July 2026
+*early summer · clear dawn; pale gold over east ridge; dew on garden leaves; air cool and fresh; cloudless sky*
+
+### 6:05 AM · Line and Vessel
+
+Dawn came pale and cool, dew on every leaf in the garden rows. I lifted the latch bar and stepped out barefoot into grey-gold air — the east ridge just beginning to hold colour, the clearing still and quiet around me.
+
+The bark vessel was where I'd left it against the east wall, firm in the shadow. I tucked it under my arm and walked down to the deep run.
+
+The line was bowing in the current, alder notch still notched — and when I lifted it there was weight. A trout, seven inches, clean and bright, had taken the hook overnight. Cleaned it at streamside and set the guts on a flat stone in the shallows for whatever comes after.
+
+Then the vessel test. Filled it at the shallows and crouched there watching. A minute, then two. No seeping, no beading along the seams — the pine resin had done its work. I carried it back to the shelter full, water clear inside, the birch bark holding its shape without complaint.
+
+Two good pieces of news before the morning warmed. The fish goes on the smoke rack. The vessel goes on the shelf with the rest of the tools — it works now. That's what I needed to know.
+

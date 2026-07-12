@@ -332,3 +332,4 @@ Day 19, 2026-07-12, 18:05 — Supper at doorsill: chanterelle caps and watercres
 2026-07-12 21:05 Day 19 — Still Night, Stars Full — Woke briefly in the warm night; stepped to the doorsill; Milky Way overhead, garden rows silver-dark, everything sound; returned to sleep.
 Day 19, 22:05 — Second waking in the deep of night; coals gone dark; bark vessel set firm in east-wall shadow; one cricket still past cold-storage box; gable gap framed stars moving west; sleep returned.
 Day 19, 23:05 — Third waking in the still night; stars wheeling west through gable gap; Day 19 complete and at rest.
+2026-07-13 Day 20 06:05 — Checked overnight line at deep run (seven-inch trout caught, cleaned); bark vessel water-tested at shallows — holds, no seep; both working before the morning warmed.
