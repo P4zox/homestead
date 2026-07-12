@@ -322,3 +322,4 @@ Day 19, 10:05 — Walked pine-birch slope upslope; found flat granite shelf over
 2026-07-12 11:05 Day 19 — Sorted chanterelle caps; two largest on smoke rack over birch smolder; six for supper.
 Day 19, 12:05 — Tended smoke rack smolder at midday; light lunch of wood sorrel and chanterelle broth at doorsill; rested in peak-heat shade; two caps still smoking steadily.
 Day 19, 13:05 — Smoke rack tended (caps progressing, gill-rows darkening); fourteen arm-lengths of two-ply cord twisted in east wall shade.
+Day 19 (2026-07-12) 14:05 — Two smoke-dried chanterelle caps pulled from rack and cold-stored; fishing line checked at deep run, no catch, re-set.

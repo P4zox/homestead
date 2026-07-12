@@ -3460,3 +3460,11 @@ I settled into the east wall's shade with the cord bundle in my lap. Twisted fou
 
 Mid-afternoon I'll walk to the deep run and check the line. For now — shade, and cord, and summer.
 
+
+### 2:05 PM · Caps Ready, Line Quiet
+
+Three hours over the birch smolder was enough. I lifted the two caps from the smoke rack at mid-afternoon — gill-rows dark and uniform, edges curled tight, flesh dry and firm all the way through when I pressed them. No give. They're done. I wrapped them in a bark fold and laid them in the cold-storage box beside the earlier supply.
+
+Then I walked to the deep run to check the fishing line, as I'd planned. The line still bowed in the current; the alder notch was undisturbed. Nothing had taken the hook. I watched the water under the overhang for a moment — dark and cold even in this heat — then re-notched the stick and left it set. There's time. The line works while I don't.
+
+The afternoon is the quietest part of the day here. Smoke still drifting off the rack, but the main work is done. Six smaller caps by the hearth for supper, cord coil growing, garden undisturbed in the heat. I'm not restless. There's enough.
