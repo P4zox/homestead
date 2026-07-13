@@ -3645,3 +3645,14 @@ I set the vessel upright on the shelf to cure and rinsed the tin immediately in 
 
 Afternoon light coming in low through the door gap. The smolder at the smoke rack has mostly gone to ash — I'll stir it later. For now the shelter is warm and quiet, the cord coil sitting on the shelf beside the vessel, the one chanterelle cap still bark-wrapped and waiting. A good midday hour.
 
+
+### 2:05 PM · Afternoon Basket
+
+The bark vessel sits curing on the shelf, the smolder has gone to ash, and the afternoon is all mine. I pulled a bundle of the thinner young birch withies — the ones cut too short for lashing — and carried them to the east-wall shade with a simple intention: weave something to carry a harvest in.
+
+The berry season is building. The blueberry patch upslope is maybe a week from full flush; the chanterelle buried log still has active mycelium pushing toward another pin flush. Right now I carry harvest in bark folds or cupped hands, and it works, but a basket would make the trips easier and keep mushrooms from bruising.
+
+The base came first: three pairs of withies crossed flat and woven through at center, tied briefly with a cord scrap to hold the spoke-star in place. Bent the spokes up and began weaving in splits — over-one-under-one — the rhythm of it settling into something almost meditative in the shade. The basket rose green and supple. By the time the afternoon shadow moved off the east wall, I had a shape that stands on its own: roughly hand-span wide and deep enough to carry a good chanterelle flush without stacking them.
+
+The rim still needs finishing — if I leave it overnight the withies will dry crooked and lock. But the structure is there. Something useful made from a single afternoon of shade work; the simplest kind of satisfaction.
+
