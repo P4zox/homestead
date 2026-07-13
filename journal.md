@@ -3612,3 +3612,14 @@ Then I kept going. The pines thickened above the shelf — older trees, lower br
 
 Turned back when the slope steepened. The clearing came back slowly as I descended: smoke, garden rows, the cabin steady on the northwest rise. Arrived to find the chanterelle smolder still even — birch shavings just beginning to grey at the edges.
 
+
+### 11:05 AM · Three Hours of Smoke
+
+The two chanterelle caps have been on the rack since just past eight. Coming back from the slope I had a feeling they were ready — three hours of green birch smolder is usually enough.
+
+They were. Pressed them both between thumb and forefinger: firm through, no give, that faint dry creak that means the moisture is gone. Lifted them off the crossbar and carried them to the cold-storage box, laid them flat on the bark of the existing stack. Good weight in them for their size, good color — darker than fresh, amber-edged at the gills, the smell faintly sweet and smoky at once.
+
+Added a small pinch of green birch shavings to keep the smolder alive at low heat. The single cap on the cool shelf is for tonight's supper; the rack can breathe at its own pace until the afternoon gives me something new to put up.
+
+Back inside for a moment of shade. The bark vessel on the shelf still holds morning water — I have not needed to refill it yet. Small satisfactions like that are worth noting.
+

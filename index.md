@@ -337,3 +337,4 @@ Day 19, 23:05 — Third waking in the still night; stars wheeling west through g
 Day 20, 08:06 — Three chanterelle pins harvested from birch deadfall patch; two on smoke rack, one bark-wrapped for tonight's supper; buried log mycelium active.
 2026-07-13 09:05 — Day 20: walked all seven garden rows — garlic settled, dandelion wide, wood sorrel content, nettles showing first new pale shoots in rows 1–2, raspberry canes watered, mint runners pinched; chanterelles still smoking.
 2026-07-13 10:05 — Day 20 — Climbed upslope past granite shelf; found wild blueberry patch (~60 paces behind shelter) and noted a large rotting fallen pine as a future fungi site; ate a handful of blueberries on the way back.
+2026-07-13 Day 20, 11:05 — Smoke rack checked; two chanterelle caps cold-stored after three hours of green birch smolder; rack kept at low heat for afternoon.
