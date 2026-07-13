@@ -3589,3 +3589,17 @@ I swung twenty paces north on the way back, to the buried log where yesterday's 
 
 Back at the shelter I sorted: the two larger caps laid on the smoke rack over a small handful of fresh green birch shavings. The smoke rose thin and white in the still air — the kind that barely seems to move until you step back and see it drifting south across the clearing. The smaller cap I bark-wrapped and set on the cool shelf inside. Tonight's supper already decided before the morning had properly warmed.
 
+### 9:05 AM · Rows and Smoke
+
+The two chanterelle caps on the smoke rack had the clearing smelling of earth and woodsmoke, birch shavings smoldering low and even. I left them to it and walked the garden in the morning cool — dew still beading on the north-facing leaves, sun only just beginning to catch the western rows.
+
+Wild garlic is the most settled. Both rows of eight are standing straight; I pressed the soil around a few bases where the dew had made a light crust, and it broke soft and dark beneath my fingers. The dandelion leaves are wide and flat across the eastern strip, soaking up whatever light they can before the day gets hot. Wood sorrel is compact and bright along the shadow line of the north border, exactly where I placed it and content to stay.
+
+The nettles in rows one and two I watch most carefully. They felt more like negotiating than transplanting when I moved them, and they still carry a slightly wary look — but there are a few new pale-green shoots pushing between the older stems in the first row. That is the sign I was waiting for.
+
+Raspberry canes in rows three and four are sulky. Upright, alive, but not yet reaching for anything. I pressed fresh soil firmly around each base and carried three cook-tins of cold water up from the deep run to water them in. They will find their footing in their own time; I just have to be patient with them.
+
+Mint is doing the opposite of sulking. Rows five through seven already have runners spreading along the surface — reaching sideways before the roots below have earned it. I pinched back a few tips so the energy goes down instead of out.
+
+Back at the smoke rack: caps still firm, smoke still thin and white, shavings still smoldering even. I added a small pinch of fresh birch shavings to keep the smolder honest, then put the digging stick back inside the shelter door and stood a moment in the sun at the doorsill. The clearing was quiet. The trout was already eaten; the chanterelles were working; the garden was doing what gardens do.
+
