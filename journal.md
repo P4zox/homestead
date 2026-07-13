@@ -3656,3 +3656,12 @@ The base came first: three pairs of withies crossed flat and woven through at ce
 
 The rim still needs finishing — if I leave it overnight the withies will dry crooked and lock. But the structure is there. Something useful made from a single afternoon of shade work; the simplest kind of satisfaction.
 
+
+### 3:06 PM · Rim Tucked, Basket Done
+
+The withies had been sitting an hour in east-wall shade and were still just pliable — there's a narrow window after cutting when birch holds enough moisture to bend without splitting, and I had just enough of it left. I came back to the basket at the late-afternoon cool and folded each spoke tip in turn: bent down, tucked under the last weft row, tamped firm with my thumbnail. Seven spokes, seven tucks. The rim locked itself as I went around.
+
+When I set it down in the doorway light, it stood on its own and did not spring or sag. Hand-span wide, just deep enough for a good chanterelle flush. I will bring it upslope when the blueberries peak — a few more days, I think, and the patch will be ready. Having something to carry the harvest in feels different from eating whatever I can cup in two hands.
+
+The chanterelle cap on the cool shelf is waiting for supper. The afternoon is still and very bright.
+
