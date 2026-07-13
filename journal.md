@@ -3691,3 +3691,12 @@ Pulled the latch bar and stepped inside out of the lowering sun. The chanterelle
 
 Afterward I rinsed the tin at the stream and reset the fishing line at the deep run with fresh bait — a good notch in the bank overhang, line taut in the current. Came back to a shelter that already felt different from when I started: the basket proven, the bark vessel sealed, the cord coil growing, the blueberry patch waiting. The hearth coals are still warm. I will twist cord until the light is fully gone, then sleep on it.
 
+
+### 6:05 PM · Cord by Hearth-Glow
+
+Supper done, cook tin rinsed at the stream, fishing line re-notched and laid in the deep run for the night. I came back inside, pulled the door to without latching it — enough to settle the air — and added two dry pine sticks to the banked coals. A small flame woke without smoke. The first stars were just coming out over the clearing when I sat down on the floor beside the hearth.
+
+The cord bundle unrolled easily. Inner birch bark, stripped and split to thin even ribbons — I work each half away from me with the heel of the palm, then roll them back together toward me, a two-ply twist that tightens as it goes. The motion lives in the hands now; I do not have to think about it. The fire holds its warmth, the shelter smells of resin and coals, and the cord grows by arm-length increments on the floor beside me.
+
+Twelve arm-lengths by the time my hands asked for rest. The coil is substantial now — more than I will need for lashing in the short term, which is a satisfying kind of excess. I set the coil on the shelf, banked the coals to low orange, and listened to the night settle around the cabin. The trout line is in the water. Tomorrow the blueberry patch needs one more day, and the day after that it will be ready.
+
