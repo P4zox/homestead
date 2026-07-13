@@ -339,3 +339,4 @@ Day 20, 08:06 — Three chanterelle pins harvested from birch deadfall patch; tw
 2026-07-13 10:05 — Day 20 — Climbed upslope past granite shelf; found wild blueberry patch (~60 paces behind shelter) and noted a large rotting fallen pine as a future fungi site; ate a handful of blueberries on the way back.
 2026-07-13 Day 20, 11:05 — Smoke rack checked; two chanterelle caps cold-stored after three hours of green birch smolder; rack kept at low heat for afternoon.
 Day 20, 2026-07-13, 12:05 — Walked pine-birch slope in midday shade; scraped pine resin from axe notches, broken limbs, and bark cracks; birch-bark fold of resin stored on shelf beside bark vessel.
+Day 20, 13:05 — Heated pine resin in cook tin; applied second waterproofing coat to bark vessel outer seams; vessel set to cure on shelf; resin fold still half-full.

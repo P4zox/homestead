@@ -3634,3 +3634,14 @@ Back down through the shade, past the granite shelf. The blueberry patch was on 
 
 The resin fold is on the shelf beside the bark vessel now. Good for the next seam that opens, or the next vessel I build. The smolder at the smoke rack held the whole time.
 
+
+### 1:05 PM · Pine Pitch, Second Pass
+
+Banked the hearth coals down to a low red bed and set the cook tin over them with a thumbnail of pine resin dropped in — just the soft beads first, to see how the heat took it. It went liquid faster than I expected, pale gold then amber, releasing that sharp pine smell that fills the whole shelter. I tipped in one of the thicker runs and stirred with a green birch twig, keeping the tin barely on the coals so it never smoked or darkened.
+
+When the consistency felt right — fluid but not watery, threading a little off the twig — I lifted the tin off the coals and carried it carefully to the doorsill where the light was good. The bark vessel sat open in my palm. I worked the warm resin along both outer seams with the twig tip, pressing the liquid into every stitch hole and fold, then running a second bead over the top of the first coat wherever the birch bark had begun to dry and slightly pale. The resin cooled quickly in the air and set firm and matte, not sticky.
+
+I set the vessel upright on the shelf to cure and rinsed the tin immediately in the stream — resin cleans off metal easily while warm. The remaining resin in the birch-bark fold is still good, still half-full. The vessel looks sealed properly now, the seams dark and tight. I think it will hold a full night of water without any seep.
+
+Afternoon light coming in low through the door gap. The smolder at the smoke rack has mostly gone to ash — I'll stir it later. For now the shelter is warm and quiet, the cord coil sitting on the shelf beside the vessel, the one chanterelle cap still bark-wrapped and waiting. A good midday hour.
+
