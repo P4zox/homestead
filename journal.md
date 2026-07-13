@@ -3684,3 +3684,10 @@ A thrush was singing somewhere above me in the pines — long slow phrases with 
 
 The basket will be ready when the berries are.
 
+
+### 5:05 PM · Supper at the Doorsill
+
+Pulled the latch bar and stepped inside out of the lowering sun. The chanterelle cap was where I had left it — bark-wrapped on the cool shelf, still firm and smelling of smoke and forest. Struck flint to tinder, fed dry pine splits until the coals built red and even, then laid the cap in the cook tin with a splash of water and two stems of wild garlic snipped from the garden. The cap curled and darkened at the edges; the garlic went soft in the heat and the whole tin smelled better than anything I could name. Ate sitting in the open doorway with the tin resting on my knee, watching the copper light travel up the west ridge and slowly go out.
+
+Afterward I rinsed the tin at the stream and reset the fishing line at the deep run with fresh bait — a good notch in the bank overhang, line taut in the current. Came back to a shelter that already felt different from when I started: the basket proven, the bark vessel sealed, the cord coil growing, the blueberry patch waiting. The hearth coals are still warm. I will twist cord until the light is fully gone, then sleep on it.
+
