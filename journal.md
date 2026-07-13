@@ -3578,3 +3578,14 @@ The sun came up over the east ridge while the fish cooked — that particular pa
 
 Some mornings ask little of you. The fire, the fish, the tea, the sun moving at its own pace across the stones. I finished both and sat a while longer than I needed to, watching the light reach the smoke rack and the tops of the stacked wood against the east wall. Then I rinsed the tin at the stream, reset it on the shelf, and put out the hearthfire coals with a little stream water. The day is still early.
 
+
+### 8:06 AM · Chanterelle Pins
+
+The morning was clear and I had nothing pressing until the smoke rack needed tending later, so after rinsing the cook tin at the stream I put it under my arm and walked the path down to the birch deadfall.
+
+The three pins I left to grow were ready. All of them had opened out since the day before — caps spread wide, pale gold, edges still dry and sound. I cut each cleanly at the base with the knife, turned them over, checked for soft spots. None. The patch is reliable; I am glad I found it.
+
+I swung twenty paces north on the way back, to the buried log where yesterday's eight caps came up. No new pins yet, but the wood there is pale and threaded through with white mycelium all along the top surface. Active. I'll give it another two or three days.
+
+Back at the shelter I sorted: the two larger caps laid on the smoke rack over a small handful of fresh green birch shavings. The smoke rose thin and white in the still air — the kind that barely seems to move until you step back and see it drifting south across the clearing. The smaller cap I bark-wrapped and set on the cool shelf inside. Tonight's supper already decided before the morning had properly warmed.
+
