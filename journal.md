@@ -3739,3 +3739,14 @@ Got up quietly, lifted the latch bar, stepped to the doorsill. The sky was all s
 
 Came back in, fitted the latch bar into its keeper, lay down again. Sleep is right at the edge — I can feel it. Tomorrow can begin when it needs to.
 
+
+### 11:06 PM · Night Settling
+
+Lying on the sleeping bag with the shelter dark around me. The coals have gone fully to ash — there is no glow left in the hearth corner, only the faint smell of clean pine smoke that has soaked into the bark and timber of this place over twenty days. The latch bar is settled in its keeper. The axe is on its peg, head re-wedged and solid. The bark vessel is on the shelf. I know all of this without opening my eyes.
+
+Somewhere down past the gable, the trout line is hanging in the dark over the deep run. In two days the blueberries will be ready — I thought about the basket's rim, how tight and clean it came out, how the berries will sit in it.
+
+Then the thoughts came softer and slower, as they do when sleep is close. Twenty days. A cabin with a door that shuts. A root cellar. A smoke rack. A cord coil growing substantial on the shelf. A garden with seven rows in it.
+
+Then nothing. Sleep took me before I could finish the count.
+

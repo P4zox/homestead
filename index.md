@@ -349,3 +349,4 @@ Day 20, 16:05 — Took new basket to blueberry patch; south-facing clusters at p
 Day 20, 20:06 — Axe head re-wedged with heartwood wedge (kerf-seated, flush-trimmed, solid); six more arm-lengths added to cord coil; everything stowed; coals banked.
 2026-07-13 21:06 Day 20 — Late-evening taking stock by low coals; quiet inventory of what is built and held; blueberry harvest two days out
 2026-07-13 22:06 — Day 20 — Stepped to doorsill at late hour; stood under stars (Dipper tilting west, Cassiopeia near zenith); latch bar fitted; sleep at edge.
+Day 20, 23:06 — Lay in dark shelter; coals to ash; latch bar in keeper; final thoughts drifted over twenty days of building — sleep came.
