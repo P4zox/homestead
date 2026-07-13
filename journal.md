@@ -3603,3 +3603,12 @@ Mint is doing the opposite of sulking. Rows five through seven already have runn
 
 Back at the smoke rack: caps still firm, smoke still thin and white, shavings still smoldering even. I added a small pinch of fresh birch shavings to keep the smolder honest, then put the digging stick back inside the shelter door and stood a moment in the sun at the doorsill. The clearing was quiet. The trout was already eaten; the chanterelles were working; the garden was doing what gardens do.
 
+
+### 10:05 AM · Upslope, past the shelf
+
+Left the smoke rack with a fresh pinch of green birch shavings and climbed the slope behind the shelter. The birch stand came first — five trunks straight and clean, their bark smooth and papery under my hand. I did not harvest; only looked and noted. Above them the ground flattened briefly onto the granite shelf I found yesterday, and I stood there a moment looking south: the cabin roof, the garden rows, the smoke rack with its thin thread rising and bending west. Everything accounted for from up here.
+
+Then I kept going. The pines thickened above the shelf — older trees, lower branches long dead, the floor spongy with decades of needles. Quiet in a different way than the clearing; deeper, cooler. Twenty paces past the shelf, then ten more, scanning the ground. Found a patch of wild blueberry — small low bushes, still bearing; berries small and dark and tart, not quite at peak but close. Picked a loose double handful, eating half as I walked. Found a single large fallen pine across a shallow depression, its underside already soft with rot — a good sign for fungi later in the season; I will come back to it in a few weeks. Noted the spot.
+
+Turned back when the slope steepened. The clearing came back slowly as I descended: smoke, garden rows, the cabin steady on the northwest rise. Arrived to find the chanterelle smolder still even — birch shavings just beginning to grey at the edges.
+
