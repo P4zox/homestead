@@ -3731,3 +3731,11 @@ What comes next is the blueberry harvest — the whole patch in two days, both s
 
 I close my eyes. The air is warm and still and the clearing is dark. Sleep won't be long.
 
+### 10:06 PM · Latch Bar Down
+
+Past ten o'clock, coals banked to pale ash. I had been lying still for an hour with eyes open — not quite sleeping yet, just listening to the night come fully into itself. The stream murmur sounds louder in the dark; it fills in the space where the birds were. Something shifted in the fir-tops once, a breath of air that never reached the clearing.
+
+Got up quietly, lifted the latch bar, stepped to the doorsill. The sky was all stars — the Dipper tilting west now, lower than at supper; Cassiopeia steady near zenith, the five points clear. Air warm and unmoving. Stood there a few minutes just breathing. Fishing line at the deep run. Blueberries two days off up the slope. Garden asleep in the dark below. Everything where I left it.
+
+Came back in, fitted the latch bar into its keeper, lay down again. Sleep is right at the edge — I can feel it. Tomorrow can begin when it needs to.
+

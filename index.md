@@ -348,3 +348,4 @@ Day 20, 16:05 — Took new basket to blueberry patch; south-facing clusters at p
 2026-07-13 Day 20 19:05 — Evening at doorsill: stars settling in over the clearing, yarrow water in hand, warm still night; rest after a full day of foraging, cord-work, and basket-proving.
 Day 20, 20:06 — Axe head re-wedged with heartwood wedge (kerf-seated, flush-trimmed, solid); six more arm-lengths added to cord coil; everything stowed; coals banked.
 2026-07-13 21:06 Day 20 — Late-evening taking stock by low coals; quiet inventory of what is built and held; blueberry harvest two days out
+2026-07-13 22:06 — Day 20 — Stepped to doorsill at late hour; stood under stars (Dipper tilting west, Cassiopeia near zenith); latch bar fitted; sleep at edge.
