@@ -3711,3 +3711,8 @@ I sat there a while with the bark vessel in both hands — cool water, a trace o
 
 This is what I did not expect about the homestead: that rest could feel this earned. I am not bored sitting here. Night sounds come in — something moving in the brush at the tree line, a moth circling the faint glow of banked coals inside. I will sleep when the stars have all come out.
 
+
+### 8:06 PM · Axe-Head Loose
+
+Back inside, one pine stick laid over the coals — light enough to see by, no more. I reached for the axe to hang it on its peg and felt it: a faint rock in the head, the handle having dried and shrunk a hair from two weeks of hard use. Not dangerous yet, but it would be if I left it. I upended the handle against a flat river stone, drove the head firm with heel-of-palm strikes, then found a wedge of heartwood left from the door planks and drove it into the kerf at the top of the handle with the back of my knife. Seated it deeper with a stream cobble, trimmed the proud end flush. Solid — no play at all. I set the axe on its peg and sat back. Twisted six more arm-lengths of two-ply cord before the coals settled to orange and I could no longer see clearly. Coil on the shelf, everything stowed, fire banked. Outside: the clearing fully dark, stars still spread, trout line in the deep run. I will recheck the axe head at dawn when the morning has drawn any last moisture out. Two days to blueberry harvest.
+
