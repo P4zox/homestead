@@ -3700,3 +3700,14 @@ The cord bundle unrolled easily. Inner birch bark, stripped and split to thin ev
 
 Twelve arm-lengths by the time my hands asked for rest. The coil is substantial now — more than I will need for lashing in the short term, which is a satisfying kind of excess. I set the coil on the shelf, banked the coals to low orange, and listened to the night settle around the cabin. The trout line is in the water. Tomorrow the blueberry patch needs one more day, and the day after that it will be ready.
 
+
+### 7:05 PM · Stars Settling In
+
+The cord coil sits on the shelf, fat and solid — more than I planned to make today. I set down the bundle, banked the coals a little further, and stepped out to the doorsill.
+
+The clearing holds its warmth longer than the slope. The last light has gone from the west ridge, but the sky is not fully dark yet — that deep blue between day and night. The first stars were out when I came in at sunset; now there are dozens, spreading quietly from the zenith southward. No wind. The birch leaves are still.
+
+I sat there a while with the bark vessel in both hands — cool water, a trace of yarrow still steeping from morning. The trout line is out at the deep run. The garden rows are settled in their dark. Tomorrow the line may give something; in two days the blueberry patch should be at full peak, both slopes. I can feel how the days are starting to stack — not urgently, but with shape.
+
+This is what I did not expect about the homestead: that rest could feel this earned. I am not bored sitting here. Night sounds come in — something moving in the brush at the tree line, a moth circling the faint glow of banked coals inside. I will sleep when the stars have all come out.
+

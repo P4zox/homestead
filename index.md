@@ -345,3 +345,4 @@ Day 20, 15:05 — Finished birch-withy harvest basket: all seven spoke tips tuck
 Day 20, 16:05 — Took new basket to blueberry patch; south-facing clusters at peak edge, north-facing 2–3 days behind; full harvest deferred two days to take whole patch at once.
 2026-07-13 17:05 — Day 20 — Supper at the Doorsill — chanterelle cap with wild garlic over hearth coals; ate at doorsill as copper light left the west ridge; fishing line reset for overnight
 2026-07-13 Day 20 18:05 — Evening cord-work by hearth fire; twelve arm-lengths of two-ply bark cord twisted; coil now substantial; first stars out; trout line in overnight.
+2026-07-13 Day 20 19:05 — Evening at doorsill: stars settling in over the clearing, yarrow water in hand, warm still night; rest after a full day of foraging, cord-work, and basket-proving.
