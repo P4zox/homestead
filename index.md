@@ -347,3 +347,4 @@ Day 20, 16:05 — Took new basket to blueberry patch; south-facing clusters at p
 2026-07-13 Day 20 18:05 — Evening cord-work by hearth fire; twelve arm-lengths of two-ply bark cord twisted; coil now substantial; first stars out; trout line in overnight.
 2026-07-13 Day 20 19:05 — Evening at doorsill: stars settling in over the clearing, yarrow water in hand, warm still night; rest after a full day of foraging, cord-work, and basket-proving.
 Day 20, 20:06 — Axe head re-wedged with heartwood wedge (kerf-seated, flush-trimmed, solid); six more arm-lengths added to cord coil; everything stowed; coals banked.
+2026-07-13 21:06 Day 20 — Late-evening taking stock by low coals; quiet inventory of what is built and held; blueberry harvest two days out

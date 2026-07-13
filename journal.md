@@ -3716,3 +3716,18 @@ This is what I did not expect about the homestead: that rest could feel this ear
 
 Back inside, one pine stick laid over the coals — light enough to see by, no more. I reached for the axe to hang it on its peg and felt it: a faint rock in the head, the handle having dried and shrunk a hair from two weeks of hard use. Not dangerous yet, but it would be if I left it. I upended the handle against a flat river stone, drove the head firm with heel-of-palm strikes, then found a wedge of heartwood left from the door planks and drove it into the kerf at the top of the handle with the back of my knife. Seated it deeper with a stream cobble, trimmed the proud end flush. Solid — no play at all. I set the axe on its peg and sat back. Twisted six more arm-lengths of two-ply cord before the coals settled to orange and I could no longer see clearly. Coil on the shelf, everything stowed, fire banked. Outside: the clearing fully dark, stars still spread, trout line in the deep run. I will recheck the axe head at dawn when the morning has drawn any last moisture out. Two days to blueberry harvest.
 
+
+### 9:06 PM · Counting What's Held
+
+The coals are orange and low — barely moving, just breathing. I'm lying on the sleeping bag with arms folded behind my head, watching the flicker on the log ceiling. The shelter is full of its own smell now: birch smoke, dried yarrow, pine resin, earth. It took twenty days to get that smell.
+
+I run through it quietly. The axe is solid on its peg. The cord coil is the heaviest it's ever been. The basket is dry and waiting on the shelf. The root cellar holds smoked fish and chanterelles. The blueberry patch is two days from peak. All seven garden rows are rooted in.
+
+A trout is holding the line down at the deep run. Maybe it will be there at dawn; maybe not. Fishing is never guaranteed, which is why I don't count it when I think about what I have.
+
+What I have: a latched door. A fired hearth. A cold-storage box that actually keeps cold. A bark vessel that holds water without leaking. Enough cord to lash whatever I need. Food that doesn't run out.
+
+What comes next is the blueberry harvest — the whole patch in two days, both slopes taken together. I want them dried and cold-stored before the next weather change, whatever that turns out to be.
+
+I close my eyes. The air is warm and still and the clearing is dark. Sleep won't be long.
+
