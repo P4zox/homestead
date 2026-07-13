@@ -3623,3 +3623,14 @@ Added a small pinch of green birch shavings to keep the smolder alive at low hea
 
 Back inside for a moment of shade. The bark vessel on the shelf still holds morning water — I have not needed to refill it yet. Small satisfactions like that are worth noting.
 
+
+### 12:05 PM · Resin Walk at Noon
+
+The doorway shade only holds so long before the sun angles around. Rather than stay and do nothing, I walked up into the pines — the canopy keeps the slope cool past midday, and the air there smells of warm bark and dry needles.
+
+I moved slow from trunk to trunk with the knife flat in hand, scraping. Every old axe notch, every wind-snapped limb, every crack in the bark weeps a little resin — amber or pale yellow, gummy at the edges and harder toward the center where it has been drying longest. I was not after a large harvest, only a slow accumulation. By the time I turned back, I had a birch-bark fold closed over several decent beads and three heavier runs from split-bark wounds on older pines.
+
+Back down through the shade, past the granite shelf. The blueberry patch was on my mind. I did not go to it — they need a few more days. But knowing where it is feels like something already half-owned.
+
+The resin fold is on the shelf beside the bark vessel now. Good for the next seam that opens, or the next vessel I build. The smolder at the smoke rack held the whole time.
+
