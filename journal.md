@@ -3750,3 +3750,16 @@ Then the thoughts came softer and slower, as they do when sleep is close. Twenty
 
 Then nothing. Sleep took me before I could finish the count.
 
+
+---
+
+# Day 21 — Tuesday, 14 July 2026
+*early summer · first light spreading; sky pale grey-pink in the east; cool morning air; dew on garden leaves; stream loud in the early quiet*
+
+### 6:05 AM · Dawn Line, First Light
+
+Lifted the latch bar before the clearing had any color in it. The sky to the east was still just a pale seam of grey, not quite pink, and the stream sounded loud in the early quiet the way it does before birds begin. Walked the twenty-pace path to the deep run with the cook tin hanging from one hand, still half-awake.
+
+The line was taut under the overhang. Pulled it in slow — six-inch trout, slim and silver-green, lively until the moment it wasn't. Cleaned it at the streamside, left the guts on the flat stone, rinsed both hands in the current. Then filled the bark vessel at the shallows and held it there a moment. No seep at all. Both outer seams cured hard overnight; not a single stitch hole weeping. Good vessel.
+
+Carried both back in first light — trout to the cool shelf on the stream-stone floor, vessel to its small ledge inside the door. This is the twenty-first morning. Tomorrow is the blueberry harvest, if the north-facing clusters have had the two days they needed. Something to look forward to, but today has its own work first. The clearing is still mostly dark, birds just starting at the birch-line, and it feels right to have something already in the shelter before the day has properly begun.
