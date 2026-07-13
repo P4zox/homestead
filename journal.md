@@ -3665,3 +3665,22 @@ When I set it down in the doorway light, it stood on its own and did not spring 
 
 The chanterelle cap on the cool shelf is waiting for supper. The afternoon is still and very bright.
 
+
+### 4:05 PM · Blue in the Pines
+
+The basket had been sitting on the shelf since I tucked the last spoke tip under an hour ago. I lifted it now and turned it over in my hands — the withies had set, the rim was firm, the base stood flat on my palm. The weave was tight enough that I pressed it with a thumb and it gave nothing. It would hold blueberries without losing any through the gaps.
+
+So I took it with me.
+
+The climb past the five-birch stand was easy in late-afternoon shadow — the sun had dropped behind the ridge to the west and the light came through horizontal and copper-colored, throwing long shadows from the pines. Past the granite shelf overlook I could see the cabin roof below, the smoke rack poles, the garden rows. All of it looked smaller from up here, and tidier. Then another twenty paces into the older growth and there was the patch.
+
+I crouched and pulled one berry — deep blue-black, full, with the right give when I pressed it. Ate it. Tart still, but sweetness coming in strong underneath, almost enough to tip the balance. I worked along the south-facing side picking one here, one there, tasting as I went. The south-facing clusters were right at the edge of peak. The north-facing plants were two or three days behind, the berries still a shade too firm, a shade too pale at the stem.
+
+I sat down beside the basket and thought it through. I could pick the south side now and come back for the north. Or I could wait two more days and take the whole patch in one trip, the basket full and heavy on the walk home.
+
+Two days. The whole thing at once.
+
+A thrush was singing somewhere above me in the pines — long slow phrases with no hurry in them, the kind of song that fills the afternoon without crowding it. I stayed until it stopped, then rose, tucked the empty basket under my arm, and came back down the slope.
+
+The basket will be ready when the berries are.
+

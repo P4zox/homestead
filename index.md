@@ -342,3 +342,4 @@ Day 20, 2026-07-13, 12:05 — Walked pine-birch slope in midday shade; scraped p
 Day 20, 13:05 — Heated pine resin in cook tin; applied second waterproofing coat to bark vessel outer seams; vessel set to cure on shelf; resin fold still half-full.
 2026-07-13 14:05 — Day 20 — Wove a birch-withy harvest basket in afternoon shade; base and body complete, rim to finish tomorrow.
 Day 20, 15:05 — Finished birch-withy harvest basket: all seven spoke tips tucked under final weft row and locked; rim set; basket stands firm and ready for blueberry harvest.
+Day 20, 16:05 — Took new basket to blueberry patch; south-facing clusters at peak edge, north-facing 2–3 days behind; full harvest deferred two days to take whole patch at once.
