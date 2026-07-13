@@ -351,3 +351,4 @@ Day 20, 20:06 — Axe head re-wedged with heartwood wedge (kerf-seated, flush-tr
 2026-07-13 22:06 — Day 20 — Stepped to doorsill at late hour; stood under stars (Dipper tilting west, Cassiopeia near zenith); latch bar fitted; sleep at edge.
 Day 20, 23:06 — Lay in dark shelter; coals to ash; latch bar in keeper; final thoughts drifted over twenty days of building — sleep came.
 2026-07-14 · Day 21, 06:05 — Dawn line: six-inch trout caught overnight, cleaned streamside; bark vessel held firm (third test, no seep); trout on cool shelf; fishing line reset; blueberry harvest planned for Day 22.
+Day 21, 07:05 — Cooked overnight trout over hearth coals; ate at doorsill watching the garden brighten in morning light; tin rinsed; blueberry harvest tomorrow.
