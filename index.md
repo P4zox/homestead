@@ -360,3 +360,4 @@ Day 21, 12:05 — Tended smoke rack at noon; added green birch to smolder; oyste
 Day 21, 13:05 — Cord twisted in east-wall shade; fourteen arm-lengths added to coil; mushrooms still smoking; afternoon at rest.
 2026-07-14 Day 21, 14:05 — Oyster mushrooms pulled from smoke rack — smoke-dried and cold-stored; small fresh cluster saved for supper
 2026-07-14 Day 21 15:05 — Walked east clearing edge; wild strawberry patch resting well; two handfuls second-flush berries picked and eaten at doorsill; homestead view from east angle for the first time.
+2026-07-14 Day 21, 16:05 — Scouted blueberry patch upslope; north-facing clusters now at peak (dark, firm, bloom on); south-facing past prime; tomorrow's full harvest confirmed; granite shelf overlook in afternoon light.

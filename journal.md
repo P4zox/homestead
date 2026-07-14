@@ -3838,3 +3838,14 @@ I picked it hard two days running, late last week, and left it alone. Today I co
 
 I ate half as I went. The rest I carried back cupped in my palm and ate at the doorsill. The clearing looked good from the east edge — cabin roof catching the low western light, smoke rack standing quiet, garden filling in. It's not a view I've looked at from that angle before. I'll come to it again.
 
+
+### 4:05 PM · Upslope before harvest
+
+The afternoon had cooled just enough to make the climb comfortable. I took the path up past the five straight birch, past the granite shelf where the clearing opens below, and continued into the older pines toward the blueberry patch.
+
+The south-facing clusters I had found on Day 20 had dropped a few more overripe berries into the duff — the peak there has passed. But the north-facing side has come into its own. The clusters hang dark blue-black and firm, bloom still dusted on the skins. I pressed one between my fingers and it came away clean. Tomorrow is the right day for the whole patch.
+
+I sat a few minutes on the granite shelf on the way back down. The clearing lay below in late afternoon light — cabin roof in warm sun, smoke rack quiet, the garden rows showing as distinct green lines across the bench. The stream caught a glint through the trees. I have been looking at this place from inside it for three weeks. From up here it looks like somewhere someone actually lives. Which I suppose is true.
+
+Came back with nothing in hand but a clear picture of tomorrow. Basket is on the shelf, bark vessel filled. Oyster mushrooms are on the cool shelf for supper, and the light is starting to go gold above the pine line.
+
