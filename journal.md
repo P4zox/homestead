@@ -3800,3 +3800,12 @@ Brought the clusters down in a bark fold. I will cook them this evening. The ups
 ### 11:05 AM · Smoke and Patience
 
 The mushrooms came back with me at ten — three clusters of oyster-type, pale buff against the bark fold. Back at the shelter I sorted through them: the smallest cluster set aside whole for tonight's supper, still fresh and smelling of old wood and damp earth; the other two clusters split carefully and laid along the three crossbars of the smoke rack. Gathered an armful of green birch from the brush pile and set a smolder beneath them — not much flame, just that steady white thread of smoke curling up between the rungs, clinging to the caps. The chanterelles taught me this: slow smoke, low heat, and patience is what keeps food through a month instead of a day. I stood by the rack awhile and watched the smoke move through still air. The morning has grown warm; the birches have gone quiet since the early stir. I can hear the stream from here. These small preserving acts feel like something. Building stock one layer at a time, like daub on wattle, like rings on an axe handle. Whatever winter comes, I want to have been paying attention.
+
+### 12:05 PM · Smoke at Noon
+
+Midday, and the clearing has gone still. The smoke rack is working — thin pale threads rising from the green birch smolder, mushroom pieces laid on the crossbars above. An hour in, the pale buff caps have curled at their edges and begun to firm under a finger's press, which is how it should go.
+
+Added three fresh lengths of green birch — bark-on, still green enough to smoke cold and slow — to keep the smolder cool and steady. Too much heat would cook them rather than cure, and cured is what I need for the cold-storage box. Watched the smoke settle back around the lowest crossbar, the thin white curl that means the temperature is right.
+
+Sat a while in the doorway shade after. The fresh small cluster is still on the cool shelf for tonight's supper. Looking south from the doorstep, the mint rows catch the light well. Tomorrow the blueberry harvest — basket is ready, the north-facing clusters should be coming up by now.
+

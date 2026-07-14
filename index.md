@@ -356,3 +356,4 @@ Day 21, 08:05 — First pale mushroom pins spotted on buried log (three nubs, no
 2026-07-14 09:05 Day 21 — Walked and watered all garden rows; nettles in rows 1–2 showing first true leaves; dandelion rosettes pushing up; mint bright; raspberry canes holding; wood sorrel quiet but present.
 2026-07-14 Day 21 10:05 — Scouted large rotting pine at ~70 paces upslope; found oyster-type shelf mushrooms, three clusters harvested; resin bead formation noted in heartwood split.
 [Day 21, 11:05] Set smoke rack with two oyster mushroom clusters over green birch smolder; one cluster held fresh for supper.
+Day 21, 12:05 — Tended smoke rack at noon; added green birch to smolder; oyster mushroom caps curling and firming at edges; small fresh cluster held for supper; mint rows bright from doorstep; blueberry harvest tomorrow.
