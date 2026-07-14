@@ -3919,3 +3919,12 @@ I should not be thinking this carefully about blueberries at ten at night. But t
 
 Sleep is close. The shelter holds warm and quiet around me. Tomorrow at first light.
 
+
+### 11:05 PM · Into Sleep
+
+The fire has gone from glow to warmth you feel more than see. No more light from it, just the sense of it — steady heat behind an ash cap, the shelter holding what the day put in. Harvest kit is at the door: basket, vessel, knife, in a row. I know exactly what tomorrow holds. Up past the granite shelf with the basket, both sides of the blueberry patch, north-facing clusters at peak. The kind of morning that makes all the smaller preparatory mornings feel like they were pointing somewhere.
+
+My hands still smell of green birch smoke and the damp earth of the mushroom log. The stream is saying what it always says. I have been here long enough to know that sound is a form of company. It has not gone quiet once since I arrived, and I have come to need it the way I might need breathing.
+
+Sleep is at the edges. I am letting it take me.
+
