@@ -3895,3 +3895,16 @@ Tomorrow is the blueberry harvest. Basket on the shelf, vessel filled, mental ma
 
 The tea is mild and grassy, the clover heads giving it a faint sweetness. I finish it slowly and rest the tin on the hearthstone. A quiet end to a full day. The homestead is as ready as it has been for anything: food in the box, cord on the shelf, lines set, garden growing, harvest coming in the morning.
 
+
+### 9:05 PM · Tomorrow Laid Out
+
+The tea mug is empty and cooled on its bark-square shelf. I took the birch-withy basket from the wall peg and set it just inside the door, handle up. The bark vessel — full, outer seams cured hard — went beside it. Knife on top of the basket. Everything I will need before the clearing has full light.
+
+I banked the coals with two split birch lengths, laid the ash flat with the end of a stick, and watched the orange edge creep back. The hearth breathes in and out at night; I trust it now.
+
+In the sleeping bag the shelter smells of clover and pine smoke and dried yarrow. Outside the stream is steady and the pines are very still. I have been thinking about the blueberries all day — the dark clusters on the north-facing side, bloom still on the skins, the way they taste right at the edge of sweet and wild. Tomorrow I will fill the basket twice if I can.
+
+The cord coil is fat on its peg. The cold box has smoked mushrooms and chanterelles. There is a tea bundle and a root cellar and a cabin door that latches. Twenty-one days from a tent and an axe.
+
+I am ready to sleep.
+
