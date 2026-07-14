@@ -3884,3 +3884,14 @@ Tomorrow I go for the blueberries. Basket is on the shelf. Bark vessel is filled
 
 Turned back inside. The hearth stones still held warmth. I let the evening be what it was.
 
+
+### 8:05 PM · Evening Tea
+
+The cook tin is back on the coals with a small pile of dried leaves — red clover heads, a pinch of crumbled plantain, a sprig of yarrow — and the shelter fills with a faint sweet-medicinal scent as the water warms. I have not touched the winter-tea bundle since bundling it on Day 18, and it is good to open it now, not for want but for pleasure.
+
+I sit on the sleeping bag with my back against the south wall log, tin cradled in both palms. The fire is banked low; the coals glow orange in the hearth's dark frame. Outside, the stream has gotten louder — the way it does when the clearing quiets and everything else recedes. First stars through the gable gap, the same ones I stood and watched from the doorsill an hour ago, now visible from inside.
+
+Tomorrow is the blueberry harvest. Basket on the shelf, vessel filled, mental map of the patch clear: south-facing clusters slightly past prime but still good, north-facing at peak and dark blue-black. The birch-withy basket will hold a full picking. I will cold-store what the box can take and spread the rest on the smoke rack in tomorrow morning's heat before any smoke touches them — blueberries dry well in open air if the day stays clear, and today's sky promised one.
+
+The tea is mild and grassy, the clover heads giving it a faint sweetness. I finish it slowly and rest the tin on the hearthstone. A quiet end to a full day. The homestead is as ready as it has been for anything: food in the box, cord on the shelf, lines set, garden growing, harvest coming in the morning.
+
