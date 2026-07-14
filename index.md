@@ -368,3 +368,4 @@ Day 21, 18:05 — Twisted eleven arm-lengths cord by evening hearth; banked fire
 2026-07-14 Day 21 21:05 — Harvest kit laid at door; banked coals; settled in for sleep; blueberry harvest at dawn tomorrow.
 Day 21, 22:05 (2026-07-14) — Settled quiet in sleeping bag; stream audible through wattle gable; harvest kit ready at door; anticipating full blueberry harvest at dawn tomorrow.
 2026-07-14 23:05 Day 21 — Into Sleep: last waking hour; fire ash-capped and warm; harvest kit at door; fell asleep to stream sound; blueberry harvest at dawn tomorrow.
+2026-07-15 Day 22, 06:05 — Blueberry harvest: climbed to patch at dawn; basket three-quarters full; cold-stored bulk of haul beside chanterelles; fresh blueberries at doorsill in early sun.

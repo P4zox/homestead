@@ -3928,3 +3928,21 @@ My hands still smell of green birch smoke and the damp earth of the mushroom log
 
 Sleep is at the edges. I am letting it take me.
 
+
+---
+
+# Day 22 — Wednesday, 15 July 2026
+*early summer · dew-heavy in the pines; mist threading from stream at first light; sky opening pale gold above eastern tree line; birdsong before the light settled; air cool and resinous*
+
+### 6:05 AM · Blue Morning Harvest
+
+The latch bar lifted before the clearing found its color. Cool air, all damp and resinous. I shouldered the birch-withy basket and carried the bark vessel by its cord, knife at belt — the kit exactly as I set it at the door last night.
+
+Past the smoke rack, past the garden (the mint rows caught the first grey light), up the slope through the dry birch stand, through the pines, and out onto the granite shelf. Below: the cabin roof, the garden rows — small, solid, mine. Then another twenty paces into the older trees, and there was the blueberry patch.
+
+The north-facing clusters were as I had hoped: dark blue-black, heavy with bloom still on the skins, stems barely holding the weight. I worked slowly, both hands, filling the basket from the bottom up. The south-facing side was a little past prime — lighter color, a few skins soft — but still sweet, still worth having. I ate as I picked, maybe a handful for every four hands gathered.
+
+The basket was three-quarters full when I ran the patch clean. Heavier than I expected. I stood a moment in the morning light, birches dripping dew around me, the smell of crushed blueberry on my palms. Carried it back down the slope — basket on hip, bark vessel slung — and cold-stored the bulk of the haul on the flat stone shelf beside the chanterelles and oysters. Left a small portion out and ate them at the doorsill in the early sun.
+
+The land keeps giving.
+
