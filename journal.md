@@ -3785,3 +3785,14 @@ The wild garlic shows nothing above ground, which is right — it is the bulbs t
 
 I stood at the south end after the fourth water trip and looked back up the slope toward the cabin. The smoke rack, the door hanging plumb in the entrance, the dark curve of the bark roof. The garden fits into the clearing now the way a thing does when it has been there long enough to belong. Four trips of water and a careful hour — that is what belonging costs.
 
+
+### 10:05 AM · Old Pine, New Growth
+
+Left the axe at the shelter — no felling today — and climbed past the birch stand and the granite shelf with the long south view, then pushed ten more paces into the older pines until I found the fallen trunk I had spotted in passing two days ago, lying in its shallow hollow.
+
+Up close it is bigger than it looked: forty feet or so, mid-section nearly two hand-spans across. The bark has been lifting at the edges for years, the underside punky and dark where it meets the ground, but the upper surface was still firm and damp with last night's dew. I peeled back a loose section near the broken end and found what I had hoped for — clusters of shelf mushroom growing in overlapping fans, pale buff on top, white-gilled underneath, small and fresh and firm. Oyster type, as near as I can tell. Took three small clusters from the loosest bark panel, left the rest undisturbed to keep spreading.
+
+There is also a clean split in the upper trunk where the heartwood has been exposed and a resin bead is forming — worth returning to in a week or so when more has accumulated.
+
+Brought the clusters down in a bark fold. I will cook them this evening. The upslope keeps surprising me: every time I climb past the granite shelf I come back with something I did not have before.
+
