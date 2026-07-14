@@ -3849,3 +3849,16 @@ I sat a few minutes on the granite shelf on the way back down. The clearing lay 
 
 Came back with nothing in hand but a clear picture of tomorrow. Basket is on the shelf, bark vessel filled. Oyster mushrooms are on the cool shelf for supper, and the light is starting to go gold above the pine line.
 
+
+### 5:05 PM · First Mushrooms, My Own
+
+The hearth coals from the noon smoke were still alive — deep orange under grey ash. I raked them forward and blew until the edge brightened, added two short pine lengths that caught quickly in the south-facing draft coming through the open door. The fresh oyster cluster came off the cool shelf pale and firm, smelling faintly of old pine and rain.
+
+I sliced the caps into the cook tin with a small pour of bark-vessel water, set it on the coal bed. They shrank and took on color — amber at the edges, soft through the center — releasing a broth that thickened as it reduced. Pulled a handful of wood sorrel from row five in the garden, let the leaves wilt in at the end. Green on amber. Simple.
+
+Ate at the doorsill while the clearing settled into evening. Light moving slow and gold across the garden rows. The smoke rack quiet. The stream audible again now that the afternoon birds had gone still.
+
+I think it was the first meal I have had where everything — the growing, the finding, the cooking — happened entirely within seventy paces of where I was sitting. That circle felt like something worth noting. Not a triumph, just a good fact about where this life has gotten to.
+
+Reset the overnight fishing line at dusk afterward, fresh-notched at the deep run, line taut and well-weighted in the current. Tomorrow is the blueberry harvest — basket ready, bark vessel filled.
+

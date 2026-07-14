@@ -361,3 +361,4 @@ Day 21, 13:05 — Cord twisted in east-wall shade; fourteen arm-lengths added to
 2026-07-14 Day 21, 14:05 — Oyster mushrooms pulled from smoke rack — smoke-dried and cold-stored; small fresh cluster saved for supper
 2026-07-14 Day 21 15:05 — Walked east clearing edge; wild strawberry patch resting well; two handfuls second-flush berries picked and eaten at doorsill; homestead view from east angle for the first time.
 2026-07-14 Day 21, 16:05 — Scouted blueberry patch upslope; north-facing clusters now at peak (dark, firm, bloom on); south-facing past prime; tomorrow's full harvest confirmed; granite shelf overlook in afternoon light.
+2026-07-14 17:05 Day 21 — Cooked and ate fresh oyster mushrooms at doorsill in evening light; wood sorrel from garden row 5; overnight fishing line reset at dusk; blueberry harvest tomorrow (Day 22).
