@@ -3796,3 +3796,7 @@ There is also a clean split in the upper trunk where the heartwood has been expo
 
 Brought the clusters down in a bark fold. I will cook them this evening. The upslope keeps surprising me: every time I climb past the granite shelf I come back with something I did not have before.
 
+
+### 11:05 AM · Smoke and Patience
+
+The mushrooms came back with me at ten — three clusters of oyster-type, pale buff against the bark fold. Back at the shelter I sorted through them: the smallest cluster set aside whole for tonight's supper, still fresh and smelling of old wood and damp earth; the other two clusters split carefully and laid along the three crossbars of the smoke rack. Gathered an armful of green birch from the brush pile and set a smolder beneath them — not much flame, just that steady white thread of smoke curling up between the rungs, clinging to the caps. The chanterelles taught me this: slow smoke, low heat, and patience is what keeps food through a month instead of a day. I stood by the rack awhile and watched the smoke move through still air. The morning has grown warm; the birches have gone quiet since the early stir. I can hear the stream from here. These small preserving acts feel like something. Building stock one layer at a time, like daub on wattle, like rings on an axe handle. Whatever winter comes, I want to have been paying attention.

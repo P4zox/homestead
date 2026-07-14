@@ -355,3 +355,4 @@ Day 21, 07:05 — Cooked overnight trout over hearth coals; ate at doorsill watc
 Day 21, 08:05 — First pale mushroom pins spotted on buried log (three nubs, not yet harvestable; ~1 week to first harvest)
 2026-07-14 09:05 Day 21 — Walked and watered all garden rows; nettles in rows 1–2 showing first true leaves; dandelion rosettes pushing up; mint bright; raspberry canes holding; wood sorrel quiet but present.
 2026-07-14 Day 21 10:05 — Scouted large rotting pine at ~70 paces upslope; found oyster-type shelf mushrooms, three clusters harvested; resin bead formation noted in heartwood split.
+[Day 21, 11:05] Set smoke rack with two oyster mushroom clusters over green birch smolder; one cluster held fresh for supper.
