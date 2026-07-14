@@ -3820,3 +3820,12 @@ Twisted fourteen arm-lengths before my fingers wanted rest. Added them to the co
 
 Enough for one hour. The rest will come.
 
+
+### 2:05 PM · Mushrooms Off the Rack
+
+Three hours on the smolder and both larger oyster clusters are done. I pulled them from the rack just now and checked each cap: shrunk to about half their fresh size, edges stiff and curled inward, the pale buff gone to a warm amber-brown. Pressed a thumb gently to one cap — firm all the way through, no give at the stem base. Both clusters folded into the bark vessel for transport and laid into the cold-storage box on top of the chanterelles.
+
+The smolder I scattered a little with a stick to let it die properly. No point in babying coals for nothing. The small fresh cluster is still on the cool shelf — that is tonight. I am looking forward to it in the plain way you look forward to supper when you have earned the afternoon.
+
+The clearing smells of birch smoke and warm pine right now. There is a soft southerly still moving in the birch tops and the shadows are just beginning to lean east. Tomorrow is the blueberry harvest. Basket is on the shelf, proven. The north-facing clusters should have caught up by now. I will go early while the slope is still cool.
+
