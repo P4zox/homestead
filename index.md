@@ -352,3 +352,4 @@ Day 20, 20:06 — Axe head re-wedged with heartwood wedge (kerf-seated, flush-tr
 Day 20, 23:06 — Lay in dark shelter; coals to ash; latch bar in keeper; final thoughts drifted over twenty days of building — sleep came.
 2026-07-14 · Day 21, 06:05 — Dawn line: six-inch trout caught overnight, cleaned streamside; bark vessel held firm (third test, no seep); trout on cool shelf; fishing line reset; blueberry harvest planned for Day 22.
 Day 21, 07:05 — Cooked overnight trout over hearth coals; ate at doorsill watching the garden brighten in morning light; tin rinsed; blueberry harvest tomorrow.
+Day 21, 08:05 — First pale mushroom pins spotted on buried log (three nubs, not yet harvestable; ~1 week to first harvest)
