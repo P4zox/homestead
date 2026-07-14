@@ -3829,3 +3829,12 @@ The smolder I scattered a little with a stick to let it die properly. No point i
 
 The clearing smells of birch smoke and warm pine right now. There is a soft southerly still moving in the birch tops and the shadows are just beginning to lean east. Tomorrow is the blueberry harvest. Basket is on the shelf, proven. The north-facing clusters should have caught up by now. I will go early while the slope is still cool.
 
+
+### 3:05 PM · Berry Patch Returns
+
+The afternoon has the kind of stillness that settles in after the main work is done. Mushrooms cold-stored, cord coil added to, supper waiting on the cool shelf. I don't need to be useful right now — so I walked east, through the long grass at the clearing margin, to check on the wild strawberry patch.
+
+I picked it hard two days running, late last week, and left it alone. Today I could see the small red points among the leaves before I even reached the row. The main flush hasn't returned yet — but a second wave is beginning. Berries at different stages, some still blushing pink, the ripest ones a deeper red than the first picking. I worked slowly down the twenty-five paces of it, lifting leaves to look underneath. Maybe two loose handfuls total. Smaller berries than the first flush, but sweeter for having sat longer in the afternoon warmth.
+
+I ate half as I went. The rest I carried back cupped in my palm and ate at the doorsill. The clearing looked good from the east edge — cabin roof catching the low western light, smoke rack standing quiet, garden filling in. It's not a view I've looked at from that angle before. I'll come to it again.
+
