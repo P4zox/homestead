@@ -3871,3 +3871,16 @@ Cord-twisting is good evening work. Hands know what to do; the mind can wander. 
 
 The oyster mushrooms from the rotting pine made a good meal. I keep thinking about that log — the clusters undisturbed except for the three I took, the resin bead forming at the split heartwood. The land is working alongside me in its own directions. I am starting to feel less like I am surviving here and more like I am staying.
 
+
+### 7:05 PM · Doorsill, first stars
+
+The clearing has gone quiet in the way it does when the light dies out of it — not dark yet, but everything holding its breath. I stepped out after the banked fire and the cord-twisting, just to feel the shift.
+
+The air was noticeably cooler than the afternoon had been. That same light southerly stir from this morning had died completely. The garden rows were just visible as dark lines in the fading light. Smoke rack silent. No birds calling now, just the stream carrying on below the sound of everything else.
+
+I stood at the doorsill for a while. Watched the blue above the pine line deepen. The first star appeared — I did not catch which one; I just saw it there, suddenly certain of itself when a moment before there had been nothing. Then another. Cassiopeia would be up later.
+
+Tomorrow I go for the blueberries. Basket is on the shelf. Bark vessel is filled and sitting ready. North-facing clusters were at peak today — they will be perfect in the morning cool. I have been patient with that patch and now the patience cashes out.
+
+Turned back inside. The hearth stones still held warmth. I let the evening be what it was.
+
