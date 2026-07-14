@@ -3772,3 +3772,16 @@ The hearth coals were still warm from last night. I uncovered the trout from the
 
 After hanging the cook tin on the smoke rack to dry, I walked twenty paces north through the wet grass to check the buried log. The mycelium has been threading through the wood chips for days now — white and dense, doing its work — but the surface had stayed quiet. This morning I lifted one edge of the bark cover and found them: three small pale nubs pushed up through the chip surface, each barely the size of a fingernail, soft white fuzz at their bases, caps not yet formed. I held still for a moment and just looked. Something has decided to begin. Not harvestable for days, probably a week, but the timing feels right — the blueberry harvest is tomorrow, and the land keeps adding to the pantry at its own pace. I set the cover back carefully, weighted the edge with the flat stone, and stood in the dew longer than I needed to. Another thing coming.
 
+
+### 9:05 AM · Garden Round, First Shoots
+
+I rinsed the cook tin after breakfast and carried it to the deep run for the first water load. Four trips back and forth in the cool mid-morning air — the soil in each row drinks slowly, the dark patch spreading from where I pour and then going still.
+
+I watched more carefully this time than I usually do, pausing at each row rather than just moving down the line. The nettles in rows 1 and 2 are real now. Yesterday they were pale suggestions; this morning they have straightened and flattened into their proper leaf shape, two centimeters above the soil in a few places. I would know that shape at any size. It steadies me to see it.
+
+The raspberry canes are holding — one still has a slightly curled leaf from the shock of transplanting, but it looks no worse than three days ago, and the cane itself is firm in the soil. I am choosing to read that as settling rather than struggling. The mint divisions in rows 5, 6, and 7 look genuinely brighter: small leaves close to the ground, greener than when I divided them. Mint is resilient and I think it knows it.
+
+The wild garlic shows nothing above ground, which is right — it is the bulbs that matter and they are resting deep. Two dandelion crowns in the eastern strip have pushed small rosettes up through the soil already, low and flat and determined. Wood sorrel along the north shadow zone still looks present if quiet; the cool edge of the garden may suit it.
+
+I stood at the south end after the fourth water trip and looked back up the slope toward the cabin. The smoke rack, the door hanging plumb in the entrance, the dark curve of the bark roof. The garden fits into the clearing now the way a thing does when it has been there long enough to belong. Four trips of water and a careful hour — that is what belonging costs.
+

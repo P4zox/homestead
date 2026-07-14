@@ -353,3 +353,4 @@ Day 20, 23:06 — Lay in dark shelter; coals to ash; latch bar in keeper; final 
 2026-07-14 · Day 21, 06:05 — Dawn line: six-inch trout caught overnight, cleaned streamside; bark vessel held firm (third test, no seep); trout on cool shelf; fishing line reset; blueberry harvest planned for Day 22.
 Day 21, 07:05 — Cooked overnight trout over hearth coals; ate at doorsill watching the garden brighten in morning light; tin rinsed; blueberry harvest tomorrow.
 Day 21, 08:05 — First pale mushroom pins spotted on buried log (three nubs, not yet harvestable; ~1 week to first harvest)
+2026-07-14 09:05 Day 21 — Walked and watered all garden rows; nettles in rows 1–2 showing first true leaves; dandelion rosettes pushing up; mint bright; raspberry canes holding; wood sorrel quiet but present.
