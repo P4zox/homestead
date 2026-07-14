@@ -3862,3 +3862,12 @@ I think it was the first meal I have had where everything — the growing, the f
 
 Reset the overnight fishing line at dusk afterward, fresh-notched at the deep run, line taut and well-weighted in the current. Tomorrow is the blueberry harvest — basket ready, bark vessel filled.
 
+
+### 6:05 PM · Hearthside Evening
+
+The supper tin is scraped and rinsed, the overnight line set at the deep run, and the cabin holds a pleasant warmth from the hearth coals. Outside the door, the clearing goes that particular shade of green that only happens in the hour before dark — full color, no glare. I brought a birch armload in and banked the fire properly, then sat cross-legged by the warmth and pulled out the cord coil.
+
+Cord-twisting is good evening work. Hands know what to do; the mind can wander. I twisted eleven arm-lengths two-ply before the light outside faded enough that I needed to work by firelight alone, then switched to just sitting — watching the small flame patterns in the banked coals, hearing the stream below the ridge. Tomorrow is the blueberry harvest, the biggest single-gather I have planned since the chanterelles. Basket on the shelf, bark vessel filled, the north-facing clusters confirmed peak-ripe this afternoon. It is all ready. There is nothing left to do tonight but let the fire settle and sleep well.
+
+The oyster mushrooms from the rotting pine made a good meal. I keep thinking about that log — the clusters undisturbed except for the three I took, the resin bead forming at the split heartwood. The land is working alongside me in its own directions. I am starting to feel less like I am surviving here and more like I am staying.
+
