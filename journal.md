@@ -3946,3 +3946,20 @@ The basket was three-quarters full when I ran the patch clean. Heavier than I ex
 
 The land keeps giving.
 
+
+### 7:05 AM · Seven Rows at Morning
+
+I carried the cook tin down to the deep run, filled it, and walked the garden in order — rows 1 through 7, eastern strip, north border.
+
+The nettles in rows 1 and 2 had their first proper young leaves fully open now: small, bright green, serrated along the edges, the characteristic nettle shape unmistakable even at this size. Still too tender and too few to harvest with any purpose, but clearly alive and settled into the soil. I pressed a finger gently to the base of one stem — rooted firm. That is enough for now.
+
+Rows 3 and 4 showed something I had not expected this early: the raspberry canes were budding. Not leafed out yet, but thin red flushes at the junction of old cane and new growth, the way a bud looks just before it breaks. Row 3's two canes both had it. Row 4's single cane showed it too, though more faintly. They are settling in.
+
+Rows 5 through 7 — the mint — were the most changed. Several clumps had put out runners along the row surface, thin green shoots lying close to the ground, already looking to root at nodes. The mint does not wait. By midsummer these rows might be solid with it.
+
+Along the north edge, the wood sorrel held its clover-leaf rosettes flat in the shade. A few had opened tiny yellow flowers, which I had not noticed before. The wild garlic in the eastern strip stood straight and dark green. The dandelion roots sent up flat rosettes, leaves wide and low, working the light.
+
+Four trips with the cook tin from the deep run: two for the western rows, two for the eastern strip and north border. By the last trip the sun had cleared the birch stand to the east and was striking the north edge directly, casting small shadows down each row.
+
+I stood at the south border and looked up the length of the garden toward the cabin. Eight paces deep, eighteen wide, every row planted, every plant alive. Not a plan anymore. A real thing.
+
