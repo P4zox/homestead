@@ -3809,3 +3809,14 @@ Added three fresh lengths of green birch — bark-on, still green enough to smok
 
 Sat a while in the doorway shade after. The fresh small cluster is still on the cool shelf for tonight's supper. Looking south from the doorstep, the mint rows catch the light well. Tomorrow the blueberry harvest — basket is ready, the north-facing clusters should be coming up by now.
 
+
+### 1:05 PM · Cord in the Smoke-Shade
+
+The mushrooms aren't ready yet — the smolder is the right color and the caps are curling and darkening at their edges, but I know better than to pull them early. Two hours into a slow smoke, they need at least one more. So I settled into the east-wall shade with the cord bundle and let the afternoon do what it wanted.
+
+There's a particular quiet that comes around this hour in summer: insects loud and steady, a slight heat-haze above the garden rows, smoke from the rack rising in a nearly vertical line. The birch-withy basket from yesterday's weaving sat on the shelf in the doorway, waiting for tomorrow's blueberry run. I could see it from where I worked, and it made me feel organized — prepared — in a way that's still new enough to notice.
+
+Twisted fourteen arm-lengths before my fingers wanted rest. Added them to the coil, which is now substantial. I sat with my back against the east wall logs and listened to the smoke tick quietly: the birch popping in small pops, the rack shifting once in a breeze I couldn't feel down here. The light on the cabin wall is the easy warm yellow of summer afternoon. Tomorrow the harvest basket goes upslope and comes back full. Tonight there will be oyster mushrooms.
+
+Enough for one hour. The rest will come.
+
