@@ -366,3 +366,4 @@ Day 21, 18:05 — Twisted eleven arm-lengths cord by evening hearth; banked fire
 2026-07-14 19:05 Day 21 — Stepped out to doorsill in cooling evening; watched first stars appear above pine line; clearing gone quiet; blueberry harvest set for tomorrow.
 2026-07-14 (Day 21, 20:05) — Brewed evening cup of winter-tea blend (red clover, plantain, yarrow) by hearthfire; reflected on the day and tomorrow's blueberry harvest.
 2026-07-14 Day 21 21:05 — Harvest kit laid at door; banked coals; settled in for sleep; blueberry harvest at dawn tomorrow.
+Day 21, 22:05 (2026-07-14) — Settled quiet in sleeping bag; stream audible through wattle gable; harvest kit ready at door; anticipating full blueberry harvest at dawn tomorrow.

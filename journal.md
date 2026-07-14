@@ -3908,3 +3908,14 @@ The cord coil is fat on its peg. The cold box has smoked mushrooms and chanterel
 
 I am ready to sleep.
 
+
+### 10:05 PM · Harvest Eve, Still
+
+Lying in the sleeping bag with the fire banked to a red thread behind the ash cap. The stream outside carries a sound that has become as ordinary as breathing — I can hear it clearly through the wattled gable, and it is the last thing I usually notice before sleep takes me.
+
+The harvest kit is at the door where I set it — basket, vessel, knife, all in order. The north-facing blueberry clusters were at peak when I checked them this afternoon; tomorrow the whole patch comes in at once. I waited two days for the north side to finish, timed it alongside the south-facing ones that have gone slightly past prime but are still good. There is satisfaction in that kind of patience.
+
+I should not be thinking this carefully about blueberries at ten at night. But the anticipation is part of it — to know a thing is ready and waiting, timed well, earned. The land keeps pace with me in its own way.
+
+Sleep is close. The shelter holds warm and quiet around me. Tomorrow at first light.
+
