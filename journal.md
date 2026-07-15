@@ -4103,3 +4103,16 @@ Two crows called once from the far birch stand, then silence except for the wate
 
 I sat there a while with no task in hand. The homestead was visible over my shoulder — bark roof catching the last grey light on the ridge, smoke rack a silhouette, garden rows going dark in orderly lines. I looked at it from here and it looked like enough. That is not a small thing to feel.
 
+
+### 9:05 PM · Night Tea, Fire Low
+
+Came in from the stream when the chill settled on the damp. Venus had gone behind the treeline. Crickets still going strong in the south meadow — that sound will be in every night now through the end of summer. I pulled the door closed, dropped the latch bar, and crouched at the hearth.
+
+The coals were still alive — a slow orange pulse under a crust of grey. I added a small birch stick and it caught almost silently, the kind of slow hungry flame that does not hurry. Set the cook tin close where the heat was enough but not too much. Let a pinch of dried yarrow steep until the water turned golden-pale and the shelter smelled like high summer in a pine gap.
+
+Drank it slowly, sitting with my back against the east wall. Both fishing lines in the water. Bark vessel on the shelf. Cord coil heavier than it has ever been — all those evenings of twisting gathering themselves into weight. Three bark-fold envelopes sorted and waiting: yarrow, plantain, and one empty fold ready for the clover heads in the morning if they are dry.
+
+Tomorrow: both lines at dawn, fill the clover fold, water the garden. Check the buried log in two more days. Nothing urgent. Just the ordinary work of a life being built, one morning at a time.
+
+The yarrow tea was slightly bitter and clean. Good for the blood, probably. Good for the quiet, certainly. I banked the fire lower still, pulled the sleeping bag around me, and let the night settle around the cabin walls.
+
