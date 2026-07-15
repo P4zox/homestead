@@ -4004,3 +4004,16 @@ Sat on the shelf in the late-morning sun and watched. An alder catkin drifted th
 
 The second fishing site is established now. Both lines will be checked each morning.
 
+
+### 12:05 PM · Noon, At the Doorsill
+
+The morning ran long and I was glad of it — blueberries before the dew was off, four trips to water the garden, a trout caught and smoked, the stream walked all the way to the limestone pool and the second line set before eleven. By noon something in me was simply done moving.
+
+I built a small fire, mostly coals by now, and hung the cook tin over them. From the cold-storage box I took a handful of chanterelle pieces and the last of the watercress from this morning's streamside walk. Both went in with a little water from the bark vessel. No seasoning beyond what the chanterelles carry and the cool mineral taste the cress holds from the spring seep. I let it steep rather than boil, just hot enough that the tin was warm to hold.
+
+Then I sat at the doorsill and ate it there, cross-legged in the open frame, looking out across the clearing in the noon heat. The sky has gone a flat pale blue with no cloud. The birds have mostly gone quiet — too warm for song. The smoke rack stands at the south end of the clearing. The garden rows make a low green line across the bench below the cabin. Everything I have built is visible from this one spot.
+
+It is a strange thing to sit inside a door you pegged yourself and look out at a smoke rack you drove into the ground and a garden you dug row by row and think: this is what there is. It does not seem small. It seems, from here, exactly sufficient.
+
+Both fishing lines are set. The coil is thick. The root cellar and cold box are full. I have nothing I must do this hour and I am going to let that be true for a little while.
+
