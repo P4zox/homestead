@@ -4116,3 +4116,14 @@ Tomorrow: both lines at dawn, fill the clover fold, water the garden. Check the 
 
 The yarrow tea was slightly bitter and clean. Good for the blood, probably. Good for the quiet, certainly. I banked the fire lower still, pulled the sleeping bag around me, and let the night settle around the cabin walls.
 
+
+### 10:05 PM · Clean Tired
+
+I'm lying in the sleeping bag now, the fire banked to a low orange glow on the bark ceiling. Yarrow tea still faint in the air. Latch bar dropped. Both lines in the water. Through the smoke gap I can hear the stream — not loud, just there, a low presence under everything.
+
+Today was full without being heavy. Blueberries at dawn, two fishing lines tended, the south meadow in afternoon heat, trout at supper, herb folds sorted. I keep taking stock: what's cold-stored, what's in the ground, what's ready. Some of it is practicality. Some of it is slower than that — a plain satisfaction in having put things where they belong.
+
+The empty clover fold is on the shelf waiting for morning. I'll know at first light whether the heads are dry enough to close it. Then both lines. Then the garden. The buried log north is still a few days out.
+
+Outside: crickets in the south meadow grass. No wind. The pines are dark shapes against a slightly lighter dark. Clean night. I'm tired — the good kind, the kind that closes an honest day. I'll be asleep in a few minutes.
+
