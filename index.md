@@ -382,3 +382,4 @@ Day 22, 2:05 PM — Bark harvest: twelve large sheets + three smaller pieces pee
 Day 22, 17:05 — Cooked nine-inch limestone pool trout with watercress and chanterelles over hearth coals; ate at doorsill in amber evening light; both lines set for the night.
 Day 22, 18:05 — Made three bark-fold herb envelopes in fading evening light; dried yarrow and plantain each transferred into their own fold; clover fold to be filled Day 23 morning; herbs now distinct on supply shelf.
 2026-07-15 19:05 — Day 22 — Three-Ply by Firelight — twisted six arm-lengths three-ply cord by banked hearth; coil on shelf; both lines in water.
+2026-07-15 Day 22 20:05 — Sat by stream in summer dusk after cord-twisting; both lines in water; first cricket sounds in south meadow; Venus low in the west; cabin roof visible against pines from streamside rock.

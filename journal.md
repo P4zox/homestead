@@ -4092,3 +4092,14 @@ By the time the fire had settled to grey-edged coals I had six arm-lengths of th
 
 Both lines in the water. Tomorrow: both lines at dawn, water the garden, check whether the clover fold is ready to close.
 
+
+### 8:05 PM · Listening at Dusk
+
+I stepped out after the cord-twisting, still with the smell of inner bark on my hands. The clearing was holding the last warmth of the day — that particular summer-evening warmth that you feel more on your forearms than your face. I did not need to go anywhere. I went to the stream anyway.
+
+I sat on the flat-topped rock at the shallows, the one I use for washing the cook tin and cleaning fish. The water was lower than in spring but it still has voice: that constant small sound over the limestone cobbles, never quite the same phrase twice. Both lines were out there somewhere in the current — one at the deep run upstream, one at the limestone pool bend below. I could not see either from here. I trusted them.
+
+Two crows called once from the far birch stand, then silence except for the water. The sky above the eastern tree line went from pale gold to grey to a blue that was almost dark. One bright point — Venus, I think, low in the west — was already burning through the dusk before any other stars appeared. The first crickets had started somewhere in the south meadow, a thin and scattered sound that will be full by midsummer.
+
+I sat there a while with no task in hand. The homestead was visible over my shoulder — bark roof catching the last grey light on the ridge, smoke rack a silhouette, garden rows going dark in orderly lines. I looked at it from here and it looked like enough. That is not a small thing to feel.
+
