@@ -378,3 +378,4 @@ Day 22, 11:05 — Cut birch pole, set second fishing line at limestone pool bend
 2026-07-15 13:05 — Day 22 — Afternoon cord-twisting in east-wall shade; fourteen arm-lengths two-ply added to coil; smoke rack and cold storage checked and in order.
 Day 22, 2:05 PM — Bark harvest: twelve large sheets + three smaller pieces peeled from dry birch deadfall 40 paces upslope; bundle cord-tied on supply shelf.
 2026-07-15, Day 22, 15:05 — Walked south meadow for the first time; knee-high grasses with forming seed heads, yarrow and clover patches, field daisies, two white butterflies; slow seep at far margin where rushes begin; cabin visible from below — a real thing.
+2026-07-15 [Day 22, 16:05] Checked limestone pool line (set 11:05) — nine-inch trout; re-baited and reset; both lines active; walked home through birches in last warm light.

@@ -4049,3 +4049,11 @@ At the far edge — maybe eighty paces from the garden border — the ground sof
 
 Walked back up the slope and turned once at the halfway point to look. The cabin reads clearly from below: roofline against the dark of the pines, smoke rack standing south of it, the garden rows a dark rectangle on the bench. It is a real place. It is mine. Something in the perspective from down there — small, held between forest and sky — makes that easier to believe.
 
+
+### 4:05 PM · Limestone Pool, Late Light
+
+The afternoon had cooled a little by the time I walked downstream to the limestone pool line — the birch pole set at 11:05, cord notched at tip, butt wedged under river-stone on the flat shelf. Five hours is good time. The stream makes a left bend there, deepens against a limestone bluff, and when I set the line this morning the fish were visible in the slack: three or four shapes holding, noses upstream, barely moving.
+
+The pole was where I left it. I crouched on the flat shelf and drew it up slowly — tension there, not just water-weight. A nine-inch trout, broader-shouldered than the deep-run fish, came up with the cord. I held it a moment in the bluff shadow, watercress trembling in the side-seep behind me, then cleaned it at streamside with the knife. Dock-wrapped, carried back in the bark vessel. I re-notched the cord, baited fresh from the bank edge, and reset the line with the pole wedged back under its stone. Both lines tended and active.
+
+The walk home was slow — last warm light angling through the birches, the shelter's bark roof catching gold on the ridge. I'll cook this trout over hearth coals tonight. The day has been full and mostly quiet in a good way. The cold-storage box is heavy with provisions. The slow seep at the south meadow's edge stays in my mind — rushes beginning, soft ground. Not something to act on yet; just worth knowing it is there.
