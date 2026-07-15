@@ -4030,3 +4030,11 @@ Checked the smoke rack frame on the way back inside: all ties holding, no sag in
 
 Tomorrow: check both lines at first light, water the garden, and let the afternoon open again.
 
+
+### 2:05 PM · Bark from the Fallen Birch
+
+The afternoon heat settled over the clearing after the cord-twisting — that flat, still hour when the light goes yellow and nothing moves much. Rather than wait it out in the shade, I took the knife and walked upslope through the garden rows and the birch stand, forty paces into the older pines to the dry fallen birch I first noted three days ago. Fifteen feet of trunk, bark intact and browning, curling at the edges in long loose scrolls.
+
+It came off cleanly. I slipped the knife-tip under each rolled edge, worked it along the grain, then pulled back with both hands — sheets as wide as a palm and arm-length long, clean and papery-dry. The bark nearest the roots had some give still; the far end went punky and I stopped there. Twelve good sheets, three smaller pieces, bundled flat and tied with a short cord length.
+
+Back at the shelter they sit on the supply shelf beside the resin fold. I do not know yet exactly what I will make — a dry-goods box for the root cellar, a second bark vessel, patches for any roof gap that opens in autumn. Knowing the material is there is enough for now. The clearing is quiet in the afternoon heat; a woodpecker working somewhere at the edge of the pines, slow taps at long intervals. I am tired in a good way.

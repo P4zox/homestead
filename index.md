@@ -376,3 +376,4 @@ Day 22, 10:05 — Followed stream downstream past deep run; limestone shelf bend
 Day 22, 11:05 — Cut birch pole, set second fishing line at limestone pool bend downstream; both sites now active.
 2026-07-15 Day 22, 12:05 — Noon meal at the doorsill: hearth-warmed chanterelle and watercress broth; midday rest watching the clearing in the noon heat; both fishing lines active; garden resting after morning water.
 2026-07-15 13:05 — Day 22 — Afternoon cord-twisting in east-wall shade; fourteen arm-lengths two-ply added to coil; smoke rack and cold storage checked and in order.
+Day 22, 2:05 PM — Bark harvest: twelve large sheets + three smaller pieces peeled from dry birch deadfall 40 paces upslope; bundle cord-tied on supply shelf.
