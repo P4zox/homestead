@@ -4138,3 +4138,19 @@ The crickets in the south meadow have not stopped. They do not stop unless somet
 
 I am almost asleep. Day 22 is done. Tomorrow is already forming itself: both lines, the clover dryness check, the garden rows wet with dew by the time I reach them. It is enough to know what comes and then let tonight be tonight.
 
+
+---
+
+# Day 23 — Thursday, 16 July 2026
+*early summer · cool and still at dawn; heavy dew; mist low in stream hollow; sky lightening from pale grey in east*
+
+### 6:05 AM · Both Lines at Dawn
+
+The latch bar lifted in grey first light, the kind where shapes are felt before seen. Cold out — colder than yesterday's dawn, the chill having settled through the night with no wind to move it. Dew soaking the grass to knee height.
+
+Went to the deep run first, rounding the bank bend quietly and crouching at the water's edge. The cord was taut with current — the normal feel of it — but as I drew it up slowly, weight came with it: a six-inch trout, pale at the belly, still lively at the surface. Cleaned it at the bank, dock-wrapped, reset the line re-notched and fresh at the deep center.
+
+Then the longer walk downstream through wet grass to the limestone pool. The birch pole was right where I left it, wedged under its river stone on the flat shelf. Drew it up — cord ran slack below the water, nothing on the end. Pool looked right, dark and still in the low light, fish holding somewhere near the ledge. Reset the bait, wedged the pole back, stood a moment on the shelf in the mist.
+
+Walked home upstream with wet feet. Trout cold-stored in the box beside the blueberries before the sun cleared the birch stand. Both lines in and working.
+

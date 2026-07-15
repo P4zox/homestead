@@ -386,3 +386,4 @@ Day 22, 18:05 — Made three bark-fold herb envelopes in fading evening light; d
 Day 22, 21:05 — yarrow tea steeping by hearth coals; came in from streamside, latch bar down, fire banked; quiet end to a full day; both lines in water; ready for sleep.
 2026-07-15 Day 22 22:05 — Evening settled; lying in sleeping bag, fire banked, both lines in water; clover fold waiting for morning; closed a full day.
 2026-07-15 23:05 Day 22 — Ember Watch: last hour before sleep; hearth down to ash glow; crickets steady in south meadow; both lines in water; clover fold waiting for morning.
+Day 23, 06:05 — Both Lines at Dawn: deep run overnight line gave six-inch trout (cold-stored); limestone pool line empty, reset; both lines in water.
