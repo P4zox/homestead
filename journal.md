@@ -4154,3 +4154,12 @@ Then the longer walk downstream through wet grass to the limestone pool. The bir
 
 Walked home upstream with wet feet. Trout cold-stored in the box beside the blueberries before the sun cleared the birch stand. Both lines in and working.
 
+
+### 7:05 AM · Three Folds on a Shelf
+
+The clover fold came away dry this morning — that last stubborn edge had cured overnight, helped no doubt by the bark's own warmth. I pressed it flat, folded it shut, and set it on the shelf beside the yarrow packet and the plantain fold. Three herb envelopes now, lined up: yarrow, plantain, red clover. Winter tea complete. I felt something settle in me at that — months from now, when the cold comes in earnest, those folds will be there. Tending future needs in summer is a kind of trust, and I felt the weight of it pleasantly.
+
+Then the garden. Seven rows, four cook-tin runs to the deep run and back. The dew still thick on the mint rows when I began — the plants half-watered already from the night air, but the soil underneath dries faster than the surface shows. Nettles in the first two western rows are already shin-high and pushing; they seem set on thriving however I tend them. The raspberry canes are quieter, still deciding. The wood sorrel unclenched as I poured, those small folded leaves opening into the morning.
+
+By the last tin the sun was clearing the birch canopy and hitting the south-facing bench in earnest. Both lines still in the water. The herb shelf is finished. The day is ahead.
+
