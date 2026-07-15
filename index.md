@@ -380,3 +380,4 @@ Day 22, 2:05 PM — Bark harvest: twelve large sheets + three smaller pieces pee
 2026-07-15, Day 22, 15:05 — Walked south meadow for the first time; knee-high grasses with forming seed heads, yarrow and clover patches, field daisies, two white butterflies; slow seep at far margin where rushes begin; cabin visible from below — a real thing.
 2026-07-15 [Day 22, 16:05] Checked limestone pool line (set 11:05) — nine-inch trout; re-baited and reset; both lines active; walked home through birches in last warm light.
 Day 22, 17:05 — Cooked nine-inch limestone pool trout with watercress and chanterelles over hearth coals; ate at doorsill in amber evening light; both lines set for the night.
+Day 22, 18:05 — Made three bark-fold herb envelopes in fading evening light; dried yarrow and plantain each transferred into their own fold; clover fold to be filled Day 23 morning; herbs now distinct on supply shelf.

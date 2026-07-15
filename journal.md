@@ -4068,3 +4068,16 @@ The cold-storage box is full. Both lines are set. The cord coil is very substant
 
 I rinsed the tin at the stream and came back to the bench to sit by what remains of the fire while the evening cools. Tomorrow: both lines at dawn, then water the garden. The buried log north should be worth checking again in a few days.
 
+
+### 6:05 PM · Bark Fold, Evening
+
+The amber light had faded to copper at the tree line, and now something softer — blue-grey settling over the clearing. Supper's warmth still in my chest. The hearth holds coals that breathe without crackling.
+
+The birch bark sheets I hauled back at midday have been sitting on the supply shelf since — bundled flat, papery-dry, smelling of that particular birch sweetness. I took two medium sheets and started working at the bench in the last light.
+
+The yarrow hangs in dry bundles near the east wall. Plantain and clover folded loose on the shelf. All mixed together — I want them separate. When I reach for one I should find one. A bark fold for each: twice-folded into a flat envelope, corners tied shut with short lengths of two-ply, a little looseness in the top so the herbs breathe.
+
+The bark bends clean without cracking when it's been peeled dry and left to rest. Three folds made in the fading light: narrow for yarrow, wider for plantain, a third waiting for the clover in the morning when there's better light to check whether the last heads are fully dry. Yarrow transferred first — loose dried heads into the narrow fold, top tied with a single loose cord; plantain after. The clover fold waits on the shelf, empty and ready.
+
+I stood in the doorway a moment in the blue dusk. Clearing just visible. Smoke rack a dark silhouette against a lighter sky. Both lines in the water. The herbs on the shelf know where they are now.
+
