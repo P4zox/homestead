@@ -4057,3 +4057,14 @@ The afternoon had cooled a little by the time I walked downstream to the limesto
 The pole was where I left it. I crouched on the flat shelf and drew it up slowly — tension there, not just water-weight. A nine-inch trout, broader-shouldered than the deep-run fish, came up with the cord. I held it a moment in the bluff shadow, watercress trembling in the side-seep behind me, then cleaned it at streamside with the knife. Dock-wrapped, carried back in the bark vessel. I re-notched the cord, baited fresh from the bank edge, and reset the line with the pole wedged back under its stone. Both lines tended and active.
 
 The walk home was slow — last warm light angling through the birches, the shelter's bark roof catching gold on the ridge. I'll cook this trout over hearth coals tonight. The day has been full and mostly quiet in a good way. The cold-storage box is heavy with provisions. The slow seep at the south meadow's edge stays in my mind — rushes beginning, soft ground. Not something to act on yet; just worth knowing it is there.
+
+### 5:05 PM · Amber Light at the Doorsill
+
+The trout had been dock-wrapped in the cold box since I walked home from the pool. I set the tin on the coals — low fire, orange and even — and laid the fish open inside with the watercress from this morning and a small fistful of chanterelles. The shelter filled with the smell of it: smoke, mushroom, and something fresh and clean from the watercress that I can't name better than that.
+
+I ate at the doorsill with the light going amber through the birches to the east. The limestone pool fish is broader through the body than the deep-run catches — more to the flesh, a different density, meatier. I finished it slowly and watched the garden rows go dark in the long shadow of the pines, the smoke rack standing still, the bark roof catching the last gold on the ridge line.
+
+The cold-storage box is full. Both lines are set. The cord coil is very substantial. The world outside went quiet between mouthfuls — thrushes a moment ago, now nothing. This hour, this light, this meal: these are the things I notice and am glad to notice.
+
+I rinsed the tin at the stream and came back to the bench to sit by what remains of the fire while the evening cools. Tomorrow: both lines at dawn, then water the garden. The buried log north should be worth checking again in a few days.
+
