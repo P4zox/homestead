@@ -3963,3 +3963,11 @@ Four trips with the cook tin from the deep run: two for the western rows, two fo
 
 I stood at the south border and looked up the length of the garden toward the cabin. Eight paces deep, eighteen wide, every row planted, every plant alive. Not a plan anymore. A real thing.
 
+
+### 8:05 AM · Deep Run Check
+
+Walked down to the deep run in the cool of the morning, bark vessel carried by its cord. The line was still set where I had left it yesterday — green birch stick wedged between two flat stones, cord disappearing into the riffle. I lifted the stick and felt it: a small, steady pull against the current. Drew it in hand over hand until a six-inch trout flashed in the shallows. It flopped once on the bank stone and stilled.
+
+Cleaned it at the water's edge the way I've learned to — quick, gutted and gilled into the current, rinsed twice. Wrapped it in a broad dock leaf from the bank and set it in the vessel. Then re-notched the line on fresh cord and reset it between the same two stones, out toward the deep center where the water darkens and slows.
+
+I was standing up from that when a kingfisher shot through upstream — one blue-orange blur, low over the water, gone before I'd properly registered it. I hadn't seen one here before. I waited a moment in case it came back. It didn't. But I'm glad I was at the water when it passed.
