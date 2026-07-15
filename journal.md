@@ -3993,3 +3993,14 @@ The bank beyond the bend is dense with ostrich fern — fronds past my knee — 
 
 I turned back at about a hundred paces past the bend. The limestone pool is the thing to remember: deeper, stiller water, bigger fish. A second fishing line rigged there would be worth the hour it takes.
 
+
+### 11:05 AM · Second Line, Limestone
+
+Cut a young birch from the slope above the garden — head-tall, straight-grained below the first branch. Took it low with the axe, stripped bark from butt to tip with the knife, notched the thin end, tied off two arm-lengths of cord. The pole bends a little at the tip. That is fine.
+
+Walked back downstream to the limestone bend. The pool was there as before — current pressing in from the right, deepening against the bluff, those larger fish holding in the slack just above the streambed. Four of them, at least. I set the line from the flat shelf on the near bank and wedged the pole butt under a river-stone, tip angled out over deep water.
+
+Sat on the shelf in the late-morning sun and watched. An alder catkin drifted through. The fish moved, but not toward the line. That is no surprise — new shadow, new bait scent, new disturbance in unfamiliar water. The deep run did not produce on day one either. Patience is the method.
+
+The second fishing site is established now. Both lines will be checked each morning.
+

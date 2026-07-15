@@ -373,3 +373,4 @@ Day 22 (2026-07-15) 07:05 — Tended all seven garden rows; nettles showing firs
 2026-07-15 Day 22, 08:05 — Six-inch trout from overnight line at deep run; line reset; kingfisher spotted upstream — first sighting
 2026-07-15 Day 22 09:05 — Smoked fresh trout on smoke rack; cold-stored; cold-box now holds chanterelles, oysters, blueberries, and smoked trout
 Day 22, 10:05 — Followed stream downstream past deep run; limestone shelf bend ~50 paces below: deeper water, larger fish in slack; ostrich fern, watercress, young alder on far bank; watercress eaten fresh; limestone pool marked as future second fishing site.
+Day 22, 11:05 — Cut birch pole, set second fishing line at limestone pool bend downstream; both sites now active.
