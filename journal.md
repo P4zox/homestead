@@ -4081,3 +4081,14 @@ The bark bends clean without cracking when it's been peeled dry and left to rest
 
 I stood in the doorway a moment in the blue dusk. Clearing just visible. Smoke rack a dark silhouette against a lighter sky. Both lines in the water. The herbs on the shelf know where they are now.
 
+
+### 7:05 PM · Three-Ply by Firelight
+
+Fire banked to a low reddish glow; door pulled to, latch bar dropped. Enough hearth light to work by, and no more. I pulled the bark-strip bundle from the shelf and started in on three-ply cord — something I have been meaning to do since the test coil days ago. Three strands instead of two: heavier, tighter, stiffer under tension.
+
+The motion is different from two-ply. You are balancing three twists at once, feeding one strand forward as the previous two settle around it. Slower work. But there is something right about it in the hands — the finished cord has real girth between the fingers, a different presence than lashing cord.
+
+By the time the fire had settled to grey-edged coals I had six arm-lengths of three-ply. Not much measured against the two-ply coil, but it has the feel of rope rather than binding. I laid it on the shelf beside the two-ply and stood back a moment: the comparison tells you something. Two-ply is capable; three-ply is confident. There will be uses — heavy lashing, a carry strap, a door-cord brace — where it matters which is which.
+
+Both lines in the water. Tomorrow: both lines at dawn, water the garden, check whether the clover fold is ready to close.
+
