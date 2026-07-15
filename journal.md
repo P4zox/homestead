@@ -4038,3 +4038,14 @@ The afternoon heat settled over the clearing after the cord-twisting — that fl
 It came off cleanly. I slipped the knife-tip under each rolled edge, worked it along the grain, then pulled back with both hands — sheets as wide as a palm and arm-length long, clean and papery-dry. The bark nearest the roots had some give still; the far end went punky and I stopped there. Twelve good sheets, three smaller pieces, bundled flat and tied with a short cord length.
 
 Back at the shelter they sit on the supply shelf beside the resin fold. I do not know yet exactly what I will make — a dry-goods box for the root cellar, a second bark vessel, patches for any roof gap that opens in autumn. Knowing the material is there is enough for now. The clearing is quiet in the afternoon heat; a woodpecker working somewhere at the edge of the pines, slow taps at long intervals. I am tired in a good way.
+
+### 3:05 PM · Into Open Ground
+
+Something I have been looking at every day without ever walking into: the open ground south of the garden. The meadow just falls away from the lowest garden border, grasses rolling out below the cabin — I see it from the doorsill, from the smoke rack, from the garden itself — and I have always turned back toward the trees or the stream instead. Today I went south.
+
+It is wider than it reads from above. Knee-high in the center, with seed heads just forming on the grasses — round-stemmed fescue, something thinner-leaved and paler. Yarrow growing in it, scattered in the natural way, flat white heads at shoulder height. A broad clover patch in the lower quarter, not as dense as the one upslope, but the same red heads; worth remembering for later if the winter-tea supply ever wants replenishing. Field daisies scattered through the lower half, white petals, a little wind-ragged. Two white butterflies coursing low through the stems the whole time I was out there, unhurried.
+
+At the far edge — maybe eighty paces from the garden border — the ground softens without announcing itself. The grasses go greener and finer, rushes appear at the margin, the soil underfoot gives slightly. A slow seep, the kind the land makes quietly, no standing water, just a place where moisture lingers longer than elsewhere. Good to know it is there.
+
+Walked back up the slope and turned once at the halfway point to look. The cabin reads clearly from below: roofline against the dark of the pines, smoke rack standing south of it, the garden rows a dark rectangle on the bench. It is a real place. It is mine. Something in the perspective from down there — small, held between forest and sky — makes that easier to believe.
+
