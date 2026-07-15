@@ -3982,3 +3982,14 @@ I tended the rack for the better part of an hour. The clearing warmed slowly. Be
 
 Standing there with the lid off, looking in at the layers — chanterelles pressed to one side, oysters beside them, blueberries in their dark heap, and now the smoked trout laid on top — I felt the weight of it. Not heavy, just solid. Early summer, and the box was already genuinely full.
 
+
+### 10:05 AM · Following the Kingfisher
+
+The smoke rack died down to white ash, and the morning opened into full summer. I stood at the doorsill a while, still thinking about that blue-orange flash at the deep run — a kingfisher flies along the current-line, low and purposeful; wherever it went, the water carried it somewhere worth going.
+
+So I went downstream instead of up. Past the deep run where the fishing line sits, past the first bend I know, then further than I have been. Fifty new paces brought me to a limestone shelf where the stream turns hard left and slows. The water deepens against the bluff face — clear down to cobbles two feet below — and in the slack behind the shelf-edge, the still shapes of fish holding in shadow. Three of them, maybe four, larger than the six-inchers the line gives me at the run.
+
+The bank beyond the bend is dense with ostrich fern — fronds past my knee — and watercress spreading in the shallows where a side seep enters. On the far bank, a young alder stand with catkins still green and soft ground beneath: a high water table, the land staying wet. I broke off a small handful of watercress and ate it standing in the stream, water cold around my ankles. Peppery and clean.
+
+I turned back at about a hundred paces past the bend. The limestone pool is the thing to remember: deeper, stiller water, bigger fish. A second fishing line rigged there would be worth the hour it takes.
+
