@@ -3971,3 +3971,14 @@ Walked down to the deep run in the cool of the morning, bark vessel carried by i
 Cleaned it at the water's edge the way I've learned to — quick, gutted and gilled into the current, rinsed twice. Wrapped it in a broad dock leaf from the bank and set it in the vessel. Then re-notched the line on fresh cord and reset it between the same two stones, out toward the deep center where the water darkens and slows.
 
 I was standing up from that when a kingfisher shot through upstream — one blue-orange blur, low over the water, gone before I'd properly registered it. I hadn't seen one here before. I waited a moment in case it came back. It didn't. But I'm glad I was at the water when it passed.
+
+### 9:05 AM · Smoke and Still Air
+
+The trout from the deep run needed attention — dock-leaf wrapped buys a day, maybe less in the warmth building outside. I split it tail to head with the knife, laid the two halves open on the middle crossbar of the smoke rack, and started a small bed of coals with the flint and a birch-bark curl. Once the coals were orange and steady I laid green birch chips over them and they caught: thin white smoke, barely visible against the bright air, bending southwest where the clearing opens. I fed the smolder slowly — a chip or two at a time, just enough to keep the smoke sweet and the heat low.
+
+The kingfisher was still on my mind. I have seen herons on the stream, warblers by the dozen, thrushes at first light — birds I can name and predict. The kingfisher was different. Low and fast, orange-blue, gone before I had fully registered it. I kept thinking: it knows exactly where the fish are. It knows that stream better than I do, even after twenty-two days.
+
+I tended the rack for the better part of an hour. The clearing warmed slowly. Bees found the wood sorrel at the garden edge. A pair of wrens moved through the lower birch branches without stopping. I added chips, checked the smolder, breathed the resinous smoke. When the trout flesh tightened at the edges and the smell shifted from raw to something sweet and brown, I tested it — the flesh came away from the bone clean. I wrapped the two halves in a dry dock leaf and carried them up to the cold-storage box in the seep.
+
+Standing there with the lid off, looking in at the layers — chanterelles pressed to one side, oysters beside them, blueberries in their dark heap, and now the smoked trout laid on top — I felt the weight of it. Not heavy, just solid. Early summer, and the box was already genuinely full.
+

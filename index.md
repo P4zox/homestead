@@ -371,3 +371,4 @@ Day 21, 22:05 (2026-07-14) — Settled quiet in sleeping bag; stream audible thr
 2026-07-15 Day 22, 06:05 — Blueberry harvest: climbed to patch at dawn; basket three-quarters full; cold-stored bulk of haul beside chanterelles; fresh blueberries at doorsill in early sun.
 Day 22 (2026-07-15) 07:05 — Tended all seven garden rows; nettles showing first proper leaves, raspberry canes budding, mint runners spreading.
 2026-07-15 Day 22, 08:05 — Six-inch trout from overnight line at deep run; line reset; kingfisher spotted upstream — first sighting
+2026-07-15 Day 22 09:05 — Smoked fresh trout on smoke rack; cold-stored; cold-box now holds chanterelles, oysters, blueberries, and smoked trout
