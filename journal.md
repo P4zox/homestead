@@ -4017,3 +4017,16 @@ It is a strange thing to sit inside a door you pegged yourself and look out at a
 
 Both fishing lines are set. The coil is thick. The root cellar and cold box are full. I have nothing I must do this hour and I am going to let that be true for a little while.
 
+
+### 1:05 PM · Afternoon Cord Work
+
+The noon rest stretched longer than expected — a good thing. The doorway kept me in its frame while the clearing settled into midday quiet. Cicadas somewhere in the birches. The smell of warm pine and the last of the chanterelle broth cooling in the tin.
+
+By one I was in the east-wall shade with the bundle of inner bark strips and the cord coil. The twisting comes easily now — pinch, roll, ply, advance — hands knowing the motion without instruction. Fourteen arm-lengths before the afternoon light began to angle differently through the trees.
+
+The coil is heavy in a way that feels earned. I can feel its weight without measuring it. Whatever I build next, the lashing is already made.
+
+Checked the smoke rack frame on the way back inside: all ties holding, no sag in the ridgepole or crossbars. Lifted the bark lid on the cold-storage box — chanterelles, oysters, blueberries, smoked trout all in order, cold and dry under the flat river stone. The limestone-pool line is still new and unproven. The deep-run line has been reliable. Two sites feels like the right kind of redundancy for this time of year, before the easy months turn.
+
+Tomorrow: check both lines at first light, water the garden, and let the afternoon open again.
+
