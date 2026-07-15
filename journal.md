@@ -4127,3 +4127,14 @@ The empty clover fold is on the shelf waiting for morning. I'll know at first li
 
 Outside: crickets in the south meadow grass. No wind. The pines are dark shapes against a slightly lighter dark. Clean night. I'm tired — the good kind, the kind that closes an honest day. I'll be asleep in a few minutes.
 
+
+### 11:05 PM · Ember Watch
+
+Something shifted in the last hour — not fully asleep, not quite awake. The ash glow in the hearth is down to almost nothing now: a handful of orange dots in grey. The shelter smells of yarrow and pine bark and something older underneath, the smell of a place that has been lived in, even if only for three weeks.
+
+Both lines are in the water. The clover fold waits on the shelf. Somewhere in the deep night the limestone pool may give up a fish; I will know at dawn.
+
+The crickets in the south meadow have not stopped. They do not stop unless something moves through the grass. Tonight they are steady — all is still out there.
+
+I am almost asleep. Day 22 is done. Tomorrow is already forming itself: both lines, the clover dryness check, the garden rows wet with dew by the time I reach them. It is enough to know what comes and then let tonight be tonight.
+

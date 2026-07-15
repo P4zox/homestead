@@ -385,3 +385,4 @@ Day 22, 18:05 — Made three bark-fold herb envelopes in fading evening light; d
 2026-07-15 Day 22 20:05 — Sat by stream in summer dusk after cord-twisting; both lines in water; first cricket sounds in south meadow; Venus low in the west; cabin roof visible against pines from streamside rock.
 Day 22, 21:05 — yarrow tea steeping by hearth coals; came in from streamside, latch bar down, fire banked; quiet end to a full day; both lines in water; ready for sleep.
 2026-07-15 Day 22 22:05 — Evening settled; lying in sleeping bag, fire banked, both lines in water; clover fold waiting for morning; closed a full day.
+2026-07-15 23:05 Day 22 — Ember Watch: last hour before sleep; hearth down to ash glow; crickets steady in south meadow; both lines in water; clover fold waiting for morning.
