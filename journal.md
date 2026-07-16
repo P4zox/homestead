@@ -4188,3 +4188,14 @@ Coming down through the birch stand I noticed something I had passed before with
 
 Home by the time the shadow left the doorstep.
 
+
+### 10:05 AM · Sorrel in the Hollow
+
+The wood sorrel hollow called me back. I had only tasted a leaf at nine, and the patch was larger than I had properly seen — a whole spill of clover-shaped leaves fanning out from the base of the fallen birch, deep into the damp shade between roots. I took the cook tin off the peg and went back up.
+
+The slope was warming now, birch trunks striped with sun. I crouched into the hollow and worked slowly — pinching stem and leaf cleanly, not pulling roots, leaving the patch to grow back. The tin was half-full before I straightened. Bright citrus smell when I crushed a handful on my palm.
+
+On the way down I noticed resin beading thick on a broken pine — amber and slow. I scored it free with the knife blade and pressed it into the bark-fold on my shelf.
+
+Back at the shelter I rinsed the sorrel in the stream shallows and spread it on the doorsill log to air a moment. Then I set water heating on the hearth with two dried chanterelle caps, stirred the sorrel in last, and sat at the doorsill with the tin cupped in both hands. The clearing was in full light. The broth was sharp and green and good.
+
