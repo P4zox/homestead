@@ -4296,3 +4296,14 @@ Came in from the doorway and lowered the latch bar. The cabin is dim inside — 
 
 The shelter is quiet in its particular way — not silent, but held. Soft creek sound through the bark walls, and somewhere the bats still working the dark above the clearing, though I can not see them now. Both lines in the water. Tomorrow: oyster clusters at seventy paces upslope, buried log check north of shelter. But those are tomorrow weights to carry. Tonight the cabin holds. I closed my eyes.
 
+
+### 10:05 PM · Dark and Still
+
+The latch is down. The shelter is still. Through the bark wall I can hear the stream — a low, steady murmur that doesn't change whether I sleep or not. The hearth has settled into its banked birch; the heartstone gaps hold warmth but no light now, just heat breathing into the dark room.
+
+Both lines are in the water. I don't need to do anything about that. They wait on their own.
+
+I lie on the rush mat in the sleeping bag and let my thoughts drift without holding them. Tomorrow: the oyster clusters at seventy paces upslope — they were nearing harvest this morning, fans pale and full. The buried log north of the shelter, first pale pins spotted a few days back, not yet ready but worth checking. Those are tomorrow's decisions. Right now there is nothing to decide.
+
+An owl called once from up the slope and went quiet. The south breeze still finds the gaps in the bark; the shelter breathes. I close my eyes. The stream keeps going.
+

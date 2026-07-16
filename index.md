@@ -402,3 +402,4 @@ Day 23, 18:05 (Thu 2026-07-16) — Brewed first red clover tea at dusk; sat in d
 2026-07-16 19:05 Day 23 — knife and axe sharpened on grey cobble by hearth light; both edges true; hearth banked; both lines overnight
 2026-07-16 Day 23 20:06 — Stood in doorway under first stars; bats tilting over clearing; leaned on doorpost and let the day be.
 2026-07-16 Day 23 21:06 — Into the Dark — lowered latch bar, settled into sleeping bag; both fishing lines in water; tomorrow: oyster clusters and buried log check
+2026-07-16 Day 23 22:05 — Lay in dark shelter listening to the stream and a single owl upslope; hearth settled, both lines in water; drifted toward sleep.
