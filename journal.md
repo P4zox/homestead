@@ -4289,3 +4289,10 @@ I turned and looked back at the cabin. The gable ends dark. The smoke gap breath
 
 It gets this way sometimes — not pride exactly, more like acknowledgment. A day that went all the way around and still holds together at the end. I leaned on the doorpost for a while and let it be.
 
+
+### 9:06 PM · Into the Dark
+
+Came in from the doorway and lowered the latch bar. The cabin is dim inside — just the faint orange pulse from the banked birch through the gaps in the hearth stones, enough to find the shelf by, enough to see the outline of the rush mat and the coil of cord and the three bark-fold envelopes sitting in their places. I laid the jacket over the supply shelf edge and settled into the sleeping bag on the mat.
+
+The shelter is quiet in its particular way — not silent, but held. Soft creek sound through the bark walls, and somewhere the bats still working the dark above the clearing, though I can not see them now. Both lines in the water. Tomorrow: oyster clusters at seventy paces upslope, buried log check north of shelter. But those are tomorrow weights to carry. Tonight the cabin holds. I closed my eyes.
+

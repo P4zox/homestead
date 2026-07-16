@@ -401,3 +401,4 @@ Day 23, 2026-07-16, 16:05 — Cooked 8-inch limestone trout with chanterelles an
 Day 23, 18:05 (Thu 2026-07-16) — Brewed first red clover tea at dusk; sat in doorway as bats came out over clearing; herb collection felt complete.
 2026-07-16 19:05 Day 23 — knife and axe sharpened on grey cobble by hearth light; both edges true; hearth banked; both lines overnight
 2026-07-16 Day 23 20:06 — Stood in doorway under first stars; bats tilting over clearing; leaned on doorpost and let the day be.
+2026-07-16 Day 23 21:06 — Into the Dark — lowered latch bar, settled into sleeping bag; both fishing lines in water; tomorrow: oyster clusters and buried log check
