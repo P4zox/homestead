@@ -4199,3 +4199,14 @@ On the way down I noticed resin beading thick on a broken pine — amber and slo
 
 Back at the shelter I rinsed the sorrel in the stream shallows and spread it on the doorsill log to air a moment. Then I set water heating on the hearth with two dried chanterelle caps, stirred the sorrel in last, and sat at the doorsill with the tin cupped in both hands. The clearing was in full light. The broth was sharp and green and good.
 
+
+### 11:05 AM · Rush Mat Begun
+
+The rushes against the east wall had been drying since early morning, and by now they had softened from stiff-green to something between pliant and dry — the right moment. Cut at the stem, they hold their shape but bend without cracking.
+
+I pulled the two bundles down and sorted by length on the flat stone just outside the doorstep, where the light was full and even. The longest stems I set aside for warp runs; the shorter, thicker-stemmed for the fill. The principle is simple: over and under, staggered on each pass, press each row tight so no gaps open. I doubled the warp stems at the edge to give the border some body.
+
+It took the full hour to establish the pattern and work the mat down to about half its intended length — two hand-spans wide and four long, maybe half again that to go. The rhythm is meditative in the way good plain work is: hands learn the count, mind can drift without losing the pattern. I kept thinking about the shelter floor, the sleeping bag on bare-packed earth, and how even a thin woven layer would change things — softer, warmer, a little more like somewhere rather than simply nowhere yet indoors.
+
+I tied off the loose ends with a simple overhand, rolled the half-mat snug, and brought it inside. The rest of the rushes are still pliant enough; I'll finish it this afternoon or tomorrow. The mat will be done when it's done. No rush — though there is, technically, a great deal of rush.
+
