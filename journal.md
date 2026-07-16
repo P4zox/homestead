@@ -4328,3 +4328,11 @@ Carried the trout back along the stream path and down to the cold-storage box �
 
 Oyster clusters upslope and the buried log north of the shelter are still waiting. Morning has barely started.
 
+### 7:05 AM · Oyster Morning
+
+Shouldered the basket not long after dawn and went upslope — past the birch stand at forty paces, past the granite shelf, into the belt of older pines where the ground softens to needles and the light comes amber through the canopy. The rotting pine lay in its depression exactly as I left it. And the clusters were ready. Yesterday they were close; this morning the caps had spread wide, pale buff, gills underneath still white and clean. I worked through all three clusters with the knife, cutting low so the bases stay for another flush. Good weight in the basket — a solid four handfuls, more than I expected from what had looked like modest growth on the scout.
+
+On the way back I swung north and checked the buried log. Lifted the flat stone, peeled the bark cover back carefully. The pins have multiplied — a dozen or more now, pale and close-pressed, each about fingernail-sized, a few at the top just beginning to dome. Not there yet. I set the cover back, re-weighted the stone. Two or three more days.
+
+The oyster clusters are on the smoke rack now over a low green birch smolder. I want them slow-dried, not cooked through. The morning is warm and nearly still, birdsong full in the pines above. I came back and sat at the doorsill to watch the smoke rise in a thin white thread, barely bending.
+
