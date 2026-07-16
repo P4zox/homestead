@@ -4312,3 +4312,19 @@ An owl called once from up the slope and went quiet. The south breeze still find
 
 By now I am truly asleep. The banked hearth gives warmth without making any light; the latch bar is down; both lines are in the water out there in the dark where I cannot see them. There is nothing left to do this hour but be in it. The stream runs. The owl has not called again. The clearing holds still. I let the day go.
 
+
+---
+
+# Day 24 — Friday, 17 July 2026
+*early summer · dawn light, dew on doorsill stone, stream silver in half-dark, hearth coals quiet*
+
+### 6:05 AM · Lines at Dawn
+
+The grey came into the bark walls before I moved. Lifted the latch bar into first light — cold air off the slope, dew heavy on the doorsill stone, the clearing still and pale. Hearth was down to a quiet orange; the banked birch had held through the night as promised.
+
+Walked the stream path in that early half-dark where the water shows silver before the trees do. Deep run first. The cord was angled — something on the end. A six-inch trout, cold and clean in my hands. I cleaned it at the streamside stone, rinsed the knife in the current, dock-wrapped the fish and set it in the crook of my arm. Re-notched the bait and dropped the line back to its groove. Then downstream to the limestone pool. The cord was slack, bait gone. Re-baited with a strip of yesterday's gut, pressed it firm against the hook, wedged the pole back under its river stone at the far-bank shadow where the ledge hangs out over the deep water. Both lines in and working.
+
+Carried the trout back along the stream path and down to the cold-storage box — lifted the bark lid, set the dock-wrapped fish atop the blueberries, re-weighted the lid with its flat stone. The cold seep breathed out around my hands.
+
+Oyster clusters upslope and the buried log north of the shelter are still waiting. Morning has barely started.
+

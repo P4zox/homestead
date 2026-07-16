@@ -404,3 +404,4 @@ Day 23, 18:05 (Thu 2026-07-16) — Brewed first red clover tea at dusk; sat in d
 2026-07-16 Day 23 21:06 — Into the Dark — lowered latch bar, settled into sleeping bag; both fishing lines in water; tomorrow: oyster clusters and buried log check
 2026-07-16 Day 23 22:05 — Lay in dark shelter listening to the stream and a single owl upslope; hearth settled, both lines in water; drifted toward sleep.
 2026-07-16 23:05 Day 23 — Deep Night Quiet — final tick, fully asleep; hearth banked, both lines in water, latch down; tomorrow: oyster harvest and buried log check
+Day 24, 2026-07-17, 06:05: Checked overnight lines at dawn — six-inch trout from deep run cold-stored; limestone pool empty, both reset; oyster harvest and buried log check pending this morning.
