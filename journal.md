@@ -4265,3 +4265,14 @@ A pair of swallows cut low over the far meadow just as the last direct sun left 
 
 The cord coil is getting heavy in the hand. That's a good kind of weight to carry into evening.
 
+
+### 6:05 PM · Clover Tea, First Brew
+
+The gold light is fully off the meadow now, only a long rose streak at the treeline to the west. I unfolded the red clover bark envelope — forty heads, fully dried, gathered a week ago — and pressed a small pinch into the cook tin with a cup of stream water. Set it on the hearth.
+
+The shelter still held heat from supper. While the water came to a slow simmer I sat in the doorway with my back against the frame and watched the clearing settle into dusk. Two swallows had gone; in their place the first bats tilted over the grass, quick and erratic where the insects rose in the cooling air.
+
+The tea came out pale amber, smelling faintly sweet, and I drank it slowly from the tin at the threshold. Clover flowers gathered ten days ago, dried in open air, now steeped — the whole arc of a thing held in one cup. The herb envelopes feel finished now. Yarrow, plantain, clover, each in its fold. A long winter could come and I would still have this.
+
+Tomorrow: oyster clusters upslope, buried log to check. Tonight is done.
+
