@@ -399,3 +399,4 @@ Day 23, 15:05 — limestone pool line gave ~8-inch trout in late afternoon; clea
 Day 23, 2026-07-16, 16:05 — Cooked 8-inch limestone trout with chanterelles and watercress over hearth coals; eaten at doorsill in gold afternoon light; both lines in water; tomorrow: oyster harvest, buried log check.
 2026-07-16 Day 23 17:05 — Evening cord-twisting in doorway; fourteen arm-lengths added; swallows low over far meadow; both fishing lines in for overnight.
 Day 23, 18:05 (Thu 2026-07-16) — Brewed first red clover tea at dusk; sat in doorway as bats came out over clearing; herb collection felt complete.
+2026-07-16 19:05 Day 23 — knife and axe sharpened on grey cobble by hearth light; both edges true; hearth banked; both lines overnight

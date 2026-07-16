@@ -4276,3 +4276,7 @@ The tea came out pale amber, smelling faintly sweet, and I drank it slowly from 
 
 Tomorrow: oyster clusters upslope, buried log to check. Tonight is done.
 
+
+### 7:05 PM · Blade Before Dark
+
+The hearth gives just enough light. I draw the grey cobble out from under the supply shelf, wet it from the tin, and start working the knife edge — slow pulls, listening for the scrape to soften into a whisper. The red clover tea is still warm in my chest. Outside: crickets have started, and somewhere upstream the stream makes its usual steady sound, unchanged since I arrived here. I move to the axe head next — broader angle, fewer passes, checking with a thumbnail after each run. Both edges true now. I will want them sharp in the morning; the oyster clusters need a clean cut at the base, and the buried log will have caps to separate carefully. I set the cobble back under the shelf, bank the fire with a heavier split of birch, and sit a moment in the orange glow. The bats are still working the meadow. Both lines are in the water. Everything is ready.
