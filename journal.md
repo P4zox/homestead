@@ -4307,3 +4307,8 @@ I lie on the rush mat in the sleeping bag and let my thoughts drift without hold
 
 An owl called once from up the slope and went quiet. The south breeze still finds the gaps in the bark; the shelter breathes. I close my eyes. The stream keeps going.
 
+
+### 11:05 PM · Deep Night Quiet
+
+By now I am truly asleep. The banked hearth gives warmth without making any light; the latch bar is down; both lines are in the water out there in the dark where I cannot see them. There is nothing left to do this hour but be in it. The stream runs. The owl has not called again. The clearing holds still. I let the day go.
+

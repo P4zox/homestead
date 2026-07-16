@@ -16,3 +16,4 @@
 20:05 — Stepped out to stand in the doorway; south breeze cool on the face; first bats still tilting overhead; sky gone deep blue with three stars fixed in it; turned and looked at the cabin — smoke gap breathing a thin trail from banked birch, mat and cord and herb folds all in order, both lines in the water; leaned on doorpost a while and let the day be.
 21:05 — Lowered latch bar; settled into sleeping bag on rush mat; hearth banked on heavy birch split; both lines in water overnight; sleep.
 22:05 — Lying in sleeping bag on rush mat; latch down, shelter dark; hearth settled and still — warmth without light; stream audible through bark walls; owl called once from upslope and went quiet; both lines in water; drifted toward sleep.
+23:05 — Deep asleep; latch down, hearth banked on heavy birch split; both lines in water overnight; shelter dark and still; stream running; let the day go.
