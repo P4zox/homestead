@@ -4173,3 +4173,18 @@ Bundled them tight with a strip of bark cord and carried them back. They are lea
 
 The meadow on the way back was worth a pause. Daisies open across the lower half, red clover still blooming in the lower quarter, two dragonflies working slow over the seep. Standing at the margin looking back north, I could see the cabin roof through the haze above the grass line — the smoke rack, the stacked firewood, the garden rows catching the angle of the sun. All of it made, standing, mine. A good eight in the morning.
 
+
+### 9:05 AM · Upslope, Light Growing
+
+The rushes are leaning against the east wall, still wet-smelling from the seep. There is a particular smell to fresh-cut rush — green and watery, like the ground itself breathing out. By the time it fades to that dry, pale-yellow sweetness they will be ready to work with. That is a few days yet.
+
+I took the morning's momentum upslope. Past the granite shelf — south view still catching me each time, the garden rows small and certain down below, smoke rack standing — and up into the older pines where the light comes in at a low angle, long and amber at this hour. I was not looking for anything particular, just moving through it.
+
+The blueberry patch: the south-facing clusters are past their peak — a handful of shriveled skins, a few still holding. The north-facing side, always slower, still showing good fruit. The largest remaining berries, darkest. I did not harvest. Let them sit another day or two.
+
+The large rotting pine at seventy paces: the oyster clusters I left on Day 21 have grown. The two smaller ones on the upper face are twice the size now — caps fanning out, pale buff, gills clean. Not quite at harvest. Maybe tomorrow, maybe the day after. The heartwood split is still weeping resin, too fresh to tap. I left it.
+
+Coming down through the birch stand I noticed something I had passed before without registering: a patch of wood sorrel in a deer-cool hollow where two birch trunks have fallen across each other. Larger leaf clusters than the garden transplants — the kind of spot where it runs wild. I pinched a few stems: bright, clean, a full sour snap. A good stand. I will remember it.
+
+Home by the time the shadow left the doorstep.
+
