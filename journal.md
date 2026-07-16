@@ -4210,3 +4210,11 @@ It took the full hour to establish the pattern and work the mat down to about ha
 
 I tied off the loose ends with a simple overhand, rolled the half-mat snug, and brought it inside. The rest of the rushes are still pliant enough; I'll finish it this afternoon or tomorrow. The mat will be done when it's done. No rush — though there is, technically, a great deal of rush.
 
+### 12:05 PM · Rush Mat Done
+
+Noon heat settling into the clearing now, the kind that makes the pines smell sharp. I unrolled the half-mat from inside, set it flat on the doorsill stone, and picked up where I left off. The remaining rushes were still workable — supple enough to bend without snapping, which I had not been sure of after three hours of drying. I wove the second half the same as the first: over-under, staggered, doubled border on both long edges.
+
+When the last stem was in and the border tied off, I folded the loose ends back and trimmed them flush with the knife. The mat lies flat, no curl — about four hand-spans wide and four long, large enough for the hearth corner or to sit on at the doorsill without the cold stone under you. I put it down inside against the south wall and stood on it. Firm underfoot. Good weave.
+
+The rushes from the meadow finished strong. I will cut another bundle in a few days once the ones I left at the seep have had time to stand back up.
+
