@@ -4254,3 +4254,14 @@ The light was already going gold by the time the fish was done — slanting in l
 
 Both lines are in the water. Tomorrow I will check the oyster clusters on the rotting pine upslope and look at the buried log north of shelter — probably still a few days off, but worth a proper look. For now I will sit here a little longer until the light goes, then twist cord by the fire and sleep with a full stomach.
 
+
+### 5:05 PM · Cord by Fading Gold
+
+Sat in the doorway with the cord bundle in my lap, back against the doorframe, and watched the light go amber over the meadow while my hands worked. The two lines are in — deep run and limestone pool both baited and sitting — and there was nothing urgent left to do before dark. So I twisted cord.
+
+There's something in that motion that quiets the mind. Strip, roll, cross, repeat — thirty or forty times, and somewhere in the repetition the day gathers itself into a shape you can see whole. The mat is done and laid against the south wall. The herb folds are full and on the shelf. Supper was the limestone trout, clean and good. Both lines will decide tomorrow's breakfast.
+
+A pair of swallows cut low over the far meadow just as the last direct sun left the grass tops. Quick tilts, impossible stalls, turns that shouldn't work and then simply do. I watched them until they vanished behind the birch stand. Fourteen more arm-lengths on the coil by the time I looked down again.
+
+The cord coil is getting heavy in the hand. That's a good kind of weight to carry into evening.
+
