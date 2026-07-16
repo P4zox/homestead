@@ -4245,3 +4245,12 @@ The pool is a good place. Water moves differently there — deeper and slower, t
 
 Supper will be this trout, the last of the watercress, and whatever the hearth says. A good enough day to end on.
 
+
+### 4:05 PM · Trout in Gold Light
+
+The trout came home from the limestone pool dock-wrapped and cool, the dock leaf still damp from the current. I got the hearth going with a few of the dry pine splits from the east-wall stack — the windthrow batch catches fast, and inside a handful of minutes there were proper coals banked against the back hearthstone. Set the cook tin on the surround, a splash of stream water in the bottom, the two dried chanterelle caps pulled from the cold-storage box, the trout splayed and laid in whole. Pressed the morning's watercress over the top and put the lid on loose.
+
+The light was already going gold by the time the fish was done — slanting in low through the open doorway, picking out the mat grain on the south wall, the cord coil hanging from its peg. I brought the tin to the doorsill and sat with both feet on the flat stone step and ate slowly. The trout was clean and mild, the chanterelles deep and smoky-sweet, and the watercress came in bright at the end of every mouthful — the kind of small sharpness that makes everything else taste richer. The clearing in front of me: grasses seed-heavy and moving a little in the south breeze, the smoke rack standing quiet, the garden rows just visible at the south edge of the bench.
+
+Both lines are in the water. Tomorrow I will check the oyster clusters on the rotting pine upslope and look at the buried log north of shelter — probably still a few days off, but worth a proper look. For now I will sit here a little longer until the light goes, then twist cord by the fire and sleep with a full stomach.
+
