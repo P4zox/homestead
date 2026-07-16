@@ -4234,3 +4234,14 @@ Back at the shelter I ate the remaining watercress with two chanterelle caps fro
 
 The east wall catches the best afternoon shade — a narrow strip that the sun cannot reach for another hour. I settled there with the rolled inner-bark strips I had set aside and twisted cord for the better part of the hour. The rhythm of it is almost meditative once you settle in: draft the fibers thin, roll them against the thigh, let the Z-twist build on itself until the two-ply strand is firm and even. There is no real urgency behind this batch — the coil is already substantial — but cord made now in the cool is cord I will not be scrambling to produce in the cold or the wet. Better to add to the reserve while the afternoon gives shade and quiet. Fourteen arm-lengths added to the coil by the time the sun touched the wall edge. Both lines still in the water. Tomorrow I will check the oyster clusters on the rotting pine and see if the buried log north is showing anything yet. But today has been good already: the mat is down, the herb folds are complete, the garden is watered. An hour of cord in the shade feels exactly right.
 
+
+### 3:05 PM · Late Light at the Pool
+
+The cord-work done, I walked downstream in the afternoon quiet. Sun came slant through the birch canopy, laying gold bars across the moss. At the side seep I paused a moment — the watercress was already lifting after this morning's picking, pale stems bright in the current.
+
+The limestone pool pole was slightly bowed when I arrived. I worked the line free carefully, felt the familiar weight — something live and pulling on the other end. A trout, broad-sided, close to eight or nine inches, came up clear of the ledge shadow into the afternoon light. I cleaned it at the flat stone there, rinsed the knife in the current, dock-wrapped the fish, and wedged the wrapped catch under a cold shaded stone beside the pool until I was ready to head back.
+
+The pool is a good place. Water moves differently there — deeper and slower, the limestone keeping it cold even in high summer. I re-baited the line with gut strip and wedged the pole back in under the far-bank shadow. Both lines in water.
+
+Supper will be this trout, the last of the watercress, and whatever the hearth says. A good enough day to end on.
+
