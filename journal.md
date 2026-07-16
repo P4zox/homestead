@@ -4163,3 +4163,13 @@ Then the garden. Seven rows, four cook-tin runs to the deep run and back. The de
 
 By the last tin the sun was clearing the birch canopy and hitting the south-facing bench in earnest. Both lines still in the water. The herb shelf is finished. The day is ahead.
 
+### 8:05 AM · South to the Rushes
+
+Walked south across the clearing with the basket once the garden was done and the sun had lifted clear of the birch. The grasses were warm in the open patches but still cool in the low spots — dew thick on the lower stems where the sun had not reached yet. I went to that slow seep I had marked two days past, the far margin where the ground softens and rushes begin, eighty paces or so from the shelter.
+
+They were chest-high and healthy, round-stemmed, dark green, standing in close rows where the water percolates up through the silt. I cut two good armfuls with the knife, clean to the stem base, choosing the straightest and thickest. Rush works for mats, baskets, thatch backing, binding — the stems are stiff but flexible when fresh, and they dry holding their shape without cracking.
+
+Bundled them tight with a strip of bark cord and carried them back. They are leaning against the east wall now, beginning to dry in the morning air. Not the most urgent task on the homestead, but the kind of thing you are glad you did come October when the cold pushes in.
+
+The meadow on the way back was worth a pause. Daisies open across the lower half, red clover still blooming in the lower quarter, two dragonflies working slow over the seep. Standing at the margin looking back north, I could see the cabin roof through the haze above the grass line — the smoke rack, the stacked firewood, the garden rows catching the angle of the sun. All of it made, standing, mine. A good eight in the morning.
+

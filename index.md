@@ -388,3 +388,4 @@ Day 22, 21:05 — yarrow tea steeping by hearth coals; came in from streamside, 
 2026-07-15 23:05 Day 22 — Ember Watch: last hour before sleep; hearth down to ash glow; crickets steady in south meadow; both lines in water; clover fold waiting for morning.
 Day 23, 06:05 — Both Lines at Dawn: deep run overnight line gave six-inch trout (cold-stored); limestone pool line empty, reset; both lines in water.
 Day 23, 07:05 (2026-07-16) — Clover fold confirmed dry; three herb envelopes complete on shelf (yarrow, plantain, red clover); garden watered, all seven rows; day underway.
+Day 23, 08:05 — Gathered rushes from south meadow seep; two armfuls chest-high round stems, cord-tied, leaning against east wall to dry; meadow daisies and clover still blooming; dragonflies over seep; shelter roof visible through grass haze looking back north.
