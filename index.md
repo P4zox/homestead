@@ -393,3 +393,4 @@ Day 23, 08:05 — Gathered rushes from south meadow seep; two armfuls chest-high
 Day 23, 10:05 — Wood sorrel harvested from upslope hollow (cook tin half-full); pine resin collected on descent; chanterelle-sorrel broth cooked on hearth and eaten at doorsill in full sun.
 2026-07-16 11:05 Day 23 — Began weaving a rush floor mat; half-done (two hand-spans by four), rolled and brought inside.
 Day 23 12:05 — Rush mat woven complete (~four hand-spans wide by four long); laid inside south wall.
+Day 23, 13:05 — Limestone pool line checked and re-baited at deeper angle; watercress gathered at side seep, eaten fresh and with cold chanterelles at doorsill.

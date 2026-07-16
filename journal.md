@@ -4218,3 +4218,14 @@ When the last stem was in and the border tied off, I folded the loose ends back 
 
 The rushes from the meadow finished strong. I will cut another bundle in a few days once the ones I left at the seep have had time to stand back up.
 
+
+### 1:05 PM · Limestone Pool at Midday
+
+The mat is done, the morning's work has its good weight behind it — three herb folds on the shelf, seven garden rows watered, the rush mat flat and firm against the south wall. The afternoon opened up without a particular demand on it, so I walked the lower stream.
+
+The side seep below the deep run was running clean and cold, watercress coming in thick at the margins. I knelt and pulled a fistful — stems bright, leaves cold — rinsed them in the current and ate a few sprigs where I crouched. Sharp and mineral, the taste of moving water. Packed the rest in a fold of dock leaf to carry back.
+
+At the limestone pool the pole was still wedged under the river stone, but the line had gone slack. No fish, but the bait was gone entirely. I re-baited with a strip of cold-stored fish gut, adjusted the depth to let the hook swing closer to the far shadow where the bank undercuts and the limestone goes dark. That is where the bigger fish hold, I think — the current eddies there and the bottom is invisible.
+
+Back at the shelter I ate the remaining watercress with two chanterelle caps from the cold-storage box, sitting in the doorsill where the afternoon sun just clears the roof edge. The interior was warm by then — the log walls hold midday heat better than I expected. Both lines are in the water. Tomorrow I should check the oyster clusters and the buried log to the north.
+
