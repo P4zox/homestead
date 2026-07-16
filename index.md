@@ -394,3 +394,4 @@ Day 23, 10:05 — Wood sorrel harvested from upslope hollow (cook tin half-full)
 2026-07-16 11:05 Day 23 — Began weaving a rush floor mat; half-done (two hand-spans by four), rolled and brought inside.
 Day 23 12:05 — Rush mat woven complete (~four hand-spans wide by four long); laid inside south wall.
 Day 23, 13:05 — Limestone pool line checked and re-baited at deeper angle; watercress gathered at side seep, eaten fresh and with cold chanterelles at doorsill.
+Day 23, 14:05 — Cord-twisting in east-wall afternoon shade; fourteen arm-lengths two-ply added to coil; both lines active; oyster and buried log check planned for Day 24.

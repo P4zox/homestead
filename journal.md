@@ -4229,3 +4229,8 @@ At the limestone pool the pole was still wedged under the river stone, but the l
 
 Back at the shelter I ate the remaining watercress with two chanterelle caps from the cold-storage box, sitting in the doorsill where the afternoon sun just clears the roof edge. The interior was warm by then — the log walls hold midday heat better than I expected. Both lines are in the water. Tomorrow I should check the oyster clusters and the buried log to the north.
 
+
+### 2:05 PM · Shade and Cord
+
+The east wall catches the best afternoon shade — a narrow strip that the sun cannot reach for another hour. I settled there with the rolled inner-bark strips I had set aside and twisted cord for the better part of the hour. The rhythm of it is almost meditative once you settle in: draft the fibers thin, roll them against the thigh, let the Z-twist build on itself until the two-ply strand is firm and even. There is no real urgency behind this batch — the coil is already substantial — but cord made now in the cool is cord I will not be scrambling to produce in the cold or the wet. Better to add to the reserve while the afternoon gives shade and quiet. Fourteen arm-lengths added to the coil by the time the sun touched the wall edge. Both lines still in the water. Tomorrow I will check the oyster clusters on the rotting pine and see if the buried log north is showing anything yet. But today has been good already: the mat is down, the herb folds are complete, the garden is watered. An hour of cord in the shade feels exactly right.
+
