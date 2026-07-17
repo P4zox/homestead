@@ -4380,3 +4380,16 @@ Things have gotten quiet in a good way. The urgent phase — shelter, water, fir
 
 I'll cook the trout tonight with the last of the watercress and a couple of cold chanterelle caps.
 
+
+### 12:05 PM · Noon at the Doorsill
+
+Came back from the limestone pool carrying the dock-wrapped seven-inch trout from the 11:05 catch. The sun is full overhead now and the air has gone warm — the cold off the slope burned off hours ago; birch leaves turning silver in a faint south breeze, the meadow below the garden shimmering at the edges.
+
+I built a small hearth fire from the stacked dry pine — just a handful of coals, enough to warm the cook tin. Laid in the trout and two dried chanterelle caps, a little water from the bark vessel, and set the tin over the coals. The smell of it filled the shelter quickly, drove out the overnight must that settles near the sleeping bag when the door stays closed till morning.
+
+Ate at the doorsill in the sun. Chanterelles that have been smoke-dried have a depth fresh ones never have — earthier, a little sweet where the heat pulled moisture through them; the trout came apart at the bone the way cold-stored fish does when it has rested a day on flat stone. I ate slowly. There was no reason to rush.
+
+Sat longer than the eating required, legs stretched into the sun. The smoke rack stands quiet south of the shelter, the cold-storage box upstream full of blueberries and chanterelles and oyster mushrooms and smoked and fresh trout, all layered in cool bark. Both lines are in water. The buried log is two days from harvest. The garden is watered and growing. The cord coil is fat and heavy on the shelf.
+
+It is still only midday. Early summer and long. I have time and enough, and right now both things feel true at once.
+
