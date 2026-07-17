@@ -4356,3 +4356,14 @@ The oyster caps have deepened from pale buff toward amber at the center, still p
 
 I stood there a moment in the still air, watching the smoke thread rise straight. No wind at all this morning. Conditions could not be better for a slow cure.
 
+
+### 10:05 AM · Caps Pulled, Cold-Stored
+
+The smolder had burned down to pale ash by the time I came back. I knew from the smell before I was close — that deep wood-smoke sweetness without any of the raw mushroom earthiness underneath, which told me they were done. I lifted each cap off the crossbars: the undersides were light tan, the tops amber-brown, and when I pressed one between my fingers it gave a little but did not yield — dried through, not brittle. All four handfuls into the bark vessel.
+
+I carried them upstream to the cold-storage box. The bark lid was cool to the touch. Inside: the blueberries on the flat stone shelf, the chanterelles and smoked trout alongside. I laid the oyster caps across the top — four good handfuls, more than I expected from three clusters. The box is getting full. A good problem to have.
+
+Raked the ash from under the smoke rack and turned the coals with a stick. The rack holds solid — cord ties still tight, Y-forks seated. Left it clean and ready.
+
+The clearing is bright now. Lines in the water, garden watered, oysters cold-stored. This is what a settled morning looks like.
+
