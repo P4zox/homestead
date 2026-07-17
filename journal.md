@@ -4431,3 +4431,10 @@ Everything I've built is small from up here. That doesn't make it feel less real
 I sat a while. Swallows came through above the meadow, quick and purposeful. I counted things I haven't yet done and wasn't bothered by any of them. The season is good and there is time.
 
 Down before supper.
+
+### 4:05 PM · Pool in the Light
+
+Came down from the granite shelf as the shadow of the pines began to cross the upper garden rows — that particular tipping-point between afternoon and evening. I swung by the limestone pool on the way home, half expecting nothing after the midday take. The pole had angled out slightly from the ledge, the line going taut toward the far bank. Seven inches, maybe — bright and cold in my hand. Cleaned it at the flat pool stone, dock-wrapped with a clean leaf, line re-baited with a fresh gut strip and reset under the shadow.
+
+Walking back up the bank in the slant light, trout in hand, I thought: today has been enough. Better than enough. The box is stocked, the mushrooms dried and put by, the garden watering itself slowly in the evening soil, both lines in water again. Some days the land works hard alongside you and some days it just hands you things. Today was one of the latter. I do not read much into it — it is not a promise — but I can receive it plainly for what it is. A good day on good land. The evening still ahead.
+
