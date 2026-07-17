@@ -413,3 +413,4 @@ Day 24, 10:05 — Oyster mushrooms (4 handfuls) fully smoke-dried and cold-store
 2026-07-17 12:05 Day 24 — Noon meal at the doorsill: trout and chanterelles over hearth coals; sat in midday sun; both lines in water; cold-storage box full; garden growing.
 Day 24, 2026-07-17, 13:05 — Made birch-bark bucket in east-wall shade; cylinder stitched with two-ply cord and resin-sealed, base cut and sealed — water-tested, holds; curing overnight by cold-storage box.
 2026-07-17 14:05 (Day 24) — East strawberry patch second flush; ~60-70 berries eaten at patch and doorsill; quiet afternoon in the breeze.
+2026-07-17 15:05 Day 24 — walked upslope to granite shelf overlook; sat above the clearing in late afternoon sun, watching swallows over the meadow

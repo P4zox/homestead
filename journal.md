@@ -4417,3 +4417,17 @@ I crouched in there a while. Picked slowly, ate some where I stood, let the rest
 
 Came back to the doorsill with a small handful — maybe sixty berries, maybe seventy. Ate them sitting in the faint breeze. The birch leaves are moving, the meadow is still at the edges, and the whole afternoon feels long and unhurried. Good.
 
+
+### 3:05 PM · Granite Shelf, Late Afternoon
+
+The afternoon had that quality of time stretching wide. The cold-storage box is full; both lines are in the water; the garden rows are watered and growing. I had no urgent task pressing on me, and let myself walk upslope — past the blueberry patch, past the rotting pine, through the older pines where the light falls in gold columns — to the flat granite shelf I found last week.
+
+It sits chest-high against the slope, maybe six feet wide, and from it you can see south over the cabin roof and the clearing and the meadow falling away. I hauled myself up and sat there with my legs over the edge, the west sun angling across the treetops.
+
+What I could see: the smoke rack posts, quiet and clean. The north edge of the garden, birch corner stakes catching the light. The broad south meadow, grass past knee-high, the red clover in the lower quarter a faint purple smear. Further still, the far tree line where the ground rises again.
+
+Everything I've built is small from up here. That doesn't make it feel less real — it makes it feel precise. Each post and log placed deliberately. The scale of it honest.
+
+I sat a while. Swallows came through above the meadow, quick and purposeful. I counted things I haven't yet done and wasn't bothered by any of them. The season is good and there is time.
+
+Down before supper.
