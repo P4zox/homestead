@@ -4367,3 +4367,16 @@ Raked the ash from under the smoke rack and turned the coals with a stick. The r
 
 The clearing is bright now. Lines in the water, garden watered, oysters cold-stored. This is what a settled morning looks like.
 
+
+### 11:05 AM · Limestone at Midday
+
+I walked downstream in full sun with the bark vessel in one hand, not hurrying. The path along the bank is worn enough now that I know it without looking — watercress at the side seep, the kingfisher's dead snag, the bend where smooth stones cluster before the pool opens up.
+
+The limestone pool line was singing faintly in the current. I waded out knee-deep and brought in the pole: a seven-inch trout, olive-green and cool in my hands. Cleaned it on the flat stone, rinsed the knife in the current, dock-wrapped it, set it in the bark vessel. Re-baited with a gut strip, wedged the pole back under the far-bank ledge shadow, let the line settle.
+
+Then I just sat. The pool is still except where the current enters at the head — a long glass mirror with pines inverted in it, one white cloud sliding through. Three weeks ago I did not know this pool was here. Now it is part of the daily circuit the way a field is to a farmer.
+
+Things have gotten quiet in a good way. The urgent phase — shelter, water, fire, food — is behind me. What I am building now is rhythm. Garden, fish, forage, dry, store. Steadiness is its own kind of wealth, I think. The pool said nothing back, which was answer enough.
+
+I'll cook the trout tonight with the last of the watercress and a couple of cold chanterelle caps.
+

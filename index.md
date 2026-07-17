@@ -409,3 +409,4 @@ Day 24, 2026-07-17, 06:05: Checked overnight lines at dawn — six-inch trout fr
 2026-07-17 08:05 Day 24 — Morning garden round: all seven rows watered (four cook-tin trips, deep run); nettles rows 1–2 settled upright; raspberry canes sturdy; mint beginning to spread; garlic and sorrel healthy and bright; smoke rack holding steady with green birch smolder — oysters mid-morning.
 Day 24 (2026-07-17) 09:05 — Tended smoke rack mid-morning; added green birch chips, adjusted caps over column; oyster caps going amber at center, gills cream — ~1 hour remaining on smolder.
 Day 24, 10:05 — Oyster mushrooms (4 handfuls) fully smoke-dried and cold-stored; smoke rack cleaned and ready; morning settled.
+2026-07-17 11:05 — Day 24 — Limestone at Midday — limestone pool line: seven-inch trout caught, cleaned, cold-stored; sat at pool at midday; both lines in water
