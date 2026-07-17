@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:05 — Dawn: overnight deep-run line bare at first light — hook clean, bait taken in the night; re-notched fresh gut strip, reset in dark current below undercut bank. Limestone pool line still wedged and baited, left set. Birch-bark bucket confirmed cured overnight: seams firm and matte, shape held clean, no warping — set upright by cold-storage box. Both lines in water. Today: build split-pine doorsill bench.
+07:05 — Began split-pine doorsill bench: pulled two straight pine rounds from east-wall stack, split each into four half-rounds with axe, dressed curved faces flat with knife blade, trimmed two best planks to doorsill width (~foot wide, inch and a half thick) — materials ready, assembly next.

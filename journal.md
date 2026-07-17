@@ -4523,3 +4523,10 @@ Limestone pool line: I leaned out over the far bank and could see the pole still
 
 Both lines in water. Bucket whole. Garden waiting. The split-pine doorsill bench is today's work — cord and axe ready, and the east-wall stack has what I need. A Saturday of making.
 
+
+### 7:05 AM · Splitting Pine
+
+The mist was still hanging in the meadow when I pulled the first round from the east-wall stack. I chose two of the straightest — about knee-high, pine heartwood, felled from the windthrow almost two weeks back and dry enough now to ring when struck. Split them lengthwise with four clean axe strikes each, following the grain. The split faces came up pale and almost smooth, resinous where the blade ran through. Eight half-rounds, four per log. I stood each one on end and worked the knife blade down the convex side to flatten the underside curve — not perfect, but level enough to sit without rocking. Trimmed two of the best pieces to doorsill width: each about a foot wide, an inch and a half thick, good solid pine. They will go side by side and make a bench you can sit on without sinking into the dirt at the entrance.
+
+The morning stayed clear and still while I worked. A song sparrow somewhere in the birches. The stream just audible down the slope. The hearth warm at my back through the open door. Good work to begin a day with.
+
