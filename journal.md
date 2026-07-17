@@ -4393,3 +4393,16 @@ Sat longer than the eating required, legs stretched into the sun. The smoke rack
 
 It is still only midday. Early summer and long. I have time and enough, and right now both things feel true at once.
 
+
+### 1:05 PM · Bark Bucket Made
+
+The sun was straight overhead and the clearing held the heat in it like a bowl. I stayed on at the doorsill longer than I meant to, watching the shadow of the ridgepole inch across the garden rows, thinking of nothing much. When it got too warm to sit still I moved around to the east wall where the shadow falls broadest in the afternoon, and sat down cross-legged with the supply shelf beside me.
+
+I had been meaning to build a proper bucket for a while — something taller and wider than the bark vessel, that I could carry two-handed to the garden without sloshing. Four cook-tin trips morning and evening are fine, but a bucket that holds four tins' worth in one carry would be better. I pulled one of the larger birch sheets from the bundle, the stiffest one, and worked it slowly in my hands until it relaxed enough to fold.
+
+The fold is simple: crease the sheet into a rough cylinder, overlap the edges by two fingers' width, punch holes along the overlap with the knife tip, and run two-ply cord through in a running stitch. Three lengths of cord for the seam. Then pine resin, warmed between my palms, tamped into every gap. It took most of the afternoon. The base is a flat round cut from a smaller bark piece, stitched in separately and sealed with a full bead of resin around the inside edge.
+
+By the time I water-tested it at the stream's edge the air had cooled a little and the pines on the slope had started to go dark. The bucket holds. Full it is heavy enough to need both hands, which is exactly right — it will make the garden watering half as many trips.
+
+I left it bottom-up on the flat stone near the cold-storage box to cure overnight before I fill it properly.
+

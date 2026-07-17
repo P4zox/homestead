@@ -411,3 +411,4 @@ Day 24 (2026-07-17) 09:05 — Tended smoke rack mid-morning; added green birch c
 Day 24, 10:05 — Oyster mushrooms (4 handfuls) fully smoke-dried and cold-stored; smoke rack cleaned and ready; morning settled.
 2026-07-17 11:05 — Day 24 — Limestone at Midday — limestone pool line: seven-inch trout caught, cleaned, cold-stored; sat at pool at midday; both lines in water
 2026-07-17 12:05 Day 24 — Noon meal at the doorsill: trout and chanterelles over hearth coals; sat in midday sun; both lines in water; cold-storage box full; garden growing.
+Day 24, 2026-07-17, 13:05 — Made birch-bark bucket in east-wall shade; cylinder stitched with two-ply cord and resin-sealed, base cut and sealed — water-tested, holds; curing overnight by cold-storage box.
