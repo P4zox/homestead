@@ -4470,3 +4470,13 @@ It will dry into shape overnight near the warm hearth. In the morning I will pre
 
 Outside: the stream runs. Stars are out in full. Both lines in water. The bucket cures on its stone. The hearth dims toward embers.
 
+### 8:05 PM · Tray Done, Stars Out
+
+The tray had an hour by the fire to stiffen into shape, and it held. I took it from the hearth ledge, pressed the last two corners flat with my thumb, and stitched them closed — a few passes of cord through the notched holes, pulled firm. The bark held its own shape now; the stitching was just security.
+
+Set it on the supply shelf beside the herb envelopes and laid them inside — yarrow, plantain, clover — then the resin fold after. The shelf looks like something now. A small row of order.
+
+Stepped to the doorsill before bed. Full dark nearly, stars bright overhead and thickening, the first fireflies rising at the meadow edge in slow cold sparks. The deep run murmuring somewhere beyond the garden rows. Both lines in the water. Bucket curing on the flat stone.
+
+The day was full. The evening is quiet. Nothing more needed from this hour.
+
