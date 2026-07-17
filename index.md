@@ -419,3 +419,4 @@ Day 24, 17:05 — Cooked supper: seven-inch limestone pool trout with dried chan
 Day 24, 18:05 — Evening red clover tea at doorsill; swallows, then bats, then hearth; seven arm-lengths cord twisted — coil near maximum.
 Day 24, 19:05 — Began birch-bark supply tray: one large sheet scored, folded, notched at corners; two corners stitched with two-ply cord by hearth light; drying near hearth — two corners to complete tomorrow.
 Day 24, 20:05 — Stitched bark supply tray complete (four corners); arranged herb envelopes and resin fold inside; watched fireflies rising at meadow edge from doorsill.
+2026-07-17 Day 24, 21:05 — Sat at doorsill in full dark with last cup of clover tea; fireflies and bats over meadow; resolved to build split-pine doorsill bench tomorrow with cord and axe; banked hearth coals; ready for sleep.

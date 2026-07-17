@@ -4480,3 +4480,14 @@ Stepped to the doorsill before bed. Full dark nearly, stars bright overhead and 
 
 The day was full. The evening is quiet. Nothing more needed from this hour.
 
+
+### 9:06 PM · Stars and What Comes Next
+
+The hearth is down to coals. I poured a cup of clover tea from the pot still warm on the stone and took it outside, standing at the doorsill in full dark. The fireflies were still going — low green pulses drifting over the meadow edge, unhurried. A bat folded tight over the garden rows and vanished.
+
+I have been turning over the cord in my mind since the 18:00 hour. Seven more arm-lengths tonight put the coil past what I should keep growing. There is something almost compulsive about the making of it — the rhythm is good — but now it answers a need I have been slow to name. Tomorrow or the next day I want to start putting it to use. A slab bench for the doorsill keeps coming back to me: split pine, notched legs, set outside the door where I eat most meals anyway. The cord would lash the crosspieces. The axe and knife are both sharp. The east-wall firewood stack has the right material.
+
+Both lines in water. Bucket curing on the flat stone by the cold seep. The buried log still a few days off. The day was long but not hard, and the evening sits easy.
+
+I stayed outside until the tea was gone and the fireflies thinned. The stars are clear tonight — Cassiopeia tilting toward the slope, the Dipper bright and low. I came in and banked the coals under a flat stone, set the cup upside down on the shelf. There is not much left to do but sleep.
+
