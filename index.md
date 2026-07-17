@@ -417,3 +417,4 @@ Day 24, 2026-07-17, 13:05 — Made birch-bark bucket in east-wall shade; cylinde
 2026-07-17 16:05 Day 24 — Pool in the Light: limestone pool line gave seven-inch trout; cleaned at flat pool stone; line re-baited and reset; trout dock-wrapped for supper
 Day 24, 17:05 — Cooked supper: seven-inch limestone pool trout with dried chanterelles and watercress over hearth coals; eaten at doorsill in amber evening light; birch-bark bucket curing; both lines in water for the night.
 Day 24, 18:05 — Evening red clover tea at doorsill; swallows, then bats, then hearth; seven arm-lengths cord twisted — coil near maximum.
+Day 24, 19:05 — Began birch-bark supply tray: one large sheet scored, folded, notched at corners; two corners stitched with two-ply cord by hearth light; drying near hearth — two corners to complete tomorrow.

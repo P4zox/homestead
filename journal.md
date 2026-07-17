@@ -4460,3 +4460,13 @@ I took the tin out and stood drinking the tea at the doorsill, watching the ligh
 
 Twisted seven arm-lengths of two-ply before the fire dulled. The coil is nearly too heavy to lift in one hand now; I set it in my lap and turned it over and thought that I really need to start putting cord to use rather than adding more length to something already full. A frame, a lashing, something that takes length. The hands kept the motion and the mind turned the problem over without quite coming to a plan — which is fine. That is what evenings are for.
 
+### 7:05 PM · Bark Work by Firelight
+
+By the time the last amber faded from the sky I was already back inside, the door latched, the hearth coals breathing slow and orange. The nine large bark sheets have been sitting on the supply shelf since Day 19, waiting. The herb envelopes, the pine resin fold, the extra cord — they have started piling on each other, and twice now I have had to root around to find what I need. Tonight I began fixing that.
+
+I took one of the large birch sheets — a good flat one, maybe two hand-spans wide and four long — and worked it into a shallow tray. The fold is simple: score the long edges a hand-span in with the knife tip, press the crease sharp against the edge of the door plank, then fold. The bark wants to spring back at first; you work it gradually, coaxing the fiber rather than snapping it. Corners are the tricky part — you must cut a small notch at each to let the sides meet cleanly, then stitch them with two-ply cord. I got two corners done before the light dropped too low to work the fine cord. The third and fourth tomorrow.
+
+It will dry into shape overnight near the warm hearth. In the morning I will press the resin fold and the three herb envelopes into it and see how they sit. A small thing, but a tidy one.
+
+Outside: the stream runs. Stars are out in full. Both lines in water. The bucket cures on its stone. The hearth dims toward embers.
+
