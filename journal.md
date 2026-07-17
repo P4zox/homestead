@@ -4406,3 +4406,14 @@ By the time I water-tested it at the stream's edge the air had cooled a little a
 
 I left it bottom-up on the flat stone near the cold-storage box to cure overnight before I fill it properly.
 
+
+### 2:05 PM · Strawberry Patch Return
+
+The midday fire's ash has gone grey and cold. I left the trout bones at the wood edge for whatever wants them and turned east — the strawberry patch at the clearing margin has had five or six days of quiet, and I thought it might be ready.
+
+The walk is short, barely two dozen paces. The patch runs along the tree line in a long strip, and even from ten paces I could see the red — not the blush-mass of the first flush, but scattered bright points among the leaves. A second round. Lighter, the way a summer reprieve always is, but real.
+
+I crouched in there a while. Picked slowly, ate some where I stood, let the rest collect in the curl of a piece of bark. The berries were sweet and slightly warm from the afternoon sun, with that particular sharpness wild strawberries carry that farmed ones never manage. I wasn't in a hurry. The smoke rack is clean. Both lines are in the water. The bucket is curing by the stream.
+
+Came back to the doorsill with a small handful — maybe sixty berries, maybe seventy. Ate them sitting in the faint breeze. The birch leaves are moving, the meadow is still at the edges, and the whole afternoon feels long and unhurried. Good.
+
