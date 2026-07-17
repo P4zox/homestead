@@ -4500,3 +4500,8 @@ I lay still and let the day unspool. It was a full one — trout at dawn, the ga
 
 The dark outside is a full summer dark, warm and alive with small things. An owl somewhere upslope, very far, calling once and then not again. The shelter holds the quiet well. Sleep is easy here.
 
+
+### 11:05 PM · Night Deep
+
+The owl again — two notes, upslope, then nothing. I half-woke in the sleeping bag without quite knowing why. Door latched, coals banked under the flat stone, gable gap letting in cool pine-dark air and the stream's low murmur. I lay still and took stock of what was out there: the birch-bark bucket curing on the flat stone by the cold seep, both lines in water at the deep run and limestone pool, the garden settled in summer dark. All the day had happened and was finished. Tomorrow the bench. Day 26 the buried log. Nothing needed from me now. I turned onto my side and went back under.
+
