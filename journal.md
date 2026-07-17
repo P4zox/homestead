@@ -4491,3 +4491,12 @@ Both lines in water. Bucket curing on the flat stone by the cold seep. The burie
 
 I stayed outside until the tea was gone and the fireflies thinned. The stars are clear tonight — Cassiopeia tilting toward the slope, the Dipper bright and low. I came in and banked the coals under a flat stone, set the cup upside down on the shelf. There is not much left to do but sleep.
 
+
+### 10:05 PM · Night sounds, settling
+
+Laid down in the sleeping bag with the door latched and the hearth coals dark under the flat stone. The gable gap lets in the night air — cooler now, carrying pine resin and the faint mineral smell of the stream. From the meadow edge, fireflies still occasional — a slow pulse, then gone. The deep run murmurs somewhere out in the dark; the lines are set; whatever comes to them will be there in the morning.
+
+I lay still and let the day unspool. It was a full one — trout at dawn, the garden watered, oysters smoke-dried and cold-stored, the bark supply tray finished and set on the shelf. The bucket still curing on its flat stone by the cold seep. The cord coil near maximum. Tomorrow: the doorsill bench — a split round from the east-wall stack, bark stripped, set level across the sill width. Good work to wake to.
+
+The dark outside is a full summer dark, warm and alive with small things. An owl somewhere upslope, very far, calling once and then not again. The shelter holds the quiet well. Sleep is easy here.
+
