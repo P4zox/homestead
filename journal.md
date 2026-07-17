@@ -4449,3 +4449,14 @@ Day 24 has been generous: two trout, a basket of smoked oysters cold-stored, the
 
 The bones I will carry to the tree line before dark. Both lines are in water; the night belongs to them now.
 
+
+### 6:05 PM · Dusk and the Swallows
+
+The supper fire had burned to good coals and the evening was softening in the way early summer evenings do — sounds falling off, light going amber and long. I put a small handful of dried red clover into the cook tin with half a cup of stream water and set it on the coals to steep, then stepped to the doorsill.
+
+The swallows were still working the meadow — eight or ten of them, looping and banking low over the grass. The sun had dropped behind the pines but the birch tops still held the last of it, amber against a sky shading from gold to pale green. The shadows from the treeline had crossed the garden rows and reached most of the way to the smoke rack.
+
+I took the tin out and stood drinking the tea at the doorsill, watching the light go. The first bats tilted out from somewhere in the pines, and the swallows dropped lower and finally scattered. That was the signal: inside, a couple of small sticks on the coals, hearth light catching.
+
+Twisted seven arm-lengths of two-ply before the fire dulled. The coil is nearly too heavy to lift in one hand now; I set it in my lap and turned it over and thought that I really need to start putting cord to use rather than adding more length to something already full. A frame, a lashing, something that takes length. The hands kept the motion and the mind turned the problem over without quite coming to a plan — which is fine. That is what evenings are for.
+
