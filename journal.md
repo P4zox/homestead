@@ -4438,3 +4438,14 @@ Came down from the granite shelf as the shadow of the pines began to cross the u
 
 Walking back up the bank in the slant light, trout in hand, I thought: today has been enough. Better than enough. The box is stocked, the mushrooms dried and put by, the garden watering itself slowly in the evening soil, both lines in water again. Some days the land works hard alongside you and some days it just hands you things. Today was one of the latter. I do not read much into it — it is not a promise — but I can receive it plainly for what it is. A good day on good land. The evening still ahead.
 
+
+### 5:05 PM · Supper by Coals
+
+The trout was still cold from the limestone pool when I set it in the cook tin — dock-wrapped, firm, smelling of clear water. Built the fire small and let it burn down to a steady coal bed; laid the tin in close with two dried chanterelle caps and a press of watercress. Everything cooked slow and even, the way it should.
+
+I ate at the doorsill as always, watching the meadow go gold in the lowering sun. Swallows still cutting through above the grass. The birch-bark bucket is curing bottom-up on the flat stone by the cold-storage box — I can see it from here, pale and still, doing its slow work. A good object. Tomorrow it may hold water.
+
+Day 24 has been generous: two trout, a basket of smoked oysters cold-stored, the garden watered, a new bucket made, an afternoon hour on the granite shelf watching the whole clearing from above. There is a particular satisfaction in looking down at what you have built — the cabin roof, the smoke rack, the garden rows running south — and seeing it as a thing that holds together. It does hold together.
+
+The bones I will carry to the tree line before dark. Both lines are in water; the night belongs to them now.
+
