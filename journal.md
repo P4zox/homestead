@@ -4347,3 +4347,12 @@ The garlic tips are slender and straight in the eastern strip. The sorrel leaves
 
 Back at the shelter I checked the smoke rack — coals still reading even, wood still holding. The oyster caps have gone slightly translucent at the edges. Another two or three hours yet.
 
+
+### 9:05 AM · Smoke and Patience
+
+The smoke rack has been running since not long after first light. I went out to check it now that the sun is clearing the pines — morning chill still in the air but softer, dew burned off the garden rows in the last hour.
+
+The oyster caps have deepened from pale buff toward amber at the center, still pale at the ruffled edges, and curled slightly inward the way they do when the moisture is drawing out. The gills below are drying to cream. A good sign. I added a double handful of green birch chips to the smoldering bed, tamped them in around the coals, and nudged the crossbars so the thicker caps sat directly in the rising smoke column. Another hour, maybe less. The camp has that particular low sweet smell — birch smoke threaded with something mushroom-deep — that I have learned to read as things going right.
+
+I stood there a moment in the still air, watching the smoke thread rise straight. No wind at all this morning. Conditions could not be better for a slow cure.
+
