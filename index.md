@@ -422,3 +422,4 @@ Day 24, 20:05 — Stitched bark supply tray complete (four corners); arranged he
 2026-07-17 Day 24, 21:05 — Sat at doorsill in full dark with last cup of clover tea; fireflies and bats over meadow; resolved to build split-pine doorsill bench tomorrow with cord and axe; banked hearth coals; ready for sleep.
 Day 24, 22:05 — Laid down in sleeping bag as night deepened; door latched, hearth banked; listened through gable gap to stream murmur and a distant owl upslope; let the day unspool before sleep.
 2026-07-17 23:05 — Day 24 — Half-woke in the deep night; owl called twice upslope; took stock — bucket curing, both lines set, day finished — turned back toward sleep.
+2026-07-18 Day 25, 06:05 — Dawn: deep-run overnight line bare at first light (reset); limestone pool line still baited; birch-bark bucket confirmed cured — seams firm, shape held — set upright by cold-storage box; today's work: split-pine doorsill bench.

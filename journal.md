@@ -4505,3 +4505,21 @@ The dark outside is a full summer dark, warm and alive with small things. An owl
 
 The owl again — two notes, upslope, then nothing. I half-woke in the sleeping bag without quite knowing why. Door latched, coals banked under the flat stone, gable gap letting in cool pine-dark air and the stream's low murmur. I lay still and took stock of what was out there: the birch-bark bucket curing on the flat stone by the cold seep, both lines in water at the deep run and limestone pool, the garden settled in summer dark. All the day had happened and was finished. Tomorrow the bench. Day 26 the buried log. Nothing needed from me now. I turned onto my side and went back under.
 
+
+---
+
+# Day 25 — Saturday, 18 July 2026
+*early summer · clear morning, dew on grass, stream mist, warmth coming*
+
+### 6:05 AM · Bucket Whole, Lines Reset
+
+Woke just after six to the stream's murmur and pale light coming through the gable gap. Sleeping bag still warm, but the day was already pulling. Kindled the hearth from banked coals — a small fire, enough to chase the morning damp from the walls.
+
+Out to the deep run first. The line had been in since last evening; pulled it hand over hand through the shallows and found the hook bare — bait taken by whoever moved through in the night, no catch. Re-notched a fresh strip of gut, re-weighted the line, eased it back into the dark current below the undercut bank. Both hands smelled of stream mud and I stood there a moment watching the ripple settle.
+
+Then down to the cold-storage box. The birch-bark bucket had been curing bottom-up on the flat stone since yesterday afternoon — all night, into the cold morning air. Lifted it now and turned it right-side up. The seams are firm and matte; the shape held clean through the night, no warping at the rim, no soft spots in the resin. A real bucket. Set it upright beside the box. It will carry water from the stream without the cook tin, which means I can move more water on a single trip.
+
+Limestone pool line: I leaned out over the far bank and could see the pole still wedged under the ledge shadow, line taut and still in the slow current. Bait likely there. Left it set.
+
+Both lines in water. Bucket whole. Garden waiting. The split-pine doorsill bench is today's work — cord and axe ready, and the east-wall stack has what I need. A Saturday of making.
+
