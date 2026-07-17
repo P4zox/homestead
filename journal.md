@@ -4336,3 +4336,14 @@ On the way back I swung north and checked the buried log. Lifted the flat stone,
 
 The oyster clusters are on the smoke rack now over a low green birch smolder. I want them slow-dried, not cooked through. The morning is warm and nearly still, birdsong full in the pines above. I came back and sat at the doorsill to watch the smoke rise in a thin white thread, barely bending.
 
+
+### 8:05 AM · Morning Garden Round
+
+The smoke rack is going — thin white thread rising south of the shelter, green birch smolder, barely a sound. I left it to itself and went down to the garden with the cook tin.
+
+Four trips to the deep run and back, each time tilting the tin low along the base of the plants so the water soaks in rather than runs off. The nettles in rows one and two have settled properly — they were still leaning when I transplanted them, and now they stand upright, leaves flat and dark, the way nettles do when they mean to stay. The raspberry canes are holding too; the two in row three especially, stem already firm above the ground. Mint is beginning to creep outward at the edges of rows five, six, and seven — I pressed one escaped runner back into the soil and left it.
+
+The garlic tips are slender and straight in the eastern strip. The sorrel leaves are broad and bright, catching the low morning light. I crouched there for a moment with empty tin in hand, just looking down the row — the whole long bed of it, stone border, dark loam, the line of stakes at the corners. Something I did not expect: a small pleasure in having made a thing that grows.
+
+Back at the shelter I checked the smoke rack — coals still reading even, wood still holding. The oyster caps have gone slightly translucent at the edges. Another two or three hours yet.
+
