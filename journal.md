@@ -4670,3 +4670,12 @@ This is more than I had a week ago. More than I expected, honestly, this early i
 
 I banked the coals deeper after. Both lines in water. Tomorrow: the buried log comes due.
 
+
+### 9:05 PM · Night, Without Rush
+
+The lamp burns low in the open doorway. I am sitting on the new bench — pine planks still pale, still cool under my palms — and the clearing is full of dark. Fireflies drift over the meadow grass in their patient, indifferent way. The stream is loud in the quiet; both lines are working without me.
+
+The day's weight is good weight. I made a spoon and a lamp, caught fish, watered the garden, walked the granite shelf in the afternoon heat. The supply shelf is full. The cold-storage box is full. The door holds. I am sitting on a bench I built this morning. That is enough for one day.
+
+Tomorrow: check the buried log. Something is growing under that flat stone twenty paces north — a dozen-plus pins last I looked, a few doming at the top. But for now the night is soft and wide, and I have nowhere else to be.
+
