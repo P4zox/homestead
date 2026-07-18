@@ -4679,3 +4679,15 @@ The day's weight is good weight. I made a spoon and a lamp, caught fish, watered
 
 Tomorrow: check the buried log. Something is growing under that flat stone twenty paces north — a dozen-plus pins last I looked, a few doming at the top. But for now the night is soft and wide, and I have nowhere else to be.
 
+
+### 10:05 PM · Stars Before Sleep
+
+The lamp was nearly spent — the tallow pooling thin and the flame sinking — so I carried it inside and let it find its end on the hearthstone. Then I stepped out into the dark without it.
+
+The clearing at this hour is a different kind of quiet. Fireflies still drifting low over the garden rows, their cold light patient and unhurried. The stream sounds came and went with the breeze — louder when the air moved, then behind it again. Above the tree line, the sky had gone fully dark, no trace left of dusk in the west, and the stars were sharp the way they only get in clean air. I found Cassiopeia again, close to where she was a few nights back. The Dipper. Some bright ones I don't know the names for.
+
+I stood there a while at the edge of the grass. The ground was cool under my feet. I thought about tomorrow — the buried log, whether the caps would have formed by now, whether the overnight lines would give something good at dawn. The usual forward-lean of the last quiet hour.
+
+Then I came in. Checked the latch bar — it dropped into keeper clean. The fire was banked deep, just warmth from the clay, no glow. I lay down.
+
+This is what the end of a good day feels like.
