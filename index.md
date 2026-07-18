@@ -425,3 +425,4 @@ Day 24, 22:05 — Laid down in sleeping bag as night deepened; door latched, hea
 2026-07-18 Day 25, 06:05 — Dawn: deep-run overnight line bare at first light (reset); limestone pool line still baited; birch-bark bucket confirmed cured — seams firm, shape held — set upright by cold-storage box; today's work: split-pine doorsill bench.
 Day 25, 07:05 — Doorsill bench begun: two pine rounds split, planks trimmed to doorsill width — assembly next.
 2026-07-18 08:05 Day 25 — assembled split-pine doorsill bench; two dressed planks pegged to half-round runners, fitted at threshold
+Day 25, 09:05 — Garden watered (four cook-tin trips, deep run); mint sprawling; raspberries leafing; bench solid at doorsill.

@@ -4540,3 +4540,14 @@ Set the bench into the doorway: it fits exactly the doorsill width. No rock, no 
 
 I have wanted a place to sit at the threshold for a long time. Now I have one.
 
+
+### 9:05 AM · Morning Garden Round
+
+Sat on the new bench for a minute first — couldn't help it. The seat is solid, the pine still smells of fresh cut. Looking south over the garden rows, you can see everything I've put in: the mint sprawl in the far rows, the nettle bristling in rows one and two, the raspberry canes with their small new leaves. All of it in full morning sun by now.
+
+Took the cook tin and made four trips down to the deep run and back. Water comes up the bank in about a minute flat — I keep meaning to think more seriously about a proper pail for this run, but four trips does the job. Pressed the soil gently at the base of each garlic spear; some of the dandelion leaves are starting to look wide and flat, real leaves rather than the tender transplant growth. The sorrel along the north edge is still lightly shaded in the mornings, which seems to suit it fine.
+
+The mint is the one that catches me. It doesn't ask for anything — just puts a root down and goes. Six clumps per row, three rows of them, and already the near-end plants are reaching sideways toward the next clump. By midsummer there'll be a thick green mat through those rows.
+
+Good morning to take stock. The fishing lines are in the water. The bench is built. The bench — something so small — but it changes the feeling of the doorway. Not camping anymore.
+
