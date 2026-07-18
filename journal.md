@@ -4591,3 +4591,13 @@ The pull came eventually — steady, hand-over-hand resistance. Eight inches of 
 
 Walked back along the stream path in the full afternoon warmth. The cold-storage box is well stocked already — chanterelles, blueberries, oysters, smoked fish from earlier days — and this trout rounds the afternoon out cleanly. Supper decided.
 
+### 2:05 PM · Granite Shelf, Full Heat
+
+The bench is dry and sun-warm when I lean my hand on it, the grain still pale pine-fresh. After the morning's carving and the trout at the limestone pool, the afternoon opened into its own silence — full summer heat, no wind, the stream audible but not loud. I left the axe against the cabin wall. This was not an axe afternoon.
+
+I climbed the slope at an easy pace, past the birch stand, past the blueberry patch. The north-facing clusters were still holding a scatter of late-dark berries — not enough to fill the basket, but I ate a handful at the bushes and they were almost too sweet in the heat, warm from the afternoon sun. At the granite shelf the air was marginally cooler, a breath of pine-shade at shoulder height.
+
+I sat there a long while looking south. Below: the cabin roof, the doorsill bench catching afternoon light, the smoke rack's four forked posts, the seven garden rows — nettle heads already knee-high, mint spreading, garlic spears straight and dark. Beyond the garden, the south meadow, grass paling to gold in the dry heat, red clover still holding color in the lower quarter. The whole thing is small. It's also, plainly, a life.
+
+I'm not sure I had noticed how much had accumulated until I sat at that height and looked down at it all. The spoon on the shelf, the bucket by the cold-storage box, the bench at the threshold — each one was nothing before it was something. I stayed until the shadow of the ridge post crept to the east wall corner. Then I came down.
+
