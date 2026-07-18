@@ -4657,3 +4657,16 @@ The walls came in close in that little circle of light. Not bright, not warm the
 
 A small thing. But a real one. I can work after dark now, or read the shapes of the room, or simply sit with something steady to look at. The night is a little shorter than it was this morning.
 
+
+### 8:05 PM · First Lamplight
+
+The moth has not left the lamp. It has been circling that thumb-flame since I set it on the flat stone by the door, and I decided not to move the lamp in case it finally lands. Instead I pulled the supply shelf to the hearthstone and worked by the glow.
+
+It is strange, having light. Not much — the flame barely reaches the far wall — but enough to read the bark-fold envelopes by touch and color, enough to count what is in the cold-storage box without squinting. I have never done that by anything but daylight or the red smear of banked coals.
+
+The count: three herb envelopes full and organized — yarrow, plantain, dried red clover, all cured and dry to the touch. Bark vessel sound. Bucket sound. Two trout in the cold-storage box right now, both dock-wrapped and cold: the eight-inch from morning and the seven-inch from the deep run this evening. A good shelf of dried chanterelle caps and smoked oyster mushrooms. Blueberries still holding well in the cool of the stone box.
+
+This is more than I had a week ago. More than I expected, honestly, this early in summer. The lamp threw gold across all of it and for a moment it looked — it looked like a pantry. A modest one, attended by a moth, but still.
+
+I banked the coals deeper after. Both lines in water. Tomorrow: the buried log comes due.
+
