@@ -4631,3 +4631,14 @@ Line went back in with a fresh gut strip, notched and set below the undercut ban
 
 Both lines in water for the night. I'll sit on the bench at the threshold until the first stars come through.
 
+
+### 6:05 PM · Red Clover, Dusk
+
+The bench is solid under me now — the one I put together at eight this morning from two dressed pine planks and two half-round runners. Sitting on it at dusk still gives me a small, quiet pleasure I did not expect.
+
+The hearth coals were steady, so I broke a pinch of dried red clover from the herb envelope and steeped it in the cook tin, just long enough to turn the water pale amber. Carried the tin outside and sat down on the new bench. The sky had gone past orange and was settling into deep warm gray at the tree line. The pines on the ridge were dark silhouettes. The stream sound came up clear and low as the air cooled.
+
+I drank the tea slowly. Clover has a mild sweetness — not assertive, just present — the kind of flavor that rewards you simply for having gathered it. I thought about the day: the bench built before mid-morning, the spoon finished by noon, two trout cold-stored, both lines set below the undercut bank and under the ledge shadow. Everything where it ought to be.
+
+Fireflies started in the clearing before I finished the cup — low green pulses over the grass, scattered at first, then filling the whole meadow in a loose scatter of cold light. I watched until the tin was empty, then went inside and banked the fire for the night.
+
