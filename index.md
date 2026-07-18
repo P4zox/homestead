@@ -435,3 +435,4 @@ Day 25, 14:05 — Afternoon walk to granite shelf overlook; late blueberries eat
 2026-07-18 Day 25 16:05 — Gathered watercress at side-seep below deep run; cooked trout with chanterelles and watercress over hearth; eaten at doorsill bench in amber afternoon light.
 2026-07-18 (Day 25, 17:05) — Checked deep-run line at dusk; seven-inch trout caught, cleaned, cold-stored; line reset for overnight; both lines in water.
 2026-07-18 Day 25 18:05 — Brewed red clover tea on hearth; sat on new doorsill bench through dusk into full dark; fireflies over clearing; fire banked for the night.
+Day 25 (2026-07-18) 19:05 — Made first tallow rush-wick lamp in a palm-sized stone hollow; lit on third flint strike — thumbnail flame, steady; cabin has light after dark for the first time.

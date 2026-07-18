@@ -4642,3 +4642,18 @@ I drank the tea slowly. Clover has a mild sweetness — not assertive, just pres
 
 Fireflies started in the clearing before I finished the cup — low green pulses over the grass, scattered at first, then filling the whole meadow in a loose scatter of cold light. I watched until the tin was empty, then went inside and banked the fire for the night.
 
+
+### 7:05 PM · First Lamp
+
+The cabin was warm and settled after the last cup of tea. The coals were banked down to a low amber bloom — enough to see the room in shapes and shadow — and I found I did not want to sleep yet. The evening was still, both lines in the water, the fireflies doing whatever fireflies do over wet grass.
+
+I have had no light here except the fire. That has been fine — evenings end early, which is its own kind of honesty. But tonight it struck me that I have been sitting on what I need for months: tallow on the shelf, rush stalks leftover from the mat, and enough small stones by the hearth to try something.
+
+I pulled a single rush stalk from the loose end of the mat bundle, split the green outer skin with the knife tip, and peeled back a white pith wick, long and even. Found a flat palm-sized stone with a natural curl along one edge — not a bowl, but a hollow deep enough to hold a small pool. A thumbnail of tallow, softened against the warm hearthstone face, pressed into the hollow and spread smooth. Laid the wick in half-submerged, the far end propped over the rim on a chip of stone.
+
+Three strikes of the flint. The third caught — a small yellow flame, no bigger than a thumbnail, sitting quiet and clean.
+
+The walls came in close in that little circle of light. Not bright, not warm the way fire is warm, but steady in a way fire rarely is. I carried it carefully to the doorsill bench and sat with it a while. The stream sound was clear in the dark. A moth found it almost immediately, circled twice, then went elsewhere.
+
+A small thing. But a real one. I can work after dark now, or read the shapes of the room, or simply sit with something steady to look at. The night is a little shorter than it was this morning.
+
