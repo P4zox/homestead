@@ -4698,3 +4698,19 @@ The cabin is full of warm ash-smell and the sound of the stream. Both lines are 
 
 Tomorrow the buried log. Dawn will say whether the pins have domed into caps. I find I am already looking forward to it — and then I stop finding anything at all, and I am asleep.
 
+
+---
+
+# Day 26 — Sunday, 19 July 2026
+*early summer · dawn — grey-gold light easing east through the pines; stream cool and loud; dew on garden rows; first birdsong from the birch stand above; fireflies gone*
+
+### 6:05 AM · Lines at First Light
+
+Up before the birds were fully at it, the light still grey-gold and flat through the east gap in the pines. First thing, always: the lines.
+
+The deep-run line was still wedged below the undercut bank where I reset it last evening. I pulled it gently through the shadow — there was weight on it, a small trout, maybe five inches, cold and still on the hook. Cleaned it at the flat stone, dock-leaf wrapped, cold-stored beside last night's fish. Re-notched a fresh gut strip and reset the line below the bank. Then walked upstream to the limestone pool — line still wedged under the ledge, bait intact, no takers. Left it set. Both lines back in water before the first real light hit the top of the pines.
+
+Stood a minute at the doorsill bench after. The dew was heavy on every garden row below — the clover heads bent and dripping, the mint smell rising as the air began to move. A pair of birds I don't have a name for yet working the birch stand up the slope, quick and low. The stream running steady. Everything holding.
+
+The buried log is due a check this morning — it's been about five days since I saw the caps just beginning to dome. That'll be the next errand, once the light fills the clearing.
+
