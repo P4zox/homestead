@@ -4551,3 +4551,14 @@ The mint is the one that catches me. It doesn't ask for anything — just puts a
 
 Good morning to take stock. The fishing lines are in the water. The bench is built. The bench — something so small — but it changes the feeling of the doorway. Not camping anymore.
 
+
+### 10:05 AM · First Spoon, Roughed
+
+The morning work is done and the bench holds solid at the doorsill. I sat there a while after watering — full sun now above the treeline, the garden rows dark and damp, the cook-tin sitting on the hearthstone inside. Then I got restless in the good way.
+
+I pulled a short birch round from the east-wall stack — one of the smaller pieces from the deadfall processing, maybe a foot long and five inches across, clean-grained and pale-heartwooded. Split it in half with the axe, then quartered one half and set the other aside. What I came out with was a long wedge of dense birch heartwood, cream-white where the splits were fresh, fine-ringed at the ends.
+
+What I have in mind is a spoon. Not finished yet — I roughed the outline with the axe first, shaping the long handle and the wide oval end where the bowl will be. Then the knife: short strokes with the flat of the blade to clean the faces, beginning to hollow the bowl side in shallow passes. The birch smells green-sweet even from old deadfall, a little like milk.
+
+I worked in the east-wall shade with my back against the cabin logs. The spoon is rough still — handle faceted where the axe left marks, bowl hollow just suggested — but the shape is there, clear enough to see what it wants to be. The cook tin does fine for eating. This will do better, and I made it in a slow morning for no reason but to have a thing made by hand.
+
