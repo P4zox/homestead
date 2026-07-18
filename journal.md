@@ -4579,3 +4579,15 @@ I warmed a little tallow on the hearthstone, rubbed it into the wood grain with 
 
 Both fishing lines still in the water. The afternoon is ahead. For now I am sitting on the bench in full noon sun, the finished spoon in my lap, turning it slowly in the light.
 
+### 1:05 PM · Afternoon Pool
+
+The spoon is on the shelf and the bench at the doorsill is warm in the noon sun. The morning's work is done — hands at rest, nothing urgent calling.
+
+I walked down to the limestone pool.
+
+The line was right where I'd left it: birch pole wedged under the far-bank ledge shadow, line taut and baited. I crouched at the flat pool stone and waited. The limestone pool runs slower than the deep run and quieter — clear water over gravel, the shapes of fish holding in the current shadow visible if you watch long enough. A brown dipper worked the far bank, dipping in and out of the shallows, completely unbothered by me. I watched the bird and forgot to watch the line.
+
+The pull came eventually — steady, hand-over-hand resistance. Eight inches of clean trout, copper-bright in the afternoon light. Cleaned it at the flat pool stone, dock-wrapped, set in the shallows while I reset the line with fresh gut strip and re-wedged the pole under the ledge shadow.
+
+Walked back along the stream path in the full afternoon warmth. The cold-storage box is well stocked already — chanterelles, blueberries, oysters, smoked fish from earlier days — and this trout rounds the afternoon out cleanly. Supper decided.
+

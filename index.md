@@ -429,3 +429,4 @@ Day 25, 09:05 — Garden watered (four cook-tin trips, deep run); mint sprawling
 2026-07-18 10:05 Day 25 — Roughed a birch-heartwood spoon blank in east-wall shade; handle shaped, bowl hollow started.
 2026-07-18 11:05 — Day 25 — continued carving birch spoon; bowl hollow deepened, handle shaped; nearing completion
 2026-07-18 12:05 — Day 25 — Finished birch spoon: final smoothing pass and tallow rub; set on supply shelf.
+2026-07-18 Day 25 13:05 — Limestone pool: eight-inch trout caught and cold-stored; afternoon at the pool watching a dipper.
