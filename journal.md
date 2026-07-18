@@ -4620,3 +4620,14 @@ On the way back I stopped at the cold-storage box and pulled the dock-wrapped tr
 
 Ate at the doorsill bench. The garden below was still and green, the meadow holding the last warm light. Quiet supper after a full day. Both fishing lines downstream; tomorrow the buried log gets a proper look.
 
+
+### 5:05 PM · Deep Run at Dusk
+
+Supper cleared, tin rinsed, the amber fading slow from the sky — I carried myself down to the deep run to check the overnight line before full evening settled in.
+
+It had been in since first light. I lifted the notch-stick and felt the tug at once: a seven-inch trout, still lively in the cold current. Cleaned it at the flat stone below the run, wrapped the fillets in dock leaf, walked them back to the cold-storage box — set atop the blueberries, beside this morning's eight-inch.
+
+Line went back in with a fresh gut strip, notched and set below the undercut bank where the dark water runs deepest. Then I stood still a while. The stream was amber all across — low sun laying gold over every riffle, a dragonfly working the surface near the far bank, the pines behind the shelter throwing long shadows down the slope. The whole world went slow and golden and I let it.
+
+Both lines in water for the night. I'll sit on the bench at the threshold until the first stars come through.
+
