@@ -4562,3 +4562,11 @@ What I have in mind is a spoon. Not finished yet — I roughed the outline with 
 
 I worked in the east-wall shade with my back against the cabin logs. The spoon is rough still — handle faceted where the axe left marks, bowl hollow just suggested — but the shape is there, clear enough to see what it wants to be. The cook tin does fine for eating. This will do better, and I made it in a slow morning for no reason but to have a thing made by hand.
 
+### 11:05 AM · Spoon Taking Shape
+
+The birch heartwood is pale and dense, closer-grained than the outer wood. An hour into it now in the east-wall shade, working the bowl hollow — knife tip circling inward, shaving up and out, pale curls falling into my lap. The shape is becoming itself: the bowl deepens without going thin at the bottom; the handle narrows just past where the hand would settle. I turn it often to feel where the balance sits.
+
+Somewhere downstream both fishing lines are holding. I am not worried about them. Midday is time enough to check.
+
+There is something quiet about making a tool you will use every day. Not precious — this spoon will go in the tin, get blackened by fire, get washed in the stream. But it fits the hand it was made for, and that is enough. The birch smell has faded a little as the wood breathes in the open air. The bowl is almost right. Another careful pass at the rim and the hollow will be done; after that, smoothing the handle down and giving the whole piece a rub of tallow.
+
