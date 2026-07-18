@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:05 — Dawn: both fishing lines checked — overnight deep-run line gave a five-inch trout (cleaned at flat stream stone, dock-wrapped, cold-stored; line re-notched with fresh gut strip, reset below undercut bank); limestone pool line still wedged and baited, no fish, left set. Both lines in water. Dew heavy on the garden rows; first birdsong from the birch stand above. Buried log due for check this morning (Day 26).
+07:05 — Buried log checked (twenty paces north): five-six pale cream caps (1–2 inch, ivory gills, clean) harvested with knife at base, cold-stored beside oysters; remaining 8–10 tight-domed pins replaced under bark lid with stone re-weighted — recheck Day 28.

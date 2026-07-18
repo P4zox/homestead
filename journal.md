@@ -4714,3 +4714,14 @@ Stood a minute at the doorsill bench after. The dew was heavy on every garden ro
 
 The buried log is due a check this morning — it's been about five days since I saw the caps just beginning to dome. That'll be the next errand, once the light fills the clearing.
 
+
+### 7:05 AM · Pins Open Overnight
+
+The sun was just clearing the birch stand when I lifted the flat stone from the buried log's bark lid. I'd been counting from Day 21 — a week since the first pale pins appeared, two days since I last crouched here and found a dozen fingernail-sized caps doming but not yet open.
+
+This morning they have moved. The largest five or six have thrown out pale cream caps, an inch or two across, gills ivory and clean below. I cut each close at the base with the knife and laid them in the bark vessel. The remaining eight or ten are still tight-domed — another two days in them at least. I set the bark lid back, weighted the stone, left the rest to their own time.
+
+This is the first harvest from the buried log. They're different from the oyster clusters upslope — denser, a little more closed, a faint sweet earthiness when I held one near my face. Cold-stored beside the chanterelles and oysters, they will keep.
+
+I sat a moment in the morning light before standing. The patch of ground looks ordinary — a circle of disturbed earth, a flat stone, nothing you'd stop at twice. That's a small pleasure too, knowing what is underneath.
+
