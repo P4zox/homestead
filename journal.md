@@ -4601,3 +4601,14 @@ I sat there a long while looking south. Below: the cabin roof, the doorsill benc
 
 I'm not sure I had noticed how much had accumulated until I sat at that height and looked down at it all. The spoon on the shelf, the bucket by the cold-storage box, the bench at the threshold — each one was nothing before it was something. I stayed until the shadow of the ridge post crept to the east wall corner. Then I came down.
 
+
+### 3:05 PM · Pool at Three
+
+The path to the limestone pool is familiar enough now that my feet find it without thought — down past the cold-storage box, along the stream bank, past the side seep where the watercress grows thick and the ostrich ferns cast deep shadows. The afternoon heat presses down through the canopy gaps, and the air near the water comes as a relief: cooler by a full degree or two, carrying the mineral smell of the limestone shelf and the faint sweet rot of the bank moss.
+
+The line was taut. A six-inch trout — smaller than this morning's eight-inch, but clean and fat, belly pale, fins dark-edged. I cleaned it at the flat pool stone with the same three strokes the work has taught me, wrapped it in a dock leaf, let it rest in the cold current a moment before starting back. Re-baited the hook with a fresh gut strip, re-wedged the pole under the far-bank ledge shadow, watched the line go still in the current. Both lines in water again.
+
+I stayed a few minutes at the pool just to stay. The light at three in the afternoon here is different from noon — still strong, but angled now, coming through the upstream birches at a low enough pitch that everything along the bank has its own shadow. The water in the pool looked nearly black under the ledge, greenish in the shallows. A water strider worked the surface near the far stone. I ate nothing, gathered nothing. Just stood there in the sound of the stream and let the heat of the walk ease out of me.
+
+Cold-stored the trout beside the morning catch when I got back. The storage box is doing its work well — cool and dark inside, fish firm, chanterelles dry. The homestead is full right now in a way it has not always been, and I noticed that plainly standing at the box in the shade: the food shelf, the herb envelopes, the resin fold, the new spoon set above them. Everything added one thing at a time.
+
