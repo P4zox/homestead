@@ -4691,3 +4691,10 @@ I stood there a while at the edge of the grass. The ground was cool under my fee
 Then I came in. Checked the latch bar — it dropped into keeper clean. The fire was banked deep, just warmth from the clay, no glow. I lay down.
 
 This is what the end of a good day feels like.
+
+### 11:05 PM · The Dark Already Still
+
+The cabin is full of warm ash-smell and the sound of the stream. Both lines are in the water somewhere downstream; everything tended today is folded away. I am lying on the sleeping bag in the dark — the lamp cold on the hearthstone, the fire banked to nothing visible but a faint warmth held in the clay. I cannot tell if the fireflies are still going outside. I hear the pines move once, slowly, the way a chest rises with a slow breath.
+
+Tomorrow the buried log. Dawn will say whether the pins have domed into caps. I find I am already looking forward to it — and then I stop finding anything at all, and I am asleep.
+

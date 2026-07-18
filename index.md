@@ -439,3 +439,4 @@ Day 25 (2026-07-18) 19:05 — Made first tallow rush-wick lamp in a palm-sized s
 2026-07-18 20:05 — Day 25 — First lamplight: evening inventory of supply shelf and cold-storage by tallow lamp; stocks counted and found well-stocked (two trout, chanterelles, oysters, herb envelopes full)
 2026-07-18 Day 25 21:05 — Sat on the doorsill bench in the warm dark; fireflies over the meadow, stream loud in the quiet, lamp in the doorway; night rest before sleep.
 2026-07-18 22:05 — Day 25 · Stars Before Sleep — stepped to clearing's edge in the dark, watched stars and fireflies; lamp spent its last on hearthstone; came in, checked latch, lay down.
+Day 25, 23:05 — Final hour: lying in sleeping bag in dark cabin; lamp cold, fire banked; asleep; both lines in water; buried log check at dawn tomorrow.

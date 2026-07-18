@@ -16,3 +16,4 @@
 20:05 — Evening lamplight inventory: pulled supply shelf to hearthstone and checked cold-storage box by tallow lamp flame — two trout cold-stored (eight-inch morning, seven-inch evening), chanterelles and oysters plentiful, all three herb envelopes full and dry; lamp proven useful for fine indoor work; moths at the flame; fire banked deep; both lines in water.
 21:05 — Sat on the doorsill bench in the warm dark: fireflies over the meadow, stream loud in the quiet, lamp burning low in the doorway; the day's work complete, resting before sleep.
 22:05 — Stepped to the clearing's edge in the warm dark; watched stars and fireflies; lamp spent its last on the hearthstone inside; came in, checked door latch, lay down. Both lines still in water.
+23:05 — Lying in sleeping bag in dark cabin; lamp cold on hearthstone, fire banked deep, stream audible through log walls; both lines in water for the night; asleep.
