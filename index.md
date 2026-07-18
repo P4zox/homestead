@@ -428,3 +428,4 @@ Day 25, 07:05 — Doorsill bench begun: two pine rounds split, planks trimmed to
 Day 25, 09:05 — Garden watered (four cook-tin trips, deep run); mint sprawling; raspberries leafing; bench solid at doorsill.
 2026-07-18 10:05 Day 25 — Roughed a birch-heartwood spoon blank in east-wall shade; handle shaped, bowl hollow started.
 2026-07-18 11:05 — Day 25 — continued carving birch spoon; bowl hollow deepened, handle shaped; nearing completion
+2026-07-18 12:05 — Day 25 — Finished birch spoon: final smoothing pass and tallow rub; set on supply shelf.

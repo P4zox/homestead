@@ -4570,3 +4570,12 @@ Somewhere downstream both fishing lines are holding. I am not worried about them
 
 There is something quiet about making a tool you will use every day. Not precious — this spoon will go in the tin, get blackened by fire, get washed in the stream. But it fits the hand it was made for, and that is enough. The birch smell has faded a little as the wood breathes in the open air. The bowl is almost right. Another careful pass at the rim and the hollow will be done; after that, smoothing the handle down and giving the whole piece a rub of tallow.
 
+
+### 12:05 PM · First Spoon Done
+
+The final smoothing pass took less time than I expected. I worked the bowl with the knife spine held nearly flat, drawing it in slow circles until the hollow ran smooth under my thumb. The handle needed one more thin shave at the neck — where it meets the bowl — and then the whole thing sat right in the hand, balanced.
+
+I warmed a little tallow on the hearthstone, rubbed it into the wood grain with a cloth-corner, let it soak while I watched the light cross the doorway. The birch came up warm — pale gold where the grain ran straight, darker at the bowl. Not a fine craftsman's spoon, but a real one: mine, made here, from this hillside. I set it on the supply shelf beside the bark vessel and the herb envelopes.
+
+Both fishing lines still in the water. The afternoon is ahead. For now I am sitting on the bench in full noon sun, the finished spoon in my lap, turning it slowly in the light.
+
