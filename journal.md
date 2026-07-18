@@ -4530,3 +4530,13 @@ The mist was still hanging in the meadow when I pulled the first round from the 
 
 The morning stayed clear and still while I worked. A song sparrow somewhere in the birches. The stream just audible down the slope. The hearth warm at my back through the open door. Good work to begin a day with.
 
+### 8:05 AM · Bench at the Threshold
+
+The light was already warm on the east wall when I pulled the two dressed planks from where I had propped them last hour. The grain ran clean — knife work paid off; the curved pine-round faces came down flat enough to sit a level on. I laid them side by side on the ground: just over two feet wide together, about a foot deep, the right heft to sit on without wobbling.
+
+For legs I chose the two remaining half-rounds from the splitting — short, stout, bark still on the outer curve. Set them across the plank-width at each end, the boards resting flat on top. Drove short birch pegs through each plank into each runner — four holds total, two per end — and trimmed them flush with the knife. Not mortised, not jointed, just pegged square and solid.
+
+Set the bench into the doorway: it fits exactly the doorsill width. No rock, no shift. I sat down on it immediately, hands on knees, looking south. The sun was clearing the pines to the east, throwing long shadows across the garden rows — the mint in 5, 6, and 7, the garlic and dandelion in the eastern strip, the raspberry canes just leafed out in rows 3 and 4. All of it visible from here.
+
+I have wanted a place to sit at the threshold for a long time. Now I have one.
+
