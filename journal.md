@@ -4612,3 +4612,11 @@ I stayed a few minutes at the pool just to stay. The light at three in the after
 
 Cold-stored the trout beside the morning catch when I got back. The storage box is doing its work well — cool and dark inside, fish firm, chanterelles dry. The homestead is full right now in a way it has not always been, and I noticed that plainly standing at the box in the shade: the food shelf, the herb envelopes, the resin fold, the new spoon set above them. Everything added one thing at a time.
 
+### 4:05 PM · Greens Before Supper
+
+The worst of the heat passed while I was down at the limestone pool. Walked downstream with the cook tin as the shadows began to stretch — past the deep run to the side-seep where hill-water meets the stream in a small cool shade. The watercress was there, dark green and clean, exactly where I remembered it. Pulled a generous fistful and ate one sprig right at the bank just to taste the cold and the green of it.
+
+On the way back I stopped at the cold-storage box and pulled the dock-wrapped trout from the afternoon catch — the six-inch one, still cold and firm. Built the hearth fire low, coals steady. Laid the trout in the cook tin with two dried chanterelle caps and the watercress piled over the top. Steam rose in the cabin shadow while the light outside went amber.
+
+Ate at the doorsill bench. The garden below was still and green, the meadow holding the last warm light. Quiet supper after a full day. Both fishing lines downstream; tomorrow the buried log gets a proper look.
+

@@ -432,3 +432,4 @@ Day 25, 09:05 — Garden watered (four cook-tin trips, deep run); mint sprawling
 2026-07-18 Day 25 13:05 — Limestone pool: eight-inch trout caught and cold-stored; afternoon at the pool watching a dipper.
 Day 25, 14:05 — Afternoon walk to granite shelf overlook; late blueberries eaten at north-facing bushes; sat looking south over cabin and garden in full summer heat.
 2026-07-18 Day 25 15:05 — Limestone pool line: six-inch trout; cleaned, cold-stored; line reset; brief rest at poolside in afternoon heat.
+2026-07-18 Day 25 16:05 — Gathered watercress at side-seep below deep run; cooked trout with chanterelles and watercress over hearth; eaten at doorsill bench in amber afternoon light.
