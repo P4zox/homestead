@@ -4886,3 +4886,14 @@ I pulled the sleeping bag close and set the axe within arm's reach beside the do
 
 I blow the lamp the rest of the way out. The cabin goes dark all at once. I lie back and listen to the stream.
 
+
+### 11:05 PM · Stars and Coals
+
+Woke in the dark — some sound, or nothing at all. Cabin still. The coals in the hearth surround tick and settle. Through the gable gap I can make out a band of stars steady to the north, past the birch crown.
+
+Both lines in water at the deep run and the limestone pool. Everything I counted before sleeping is still here: herb envelopes on the peg, cord coil on the shelf, axe within reach, sleeping bag gathered close.
+
+The stream is audible if I listen for it — not loud, just present, the way it always is when the clearing is quiet enough to hear.
+
+Pulled the bag tighter. Late. No cause to be awake. Let the night do what night does.
+
