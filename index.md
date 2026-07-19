@@ -456,3 +456,4 @@ Day 26, 16:05 — Upslope: blueberry patch checked; ~two dozen late berries eate
 Day 26, 19:05 — yarrow tea steeped on hearthstone; drank at doorsill bench as clearing went blue-grey; first stars north past birch crown; evening rest.
 2026-07-19 Day 26, 20:05 — Birch-heartwood peg carved and driven into south wall at shoulder height; bark supply tray and herb envelopes wall-hung; evening lamp; reflecting on winter provisioning ahead.
 2026-07-19 21:05 (Day 26) — Knife sharpened by lamplight; counted the summer calendar — blueberry second flush ~5 weeks, buried log Day 28, chanterelles Day 28-29; stores reviewed: food solid, grain and root veg thin; both lines overnight.
+Day 26, 2026-07-19, 22:05 — Lamp blown out; sleeping bag pulled close; cabin dark and quiet; both lines in water; sleep.

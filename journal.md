@@ -4877,3 +4877,12 @@ What is thin: grain I do not have. Root vegetables barely started. The herb stor
 
 The knife came sharp under my thumb, the faint catch of a proper edge. I set it back in its place, blew the lamp to a low flicker, and listened to the clearing settle into full dark. Stream quiet. Stars north past the birch crown, steady. Both lines in.
 
+
+### 10:05 PM · Lamp Out, Lines In
+
+The lamp is nearly spent — just a faint amber point in the northwest corner, barely enough to pick out the grain in the south wall timber. Through the banked coals the hearth gives off one slow red breath, then stills. Outside, nothing moves.
+
+I pulled the sleeping bag close and set the axe within arm's reach beside the doorsill bench. The day was full: chanterelles smoked and cold-stored, trout from the limestone pool and the deep run, the blueberry patch walked in long amber light, supper eaten at the bench, the birch-heartwood peg carved and driven into the south wall, and lastly the knife edge worked back on the grey cobble by lamplight. I have been thinking about winter all evening — food stores solid, tallow running low, grain and root vegetables thin. But that accounting is for tomorrow, and the day after. Tonight the shelter is tight, both lines are in the water, and the stars are steady north past the birch crowns.
+
+I blow the lamp the rest of the way out. The cabin goes dark all at once. I lie back and listen to the stream.
+
