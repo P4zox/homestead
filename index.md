@@ -444,3 +444,4 @@ Day 25, 23:05 — Final hour: lying in sleeping bag in dark cabin; lamp cold, fi
 Day 26, 07:05 — Buried log first harvest: five-six pale cream caps (1–2 in) cut at base with knife, cold-stored beside oysters; 8–10 tight-domed pins, recheck Day 28.
 Day 26, 2026-07-19, 08:05 — Garden walk in morning dew: garlic up (all sixteen, six inches), dandelion restarted, wood sorrel in yellow flower, nettles shooting in rows 1–2, mint spreading rows 5–7, raspberry row-three cane first new shoot (rooted) — watered three cook-tin trips.
 Day 26, 09:05 — Third chanterelle flush at birch deadfall: eleven-twelve caps harvested, on smoke rack over green birch smolder.
+Day 26, 10:05 AM — Tended smoke rack; chanterelle gills turning matte at edges, smaller caps firming; two green birch chips added, all caps turned.

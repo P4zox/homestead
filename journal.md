@@ -4746,3 +4746,7 @@ Back at the shelter I set the smoke rack going with a handful of green birch chi
 
 The patch still has four or five small pins tucked under a fern frond — I left them. They'll be worth something in another week if the weather holds.
 
+
+### 10:05 AM · Tending the Smolder
+
+An hour since the chanterelles went on the rack. I came out to check — smoke still rolling in a slow grey column off the green birch chips. The gill faces are paling at the edges, going from slick to matte, which is what I watch for. The smaller caps are firming when I press them; the larger ones still give at the center. I added two more chips of green birch to keep the heat low and even, then turned each cap a quarter-turn — lifting the outer edge to let air work under. The smell was overwhelming in the nicest way: dense and woodsy, like the forest rendered down. I stood there longer than I needed to, breathing it. The cold-storage box is genuinely full now — blueberries, trout, oysters, chanterelles all nested together. It has become a kind of pantry. I went back inside feeling like the morning is going well.
