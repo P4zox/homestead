@@ -4831,3 +4831,16 @@ I ate at the doorsill bench. The light at this hour goes gold across the garden 
 
 It has been a full day. Third chanterelle flush cured and cold-stored, two trout pulled from the limestone pool, the granite shelf sat on at leisure in the afternoon heat. I find I am content with it. A bench, a meal, the long amber light falling across what I have built. That is not a small thing to have.
 
+
+### 6:05 PM · Taking Stock by Lamplight
+
+After supper the doorsill cooled quickly in shadow, the amber gone from the garden rows and the birch stand dimming above. I brought the hearth back up with two dry pine rounds, let it settle to a steady glow, and set the flat hearthstone lamp in its usual hollow. Rush-pith wick — the flame caught on the first strike tonight. That is a small thing that feels larger than it is.
+
+The lamp gave enough light to work by, pooling pale gold along the south wall and catching the birch-bark bucket and the lined-up herb envelopes on the supply shelf. I pulled the cold-storage bark lid and counted what I have: two trout cold-stored from today (five-inch from the dawn line, six-inch from the limestone pool at fifteen past), the five-six pale cream caps from the buried log this morning, seven chanterelle caps smoke-dried today (three smaller, four larger), the oyster stock still holding, blueberries thinning but present. The box smelled of pine resin and cold stone — the right smell, the smell of things lasting.
+
+Shelf next: three bark-fold herb envelopes full and sorted, the pine-resin fold topped up, the cord coil near its limit, the birch spoon and harvest basket in their places. Everything where it belongs.
+
+There is a particular quietness to sitting with a lit lamp at the end of a full day and finding the count good. Not surplus yet — not real surplus — but enough, and organized, and growing more so. The buried log will give again in two days. The chanterelle patch has pins still under the ferns. The lines are set. The lamp burns low on its stone and the hearth holds a long slow heat underneath it.
+
+I will not need anything tonight I do not have. That is all I meant to confirm, and it is confirmed.
+
