@@ -4770,3 +4770,18 @@ The midday quiet here is different from the morning quiet. Morning still holds t
 
 Chanterelles piling up in cold storage, trout every day, garden coming in row by row. Noticed that. A modest surplus forming.
 
+
+### 1:05 PM · Line at the Pool
+
+The smoke rack sits empty and cooling in the south yard. I have eaten, rested a little in the doorway, let the busy morning go quiet inside me. By early afternoon the pull toward the stream is stronger than the pull toward shade, so I walk the path downstream to the limestone pool.
+
+The air in the pines has changed since morning — the day's heat is at its fullest now, but a soft breeze moves through the upper branches and rolls the shadows around on the ground. The stream catches it in pieces, the surface going bright then dull as the light shifts. I go slow; there is no hurry.
+
+The pole at the limestone pool is still wedged firm under the far-bank ledge shadow exactly where I left it, the line hanging down into the dark water where the cold upwelling keeps it a degree or two lower than the main current. I kneel at the bank, ease the pole up carefully — and feel weight at once. The good kind of weight: alive, pulling side to side.
+
+A seven-inch trout. Clean-sided, spotted bright, fighting all the way to the flat pool stone. I thanked it inwardly the way I have gotten used to doing.
+
+I cleaned it at the stone — a smooth grey slab just above the waterline that I have come to think of as mine — rinsed the fillets in the current, dock-wrapped them, and tucked them in the crook of the birch-bark bucket for the walk back. Line re-baited with a gut strip, pole re-wedged in the ledge shadow. Both lines still in water.
+
+I sat at the pool a while before heading back. The pool collects afternoon light differently than the open meadow — holds it deep in the water, green-bronze under the surface, the trout-shapes invisible in the dark the moment you stop tracking them. A yellow warbler worked the far-bank willows, going from branch to branch without particular urgency. The water said what it always says: keep going, nothing stops.
+
