@@ -4800,3 +4800,14 @@ A pair of nuthatches moved through the birch trunks below me, spiraling down hea
 
 Came back down in the late afternoon, shadow already starting to lean east off the shelter wall.
 
+
+### 3:05 PM · Afternoon at the Pool
+
+After coming down from the granite shelf the sky was still open and warm, so I walked downstream to check the limestone pool line. The pool was very low today — midsummer low starting to show. I could see straight through to the pale smooth stones on the bottom, the water that clear and still. The pole sat wedged firm under the far-bank ledge shadow where I had left it at noon.
+
+I drew the line in slowly. Another trout — a good six-inch, pulling once before it came up quiet. Cleaned it at the flat pool stone, dock-wrapped, carried it back and set it cold beside this morning's seven-inch. There is more in the box now than I need for tonight, which is a good feeling to carry back through the trees.
+
+Stood at the pool edge a few minutes before heading home, watching the surface re-settle. A dragonfly rested on the pole tip, moved with it a little in the barely-there current, flew off. The stream is lower than it was the first week — noticeably. Still cold at the source seep, still clear, but the deep run is quieter in the afternoons. Worth keeping an eye on through high summer.
+
+Re-baited the hook with a fresh gut strip, wedged the pole back under the ledge shadow, and walked home in the long light. Both lines in water.
+
