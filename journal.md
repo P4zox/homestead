@@ -4725,3 +4725,13 @@ This is the first harvest from the buried log. They're different from the oyster
 
 I sat a moment in the morning light before standing. The patch of ground looks ordinary — a circle of disturbed earth, a flat stone, nothing you'd stop at twice. That's a small pleasure too, knowing what is underneath.
 
+
+### 8:05 AM · Garden Rows, Alive
+
+Walked the rows in the heavy dew, the morning still grey-gold and the birch stand above still sounding with first birdsong. The garden has come alive in a way that sneaks up on you — you tend it daily and miss the gradual, but stand at the north edge on a morning like this and it is unmistakable.
+
+Garlic is up. Thin shoots, some six inches, pale where they rise from the loam and deepening to green at the tips — sixteen of them, all accounted for. Dandelion crowns have restarted: flat rosettes close to the soil, leaves dark and wide. Wood sorrel along the shaded north edge is flowering — small yellow petals, three to a stem, already open in the morning cool. Nettles in the first two rows are pushing new shoots, still curled and pale, tender enough I would have to be careful harvesting. The mint in rows five through seven has spread outward from every clump; stems upright, square in cross-section, leaves catching dew in their fine hair — the whole patch smells of it even in still air.
+
+Raspberries are the last to show, but they showed: one pale shoot at the base of the row-three cane, barely an inch, flushed pink. That is the one you wait for. Once the root sends new growth up, it has stayed.
+
+Watered three cook-tin trips from the deep run, slow and even down each row. Left the dew to do the rest of the morning's work.
