@@ -4785,3 +4785,18 @@ I cleaned it at the stone — a smooth grey slab just above the waterline that I
 
 I sat at the pool a while before heading back. The pool collects afternoon light differently than the open meadow — holds it deep in the water, green-bronze under the surface, the trout-shapes invisible in the dark the moment you stop tracking them. A yellow warbler worked the far-bank willows, going from branch to branch without particular urgency. The water said what it always says: keep going, nothing stops.
 
+
+### 2:05 PM · Granite Shelf, Looking South
+
+The afternoon heat settled in during the walk up — the kind that makes the pines smell stronger and the stream go quieter for a spell. After the morning: the buried-log caps, the chanterelle third flush smoke-dried, the trout from the limestone pool. I had the sense of a day already full, and still several hours of light left. That pulled me upslope.
+
+The climb to the granite shelf takes five minutes from the cabin door. Through the birch stand first — shade dappled and cool even in mid-afternoon, the bark luminous in slanted light — then a short scramble up bare root and loose stone, and then the shelf itself: flat grey granite, chest height on the slope side, a ledge six feet across, and nothing but open air looking south.
+
+The whole homestead opens below you from up here. The bark-roofed log cabin on the northwest rise, smoke rack behind it, root cellar mound to the north. The garden rows running south in dark parallel lines — I can just pick out the pale flash of the garlic shoots. The open meadow beyond, grasses at knee height with seed heads bending, and the far edge of the strawberry clearing. Everything I have made in twenty-six days, laid out small and clear below me.
+
+I sat a long time. The cabin looked smaller from this height, which was not what I expected. Not less — just honest about what it is: one shelter on one rise, with a garden, a smoke rack, a stream below. But it stands. The roof holds. The door is latched. The cold-storage box is full. Both lines are in the water. Twenty-six days ago there was a tent, an axe, a knife, a flint, and a few days of food.
+
+A pair of nuthatches moved through the birch trunks below me, spiraling down head-first, their soft sharp calls carrying up in the heat. The stream was a line of silver through the pines where it bends at the deep run. I could hear it even from here.
+
+Came back down in the late afternoon, shadow already starting to lean east off the shelter wall.
+
