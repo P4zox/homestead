@@ -4759,3 +4759,14 @@ The larger caps still have flex at their thickest point. Left them in place, tur
 
 Sun is clearing the tree-line to the south now, beginning to warm the clearing. Both fishing lines are in the water. The garden smells of dew-beaded mint and warming earth. A good late morning — the kind where everything is tended and there is nothing to rush.
 
+
+### 12:05 PM · Sun at Noon
+
+Larger caps came off the rack at noon — four of them, pressed firm, gills dry and papery, amber through the center. Cold-stored beside the smaller three. Raked the ash flat, lifted the spent birch chips; rack stands empty now.
+
+Ate at the doorsill bench: smoked trout from cold storage, two small oyster caps eaten cold. The sun straight up, no shadow from the pines yet, the clearing warm and even-lit. A dragonfly orbited the smoke rack twice and went on. Mint in row six has pushed to the path edge — I will press it back tomorrow or let it run where it wants.
+
+The midday quiet here is different from the morning quiet. Morning still holds the day unspent. This is the quiet of things already in motion, unhurried. Stream running loud. Crow somewhere east in the pines. Sat against the doorpost after eating and let the afternoon find its footing.
+
+Chanterelles piling up in cold storage, trout every day, garden coming in row by row. Noticed that. A modest surplus forming.
+
