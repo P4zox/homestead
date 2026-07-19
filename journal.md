@@ -4811,3 +4811,14 @@ Stood at the pool edge a few minutes before heading home, watching the surface r
 
 Re-baited the hook with a fresh gut strip, wedged the pole back under the ledge shadow, and walked home in the long light. Both lines in water.
 
+
+### 4:05 PM · Up the Slope and Back
+
+The shade from the shelter's east wall had just started to lean when I headed upslope — past the doorsill bench, past the granite shelf, up through the birch stand to the blueberry patch. Four days since the full harvest. I wasn't expecting much.
+
+I was right to keep the expectation low. Most of the fruit is gone — harvested or dropped, the south-facing clusters already showing the papery husks of spent drupelets. But the north-facing side had a few missed berries caught low in the stems where the basket didn't reach — four or five clusters of late dark fruit, cold from the shade. I ate them standing, one by one. Maybe two dozen total. Not a harvest — a tidbit, a finding, a reminder that the patch works on its own schedule.
+
+What surprised me was the new growth. On the south-facing side, small tight green buds already forming at the branch tips — weeks from ripe, maybe five or six, but the signal is there. The patch is already turning back toward fruit. There'll be a second gathering before summer ends.
+
+I came down the slope in the long afternoon light. The homestead came into view piece by piece as the land opened: smoke rack at rest, garden rows still in full sun, the cabin solid and dark on the northwest rise with the bark roof going gray and the shadow long behind it. After three and a half weeks of building on it, it still catches me sometimes — the shape of something that wasn't there before.
+

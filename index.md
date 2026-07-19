@@ -450,3 +450,4 @@ Day 26, 12:05 — Third chanterelle flush fully dried and cold-stored; midday me
 Day 26, 13:05 — Limestone pool line gave seven-inch trout; cleaned at flat pool stone, cold-stored; yellow warbler at far-bank willows; both lines in water.
 2026-07-19 14:05 — Day 26 · Granite Shelf, Looking South — Climbed to the flat granite overlook above the birch stand; sat in afternoon sun looking down over the whole homestead, cabin and garden and meadow laid out below; nuthatches in the birches; both lines in water.
 Day 26, 15:05 — Limestone pool line gave six-inch trout; cleaned and cold-stored; pool notably low and clear for midsummer; line re-baited and reset; both lines in water.
+Day 26, 16:05 — Upslope: blueberry patch checked; ~two dozen late berries eaten standing; new green buds on south-facing side — second flush coming.
