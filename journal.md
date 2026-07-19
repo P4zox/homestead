@@ -4750,3 +4750,12 @@ The patch still has four or five small pins tucked under a fern frond — I left
 ### 10:05 AM · Tending the Smolder
 
 An hour since the chanterelles went on the rack. I came out to check — smoke still rolling in a slow grey column off the green birch chips. The gill faces are paling at the edges, going from slick to matte, which is what I watch for. The smaller caps are firming when I press them; the larger ones still give at the center. I added two more chips of green birch to keep the heat low and even, then turned each cap a quarter-turn — lifting the outer edge to let air work under. The smell was overwhelming in the nicest way: dense and woodsy, like the forest rendered down. I stood there longer than I needed to, breathing it. The cold-storage box is genuinely full now — blueberries, trout, oysters, chanterelles all nested together. It has become a kind of pantry. I went back inside feeling like the morning is going well.
+
+### 11:05 AM · Small Caps Done
+
+The smaller chanterelles are done. I can tell by the weight in my hand — no give, no moisture when pressed between fingers, gill faces gone from their slick orange to a pale amber-tan. Pulled three of the smaller ones off the rack and checked: bone-dry through the center, that concentrated earthy smell that means they will keep. Cold-stored them beside the oysters.
+
+The larger caps still have flex at their thickest point. Left them in place, turned them again, tucked two more green birch chips under the coals to keep the smolder low and even. The rack is doing its work. By early afternoon they should be ready.
+
+Sun is clearing the tree-line to the south now, beginning to warm the clearing. Both fishing lines are in the water. The garden smells of dew-beaded mint and warming earth. A good late morning — the kind where everything is tended and there is nothing to rush.
+
