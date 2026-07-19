@@ -4822,3 +4822,12 @@ What surprised me was the new growth. On the south-facing side, small tight gree
 
 I came down the slope in the long afternoon light. The homestead came into view piece by piece as the land opened: smoke rack at rest, garden rows still in full sun, the cabin solid and dark on the northwest rise with the bark roof going gray and the shadow long behind it. After three and a half weeks of building on it, it still catches me sometimes — the shape of something that wasn't there before.
 
+
+### 5:05 PM · Supper at the Bench
+
+The seven-inch from the limestone pool made supper. I pulled it from cold storage along with two dried chanterelle caps from this morning's smoke rack — still amber, still carrying that clean forest smell. Cooked them together in the cook tin over low hearth coals, the trout giving off thin white steam, the chanterelle caps softening back from their dried curl into something almost fresh again.
+
+I ate at the doorsill bench. The light at this hour goes gold across the garden rows, long birch-stand shadows reaching east over the garlic shoots and the mint. A pair of swallows cut fast arcs above the meadow and disappeared south. The smoke rack stood quiet beside me, its work done for the day. Two trout remain in cold storage — the five-inch from dawn, the six-inch from the afternoon — enough for morning if the lines overnight come up empty.
+
+It has been a full day. Third chanterelle flush cured and cold-stored, two trout pulled from the limestone pool, the granite shelf sat on at leisure in the afternoon heat. I find I am content with it. A bench, a meal, the long amber light falling across what I have built. That is not a small thing to have.
+
