@@ -4735,3 +4735,14 @@ Garlic is up. Thin shoots, some six inches, pale where they rise from the loam a
 Raspberries are the last to show, but they showed: one pale shoot at the base of the row-three cane, barely an inch, flushed pink. That is the one you wait for. Once the root sends new growth up, it has stayed.
 
 Watered three cook-tin trips from the deep run, slow and even down each row. Left the dew to do the rest of the morning's work.
+
+### 9:05 AM · Third Chanterelle Flush
+
+Went up to the birch deadfall patch with the harvest basket on my shoulder, the morning still cool and the dew not yet burned off the grass. Nine days since the second flush — long enough to hope.
+
+The deadfall is silver and mossy where the bark has gone. I crouched and parted the lower ferns and there they were: a third wave, smaller than the second but clean — eleven or twelve caps ranging from thumb-size to nearly palm-width, that particular egg-yolk orange that still surprises me no matter how many times I see it. The false gills ran down the stems in neat ridged forks. I cut them at the base with the knife, one by one, and laid them gills-up in the basket to keep the caps from bruising.
+
+Back at the shelter I set the smoke rack going with a handful of green birch chips over a low coal bed — not a hot fire, just a steady pale smolder. The caps are on the rack now in a single layer, the larger ones split once down the center. By early afternoon they should be amber-brown and firm, ready for the cold-storage box.
+
+The patch still has four or five small pins tucked under a fern frond — I left them. They'll be worth something in another week if the weather holds.
+
