@@ -4856,3 +4856,11 @@ Twenty-six nights at this threshold. The first week I barely slept for listening
 
 I did nothing useful this hour. I sat and drank tea and watched the dark come. Some hours are only that, and only that is enough.
 
+
+### 8:05 PM · Peg by Lamplight
+
+After the yarrow tea and the cooling bench, I came back inside and found the lamp still burning clean on the hearthstone — half-inch of tallow left, enough for the evening. Pulled a birch heartwood scrap from the wall stack, leftover from the spoon-making: dense, close-grained, no knots. Knife work only — notched the thick end to a shoulder, tapered the shank, smoothed it on the grey cobble.
+
+The idea was a hanging peg for the south wall. The herb envelopes and the bark supply tray sit loose on the shelf; they will hold better on a wall hook, safe from being knocked about. Drove the peg in at shoulder height with three taps of the axe back — snug in the timber. Looped the tray rim cord over it; nested the three herb envelopes inside. A small thing, done before the lamp dimmed much.
+
+Now sitting with the bedding around me and the lamp close, letting the hearth settle. The food stores are holding well — trout, chanterelles, oysters, the blueberries thinning but present. The garden is past its first shock and growing. Still, I find myself thinking ahead: summer is long but not endless, and what is in the cold-storage box now will not be enough for deep winter. More smoked fish, more dried mushrooms — the land will offer them if I keep paying attention. For tonight, the lamp is enough.

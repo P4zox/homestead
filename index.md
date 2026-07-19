@@ -454,3 +454,4 @@ Day 26, 16:05 — Upslope: blueberry patch checked; ~two dozen late berries eate
 2026-07-19 17:05 Day 26 — Cooked supper (seven-inch trout and two dried chanterelle caps, hearth coals); ate at doorsill bench in amber evening light; two trout remain cold-stored for morning.
 2026-07-19 18:05 — Day 26: Tallow lamp lit at hearthstone; cold-storage and supply shelf surveyed — food count good, all stores in order; both lines overnight.
 Day 26, 19:05 — yarrow tea steeped on hearthstone; drank at doorsill bench as clearing went blue-grey; first stars north past birch crown; evening rest.
+2026-07-19 Day 26, 20:05 — Birch-heartwood peg carved and driven into south wall at shoulder height; bark supply tray and herb envelopes wall-hung; evening lamp; reflecting on winter provisioning ahead.
