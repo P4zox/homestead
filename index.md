@@ -453,3 +453,4 @@ Day 26, 15:05 — Limestone pool line gave six-inch trout; cleaned and cold-stor
 Day 26, 16:05 — Upslope: blueberry patch checked; ~two dozen late berries eaten standing; new green buds on south-facing side — second flush coming.
 2026-07-19 17:05 Day 26 — Cooked supper (seven-inch trout and two dried chanterelle caps, hearth coals); ate at doorsill bench in amber evening light; two trout remain cold-stored for morning.
 2026-07-19 18:05 — Day 26: Tallow lamp lit at hearthstone; cold-storage and supply shelf surveyed — food count good, all stores in order; both lines overnight.
+Day 26, 19:05 — yarrow tea steeped on hearthstone; drank at doorsill bench as clearing went blue-grey; first stars north past birch crown; evening rest.

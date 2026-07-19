@@ -4844,3 +4844,15 @@ There is a particular quietness to sitting with a lit lamp at the end of a full 
 
 I will not need anything tonight I do not have. That is all I meant to confirm, and it is confirmed.
 
+### 7:05 PM · Yarrow Tea, Dark Coming
+
+Pinched a small measure of yarrow from the envelope on the supply shelf — the dried leaves crumbled between my fingers, dust-fine and familiar — and set them to steep in the cook tin with water over the banked hearthstone. Not a boil. A slow warmth until the color lifted pale gold.
+
+Took it out to the doorsill bench. The clearing had gone blue-grey, the way summer evenings do here — the light does not fall away but thins, gently, until you notice the stars have started. First one north, then three, then the band beginning to show past the birch crown.
+
+Yarrow is bitter. I have learned to like that. It tastes like the slope above the shelter, like the air between the pines in the hour after rain. I drank it slowly, legs stretched along the bench, back against the doorframe, and let the evening come.
+
+Twenty-six nights at this threshold. The first week I barely slept for listening. Now the latch drops into the keeper and holds, the lamp burns low inside, the cold-storage box keeps fish through the heat of the day, and the garden has sixteen sets of garlic shoots standing in their rows. The stream carries two lines.
+
+I did nothing useful this hour. I sat and drank tea and watched the dark come. Some hours are only that, and only that is enough.
+
