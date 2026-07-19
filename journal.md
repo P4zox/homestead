@@ -4915,3 +4915,15 @@ Then I stood at the pool a while. The water is lower than last week — midsumme
 
 Both lines in water. Day 27 beginning. The homestead still behind me, untroubled.
 
+
+### 7:05 AM · Garden in Full Summer
+
+Left the cabin while the dew was still on everything. Walked the bench slope in bare feet, the grass cold and wet between my toes, and crouched at the garden edge to look before touching anything.
+
+Eight days since I last watered properly. The early summer has been warm and the mornings bright, and the garden has taken that and run with it. The wild garlic is unmistakable now — those flat bladelike leaves, deep green, standing up straight in their two rows. Half of them have sent up the curling flower-stem that means the bulbs below are swelling. The dandelion roots have spread wide rosettes, leaf edges notched like cut paper. Good leafy mass; I can start taking outside leaves without touching the roots. The wood sorrel along the north edge is lush — it loves the morning shadow there, heart-shaped leaves bright and a little translucent in the angled light.
+
+The nettles in rows one and two surprised me most. I had almost forgotten them, but they have stood up into knee-high stalks, bristling and certain of themselves. Three of the raspberry canes are sending out new side-shoots from the base — green and almost thumb-thick already. The mint in rows five through seven has run together into a single low mat, releasing that clean sharp smell every time a leaf brushes anything. The smell settled over the whole garden in the still morning air.
+
+I made four trips to the deep run with the cook tin, walking quickly each way to keep the water from sloshing too much. Poured each load slowly at the base of each row — soil was dry two knuckles deep on the south-facing rows, still slightly damp in the shadow of the north edge. The earth drank it without puddling. On the last trip I filled the bark vessel too and carried it over to the raspberry canes, which looked most thirsty at their roots.
+
+Came back and sat on the doorsill bench to let my feet dry. The limestone pool line still in the water below. The day is going to be warm; already the dew is gone from the bench boards.
