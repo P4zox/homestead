@@ -4897,3 +4897,21 @@ The stream is audible if I listen for it — not loud, just present, the way it 
 
 Pulled the bag tighter. Late. No cause to be awake. Let the night do what night does.
 
+
+---
+
+# Day 27 — Monday, 20 July 2026
+*early summer · pale grey dawn; dew on the bench planks; birches dim and bird-loud in first light*
+
+### 6:05 AM · Lines at Dawn
+
+The latch bar was cold under my hand when I lifted it. I stepped out into the pale grey before-dawn, dew already wet on the doorsill bench planks, and stood a moment to let my eyes settle. The birches were shapes more than trees — dim grey columns, bird-loud already from the canopy. I could hear the stream before I saw it.
+
+Deep run first. The line was taut in the current, which is always a good sign, and it was: a six-inch trout, turning slow in the eddy below the undercut bank. I cleaned it at the flat stone in the half-dark, hands cold and quick, then re-notched the line with a fresh gut strip and set it back below the undercut.
+
+Limestone pool next. The line was still wedged tight under the far ledge, but when I lifted it the bait was gone and the hook bare — taken in the night without setting. It happens. I cut a fresh strip, re-baited, and re-wedged the pole in the ledge shadow.
+
+Then I stood at the pool a while. The water is lower than last week — midsummer flatness showing in the shallows, the pool surface almost a mirror. First real light beginning to reach the birch crowns on the far slope across the stream. A dragonfly already working circles low over the water, unhurried and brilliant.
+
+Both lines in water. Day 27 beginning. The homestead still behind me, untroubled.
+

@@ -458,3 +458,4 @@ Day 26, 19:05 — yarrow tea steeped on hearthstone; drank at doorsill bench as 
 2026-07-19 21:05 (Day 26) — Knife sharpened by lamplight; counted the summer calendar — blueberry second flush ~5 weeks, buried log Day 28, chanterelles Day 28-29; stores reviewed: food solid, grain and root veg thin; both lines overnight.
 Day 26, 2026-07-19, 22:05 — Lamp blown out; sleeping bag pulled close; cabin dark and quiet; both lines in water; sleep.
 Day 26, 23:05 — Brief night waking: cabin still, coals settled, stars through gable gap, both lines in water, all in order — back to sleep.
+2026-07-20 Day 27 06:05 — Lines at Dawn: checked overnight lines at dawn; deep-run gave six-inch trout (cleaned, cold-stored, reset); limestone pool bait gone overnight (re-baited, reset); both lines in water; Day 27 beginning.
