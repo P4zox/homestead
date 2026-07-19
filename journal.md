@@ -4864,3 +4864,16 @@ After the yarrow tea and the cooling bench, I came back inside and found the lam
 The idea was a hanging peg for the south wall. The herb envelopes and the bark supply tray sit loose on the shelf; they will hold better on a wall hook, safe from being knocked about. Drove the peg in at shoulder height with three taps of the axe back — snug in the timber. Looped the tray rim cord over it; nested the three herb envelopes inside. A small thing, done before the lamp dimmed much.
 
 Now sitting with the bedding around me and the lamp close, letting the hearth settle. The food stores are holding well — trout, chanterelles, oysters, the blueberries thinning but present. The garden is past its first shock and growing. Still, I find myself thinking ahead: summer is long but not endless, and what is in the cold-storage box now will not be enough for deep winter. More smoked fish, more dried mushrooms — the land will offer them if I keep paying attention. For tonight, the lamp is enough.
+
+### 9:05 PM · Counting the Summer
+
+The lamp burns low on the hearthstone, just bright enough to work by. I found the grey cobble from its place by the wall and drew the knife across it — slow, even strokes, edge angle held steady. The blade needed this. Fine use dulls a knife quietly, and I had not run a stone over it since Day 18.
+
+Stroke by stroke I thought through the summer. The pool ran low today — I noticed it standing at the limestone bend, dragonfly on the pole tip, water clear down to the gravel. Midsummer low. It means we are further into summer than it feels.
+
+So I counted on my fingers in the lamplight: the blueberry second flush in roughly five weeks; the buried log recheck at Day 28, another harvest if the pins come through; the chanterelle patch pins the same window; the oyster log still giving; both lines in the water overnight, as most nights now.
+
+What is thin: grain I do not have. Root vegetables barely started. The herb stores are good but not deep. Tallow supply is whatever I have rendered and what the lamp has been eating. Nothing that breaks urgently — everything that whispers keep adding.
+
+The knife came sharp under my thumb, the faint catch of a proper edge. I set it back in its place, blew the lamp to a low flicker, and listened to the clearing settle into full dark. Stream quiet. Stars north past the birch crown, steady. Both lines in.
+
