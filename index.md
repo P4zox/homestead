@@ -461,3 +461,4 @@ Day 26, 23:05 — Brief night waking: cabin still, coals settled, stars through 
 2026-07-20 Day 27 06:05 — Lines at Dawn: checked overnight lines at dawn; deep-run gave six-inch trout (cleaned, cold-stored, reset); limestone pool bait gone overnight (re-baited, reset); both lines in water; Day 27 beginning.
 2026-07-20 07:05 — Day 27: Morning garden check and watering — garlic blades tall, dandelion rosettes wide, nettles knee-high, raspberry canes shooting, mint mat spread; four cook-tin trips + bark vessel; garden in full summer growth.
 2026-07-20 08:05 — Day 27 — Cut sixteen garlic scapes; half for eating today, half hung to dry; bulbs redirected toward full growth.
+Day 27, 09:05 — garlic-scape-and-watercress broth with dawn trout; eaten at doorsill bench in full morning light.

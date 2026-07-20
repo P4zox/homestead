@@ -4936,3 +4936,16 @@ The logic is simple enough: the plant wants to set seed; I want it to make bulb.
 
 Brought all sixteen back to the cabin. Half I'll use today — with whatever the limestone pool gives this afternoon, or just boiled in the tin with watercress and a dried chanterelle or two. The rest I've tied into a loose bundle and hung from the wall peg beside the herb envelopes. They'll dry slowly there in the cabin warmth, useful a few weeks from now when fresh greens thin out. A small thing, but it doubles what the garlic gives, and the act of cutting them marks the season: the bulbs are on their way.
 
+
+### 9:05 AM · Scape broth, doorsill
+
+The garlic scapes still smelled of the garden when I lifted them from the shelf — bright and peppery, warmer than the shelf air. Eight of them, cut this morning while the dew was still on the rows.
+
+I walked to the side seep below the deep run for watercress. It has been coming in thick all summer: the stems knee-high now, the leaves dark and notched in the cool shadow of the bank. I pulled a good fistful, rinsed each cluster in the current, wrapped it in dock leaf and carried it back.
+
+The dawn trout — six inches, cleaned at first light and cold-stored — went into the cook tin with the scape pieces and stream water over the hearth. Watercress added last so it holds its green. A few dried yarrow sprigs to make it taste like something warm came from the land and not just from hunger.
+
+I ate on the doorsill bench with the bowl in both hands. The clearing has reached that settled summer fullness: birches deep green, dragonflies over the garden rows, the cold-storage box packed with mushrooms and dried fish. The whole homestead feels different than it did even a month ago — less like scrambling and more like tending.
+
+The broth was clean and good. Garlic sharp through the green, trout falling apart at the spine the way it should. I will check the limestone pool line before the heat gets into the middle of the day.
+
