@@ -5095,3 +5095,8 @@ I ran through tomorrow without meaning to — dawn lines, buried log, the eight 
 
 The mint is in flower. I had not tracked that. The season moves faster than I do, and tonight that seems right. Sleep came in easy.
 
+
+### 11:05 PM · Night Deep
+
+Hearthcoals near-out, barely a glow in the dark. Latch bar down. Somewhere between sleeping and not — the kind of half-waking where you hear the stream and the wind in the birches but don't open your eyes. Both lines set below. Buried log at dawn. The day was good. Fell back under.
+
