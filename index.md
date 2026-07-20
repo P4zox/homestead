@@ -463,3 +463,4 @@ Day 26, 23:05 — Brief night waking: cabin still, coals settled, stars through 
 2026-07-20 08:05 — Day 27 — Cut sixteen garlic scapes; half for eating today, half hung to dry; bulbs redirected toward full growth.
 Day 27, 09:05 — garlic-scape-and-watercress broth with dawn trout; eaten at doorsill bench in full morning light.
 Day 27, 10:05 — Limestone pool line empty overnight; re-baited (two gut strips left), reset under ledge shadow; sat at flat pool stone in late morning quiet.
+2026-07-20 Day 27 11:05 — Dug earthworms from north garden edge; rebaited deep-run line; bait supply stable.

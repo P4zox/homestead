@@ -4960,3 +4960,14 @@ I sat at the flat pool stone after, not in a hurry. Late morning in summer and n
 
 Back at the cabin now with the late morning sun full on the south wall. The drying garlic scapes give a sharp green smell from the open door. Summer here: garlic and pine resin and warm wood and cold water.
 
+
+### 11:05 AM · North Rows, Bait Work
+
+The bait situation had been nagging since morning — two gut strips left in cold storage, both lines to keep fed. The gut does the job, but there was a simpler answer right behind the shelter.
+
+I took the digging stick to the north edge of the garden, where the soil stays darkest and most damp from the shade and the steady watering runs. Two inches down, I found them straightaway — earthworms, pale and blunt-headed, four and five inches long, coiling slowly in the sudden light. I worked a small patch carefully, not disturbing the wood sorrel roots, and collected a good dozen in a bark fold dampened with stream water. Set that packet in the cold-storage box with a pinch of damp soil over the worms to keep them cool and alive.
+
+Rebaited the deep-run hook with a fat earthworm threaded twice — the line hangs easier now, knowing there's a dozen more waiting in the box. The limestone pool line still has a gut strip; I'll leave it as-is and switch to worms when the strip's spent.
+
+The garden north edge barely shows where I dug. A few inches of soil disturbed, already settling back. The sorrel clumps held.
+
