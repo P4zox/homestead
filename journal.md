@@ -5042,3 +5042,16 @@ I stood there a while after it passed. The pool went from gold to green as the l
 
 Both lines set for the night. I walked back up the bank in the cooling air, the birches pale above me, and came home to the cabin going quiet in the dusk.
 
+
+### 6:05 PM · Early Check Before Dark
+
+The heat of the day was letting go at last. Both lines set, supper eaten, everything that needed doing done — and still a wedge of golden light left in the clearing. I took it as permission to walk.
+
+North first, to the buried log. Tomorrow was the scheduled check, but the light was good and I wanted to see the caps for myself. Lifted the flat stone, folded back the bark cover slowly. Eight or ten caps pushing through the punky wood, the largest nearly two inches across, ivory-white and firm-domed, edges just beginning to curl outward. The smallest still pins, no more than a thumb's width. Not tonight — another day or two for the little ones to catch up, so the whole flush can come off clean. Replaced the bark cover carefully, reset the stone.
+
+On the way back I walked through the garden in the last long slant of light. Garlic blades catching the amber, mint at the row ends in small purple flower, the whole plot knee-high and thriving. Everything growing.
+
+Back at the doorsill bench with a tin of yarrow tea, sitting still as the clearing settled from gold to grey. A bat came out early, sweeping twice over the garden rows before cutting into the trees. The stream below kept its steady sound. Stars beginning above the treeline.
+
+Tomorrow: the buried log, first thing.
+
