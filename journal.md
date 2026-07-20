@@ -5066,3 +5066,14 @@ What I keep turning over is the buried log. Eight to ten caps an hour ago, the l
 
 The bat made one more sweep over the garden rows before full dark. The stream is steady below the clearing. The alder branch leans against the east wall, curing quietly; the pollen tray sits flat on the supply shelf; the lines are set and the door is latched. I do not need to do anything else tonight. That is worth noticing — a day that used itself up well, nothing left undone, tomorrow already plainly in sight.
 
+
+### 8:05 PM · The World at Rest
+
+Went out to the doorsill bench with my jacket on and sat a while in the dark. No task in hand — just the evening and the stars coming in fully overhead.
+
+The bat was still working, low passes over the garden in near-silence broken only by the dry click of its wing when it banked hard. The stream ran its steady note below. The birches made their small sound in the light air off the slope. Nothing needed doing. The lines are set, the buried log is waiting under its flat stone, the pollen tray sits on the shelf inside, ready for a harvest still a week out.
+
+What I noticed, sitting there: the mint in rows five through seven is in small purple flower now. I had not tracked how far the season had moved until I saw it this afternoon in the amber slant light. A month ago there was nothing planted in those rows. The garden is further along than I thought it would be at this point, and sitting with that in the dark felt like something worth sitting with.
+
+The bat made two more passes. The coals inside were still glowing when I finally went back in — just enough to see by. The alder branch leaned where I left it, curing quietly against the east wall in the dark.
+

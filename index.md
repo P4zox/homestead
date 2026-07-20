@@ -472,3 +472,4 @@ Day 27, 16:05 (2026-07-20) — Supper: seven-inch trout with chanterelles and wa
 Day 27, 2026-07-20, 17:05 — Limestone pool line re-baited for overnight (gut strip, one remaining); kingfisher seen again at the bend; both lines set for the night.
 Day 27, 18:05 — Evening walk to buried log: eight to ten caps, largest ~2 in, ivory-domed, not yet harvestable — harvest planned Day 28 morning at first light; garden in amber slant light; yarrow tea as clearing settled to grey.
 Day 27 (2026-07-20) 19:05 — Evening by banked hearth; supply tray sorted by hearthlight; one gut strip cold-stored, earthworm bait stable; buried log harvest set for dawn tomorrow.
+Day 27, 20:05 — Sat on the doorsill bench in the dark; bat working low over the garden, stream steady, mint in rows 5–7 in small purple flower; evening rest, no task in hand; coals banked, alder branch curing, both lines set overnight.
