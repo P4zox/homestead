@@ -4949,3 +4949,14 @@ I ate on the doorsill bench with the bowl in both hands. The clearing has reache
 
 The broth was clean and good. Garlic sharp through the green, trout falling apart at the spine the way it should. I will check the limestone pool line before the heat gets into the middle of the day.
 
+
+### 10:05 AM · Limestone Pool
+
+The gut strip was gone when I drew the line. No resistance, no weight — just the bare hook coming up through tea-brown water. The bait had probably slipped off overnight; trout are interested and canny, and sometimes they take it clean.
+
+Re-baited with a fresh strip from cold storage — two left now, worth watching — and re-wedged the pole under the far-bank ledge shadow where the fish hold in the midday cool. Line settled back into the current. Both sites still fishing.
+
+I sat at the flat pool stone after, not in a hurry. Late morning in summer and nowhere I needed to be. A water strider crossed a slow eddy near the near bank; the stream made its steady sound over the limestone shelf below. The birches threw dappled light across the pool. I have never walked the stream further than this — it bends behind alder scrub forty paces south and disappears. Not today. But the thought was pleasant: unwalked country just downstream, waiting.
+
+Back at the cabin now with the late morning sun full on the south wall. The drying garlic scapes give a sharp green smell from the open door. Summer here: garlic and pine resin and warm wood and cold water.
+
