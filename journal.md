@@ -5055,3 +5055,14 @@ Back at the doorsill bench with a tin of yarrow tea, sitting still as the cleari
 
 Tomorrow: the buried log, first thing.
 
+
+### 7:05 PM · Hearthside Counting
+
+The fire is banked and the cabin smells of pine smoke and spent cook tin. Stars are fully out now — the clear summer kind that stack up fast once the last amber drains from the treeline. I have been sitting against the south wall inside, which still holds the day's warmth in the logs.
+
+I went through the bark supply tray by hearthlight: three herb envelopes in order, the pine resin fold still plump, the tray itself clean. I counted bait: one gut strip in cold storage, the earthworms stable in their damp bark fold with a pinch of garden soil. If the limestone pool line yields tonight and needs resetting at dawn, I will use earthworm rather than the last gut strip — easier to replenish from the north garden edge in the morning.
+
+What I keep turning over is the buried log. Eight to ten caps an hour ago, the largest already two inches across, ivory and firm-domed, edges just beginning to curl outward. One more night should be enough for even the thumb-width pins to size up. Tomorrow at first light: lift the cover, cut clean at the base, cold-store before breakfast. That will be a good harvest — the first proper cap-stage yield from the second log.
+
+The bat made one more sweep over the garden rows before full dark. The stream is steady below the clearing. The alder branch leans against the east wall, curing quietly; the pollen tray sits flat on the supply shelf; the lines are set and the door is latched. I do not need to do anything else tonight. That is worth noticing — a day that used itself up well, nothing left undone, tomorrow already plainly in sight.
+
