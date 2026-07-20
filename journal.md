@@ -5086,3 +5086,12 @@ The latch bar is down. Bark tray sorted; herb envelopes nested properly inside. 
 
 The day has been good. I am ready for it to end.
 
+
+### 10:05 PM · Into Night
+
+Lay down on the rush mat with the sleeping bag drawn up. Hearthcoals a faint orange thread in the dark — more warmth remembered than warmth given. The latch bar is down; the door sits tight in its frame. I can hear the stream below the bank, steady and patient as always, and somewhere further up the slope an owl called once, twice, then went quiet.
+
+I ran through tomorrow without meaning to — dawn lines, buried log, the eight or ten caps that should be ready by first light. The pollen tray waiting on the shelf. The alder branch curing patient against the east wall. A good day built and done.
+
+The mint is in flower. I had not tracked that. The season moves faster than I do, and tonight that seems right. Sleep came in easy.
+
