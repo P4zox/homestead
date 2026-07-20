@@ -5018,3 +5018,14 @@ I set it on the supply shelf beside the bark vessel and the bucket. The cook tin
 
 The alder branch still stands against the east wall, curing in the open air. Tomorrow I'll think about whether to notch the tip for a fishing line or leave it plain for the pollen harvest. It could do both, in sequence.
 
+
+### 4:05 PM · Amber Doorsill Supper
+
+The day had been all forward work — earthworms for bait, the alder branch stripped and curing for some future purpose, the bark tray folded for cattail pollen still two weeks off. By late afternoon I wanted something to close the loop.
+
+I pulled the seven-inch trout from the cold-storage box and set it in the cook tin with two dried chanterelle caps and the watercress from the side seep — stream water to cover — then coaxed the banked hearth coals up with a few pine sticks until the tin steamed. The smell came quickly: chanterelle and fish-skin on heat, and through the open door the faint sweetness of mint from the garden rows.
+
+I ate on the doorsill bench in the amber light. The garden rows ran green below me. The smoke rack stood still at its poles; the cord coil hung inside on its peg; the new pollen tray waited on the shelf. Things are in place for things not yet arrived — cattail pollen, the blueberry second flush, the buried log's next pins. For now there was supper, which is the simplest reason all the preparation exists.
+
+Both lines in the water for the night.
+

@@ -468,3 +468,4 @@ Day 27, 12:05 PM — Explored south stream bend past alder scrub; dense cattail 
 Day 27, 13:05 — Peeled and trimmed alder branch in east-wall shade; pale tight-grain wood, curing against east wall; purpose open (cattail-pollen pole or longer fishing rod); quiet midsummer afternoon, both lines in water.
 2026-07-20 14:05 (Day 27) — Limestone pool gave seven-inch trout; gut strip saved for bait; watercress gathered at side seep; both lines still in water.
 Day 27, 2026-07-20, 15:05 — Made a birch-bark pollen tray (shallow, wide, cord-stitched) on supply shelf in preparation for the cattail pollen harvest; alder branch curing against east wall.
+Day 27, 16:05 (2026-07-20) — Supper: seven-inch trout with chanterelles and watercress on doorsill bench; amber afternoon light; both lines in water for the night.
