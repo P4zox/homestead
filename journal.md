@@ -5077,3 +5077,12 @@ What I noticed, sitting there: the mint in rows five through seven is in small p
 
 The bat made two more passes. The coals inside were still glowing when I finally went back in — just enough to see by. The alder branch leaned where I left it, curing quietly against the east wall in the dark.
 
+
+### 9:05 PM · Yarrow Tea, Night Still
+
+Steeped a small pinch of dried yarrow in a half-tin of water held near the edge of the coals — not enough heat left to boil, but enough to pull color and that faint bitter-green smell. Sat cross-legged on the rush mat while it steeped, listening to the shelter: the small tick of wood cooling, the coals settling once. Drank it slow.
+
+The latch bar is down. Bark tray sorted; herb envelopes nested properly inside. Pollen tray on the shelf beside the bark vessel and bucket. Alder branch propped dry against the east wall. Tomorrow at first light: the buried log — eight to ten caps by tonight's check, overnight to size up the smaller ones. Cook tin clean. Both lines in dark water.
+
+The day has been good. I am ready for it to end.
+
