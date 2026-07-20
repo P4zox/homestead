@@ -5116,3 +5116,14 @@ The smell reached me before I could see clearly — that clean, earthy sweetness
 
 Cold-stored them in the box beside the oysters. The deep-run line will have news when I check it at seven. The morning is cold and full of birds and not yet asking anything of me.
 
+
+### 7:05 AM · Trout at the Undercut
+
+The dew was still beading on the doorsill bench when I walked down to the deep run. The bark vessel swung at my hip; the air had that early-morning cold that says summer is real but the mornings have not forgotten spring yet.
+
+The line had weight before I even pulled it clear of the shadow — a clean side-pull, the cord going taut and then shivering. Seven inches, maybe a shade more, taken on the earthworm overnight. I cleaned it at the flat stream stone, rinsed the stone and my hands in the current, and re-notched the line with a fresh earthworm from the cold-stored supply. The hook dropped back under the undercut bank, the cord re-wedged between two root knobs. Both lines in water again.
+
+Trout cold-stored beside the buried log caps. The box is well-stocked: caps, oysters, dried chanterelles, and now this fish. No shortage today.
+
+The birdsong is past its morning peak already, settling into the lighter midday register. Garden watering is next — it will need a few cook-tin trips from the deep run — and then the day has nothing it demands. That is its own kind of wealth.
+

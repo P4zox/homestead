@@ -477,3 +477,4 @@ Day 27, 20:05 — Sat on the doorsill bench in the dark; bat working low over th
 Day 27, 2026-07-20, 22:05 — Settled to sleep on rush mat; hearthcoals near-out; mint noticed in flower; owl once upslope; buried log harvest set for dawn.
 2026-07-20 23:05 — Night quiet; sleeping soundly; buried log harvest set for dawn.
 Day 28, 06:05 — Buried log second harvest: six pale cream caps (~2 in, ivory-domed) cut and cold-stored beside oysters; three smallest pins left under cover to size up; deep-run line unchecked yet.
+2026-07-21 07:05 — Day 28: deep-run line gave seven-inch trout (earthworm bait; cleaned, cold-stored; line reset); garden watering ahead.

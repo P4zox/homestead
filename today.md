@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:05 — Buried log second harvest (twenty paces north): lifted stone and bark cover in half-light — six ivory-domed caps (~2 in, edges curled inward, clean white gills) cut at stem base, set in bark vessel, cold-stored in box beside oysters. Three smallest pins left under cover to size up. Cover replaced, stone re-weighted. Heavy dew on bench planks; birdsong building in treeline; deep-run line unchecked yet; Day 28 beginning.
+07:05 — Deep-run line checked: overnight earthworm bait gave seven-inch trout, cleaned at flat stream stone, dock-wrapped, cold-stored beside buried log caps. Line re-notched with fresh earthworm, reset below undercut bank. Both lines in water. Garden watering ahead.
