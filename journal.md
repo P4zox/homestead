@@ -5007,3 +5007,14 @@ On the return, stopped at the side seep below deep run — two good fistfuls of 
 
 Cleaned the trout properly inside on the hearthstone and cold-stored it. Now two gut strips in reserve again rather than none. The afternoon is settling toward the long golden hour. Garden shadow reaches the first row.
 
+
+### 3:05 PM · Tray for the Pollen
+
+The afternoon heat settled into the clearing and I sat in the east-wall shade with a large sheet of birch bark from the supply shelf — one of the nine peeled from the deadfall upslope. I've been watching the cattail stand in the back of my mind since yesterday's scout: chest-high stems, pollen heads still green and forming. Two weeks, maybe less. And when those heads ripen and the pollen shakes loose, I'll want something wide enough to catch it without losing half to the breeze.
+
+I scored the inner face of the bark with my knife tip — four fold lines running parallel to the grain, then four short corner cuts. The bark folded cleanly along the score lines, rim rising two fingers high all around. Four corner stitches with two-ply cord, pulled snug through punched holes, and the tray held its shape: wide and flat and steady, about a forearm across. No need to seal the seams — pollen is dry; it's the wind I'm competing with, not water.
+
+I set it on the supply shelf beside the bark vessel and the bucket. The cook tin would have worked in a pinch, but it's too narrow — a wide, shallow tray lets me hold it beneath a ripe pollen head and sweep the yellow mass sideways off the spike without spilling half of it. A small thing. But thinking ahead feels good, especially when the thing thought toward is pollen — something between flour and light.
+
+The alder branch still stands against the east wall, curing in the open air. Tomorrow I'll think about whether to notch the tip for a fishing line or leave it plain for the pollen harvest. It could do both, in sequence.
+
