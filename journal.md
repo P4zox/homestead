@@ -4971,3 +4971,13 @@ Rebaited the deep-run hook with a fat earthworm threaded twice — the line hang
 
 The garden north edge barely shows where I dug. A few inches of soil disturbed, already settling back. The sorrel clumps held.
 
+### 12:05 PM · South Along the Bend
+
+The alder scrub was thicker than it looked from the pool stone this morning. I pushed through where the bank narrows — alder roots gripping wet clay, the stream running fast and cold below. Past the scrub, the valley opened slightly: the stream ran wide and shallow over a gravel bar before bending left into shadow. I followed the bend.
+
+The right bank flattened into a low shelf of wet ground, and there — maybe forty paces along — I found the cattails. A dense stand, chest-high, pressed together at the shelf's muddy edge. I counted two dozen easily, probably more hidden in toward the alders. The seed-heads are still green at the tips, but the pollen cylinders are just beginning to form — pale green tubes emerging above the fluff. Another week, perhaps two, and they'll push out golden pollen: edible, nearly flour, enough to thicken broth or coat the outside of a fish for the hearthstone.
+
+I stood at the edge and memorized the place. I did not harvest anything today — the bank is soft enough to take a boot, and I had not brought the cook tin or bark vessel. First survey only. The bend has its own smell: wetter, stiller than upslope, a coolness under the alders even at midday.
+
+On the return I cut a straight alder branch — thumb-thick, a good arm-and-a-half long, sound through the center. No plan for it yet. Sometimes you take what the land offers and let the use come later.
+
