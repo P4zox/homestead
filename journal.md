@@ -4981,3 +4981,16 @@ I stood at the edge and memorized the place. I did not harvest anything today �
 
 On the return I cut a straight alder branch — thumb-thick, a good arm-and-a-half long, sound through the center. No plan for it yet. Sometimes you take what the land offers and let the use come later.
 
+
+### 1:05 PM · Peeling Alder
+
+The midday heat has a weight to it — the kind that settles into the clearing like something gathering since morning. I carried the alder branch back from the south bend at noon and did not quite know yet what to do with it. That is fine. Sometimes you cut a thing because it is straight and sound and right there, and you let it tell you its use later.
+
+I found shade on the east side of the shelter where the birches throw a narrow shadow, and sat down with the branch across my knees. Stripped the bark with the knife — it came away in long strips, the inner wood pale and clean-smelling, faintly sweet. Ran my thumb along the grain: tight, even, no knots for a good arm's length in either direction.
+
+Trimmed the two knobby end joints flush. It came down to just under arm-and-a-half — close to the original, but cleaner. Flexible near the tip, stiffer at the base. Good flex, not brittle.
+
+I have been thinking about the cattail stand. The pollen will be ready in a week or two, and gathering it from chest-high stems will take both hands — one to bend the head over the cook tin, one to hold the tin steady. A pole like this could stand upright in the soft bank soil to free one hand, or it could become a longer fishing rod to reach the deeper current below the limestone pool. Purpose still open. For now it leans against the east wall, bark stripped, curing in open air.
+
+The garden is quiet in the afternoon heat. The mint has nearly covered its rows. The sky is the flat white-blue of a settled midsummer afternoon, and the stream sounds clear and constant from here — neither urgent nor distant.
+
