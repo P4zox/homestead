@@ -4994,3 +4994,16 @@ I have been thinking about the cattail stand. The pollen will be ready in a week
 
 The garden is quiet in the afternoon heat. The mint has nearly covered its rows. The sky is the flat white-blue of a settled midsummer afternoon, and the stream sounds clear and constant from here — neither urgent nor distant.
 
+
+### 2:05 PM · Pool Check, Afternoon
+
+Walked to the limestone pool in the full heat of the afternoon — the path through the birches was cool enough, and then out into the open stretch where the stream bends and the light comes in white and flat off the water. The pool was quiet when I crouched at the flat stone. I could see the bottom sand, pale and rippled, and the line disappearing under the far-bank ledge shadow.
+
+Pulled it in: a seven-inch trout, firm and lively, still spinning at the surface when it broke water. Clean hook, fresh take — probably this last hour. I cleaned it at the flat stone, pinching the gut carefully free in one long strip. Good enough for two future baits. Wrapped the flesh in dock leaves, set it beside the pole.
+
+Re-baited with the new gut strip, re-wedged the pole under the ledge shadow, and let the line sink. Both lines still in water.
+
+On the return, stopped at the side seep below deep run — two good fistfuls of watercress, cold and dripping, rinsed in the current and dock-wrapped. Some of the young growth has gone slightly peppery in the summer warmth; the oldest leaves I left. Carried trout and greens back together.
+
+Cleaned the trout properly inside on the hearthstone and cold-stored it. Now two gut strips in reserve again rather than none. The afternoon is settling toward the long golden hour. Garden shadow reaches the first row.
+

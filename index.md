@@ -466,3 +466,4 @@ Day 27, 10:05 — Limestone pool line empty overnight; re-baited (two gut strips
 2026-07-20 Day 27 11:05 — Dug earthworms from north garden edge; rebaited deep-run line; bait supply stable.
 Day 27, 12:05 PM — Explored south stream bend past alder scrub; dense cattail stand found forty paces beyond (two dozen+, chest-high, pollen heads forming green) — pollen harvest in ~1–2 weeks. Cut one straight alder branch on return.
 Day 27, 13:05 — Peeled and trimmed alder branch in east-wall shade; pale tight-grain wood, curing against east wall; purpose open (cattail-pollen pole or longer fishing rod); quiet midsummer afternoon, both lines in water.
+2026-07-20 14:05 (Day 27) — Limestone pool gave seven-inch trout; gut strip saved for bait; watercress gathered at side seep; both lines still in water.
