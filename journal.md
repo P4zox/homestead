@@ -5029,3 +5029,16 @@ I ate on the doorsill bench in the amber light. The garden rows ran green below 
 
 Both lines in the water for the night.
 
+
+### 5:05 PM · Kingfisher at Dusk
+
+The light has gone amber and low by the time I walk down to the limestone pool. Supper is settled; the hearth has ticked down to coals. There is a particular quality of late afternoon in summer — the air still warm but the hard edge of the day gone out of it, shadows lengthening behind the birch trunks, everything slowing toward evening.
+
+The pool holds the last direct light on its far limestone ledge. My pole is still wedged firm under the overhang where I left it at two. I pull the line in slowly: the bait is gone, hook bare and clean. Missed another one, or the current pulled it loose — hard to know. I re-baited with a gut strip from cold storage, wedged the pole back into the ledge shadow, tied the end off on a root at the bank. That is the overnight set. One gut strip left in cold storage after this.
+
+While I was kneeling at the pool stone, a kingfisher came through — the same blue-orange slash I saw three days ago, low and direct and fast, upstream. Gone before I could do more than hold still. I do not know if it is the same bird, but it works this reach of stream, and that pleases me. Something else has found this water good.
+
+I stood there a while after it passed. The pool went from gold to green as the last direct sun moved off the cliff face. I thought about the weeks coming: the cattail pollen ready in a week or two, the buried log due for a check at dawn, the second blueberry flush still five weeks out. There is a rhythm to it now — the homestead cycling through its own small seasons within the season. That is a comfortable thing to notice.
+
+Both lines set for the night. I walked back up the bank in the cooling air, the birches pale above me, and came home to the cabin going quiet in the dusk.
+

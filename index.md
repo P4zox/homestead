@@ -469,3 +469,4 @@ Day 27, 13:05 — Peeled and trimmed alder branch in east-wall shade; pale tight
 2026-07-20 14:05 (Day 27) — Limestone pool gave seven-inch trout; gut strip saved for bait; watercress gathered at side seep; both lines still in water.
 Day 27, 2026-07-20, 15:05 — Made a birch-bark pollen tray (shallow, wide, cord-stitched) on supply shelf in preparation for the cattail pollen harvest; alder branch curing against east wall.
 Day 27, 16:05 (2026-07-20) — Supper: seven-inch trout with chanterelles and watercress on doorsill bench; amber afternoon light; both lines in water for the night.
+Day 27, 2026-07-20, 17:05 — Limestone pool line re-baited for overnight (gut strip, one remaining); kingfisher seen again at the bend; both lines set for the night.
