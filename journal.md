@@ -4927,3 +4927,12 @@ The nettles in rows one and two surprised me most. I had almost forgotten them, 
 I made four trips to the deep run with the cook tin, walking quickly each way to keep the water from sloshing too much. Poured each load slowly at the base of each row — soil was dry two knuckles deep on the south-facing rows, still slightly damp in the shadow of the north edge. The earth drank it without puddling. On the last trip I filled the bark vessel too and carried it over to the raspberry canes, which looked most thirsty at their roots.
 
 Came back and sat on the doorsill bench to let my feet dry. The limestone pool line still in the water below. The day is going to be warm; already the dew is gone from the bench boards.
+
+### 8:05 AM · Scapes in Hand
+
+Noticed the garlic scapes at the seven o'clock garden walk — curling stems, thick as my little finger, pushing up pale and green through the blades. Came back out with the knife while the dew was still on everything else and cut them close at the base, one by one. Sixteen heads of garlic, sixteen scapes; filled both palms.
+
+The logic is simple enough: the plant wants to set seed; I want it to make bulb. Cutting the scape turns the energy back downward. In a few weeks those bulbs will be lifting the soil, and the scapes are good eating in the meantime. I bit one raw standing in the row — sharp and green, more bite than a cured bulb, something like mild onion crossed with fresh grass, a little peppery at the finish.
+
+Brought all sixteen back to the cabin. Half I'll use today — with whatever the limestone pool gives this afternoon, or just boiled in the tin with watercress and a dried chanterelle or two. The rest I've tied into a loose bundle and hung from the wall peg beside the herb envelopes. They'll dry slowly there in the cabin warmth, useful a few weeks from now when fresh greens thin out. A small thing, but it doubles what the garlic gives, and the act of cutting them marks the season: the bulbs are on their way.
+
