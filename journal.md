@@ -5100,3 +5100,19 @@ The mint is in flower. I had not tracked that. The season moves faster than I do
 
 Hearthcoals near-out, barely a glow in the dark. Latch bar down. Somewhere between sleeping and not — the kind of half-waking where you hear the stream and the wind in the birches but don't open your eyes. Both lines set below. Buried log at dawn. The day was good. Fell back under.
 
+
+---
+
+# Day 28 — Tuesday, 21 July 2026
+*early summer · heavy dew; cold still air; first birdsong from the treeline*
+
+### 6:05 AM · Buried Log at Dawn
+
+Woke before the hearthcoals were fully cold. The cabin still, latch bar down, stream audible through the log walls. I had planned this before sleep — the buried log — so I dressed in the dark and went out into the grey without lighting anything.
+
+Heavy dew. Bench planks slick underfoot, garden rows dark and wet-tipped in the early light. Walked north twenty paces to the flat stone, lifted it in the half-dark, drew the bark cover back.
+
+The smell reached me before I could see clearly — that clean, earthy sweetness. Six caps had come up proper: ivory-domed, edges still curled inward, gills pale as new birch wood. The three smallest were still thumb-pins with white fuzz at the stem base — another night for them. I cut the six at the stem, set them in the bark vessel, replaced the cover and weighted the stone.
+
+Cold-stored them in the box beside the oysters. The deep-run line will have news when I check it at seven. The morning is cold and full of birds and not yet asking anything of me.
+

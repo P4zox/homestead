@@ -476,3 +476,4 @@ Day 27, 20:05 — Sat on the doorsill bench in the dark; bat working low over th
 2026-07-20 21:05 — Day 27, Mon — Yarrow tea by dying hearthcoals; latch bar down; alder branch curing; pollen tray on shelf; buried log harvest at dawn (eight to ten caps); day done.
 Day 27, 2026-07-20, 22:05 — Settled to sleep on rush mat; hearthcoals near-out; mint noticed in flower; owl once upslope; buried log harvest set for dawn.
 2026-07-20 23:05 — Night quiet; sleeping soundly; buried log harvest set for dawn.
+Day 28, 06:05 — Buried log second harvest: six pale cream caps (~2 in, ivory-domed) cut and cold-stored beside oysters; three smallest pins left under cover to size up; deep-run line unchecked yet.
