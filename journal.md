@@ -5273,3 +5273,14 @@ Stars bright through the door gap. Both lines in the water. Sleep soon.
 ### 9:05 PM · Clover Tea, Embers
 
 The bow stave stands against the east wall with its first marks in it, and that is enough for one night. I opened the red clover envelope and shook a few dried heads into the cook tin with water from the bark vessel, set it on the remaining hearthcoals, and waited. The tea came up slowly, pale gold in the firelight, faintly sweet. I drank it at the doorsill where a light current of air came in from the clearing — cool now, the way early summer nights go when the heat of the day has pulled back into the sky. Stars in full view above the treeline. Frogs started up from the direction of the meadow seep sometime in the last hour; I could hear them clearly. After the tin was empty I swept the hearth flat with a green birch twig and laid two larger rounds of fuel over the coals — not to keep them burning strong, just to hold a gentle heat through the night. Door latch dropped. Both lines in the water in the dark below. A good day. Sleep now.
+
+### 10:05 PM · Night Sounds, Still
+
+Something pulled me out of the first layer of sleep — not sound exactly, but the sudden awareness of it. The frogs at the meadow seep are going all at once, steady and full, the way they do on warm clear nights when the air has no intention of moving. I lay still in the sleeping bag and counted what else I could hear: the faint tick of cooling hearthstone, a slow breath of wind through the gable gap above the latch, the ridgepole settling a fraction against the fork. Nothing wrong. Everything exactly as I left it.
+
+The bow stave was running through my mind, which is probably what woke me. I saw the grain clearly in the dark — that gentle mid-limb lean, the pale sapwood wrapping around good dense heartwood. I saw my hands doing the work that hasn't happened yet, making the slow thinning passes on the belly, testing flex, feeling for where the wood wants to bend and where it wants to hold firm. It isn't there yet. But the shape is in me now, and the wood is curing against the east wall, and in a few days I'll start in earnest.
+
+I let the frogs pull me back down. Stars still clear through the door gap — I could see two of them from where I lay, steady white points above the treeline. Both lines in the water. Cold box full. Root cellar holding. The garden standing quiet in the dark.
+
+Sleep came again without asking.
+

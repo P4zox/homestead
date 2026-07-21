@@ -492,3 +492,4 @@ Day 28, 18:05 — Examined curing alder branch by hearthlight; natural mid-limb 
 2026-07-21 Day 28 19:05 — Stripped bark from alder stave by hearthlight; pale tight grain clean throughout; handle site located at natural midpoint; bow moved from idea to project; stave set grain-side out against east wall.
 Day 28, 20:05 (2026-07-21) — By hearthlight: handle section located and marked on alder stave; top limb trimmed three passes to match lower; bow shaping begun; stars out, both lines in water, sleep soon.
 2026-07-21 21:05 — Day 28 — Red clover tea at dying hearthcoals; frogs from meadow seep; hearth banked, door latched, both lines overnight — sleep.
+2026-07-21 Day 28 22:05 — Night Sounds, Still: brief waking; frogs at meadow seep; bow stave grain in the mind; sleep returned.
