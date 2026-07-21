@@ -5297,3 +5297,13 @@ The cold box is full: buried log caps from dawn, oysters smoked at midday, fish 
 
 I let the frogs carry the rest into sleep.
 
+
+---
+
+# Day 29 — Wednesday, 22 July 2026
+*early summer · clear morning, light mist*
+
+### 6:05 AM · Dawn Lines, New Day
+
+Dawn came cool and misty. Unlatched the door into grey-soft air — dew heavy on the bench planks, the clearing wrapped in pale mist, birdsong just starting to decide itself. Made for the deep run first, following the sound of water in the half-dark. The overnight earthworm bait had done its work: a seven-inch trout on the line, cold and still in the current. Cleaned it at the flat stream stone, dock-wrapped, cold-stored in the box. Re-notched the line with a fresh earthworm from the bark fold and reset below the undercut bank. Then downstream to the limestone pool — still dark under the far-bank ledge shadow — and found a six-inch trout waiting on the bait there. Cleaned that one too at the pool stone, line re-baited and re-wedged under the ledge. Both lines back in water before the mist had lifted off the meadow. Walked home in new light, cold box richer for the morning, Day 29 just beginning to find its shape.
+
