@@ -5307,3 +5307,12 @@ I let the frogs carry the rest into sleep.
 
 Dawn came cool and misty. Unlatched the door into grey-soft air — dew heavy on the bench planks, the clearing wrapped in pale mist, birdsong just starting to decide itself. Made for the deep run first, following the sound of water in the half-dark. The overnight earthworm bait had done its work: a seven-inch trout on the line, cold and still in the current. Cleaned it at the flat stream stone, dock-wrapped, cold-stored in the box. Re-notched the line with a fresh earthworm from the bark fold and reset below the undercut bank. Then downstream to the limestone pool — still dark under the far-bank ledge shadow — and found a six-inch trout waiting on the bait there. Cleaned that one too at the pool stone, line re-baited and re-wedged under the ledge. Both lines back in water before the mist had lifted off the meadow. Walked home in new light, cold box richer for the morning, Day 29 just beginning to find its shape.
 
+
+### 7:06 AM · Morning Trout, Mist Lifting
+
+The mist is still moving in the clearing when I get the hearth going, but thinning now — you can see the garden rows clear down to the border stones, the loam dark from last night's dew. I took the six-inch from the limestone pool, the smaller of the two morning fish, and set it in the cook tin with a handful of wood sorrel and the watercress I gathered yesterday. The fire caught fast on dry birch bark curls, and the pine split caught quickly behind them. The tin sat at the hearth-edge and the smell came up warm and clean.
+
+I ate at the bench. A thrush was still singing from somewhere in the treeline — that full rolling phrase it does in the early hour before the day heats up. The clearing was quiet otherwise except for the birds and the distant sound of the stream. The cold box is holding everything well: both lines reset, the mushrooms and blueberries firm, cord coiled on the shelf, the stave leaning grain-side-out against the east wall.
+
+Not scrambling for anything today. That is a feeling I try not to let go past without noticing — sitting at my own doorsill in the mist, full, the day just starting. I will look at the bow stave in better light, see what the limbs want next. But for now I am just sitting with the thrush and the lifting mist, and that is enough.
+
