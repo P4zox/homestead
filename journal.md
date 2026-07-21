@@ -5149,3 +5149,12 @@ The gut strips are spent. I used the last for a re-bait at supper yesterday, so 
 
 The pool itself was still and green. Water beetles skirting the surface near the far bank. A dragonfly hovered once over the inlet and was gone. It's a quiet place to come in the morning — you do the small task of the line and then there's a moment of just standing beside the water, which doesn't cost anything.
 
+
+### 10:05 AM · Oysters on the Pine
+
+The morning's work was done — both lines in water, garden watered, trout cold-stored — and the slope was calling. I climbed past the blueberry patch, through the birch fringe, and up to the rotting pine in its shallow depression, about seventy paces out and a little above the shelter's roofline.
+
+The clusters had come on well. Three along the underside where the bark had split and peeled back: pale buff caps spread wide, edges clean, gills white and uncrowded. I cut them at the base with the knife, careful and deliberate, leaving the mycelium in the wood to come back again. The smallest flush on the far end I left alone — two or three more days and it will be worth taking. Today's harvest came to a little over four handfuls, heaped in the bark vessel.
+
+Coming down the slope with that weight felt good. Back at the shelter I banked the hearth coals low, laid green birch chips over them, and set the caps gill-side down across the smoke rack crossbars. The smoke started thin and white and steady. I sat on the doorsill bench to watch it rise. The day is warm and the yard quiet except for a chickadee working through the pine above the gable. Both lines running somewhere downstream. Four handfuls of oysters beginning to dry. There is a satisfaction in this that has no name except the one it already has: work that makes sense.
+
