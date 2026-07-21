@@ -5158,3 +5158,12 @@ The clusters had come on well. Three along the underside where the bark had spli
 
 Coming down the slope with that weight felt good. Back at the shelter I banked the hearth coals low, laid green birch chips over them, and set the caps gill-side down across the smoke rack crossbars. The smoke started thin and white and steady. I sat on the doorsill bench to watch it rise. The day is warm and the yard quiet except for a chickadee working through the pine above the gable. Both lines running somewhere downstream. Four handfuls of oysters beginning to dry. There is a satisfaction in this that has no name except the one it already has: work that makes sense.
 
+
+### 11:05 AM · Turning the Caps
+
+The caps had been on the rack an hour when I went back to tend them. The green birch smolder was still holding — a thin thread of smoke curling up through the pale buff caps, slow and even. I tucked in a few more green chips at the base, careful not to smother the coals, then turned each cap by hand: gill-side up now, letting the heat settle into the moister underside. Four-plus handfuls this morning. Good harvest for a rotting pine that keeps giving.
+
+The smoke drifts south in the warming air. The morning has weight to it — two trout cold-stored, six buried log caps added before dawn, and now these oysters drying above coals. The season is running well. I sat on the doorsill bench a few minutes while the smoke steadied, watching light work across the clearing. The garden rows are faint below: a stripe of green blades, the broad dandelion crowns, the stiff mint mat. Everything is holding its pace.
+
+The caps will need another hour or two. I will pull them when they firm up amber-brown at the tops and pale tan at the gills — same tell as every time before.
+
