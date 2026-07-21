@@ -5244,3 +5244,16 @@ The light went amber. I came back down the slope.
 
 The hearthcoals were still red when I came back inside from the overlook, just enough warmth to take the cool edge off the cabin air. I lifted the alder branch from its lean against the east wall — curing stripped since yesterday midday, and already the wood has lightened a shade, dry and clean when I run a thumb along the grain. Arm-and-a-half long, two fingers thick at the butt, joints trimmed flush. I turned it slow in the hearthlight, sighting down the length the way you'd check a level. Straight. There's a gentle lean in the middle third, not a flaw — the kind of natural set that could work with a draw instead of against it. I balanced it across my knees and held it a while. I'm not carving anything yet. The bow is still an idea, not a plan, but ideas need to be tested against actual wood, and the wood has passed its first real look tonight. I could feel where the handle would sit and how the limbs might taper. I set the branch back against the wall, sat in the coalsmoke light until the embers went quiet, and listened to the dark outside the door.
 
+
+### 7:05 PM · First Work, Bow Stave
+
+The hearth had settled to coals by the time I sat back down with the alder branch — enough amber light and warmth to work by. I took it down from the east wall again, but this time I did not just look at it. I sat cross-legged on the rush mat and began pulling bark with the knife tip: long, careful strips lifted toward the grain, the way you peel a thing you mean to keep.
+
+The wood underneath is pale. Cream-colored in the sapwood, the heartwood darker toward center. Tight grain, clean all the way down — no soft spots, no hidden twist I had missed in the first look tonight. The joints I trimmed when I cut it are smooth and true. It is good wood.
+
+I did not shape anything. But I ran both hands along the full length and found where the handle wants to sit — at the natural midpoint, right where the gentle mid-limb lean begins. The top limb runs a hair longer than the bottom. I will even them at the handle later if the wood agrees. For now I only held the thought.
+
+By the time the last bark strip came free, the coals were glowing orange-amber and the branch had become something different. Not a stick anymore. Not yet a bow. Something between — wood that knows what it might become.
+
+I set it back against the east wall, grain side out so morning light will fall across it clean. Both lines are in water. The night is still.
+
