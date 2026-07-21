@@ -5228,3 +5228,15 @@ I stayed until the light shifted from gold to the first pale edge of evening. Th
 
 Good day. Good stores. Both lines in water.
 
+### 5:05 PM · Shelf at Evening
+
+After supper I climbed the slope — past the birch stand, up to the flat granite shelf I found nine days ago. Chest-high, smooth-faced, six feet across. I had not been back since.
+
+I sat on its edge and looked south. The cabin roof below, the smoke rack poles, the garden rows faintly readable at this distance. Meadow beyond, summer grass moving in a slow wave. The stream I heard but could not see. Everything I have made this month laid out at once, small and in order.
+
+The hawk was there again, quartering the meadow in long slow passes. A light upslope breeze kept the mosquitoes off. I sat longer than I meant to.
+
+The alder branch is still curing against the east wall. Arm-and-a-half long, tight grain, good flex. I keep turning it over in my mind — a bow stave, maybe. Not yet. The wood needs time, and so does the thought. But from up here, with everything below quiet and in order, it felt good to have something still becoming.
+
+The light went amber. I came back down the slope.
+
