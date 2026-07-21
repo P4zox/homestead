@@ -483,3 +483,4 @@ Day 28, 09:05 — Limestone pool line: six-inch trout (cold-stored); gut strips 
 [Day 28, 2026-07-21, 10:05] Oysters on the Pine — upslope rotting pine (~70 paces): three oyster clusters harvested (~4+ handfuls, pale buff caps, white gills); set on smoke rack over low green birch smolder; smallest flush left to size up.
 Day 28, 11:05 — Smoke rack tended: oyster caps turned gill-side up, green birch chips added to smolder; caps drying through mid-morning.
 Day 28, 12:05 — Oyster caps pulled from smoke rack (amber-tan, firm throughout); cold-stored in box; midday rest at doorsill bench.
+2026-07-21 13:05 (Day 28) — Checked limestone pool line (earthworm bait still on, no catch yet, left set); gathered watercress at side seep below deep run — two fistfuls, dock-wrapped, hanging on north wall; supper planned: trout, dried chanterelles, watercress over hearth coals.

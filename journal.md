@@ -5182,3 +5182,12 @@ I sit and watch the clearing. A small wren works the mint rows looking for insec
 
 There is a cattail stand to tend in a week or two. There are fish to eat this afternoon. The cold box is full of good things.
 
+
+### 1:05 PM · Water and Green
+
+The rest ended without hurry. I took the knife and cook tin and walked the stream path south to the limestone pool while the afternoon was still early — the light coming at a low angle, the air beginning to move after the still of midday. The pool lay in good half-shadow under the far-bank ledge, just where the pole is wedged. I tested the line with a finger: earthworm bait still on, no catch yet. The fish at the limestone pool take their time. I left it set.
+
+From there I waded the shallows to the side seep below the deep run, where the watercress grows thick on the wet stones at the seep mouth. Two good fistfuls, pulled cold from the current, rinsed against the flow. They came up bright and sharp-smelling. Dock-leaf wrapped, carried back. They are hanging now on the north wall in the shade, close to the cook tin and ready.
+
+Supper is already clear in my mind: a trout from the cold box, two dried chanterelle caps, this watercress, cooked over a low hearth coal and eaten at the bench while the light turns amber. The same meal that has been good for a week and is still good. Both lines are in the water. The afternoon belongs to the land between.
+
