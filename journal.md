@@ -5202,3 +5202,16 @@ Cleaned it at the flat pool stone, dock-wrapped, carried it cold back to the box
 
 I sat a few minutes at poolside before heading back up — just watching the current curl around the limestone ledge. A small blue damselfly held its place on a stem at the far margin, wing-veins taking the afternoon light. Supper is full now: two trout in the cold box alongside today's buried log caps, watercress hanging on the wall, dried chanterelles ready. The day has been good.
 
+
+### 3:05 PM · Doorsill Supper, Warm
+
+The hearth took the first spark. I laid what remained of yesterday's banking coals and fed in two small pine rounds — they caught fast in the dry afternoon air, and the hearthstone was radiating heat within minutes.
+
+Two trout from the cold box: the seven-inch from the limestone pool this afternoon and the six-inch caught at dawn, both dock-wrapped and still cold to the touch. I rinsed the cook tin at the stream, set it on the hearthstones with a splash of water, and laid both fish in with two dried chanterelle caps and the watercress from the wall — just enough green to fill the tin.
+
+The broth came up to a quiet roll within the time it took me to settle onto the doorsill bench. I watched the garden while supper finished: garlic standing straight after yesterday's scape harvest, nettles beginning to crowd each other along the first two rows, raspberry side-shoots all reaching south toward the afternoon sun. Everything looks like it has its own momentum now, and I didn't plant that — I just gave it a start and got out of the way.
+
+I ate slowly, tin balanced on one knee, watching a small hawk work the meadow margin below the garden. It turned in wide easy circles, unhurried. The day has been full — buried log caps at dawn, two trout before midday, oyster mushrooms smoked and cold-stored — and sitting here in the late warmth with the meal in hand, I felt satisfied in a plain and quiet way that doesn't need much naming.
+
+The cook tin is rinsed and back on the shelf. Both lines still in water for the evening.
+
