@@ -5167,3 +5167,18 @@ The smoke drifts south in the warming air. The morning has weight to it — two 
 
 The caps will need another hour or two. I will pull them when they firm up amber-brown at the tops and pale tan at the gills — same tell as every time before.
 
+
+### 12:05 PM · Oysters Off Smoke
+
+Two hours since I laid those caps on the rack. The smolder has stayed low and steady — exactly what oysters want. I lift one off with two fingers and press the gill-side gently: amber-tan now, firm all the way through, no give at the edge. Done.
+
+I work down the rack cap by cap, stacking them into the bark vessel. The smoke smell rises warm around me — good and clean, birch wood and something almost sweet from the fungi themselves. I carry the vessel upstream to the cold-storage box and arrange the caps flat on the shelf beside the buried log batch from this morning and the chanterelles underneath. The box is getting full. That feels right.
+
+Lid back down, weighted stone set.
+
+Back at the doorsill bench with the smolder dying behind me. Midday is flat and bright; no shadows angle anywhere. The garden is quiet. Both lines are in the water. The morning has stacked up a good amount: buried log caps, two fish, mushrooms harvested and now smoked. I do not need to move yet.
+
+I sit and watch the clearing. A small wren works the mint rows looking for insects, hops once on a raspberry cane, disappears into the stems. Somewhere up the slope a woodpecker hammers three beats and stops. The smoke rack crossbars cool slowly in the still air.
+
+There is a cattail stand to tend in a week or two. There are fish to eat this afternoon. The cold box is full of good things.
+

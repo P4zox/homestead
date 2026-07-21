@@ -5,3 +5,4 @@
 09:05 — Limestone pool line checked: six-inch trout on overnight gut-strip bait (cleaned at flat pool stone, dock-wrapped, cold-stored). Gut strips now spent — line re-baited with earthworm from cold-storage bark fold; pole re-wedged under ledge shadow — both lines in water.
 10:05 — Upslope walk to rotting pine (~70 paces): three oyster clusters found ready — pale buff caps wide-spread, white gills clean; ~4+ handfuls cut at stem base with knife; smallest flush on far end left to size up 2–3 more days; caps set gill-side down on smoke rack over low green birch smolder; doorsill bench rest while smoke builds.
 11:05 — Smoke rack tended: turned oyster caps gill-side up, added green birch chips; smolder steady and low; caps one to two hours from done.
+12:05 — Oyster caps pulled from smoke rack: amber-tan, firm throughout, no soft spots — cold-stored in box beside buried log caps and chanterelles; rack cleared; midday rest at doorsill bench.

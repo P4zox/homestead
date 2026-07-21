@@ -482,3 +482,4 @@ Day 28, 06:05 — Buried log second harvest: six pale cream caps (~2 in, ivory-d
 Day 28, 09:05 — Limestone pool line: six-inch trout (cold-stored); gut strips spent, switched to earthworm; both lines in water.
 [Day 28, 2026-07-21, 10:05] Oysters on the Pine — upslope rotting pine (~70 paces): three oyster clusters harvested (~4+ handfuls, pale buff caps, white gills); set on smoke rack over low green birch smolder; smallest flush left to size up.
 Day 28, 11:05 — Smoke rack tended: oyster caps turned gill-side up, green birch chips added to smolder; caps drying through mid-morning.
+Day 28, 12:05 — Oyster caps pulled from smoke rack (amber-tan, firm throughout); cold-stored in box; midday rest at doorsill bench.
