@@ -5191,3 +5191,14 @@ From there I waded the shallows to the side seep below the deep run, where the w
 
 Supper is already clear in my mind: a trout from the cold box, two dried chanterelle caps, this watercress, cooked over a low hearth coal and eaten at the bench while the light turns amber. The same meal that has been good for a week and is still good. Both lines are in the water. The afternoon belongs to the land between.
 
+
+### 2:05 PM · Limestone Pool, Afternoon
+
+The mid-afternoon settled into that particular summer stillness — birdsong mostly quiet, insects loud in the grass, air warm and close. I walked the stream path south to the limestone pool without hurry, the shadows long and wide under the pines.
+
+The pole was where I left it, wedged in the ledge shadow. When I lifted it there was weight — a live resistance, not the slack of weed. Seven-inch trout, fat-bellied and clean, flanks catching amber in the pool-light.
+
+Cleaned it at the flat pool stone, dock-wrapped, carried it cold back to the box. Line re-baited with a fresh earthworm from the bark fold, pole re-wedged under the ledge shadow — both lines in water still.
+
+I sat a few minutes at poolside before heading back up — just watching the current curl around the limestone ledge. A small blue damselfly held its place on a stem at the far margin, wing-veins taking the afternoon light. Supper is full now: two trout in the cold box alongside today's buried log caps, watercress hanging on the wall, dried chanterelles ready. The day has been good.
+
