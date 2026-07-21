@@ -5127,3 +5127,14 @@ Trout cold-stored beside the buried log caps. The box is well-stocked: caps, oys
 
 The birdsong is past its morning peak already, settling into the lighter midday register. Garden watering is next — it will need a few cook-tin trips from the deep run — and then the day has nothing it demands. That is its own kind of wealth.
 
+
+### 8:06 AM · Garden Walk, Rows Watered
+
+The dew was still heavy on the bench planks when I came back from the stream with the trout cleaned and both lines reset. I could see the garden from the doorsill — dark earth between the plant stems catching the early light. It had been waiting.
+
+I made four trips to the deep run with the cook tin and walked each row slowly, pouring low at the roots. The garlic blades are a deep green and standing tall; since the scapes came off yesterday the plants look as if they have straightened up, as if that weight had been holding them bent. The nettle rows have spread again overnight — I can tell by the slightly shinier look at the leaf tips, new growth pushing out. Raspberry canes in rows 3 and 4 are putting out long side-shoots now, reaching toward the path between beds. Mint fills rows 5–7 in a dense mat, already pressing into the gaps between clumps.
+
+The wood sorrel along the shaded north edge is thriving in this early summer heat — small and bright and precise, each leaf folded like a tiny hand at night, open now in the morning light. Dandelion crowns broad and flat. Everything watered, everything walked.
+
+I set the empty cook tin on the hearthstone afterward and stood at the doorsill a moment. The mist had lifted completely. A good morning for it.
+
