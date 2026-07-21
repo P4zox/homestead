@@ -5284,3 +5284,16 @@ I let the frogs pull me back down. Stars still clear through the door gap — I 
 
 Sleep came again without asking.
 
+
+### 11:00 PM · Frogs Still Calling
+
+Late now. The hearth is barely warm — fuel rounds from evening collapsed to slow glow, tallow and settled ash. I am in the sleeping bag with the door latched, watching the stripe of stars through the gap above the latch bar. The frogs have not stopped. They have been calling since dusk and will still be calling at first light.
+
+The bow stave is leaning against the east wall in the dark — I cannot see it but I know its shape now. Handle marked with knife notches at the natural midpoint, top limb corner-eased three slow passes to match the lower profile, tight pale sapwood all along the grain-side back. It will ask more of me tomorrow. That is fine.
+
+Both lines are in the water without me. Earthworm on the deep-run notch below the undercut bank, earthworm at the limestone pool under the ledge shadow. Whatever finds them in the dark will be waiting at first light.
+
+The cold box is full: buried log caps from dawn, oysters smoked at midday, fish from morning and afternoon, watercress hanging cold on the north wall. The garden walked and watered. The granite shelf at dusk. The bow — from idea to shape, all in one evening. Day 28 closes complete.
+
+I let the frogs carry the rest into sleep.
+
