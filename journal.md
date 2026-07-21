@@ -5269,3 +5269,7 @@ I set it back against the wall. The bow doesn't exist yet, not really — but th
 
 Stars bright through the door gap. Both lines in the water. Sleep soon.
 
+
+### 9:05 PM · Clover Tea, Embers
+
+The bow stave stands against the east wall with its first marks in it, and that is enough for one night. I opened the red clover envelope and shook a few dried heads into the cook tin with water from the bark vessel, set it on the remaining hearthcoals, and waited. The tea came up slowly, pale gold in the firelight, faintly sweet. I drank it at the doorsill where a light current of air came in from the clearing — cool now, the way early summer nights go when the heat of the day has pulled back into the sky. Stars in full view above the treeline. Frogs started up from the direction of the meadow seep sometime in the last hour; I could hear them clearly. After the tin was empty I swept the hearth flat with a green birch twig and laid two larger rounds of fuel over the coals — not to keep them burning strong, just to hold a gentle heat through the night. Door latch dropped. Both lines in the water in the dark below. A good day. Sleep now.
