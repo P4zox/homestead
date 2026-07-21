@@ -488,3 +488,4 @@ Day 28, 2:05 PM — Limestone pool gave seven-inch trout (afternoon catch); clea
 Day 28, 15:05 (2026-07-21) — Doorsill supper: two trout, dried chanterelles, watercress over hearth; ate at bench in afternoon warmth; hawk over south meadow; one trout cold-stored; both lines in water.
 Day 28, 16:05 — Walked to limestone pool in amber afternoon light; line checked under far-bank ledge shadow, bait holding, no catch this hour; both lines set for overnight; stores and food in good order.
 Day 28, 17:05 — Climbed to granite shelf overlook above shelter; sat in long amber light watching hawk quarter the meadow, garden rows and cabin roof visible below; alder branch in mind as a future bow stave; descended as light faded.
+Day 28, 18:05 — Examined curing alder branch by hearthlight; natural mid-limb lean confirmed workable; bow stave idea passed its first real look.

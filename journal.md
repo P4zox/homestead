@@ -5240,3 +5240,7 @@ The alder branch is still curing against the east wall. Arm-and-a-half long, tig
 
 The light went amber. I came back down the slope.
 
+### 6:05 PM · Alder by Hearthlight
+
+The hearthcoals were still red when I came back inside from the overlook, just enough warmth to take the cool edge off the cabin air. I lifted the alder branch from its lean against the east wall — curing stripped since yesterday midday, and already the wood has lightened a shade, dry and clean when I run a thumb along the grain. Arm-and-a-half long, two fingers thick at the butt, joints trimmed flush. I turned it slow in the hearthlight, sighting down the length the way you'd check a level. Straight. There's a gentle lean in the middle third, not a flaw — the kind of natural set that could work with a draw instead of against it. I balanced it across my knees and held it a while. I'm not carving anything yet. The bow is still an idea, not a plan, but ideas need to be tested against actual wood, and the wood has passed its first real look tonight. I could feel where the handle would sit and how the limbs might taper. I set the branch back against the wall, sat in the coalsmoke light until the embers went quiet, and listened to the dark outside the door.
+
