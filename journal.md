@@ -5257,3 +5257,15 @@ By the time the last bark strip came free, the coals were glowing orange-amber a
 
 I set it back against the east wall, grain side out so morning light will fall across it clean. Both lines are in water. The night is still.
 
+### 8:05 PM · Handle Found, Limbs Marked
+
+The cabin was quiet by eight. Just the tick of cooling wood, one ember breathing orange in the hearth, and the alder stave leaning at the east wall where I'd set it an hour before. I took it up again.
+
+By firelight the grain reads differently than by sun — shadows deepen the long lines, make the wood look older. I turned it slowly and found the handle again by feel: the natural midpoint, where the lean of the stave gives a slight resistance to the hand, where the wood knows it belongs held. I marked each side of the handle section with a thin notch from the knife tip — two inches either way, four inches total. Not carved yet. Just named.
+
+From the handle to each tip I counted the limb lengths. The top limb runs a hand-span longer, as I'd seen at dusk. I set the stave upright on the floor and sighted down it: the gentle curve runs true, no twist I can feel. I took the knife and made three careful passes along the flat of the top limb — not removing much, only easing the corners down to match the lower's profile. A few thin slivers of cream-pale wood onto the hearthstone. The limb looked even after, or close enough.
+
+I set it back against the wall. The bow doesn't exist yet, not really — but the wood has been asked the question, and it hasn't objected. That feels like a start.
+
+Stars bright through the door gap. Both lines in the water. Sleep soon.
+
