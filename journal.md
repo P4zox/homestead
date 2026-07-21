@@ -5138,3 +5138,14 @@ The wood sorrel along the shaded north edge is thriving in this early summer hea
 
 I set the empty cook tin on the hearthstone afterward and stood at the doorsill a moment. The mist had lifted completely. A good morning for it.
 
+
+### 9:00 AM · Limestone, Quiet Pool
+
+The path to the limestone pool is familiar now — thirty paces of worn ground through alder scrub, then the sound of water around the bend before you see it. I went mid-morning, sun already warm on the back of my neck.
+
+The line was taut where the pole rests in the ledge shadow. A six-inch trout had taken the gut strip sometime in the early hours, turned silver in the clear pool. I cleaned it on the flat stone beside the water, dock-wrapped it, and tucked it into the cold-storage box when I got back — the box has a good count in it now: buried log caps from dawn and two trouts from this morning.
+
+The gut strips are spent. I used the last for a re-bait at supper yesterday, so I threaded a fresh earthworm from the cold-storage bark fold onto the limestone pool hook, wedged the pole back under the ledge shadow, let the current take the line into the shade. Earthworms have worked at the deep run; no reason they won't here.
+
+The pool itself was still and green. Water beetles skirting the surface near the far bank. A dragonfly hovered once over the inlet and was gone. It's a quiet place to come in the morning — you do the small task of the line and then there's a moment of just standing beside the water, which doesn't cost anything.
+

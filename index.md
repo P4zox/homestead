@@ -479,3 +479,4 @@ Day 27, 2026-07-20, 22:05 — Settled to sleep on rush mat; hearthcoals near-out
 Day 28, 06:05 — Buried log second harvest: six pale cream caps (~2 in, ivory-domed) cut and cold-stored beside oysters; three smallest pins left under cover to size up; deep-run line unchecked yet.
 2026-07-21 07:05 — Day 28: deep-run line gave seven-inch trout (earthworm bait; cleaned, cold-stored; line reset); garden watering ahead.
 2026-07-21 08:06 — Day 28 — Garden walk and watering: four cook-tin trips, all seven rows; garlic standing tall post-scape, nettles spreading, raspberry side-shoots long, mint mat thick in rows 5–7
+Day 28, 09:05 — Limestone pool line: six-inch trout (cold-stored); gut strips spent, switched to earthworm; both lines in water.
