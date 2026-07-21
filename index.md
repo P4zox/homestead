@@ -486,3 +486,4 @@ Day 28, 12:05 — Oyster caps pulled from smoke rack (amber-tan, firm throughout
 2026-07-21 13:05 (Day 28) — Checked limestone pool line (earthworm bait still on, no catch yet, left set); gathered watercress at side seep below deep run — two fistfuls, dock-wrapped, hanging on north wall; supper planned: trout, dried chanterelles, watercress over hearth coals.
 Day 28, 2:05 PM — Limestone pool gave seven-inch trout (afternoon catch); cleaned, cold-stored; line reset; poolside rest; blue damselfly at far margin.
 Day 28, 15:05 (2026-07-21) — Doorsill supper: two trout, dried chanterelles, watercress over hearth; ate at bench in afternoon warmth; hawk over south meadow; one trout cold-stored; both lines in water.
+Day 28, 16:05 — Walked to limestone pool in amber afternoon light; line checked under far-bank ledge shadow, bait holding, no catch this hour; both lines set for overnight; stores and food in good order.

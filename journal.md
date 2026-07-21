@@ -5215,3 +5215,16 @@ I ate slowly, tin balanced on one knee, watching a small hawk work the meadow ma
 
 The cook tin is rinsed and back on the shelf. Both lines still in water for the evening.
 
+
+### 4:05 PM · Pool in Amber Light
+
+Walked the stream path down to the limestone pool in the mid-afternoon heat. The air had gone still and golden by the time I reached the bend — that heavy summer light that makes the water look like it is breathing. The line hung from the birch pole under the far-bank ledge shadow, earthworm bait fresh from two hours past. I crouched at the near bank and watched.
+
+No pull. The pool lay still. A water strider worked slow circles near the outlet where the current thins. I adjusted the pole wedge angle slightly — deepening the bait hang toward the ledge base where the limestone drops off — then sat back on the grass and let the afternoon do what it wanted.
+
+The hawk that had been circling the south meadow at supper was nowhere I could see. From here, downstream and below the clearing, the homestead had a shape: garden rows dark with this morning water, smoke rack bare and clean, bark roof catching the last direct sun on the south slope. Something that belongs to this land now, or is starting to.
+
+I stayed until the light shifted from gold to the first pale edge of evening. The line was still fishing when I left it — both lines set to run through the night. Walked back up the stream path with the water sound behind me.
+
+Good day. Good stores. Both lines in water.
+
