@@ -5333,3 +5333,14 @@ I set it back grain-side out against the east wall. Both fishing lines are in th
 ### 9:05 AM · Four Water-Trips
 
 Set the knife down after the tiller session and went to the garden instead. Mid-morning is the right time for it — sun well up, the soil showing where it wants watering, cool enough to make four carry-trips from the stream pleasant work. Filled the cook tin at the deep run and walked each row slow: the garlic still tall and upright since the scape harvest two mornings back, cut stems sealed clean in the dry air; the nettle stand has thickened into a low canopy along rows one and two, leaves broad and deep green; the raspberry canes in rows three and four have put out new pale-green shoot tips reaching for the open light. Mint in rows five through seven has spread a hand-width in each direction since planting — the whole section smells clean when you brush against it. Poured each tin slowly at the base, one row at a time. The eastern strip of garlic and dandelion looks the richest — the combination of hearth ash and leaf duff has made the soil almost black, and the dandelion leaves are wide and glossy. Stood at the south end when I was done and looked back up the slope at the cabin, the smoke rack, the dark gap of the root cellar entrance, the garden laid out below it all. Neat. Purposeful. Nothing grand, but everything where it belongs.
+
+### 10:05 AM · Upslope in the Warm
+
+The clearing was already bright by the time the garden watering was done, the sun past the treeline and starting to warm the bench planks. Both lines were in water, the morning catch cold-stored, the bow stave leaning against the east wall waiting for its next session. There was a window of good light and nothing pressing, so I went upslope.
+
+The rotting pine at seventy paces sits in its shallow depression the way it always does, bark going gray and soft along the top, the wood beneath still dense. I harvested the main clusters two days ago — pale buff caps, white gills, a good haul — and left the small flush at the far end of the trunk to size up. Today those caps have spread a thumb-width wider. Pale buff at the margins shading to ivory at the center, gills still clean white, no yellowing at the edges. Not fully open yet. I pressed the rim of the largest cap lightly and it sprang back. That is the right sign. Another day, maybe two.
+
+I left them. There is no reason to take what isn't ready when the cold box is full.
+
+On the way back I stopped at the granite shelf — the flat one above the birch stand, chest height, clear view south. The whole homestead was laid out below: the cabin roof, the smoke rack posts, the root cellar bank, the garden rows still dark from watering. Everything I have made is visible from one spot. Twenty-nine days in and that still catches me a little. The clearing used to be nothing but open ground and birdsong. Now it is a place.
+
