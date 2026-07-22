@@ -496,3 +496,4 @@ Day 28, 20:05 (2026-07-21) — By hearthlight: handle section located and marked
 2026-07-21 23:00 — Day 28 closes: late-night rest by dying coals, frogs calling from meadow seep, bow stave shaped by hearthlight (handle notched, limbs matched), both lines in water overnight, cold box well stocked.
 Day 29 [2026-07-22 06:05] — Dawn lines checked: seven-inch trout from deep run, six-inch from limestone pool; both cold-stored; lines reset; Day 29 begins clear with mist.
 Day 29, 07:06 — cooked six-inch limestone pool trout with wood sorrel for breakfast over hearth; eaten at doorsill bench while mist lifted; thrush singing in treeline.
+2026-07-22 08:05 — Day 29. First tiller pass on alder bow stave: belly faces of both limbs thinned with knife-flat scraping; rough tiller check shows upper limb slightly more flexible than lower — noted for next session.

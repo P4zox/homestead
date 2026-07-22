@@ -5316,3 +5316,16 @@ I ate at the bench. A thrush was still singing from somewhere in the treeline �
 
 Not scrambling for anything today. That is a feeling I try not to let go past without noticing — sitting at my own doorsill in the mist, full, the day just starting. I will look at the bow stave in better light, see what the limbs want next. But for now I am just sitting with the thrush and the lifting mist, and that is enough.
 
+
+### 8:05 AM · First Tiller Pass
+
+The stave had been leaning against the east wall since last night, grain-side out, handle notched, limbs corner-eased. Morning light came through the open door in a low bar across the floor — good light for close work, the kind that picks up high spots and hollows in pale wood.
+
+I sat on the rush mat with the stave across my lap. The alder is close-grained and heavier than I expected when I first cut it, though drying fast now. I began on the belly side of the upper limb — short passes with the knife held flat, edge barely biting, curling up thin flakes like apple peel. The rule I keep to: remove from the belly only, leave the back entirely alone. The back holds the tension; the belly takes the compression. Scrape the wrong face and the bow loses its spine.
+
+After twenty minutes the upper limb had thinned to where my thumb could feel it give under pressure. I braced the lower tip against the log bench and drew the upper limb back slowly — watching where it arced. It bent cleanly through the full length, still stiff but bending. I turned the stave and matched the work on the lower limb, thinning by feel and eye rather than measure.
+
+Then I stood for a rough tiller check: held the handle at chest height, pressed both tips out in turn. The upper limb releases just a little more easily than the lower — not wrong, just something to watch. A few more thin passes from the lower limb belly and they should match.
+
+I set it back grain-side out against the east wall. Both fishing lines are in the water. The mist burned off the clearing an hour ago.
+
