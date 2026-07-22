@@ -510,3 +510,4 @@ Day 29, 2026-07-22, 18:05 — Walked upslope birch stand after supper; cut eight
 [2026-07-22 19:06] Day 29 — Shafts by Hearthlight: peeled bark from eight birch arrow shafts by hearthlight; heat-corrected curved shaft over coals; six straight candidates drying on supply shelf.
 2026-07-22 Day 29 20:05 — Walked clearing edge at last light; gathered five flight primaries from north margin — first fletching material collected; shafts drying on shelf; bow on wall peg; stars out.
 Day 29, 2026-07-22, 21:05 — Brewed clover-mint tea over hearthcoals; sat at doorsill bench watching stars; Cassiopeia and the Dipper overhead; bow on wall peg, shafts drying.
+2026-07-22 22:06 Day 29 — banked hearth coals for the night, checked door latch, settled into sleeping bag; bow and arrow shafts on shelf; both lines overnight in water
