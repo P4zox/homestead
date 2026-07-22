@@ -5415,3 +5415,14 @@ Picked watercress at the side seep on the way back. Supper came together quickly
 
 The bow hangs on the wall peg inside. I can see it from the bench. Twenty-nine days in, and that is a thing I made. I sat with that thought longer than the supper required.
 
+
+### 6:05 PM · First Arrow Shafts
+
+After supper I sat for a while at the doorsill bench watching the amber go off the clearing. The bow hangs inside on its wall peg. Made it with my own hands, will shoot it with my own hands — but without arrows it is just a bent stick on a hook.
+
+I took my knife and the harvest basket and walked up through the clearing edge into the birch stand. What I needed: straight shoots, thumb-thick, without side branches for the length I would need to work with. Young birch in that stand reaches hard for light, and a lot of that new growth comes up straight. I walked slowly and picked carefully, cutting each shaft cleanly at the base with one flat stroke, checking it against my eye as I went.
+
+By the time the light started going soft I had eight candidates in the basket. Six look genuinely straight. One has a slight curve at the mid-section — might correct it over the hearth with some careful heat and hand-bending. One I am less sure about but kept anyway for practice. All bark still on; I will peel and sort them by hearthlight tonight and let them start to dry out on the supply shelf.
+
+I sat a moment at the granite shelf on the way back down. The homestead from up there looked settled — cabin, smoke rack, root cellar, the dark rows of the garden still damp from morning water. Eight small poles in my basket and a bow waiting at the end of the path.
+
