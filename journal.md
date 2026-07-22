@@ -5435,3 +5435,16 @@ The curved one I hold near the coals without touching them — close enough to f
 
 The bow hangs on its peg above me, and for a moment I feel the quiet completeness of this: the coals, the eight pale shafts in a row on the shelf behind me, the bow already strung and waiting. One thing following naturally from the last. The forest outside has gone dark. Insects sound in the grass beyond the doorway. I feel settled here, steady, the way a good day ends without fanfare. Tomorrow I will shape the nocks.
 
+
+### 8:05 PM · Clearing Edge at Last Light
+
+The coals had gone low and the light outside turned flat purple-grey. I thought: feathers. For fletching you need three per shaft, and I had none, and birds shed them at clearing margins — grouse scratch there, pigeons flush from the pines and drop a feather or two on their way up. Worth walking the north edge while I could still see.
+
+I went slow, head down, watching the grass at the tree-line. Within twenty paces the first one appeared: a long brown-barred primary, still clean and fresh. Two more close together just beyond it, and a fourth, and a fifth at the base of a large pine where something had been preening. Five flight primaries in all — stiff spines, full vanes, proper fletching length.
+
+Not enough for eight shafts, but enough to start: one arrow complete, partway through a second. I know now where to look when the roost is active at dawn. The forest gave these freely without my asking much.
+
+I brought them back in and set them on the shelf beside the drying arrow shafts. In the hearthglow they looked like they belonged there. Bow on the wall peg above, shafts lined up below, feathers beside them — the parts of something that will be useful soon.
+
+The stars are fully out now. The clearing is quiet except for insects. Tomorrow I will check the buried log — the caps may have pushed far enough.
+
