@@ -5448,3 +5448,7 @@ I brought them back in and set them on the shelf beside the drying arrow shafts.
 
 The stars are fully out now. The clearing is quiet except for insects. Tomorrow I will check the buried log — the caps may have pushed far enough.
 
+### 9:05 PM · Clover Tea, Stars
+
+Boiled a small cup of dried clover heads and a few wild mint leaves in the cook tin over the last of the hearthcoals. Took it outside and sat on the doorsill bench. The clearing was still warm from the day — air barely moving, insects loud in the grass, stars filling in above the treeline. Cassiopeia climbing, the Dipper settled. I sat there a good while without thinking of anything in particular, just watching. Bow on the wall peg inside, arrow shafts pale on the shelf, both lines in the water down at the stream. Tomorrow the shafts will be drier; the day after, maybe ready for nocking. Tonight just the tea and the sky.
+
