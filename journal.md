@@ -5344,3 +5344,12 @@ I left them. There is no reason to take what isn't ready when the cold box is fu
 
 On the way back I stopped at the granite shelf — the flat one above the birch stand, chest height, clear view south. The whole homestead was laid out below: the cabin roof, the smoke rack posts, the root cellar bank, the garden rows still dark from watering. Everything I have made is visible from one spot. Twenty-nine days in and that still catches me a little. The clearing used to be nothing but open ground and birdsong. Now it is a place.
 
+
+### 11:05 AM · Under the Flat Stone
+
+Stepped north twenty paces to the buried log before the midday heat could settle in. Lifted the flat stone and the bark cover together, tilting them back gently. Three pale pins in the low shadow beneath — and they have grown since yesterday morning. Two of them have pushed up into modest domes, edges still curled inward, caps maybe three-quarters of an inch across. The gills underneath show clean ivory, no browning, and they sprang back when I pressed a finger lightly against the rim. Close, but not quite. Another day, maybe two — I want the caps to flatten and spread before I cut them. The third pin is still a tight knob, lagging, maybe half the size of its neighbors. I set the cover back carefully and re-weighted the stone.
+
+There is something I like about tending something that does all its own work in the dark. I guard the conditions, keep the cover in place, and the mycelium does the rest. My labor here is restraint — not harvesting before the right moment, not disturbing when things are finding their own shape. It takes a particular kind of patience, different from building, where you can always see the progress. Here the progress hides under bark and stone, and you just have to trust the timing.
+
+The sun was over the treeline now and the clearing was warming fast. A thrush was calling somewhere in the birch stand — two clear notes, then a pause, then two more. I stood a moment with the flat stone in my hands before setting it back, just listening.
+
