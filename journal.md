@@ -5369,3 +5369,14 @@ The wood is clean and pale where I've worked it, the grain running true all the 
 
 The shelter holds the cool well in the afternoon heat. I set the bow stave across my knees and worked the upper limb belly again — this time with a lighter touch, the knife held nearly flat, shaving off no more than paper-thin curls with each pass. The upper limb has been yielding more than the lower since the first tiller check, and the goal today was to bring the stiffer lower limb up to match rather than knock the freer one back. The second pass this morning already closed most of the gap. Now it was fine-tuning: three passes down the lower limb mid-section, two more at the fade toward the nock. I flex-checked after each set — pressing each tip against the rush mat while my eye ran the belly curve. The upper limb still leads a little at the outer quarter, but the gap is small now, almost cosmetic. One more careful session should bring it true. The stave went back grain-side out against the east wall, and I sat for a moment listening to the insects outside in the grass. The bow is not finished, but it is becoming. That feels like the right pace for it.
 
+
+### 2:05 PM · Limbs Come Even
+
+The afternoon light had shifted off the east wall; the shelter was in full shade, cool and dim. I brought the stave to the doorway for good flex-light — one end braced against the doorsill bench, palm on the handle, watching each limb arc.
+
+Upper limb still leading slightly at the outer quarter, same as every check this morning. I sat on the rush mat with the stave across my knees and took three deliberate passes at that quarter — knife laid flat, pressure even, scraping thin curls rather than cutting deep. Checked after each set by pressing both ends in the doorway light. After the second set the gap had nearly closed. After the third I pressed again and just looked: both limbs curved in matched arcs from handle to tip, upper no longer running ahead, the whole length bending as one piece.
+
+I set the stave on the rush mat and sat quiet with it a moment. The tiller is even. It bends like a bow. Still no nocks, still no string — but the shaping work is done.
+
+Next: cut the nock grooves near each tip, rig a stringing cord, and see how it draws.
+

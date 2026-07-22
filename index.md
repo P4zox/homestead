@@ -502,3 +502,4 @@ Day 29, 07:06 — cooked six-inch limestone pool trout with wood sorrel for brea
 Day 29, 11:05 — Checked buried log (three pins developing — two at ~¾ inch dome, one still tight); cover replaced; not yet ready, another day or two.
 2026-07-22 [Day 29, 12:05] Second bow stave tiller pass in shelter shade — lower limb belly thinned, tiller approaching even.
 2026-07-22 13:05 — Day 29: Third tiller pass on bow stave in afternoon shade; upper limb still marginally freer at outer quarter but gap nearly closed; one more careful session should bring it true.
+2026-07-22 Day 29 14:05 — Fourth tiller pass on bow stave; tiller now even — both limbs trace matched arc; nock cutting next.
