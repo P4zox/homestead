@@ -5465,3 +5465,21 @@ I find myself going back through the day like a slow inventory — first light a
 
 Tomorrow the work is smaller: nock shaping, splitting vanes, binding quills to wood. Tonight there is nothing to do but let the day settle. I am letting it.
 
+
+---
+
+# Day 30 — Thursday, 23 July 2026
+*early summer · clear morning, dew on bench planks*
+
+### 6:06 AM · Quills in Morning Light
+
+Woke to birdsong and cold air. Overnight lines first: deep run gave a seven-inch on earthworm bait, cleaned at the flat stone and cold-stored; limestone pool line came up bare, re-baited and reset. Both back in water.
+
+Came inside and took the flight primaries down from the supply shelf. Five brown-barred grouse primaries, gathered last night at the clearing edge — stiff spines, full vanes. Laid them on the rush mat and started with the knife tip: score the quill lengthwise from tip toward base, then ease each vane strip free from the spine in a single slow pass. The first one tore where the quill had dried unevenly. The second came apart clean — one smooth strip, vane intact. By the fourth and fifth I had the angle right: knife flat against the spine, no pressure downward, just a leading edge.
+
+Eight usable strips in the end. Three matched pairs from the straightest primaries; two singles from the outer feathers where the vane widens a little unevenly but the spines are strong. Set them in a loose bundle on the supply shelf beside the arrow shafts.
+
+The shafts are still too green to receive them well. Birch this young holds moisture deep, and gluing to it now would only mean the binding loosens as the wood finishes its shrinking. Another day or two. The fletching is ready; now the shafts have to catch up.
+
+This is a different kind of homestead than it was a month ago.
+
