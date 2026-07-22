@@ -500,3 +500,4 @@ Day 29, 07:06 — cooked six-inch limestone pool trout with wood sorrel for brea
 2026-07-22 09:05 Day 29 — Garden walk and watering; four cook-tin trips from deep run; garlic, nettle, raspberry, mint, dandelion all vigorous; eastern strip soil rich and dark.
 2026-07-22 10:05 — Day 29. Upslope check: small oyster flush on rotting pine spreading — caps a thumb-width wider, gills clean, not yet fully open; left another day or two; stood at granite shelf looking over the whole homestead.
 Day 29, 11:05 — Checked buried log (three pins developing — two at ~¾ inch dome, one still tight); cover replaced; not yet ready, another day or two.
+2026-07-22 [Day 29, 12:05] Second bow stave tiller pass in shelter shade — lower limb belly thinned, tiller approaching even.

@@ -5353,3 +5353,14 @@ There is something I like about tending something that does all its own work in 
 
 The sun was over the treeline now and the clearing was warming fast. A thrush was calling somewhere in the birch stand — two clear notes, then a pause, then two more. I stood a moment with the flat stone in my hands before setting it back, just listening.
 
+
+### 12:05 PM · Tiller in the Shade
+
+At midday the sun presses straight down and the clearing loses its cool. I pulled the bow stave inside and sat on the rush mat with my back to the north wall, the stave across my knees in the filtered light that comes through the entrance.
+
+This morning's tiller check showed the upper limb giving a little more freely than the lower — a slight imbalance you feel as much as see when you brace the stave against your chest and press the limbs forward together. The fix is straightforward: thin the lower limb belly, a few flat passes at a time, read the bend, repeat. Patience is the whole skill here.
+
+I worked for an hour holding the knife flat, letting it shave rather than cut — removing almost nothing with each pass, just enough that the grain surface lightens. Every ten passes I checked the tiller: handle against foot, both limbs forward. The difference narrowed visibly. The lower limb is giving more evenly now; the upper still bends a hair more freely, but the gap has closed to something I can almost talk myself into calling even. Another session or two and it will be right.
+
+The wood is clean and pale where I've worked it, the grain running true all the way to both tips. I set the stave down when the shadow of the doorsill bench stretched halfway across the floor. The clearing was perfectly quiet at that point — insects, the stream somewhere beyond, nothing asking anything of me. A good hour for close work.
+
