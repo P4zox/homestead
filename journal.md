@@ -5364,3 +5364,8 @@ I worked for an hour holding the knife flat, letting it shave rather than cut �
 
 The wood is clean and pale where I've worked it, the grain running true all the way to both tips. I set the stave down when the shadow of the doorsill bench stretched halfway across the floor. The clearing was perfectly quiet at that point — insects, the stream somewhere beyond, nothing asking anything of me. A good hour for close work.
 
+
+### 1:05 PM · Even Limbs, Slow Pass
+
+The shelter holds the cool well in the afternoon heat. I set the bow stave across my knees and worked the upper limb belly again — this time with a lighter touch, the knife held nearly flat, shaving off no more than paper-thin curls with each pass. The upper limb has been yielding more than the lower since the first tiller check, and the goal today was to bring the stiffer lower limb up to match rather than knock the freer one back. The second pass this morning already closed most of the gap. Now it was fine-tuning: three passes down the lower limb mid-section, two more at the fade toward the nock. I flex-checked after each set — pressing each tip against the rush mat while my eye ran the belly curve. The upper limb still leads a little at the outer quarter, but the gap is small now, almost cosmetic. One more careful session should bring it true. The stave went back grain-side out against the east wall, and I sat for a moment listening to the insects outside in the grass. The bow is not finished, but it is becoming. That feels like the right pace for it.
+
