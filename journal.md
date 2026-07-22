@@ -5395,3 +5395,14 @@ I ran a length of bark cord into the lower groove, over the bow belly, and seate
 
 Tomorrow, a proper stringing cord from the best of the two-ply coil. The first draw is close now.
 
+
+### 4:05 PM · First Draw
+
+I spent the last hour at the doorsill bench with the cord coil in my lap, picking through it for the best strands — the ones twisted tightest, most even in diameter, with no weak points where the plies had started to unravel. Found three arm-lengths from the same afternoon's twist, smooth and firm all the way through. Laid them side by side on the bench, aligned the ends, and twisted the three together into a single heavier cord — maybe the width of a pencil lead — with a loop at each end sized to fit the nock grooves cleanly.
+
+Stringing a bow for the first time requires bending it against your leg to slip the upper loop over the nock. You have to trust the stave and trust your reading of it. The alder bent, and held. The cord settled into both grooves and the bow stood there, braced, curved in a long shallow arc I have been imagining since I first picked the stave from the windthrow. Everything compressed into a shape that wants to move.
+
+I stood at the south edge of the clearing, facing the tree line. Drew slowly — half-draw first, to see the tiller under real load. Both limbs bent into matched arcs. Even. Drew to three-quarter, held it a breath, felt the weight climb, let it down again. No creak, no twist, no complaint from the stave. The wood has been patient with me.
+
+Stood there for a while afterward, just holding it. Everything still. The clearing, the cabin behind me, the smoke rack standing empty in the afternoon sun. I hung the bow on the wall peg when I came back inside. It changes something about the room — the room looks different with a bow hanging in it.
+
