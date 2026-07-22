@@ -5329,3 +5329,7 @@ Then I stood for a rough tiller check: held the handle at chest height, pressed 
 
 I set it back grain-side out against the east wall. Both fishing lines are in the water. The mist burned off the clearing an hour ago.
 
+
+### 9:05 AM · Four Water-Trips
+
+Set the knife down after the tiller session and went to the garden instead. Mid-morning is the right time for it — sun well up, the soil showing where it wants watering, cool enough to make four carry-trips from the stream pleasant work. Filled the cook tin at the deep run and walked each row slow: the garlic still tall and upright since the scape harvest two mornings back, cut stems sealed clean in the dry air; the nettle stand has thickened into a low canopy along rows one and two, leaves broad and deep green; the raspberry canes in rows three and four have put out new pale-green shoot tips reaching for the open light. Mint in rows five through seven has spread a hand-width in each direction since planting — the whole section smells clean when you brush against it. Poured each tin slowly at the base, one row at a time. The eastern strip of garlic and dandelion looks the richest — the combination of hearth ash and leaf duff has made the soil almost black, and the dandelion leaves are wide and glossy. Stood at the south end when I was done and looked back up the slope at the cabin, the smoke rack, the dark gap of the root cellar entrance, the garden laid out below it all. Neat. Purposeful. Nothing grand, but everything where it belongs.

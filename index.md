@@ -497,3 +497,4 @@ Day 28, 20:05 (2026-07-21) — By hearthlight: handle section located and marked
 Day 29 [2026-07-22 06:05] — Dawn lines checked: seven-inch trout from deep run, six-inch from limestone pool; both cold-stored; lines reset; Day 29 begins clear with mist.
 Day 29, 07:06 — cooked six-inch limestone pool trout with wood sorrel for breakfast over hearth; eaten at doorsill bench while mist lifted; thrush singing in treeline.
 2026-07-22 08:05 — Day 29. First tiller pass on alder bow stave: belly faces of both limbs thinned with knife-flat scraping; rough tiller check shows upper limb slightly more flexible than lower — noted for next session.
+2026-07-22 09:05 Day 29 — Garden walk and watering; four cook-tin trips from deep run; garlic, nettle, raspberry, mint, dandelion all vigorous; eastern strip soil rich and dark.
