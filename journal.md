@@ -5426,3 +5426,12 @@ By the time the light started going soft I had eight candidates in the basket. S
 
 I sat a moment at the granite shelf on the way back down. The homestead from up there looked settled — cabin, smoke rack, root cellar, the dark rows of the garden still damp from morning water. Eight small poles in my basket and a bow waiting at the end of the path.
 
+
+### 7:06 PM · Shafts by Hearthlight
+
+The fire is down to a low bed of coals, just enough glow to work by. I brought the eight birch shoots in from the supply shelf and set them beside me on the rush mat. The bark peels easily while the wood is still this fresh — a thumbnail catches the edge and it comes away in strips, pale and smooth underneath. I go through them one by one: six straight and clean, one with a mid-section wobble I mean to coax straight over the heat, one rough piece I am keeping for practice before I commit to the good shafts.
+
+The curved one I hold near the coals without touching them — close enough to feel the warmth radiating up, turning the shaft slowly, watching. When I feel it give slightly under thumb pressure I bend it gently against the curve and hold it there, counting breaths, then set it aside upright to cool. It holds. Not perfect, but honest — good enough to fly true, I think.
+
+The bow hangs on its peg above me, and for a moment I feel the quiet completeness of this: the coals, the eight pale shafts in a row on the shelf behind me, the bow already strung and waiting. One thing following naturally from the last. The forest outside has gone dark. Insects sound in the grass beyond the doorway. I feel settled here, steady, the way a good day ends without fanfare. Tomorrow I will shape the nocks.
+
