@@ -5456,3 +5456,12 @@ Boiled a small cup of dried clover heads and a few wild mint leaves in the cook 
 ### 10:06 PM · Coals Banked, Night Still
 
 The clover-mint tea had gone cold in my hands by the time I stood from the doorsill bench. Stars out in full — Cassiopeia past the peak of her arc, the Dipper swinging slow overhead. Inside, the hearth had settled to a low amber pulse, more warmth than light. I laid two short lengths of green birch over the coals and covered them with the flat hearthstone: a banked slow burn to hold through the dark hours. The bow caught the last of the coalslight from its wall peg, its limbs smooth and curved. Eight arrow shafts drying on the shelf. Five flight primaries beside them. Tomorrow the bow becomes something more than a shape — nock work, fletching, the first arrow. But that is tomorrow. I checked the latch bar, heard it seat clean in the keeper groove, pulled the door until the planks settled firm in the frame. Sleeping bag laid out on the rush mat; knife set beside it in easy reach; the stream audible outside, both lines somewhere in their dark water waiting on a trout. A long day ending full. The clearing quiet. I let the warmth close around me and let it go.
+
+### 11:06 PM · Bow on the Wall
+
+The bow hangs on the wall peg in the dark. I cannot see it from where I lie, but I know exactly where it is — curved and strung, the cord seated in its nock grooves, both limbs tracing the same arc I spent most of this day coaxing out of them. The hearthcoals breathe slowly under the flat stone. The door holds. Somewhere upstream, both fishing lines hang in the current, waiting for morning.
+
+I find myself going back through the day like a slow inventory — first light at the stream, mist lifting off the clearing, the way the tiller finally came true on the fourth pass, the quiet surprise of that first draw holding clean without a creak. And then the arrow shafts, eight of them drying on the supply shelf now, and the five flight primaries I gathered at dusk from the clearing margin.
+
+Tomorrow the work is smaller: nock shaping, splitting vanes, binding quills to wood. Tonight there is nothing to do but let the day settle. I am letting it.
+
