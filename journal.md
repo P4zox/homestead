@@ -5380,3 +5380,18 @@ I set the stave on the rush mat and sat quiet with it a moment. The tiller is ev
 
 Next: cut the nock grooves near each tip, rig a stringing cord, and see how it draws.
 
+
+### 3:05 PM · Nock Grooves Cut
+
+The clearing is bright and warm at this hour, sun past its highest but still direct, the south breeze moving through the grass. I brought the stave out to the doorsill bench where the light is best.
+
+Nock grooves take patience. I held the stave tip at eye level and felt for the natural thinning of the limb — the last few inches where the wood narrows before the very end. The groove needs to sit just back from the tip, angled slightly to hold a cord under tension without the cord jumping off. Too shallow and it will not seat; too deep and I weaken the wood right where the stress concentrates.
+
+I started with the lower tip. Knife held at an angle across the grain — first a light scored ring around the outer edge about three-quarters of an inch back from the tip, then careful passes deepening the groove on both the belly and back faces, following the ring. Three passes, checking depth with a fingernail after each. The groove seated cleanly, about a quarter-inch deep, angled forward toward the tip so a cord would ride in and not ride off. I smoothed the groove edges with the knife spine to remove any splinter risk.
+
+Upper tip next, same method. The upper limb had a knot-scar on the outer edge from where a branch once grew — long dead and healed over. I worked the groove to avoid crossing it, three careful passes, fingernail test, smooth with spine. Both grooves seated clean.
+
+I ran a length of bark cord into the lower groove, over the bow belly, and seated it in the upper groove — no stringing yet, just checking fit. The cord tracked clean in both nocks without shifting. I held the stave out at arm length and looked at it against the sky. It does not look like an axe handle or a ridgepole. It looks like a bow.
+
+Tomorrow, a proper stringing cord from the best of the two-ply coil. The first draw is close now.
+
