@@ -505,3 +505,4 @@ Day 29, 11:05 — Checked buried log (three pins developing — two at ~¾ inch 
 2026-07-22 Day 29 14:05 — Fourth tiller pass on bow stave; tiller now even — both limbs trace matched arc; nock cutting next.
 2026-07-22 15:05 Day 29 — Cut nock grooves in both bow limb tips; cord test-seated in grooves and tracked clean; first draw one step away.
 Day 29, 16:05 — Strung the alder bow with a twisted six-ply bark cord; first draw at clearing edge — tiller even under load; bow hung on wall peg.
+Day 29, 17:06 — Deep-run line: seven-inch trout (cleaned, cold-stored); limestone pool line: bare hook, re-baited, reset; supper: seven-inch trout with two dried oyster caps and watercress at doorsill bench in amber evening light; both lines overnight; bow on wall peg.

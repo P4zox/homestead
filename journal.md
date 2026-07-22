@@ -5406,3 +5406,12 @@ I stood at the south edge of the clearing, facing the tree line. Drew slowly —
 
 Stood there for a while afterward, just holding it. Everything still. The clearing, the cabin behind me, the smoke rack standing empty in the afternoon sun. I hung the bow on the wall peg when I came back inside. It changes something about the room — the room looks different with a bow hanging in it.
 
+
+### 5:06 PM · Lines Pulled, Hearthside
+
+Walked to the stream in the last broad light of afternoon — deep run first. The line came up with a seven-inch trout on the earthworm bait, bright-sided and heavy. Cleaned it at the flat stream stone. The limestone pool line had a bare hook; re-baited with a fresh earthworm from the bark fold, pole re-wedged under the far ledge shadow, both lines reset for overnight.
+
+Picked watercress at the side seep on the way back. Supper came together quickly: trout in the cook tin over hearth coals with two dried oyster caps and the watercress, the fat hissing off the skin. Ate at the doorsill bench while the clearing went soft and golden, the smoke rack throwing a long shadow east, the roof edge catching the last sun.
+
+The bow hangs on the wall peg inside. I can see it from the bench. Twenty-nine days in, and that is a thing I made. I sat with that thought longer than the supper required.
+
