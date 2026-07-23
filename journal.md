@@ -5551,3 +5551,16 @@ I sat with the eighth cap on the hearthstone and let the hour pass. The cattail 
 
 For now, noon. The sun is overhead, the world is quiet, and I have eaten well.
 
+
+### 1:05 PM · Five Days, Perhaps Six
+
+I rose from the doorsill bench once the shade had stretched back inside the cabin — the sun still high but its worst over, the air hanging close and warm in the clearing. Before I left, I wrapped the eighth chanterelle cap in a dock leaf and tucked it into the cold-storage box. Small housekeeping.
+
+The walk south runs past the garden and then narrows into the alder corridor along the stream bank — cooler there, a smell of wet bark and soft mud, midges drifting. Beyond the scrub the land opens onto the wide gravel shallows and the wet-ground shelf where the cattails stand: two dozen stems chest-high, a dense stand in a strip between the bank and where the ground firms back up.
+
+When I scouted this spot on Day 27, the pollen heads were tight and green. Today they have shifted. The tips have picked up a warm ochre — still more green than gold across the whole head, but you can see where it is going. I pressed my thumb against one and felt the slight firmness starting to give, the texture just beginning to loosen. Five or six days, I think. Maybe a week. Not ready yet, but getting there.
+
+I stood for a while in the shade of the alder edge and watched a damselfly work the shallows. The stream sounds different here, wider and slower, a low pour over the gravel bar. Then I came back.
+
+The arrows need one more day. The bow is strung and ready. The cattail pollen will time itself.
+
