@@ -5662,3 +5662,14 @@ I sat there a while not doing anything in particular. Thirty days. That number c
 
 Came inside when the chill started to matter. Let the latch bar drop into the keeper groove. Hearthstone warm underfoot. Sleep near.
 
+
+### 11:07 PM · Night Watch, Thirty
+
+The coals have settled to a dim orange pulse — just enough to read the hearthstone shape in the dark. I am lying in the sleeping bag, not asleep yet. Somewhere in that half-lit space where the body goes still but the mind still notices things. The stream is audible through the bark wall. Outside, the bat is probably still working the garden clearing; I cannot hear it, only imagine it from so many evenings of watching.
+
+Thirty days. The number felt different at the doorsill than it does here, lying flat. Out there it was a count, a mark. In here, in the dark, it begins to feel more like weight — not heavy, just ballast. Each day was only the next thing needed when it was happening. Lined up together they become a shape I can hold up and look at: the shelter that started as four posts and a hope, the hearth that started as a clay pad, the bow on the wall peg that was a stave yesterday and a forest branch before that.
+
+Tomorrow the fletching. Shafts ready after two full days of drying; I could feel the difference when I checked them before banking the fire — the core no longer cool and springy, just firm wood. The chert nodules are on the hearthstone warming through. I know what I am doing when I wake.
+
+For now: coals, dark, stream. The latch bar is in the keeper. The lines are in the water. Enough.
+
