@@ -5649,3 +5649,16 @@ Then the hearth. I placed a heavy green birch log across the coal bed and watche
 
 The bat is still working the garden clearing. Stars are as deep as they get this time of year. It has been a full day and everything I set out to do came through. I will sleep well.
 
+
+### 10:05 PM · Thirty Days, Counted in the Dark
+
+Stepped out onto the doorsill bench after the cord-work was done. The hearth behind me held its heat quiet — green birch banked heavy over the coal bed, steady orange behind the grate stones. Out here the air had a little bite to it, the way summer nights do up against the treeline.
+
+The stars were all the way out. Cassiopeia tilted toward the pines, the Dipper swung east into open sky. The bat was still at it over the garden clearing, banking tight turns above the mint rows. The stream came through clearly — you only hear it that well when everything else has gone still.
+
+Both lines are in the water. Eight arrow shafts are on the supply shelf with the matched vane strips and the lashing cord laid alongside them, ready for morning hands that won't have to search. The chert nodules are on the hearthstone warming through. The bow hangs on its wall peg with the cord already seated in the nock grooves, waiting for something to shoot.
+
+I sat there a while not doing anything in particular. Thirty days. That number comes out differently in the dark than it does in the middle of the afternoon. There's a lot standing now that wasn't here then — the cabin, the root cellar, the garden coming into its second wave, the cold-storage box keeping its chill, a bow on the wall, arrows nearly ready. I came with an axe and a knife and a few days of food. The land gave back what I put in.
+
+Came inside when the chill started to matter. Let the latch bar drop into the keeper groove. Hearthstone warm underfoot. Sleep near.
+
