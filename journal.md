@@ -5638,3 +5638,14 @@ Set the practice shaft on the hearthstone lip to cure. Folded the resin back to 
 
 Outside, the stars have deepened past counting. Cassiopeia tilts toward the treeline. The bat is still working the garden end of the clearing. There is something settling about an evening that ends with tomorrow's work already laid out.
 
+
+### 9:05 PM · Last Work, Low Fire
+
+The practice shaft has been on the hearthstone lip for an hour. I press a thumbnail gently at the vane edge — the strip does not shift. Resin is cool and matte and set. Good. That is how tomorrow will go: a small bead of warm resin, strip held firm for a slow count of thirty, then a close spiral of fine cord from base to tip of the vane with a half-hitch at each end. I want the cord tight enough that it barely shows.
+
+So I spent the last of the evening spinning it. Drew the bark fibers thinner than usual between forefinger and thumb before twisting — pulling until the strand was nearly thread — then let the twist run in. Eight arm-lengths of the finest two-ply I have made. Added to the coil on the shelf. It will lie flat against the shaft and grip the quill without lifting.
+
+Then the hearth. I placed a heavy green birch log across the coal bed and watched the edges catch slow — no flame yet, just the glow spreading under the bark. By morning there will be a coal bed deep enough to start on without coaxing. The chert nodules are still warm beside it on the stone, the good ones chosen, the reserve set aside. Bow on its peg above. Shafts, vane strips, cord, resin — all in order on the supply shelf.
+
+The bat is still working the garden clearing. Stars are as deep as they get this time of year. It has been a full day and everything I set out to do came through. I will sleep well.
+

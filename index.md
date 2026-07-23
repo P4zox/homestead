@@ -527,3 +527,4 @@ Day 30, 16:05 — Dug garden north border; ~eleven earthworms in bark fold cold-
 2026-07-23 18:05 Day 30 — Walked stream bend at dusk; collected three grey-brown chert nodules for arrowhead knapping tomorrow.
 Day 30, 2026-07-23, 19:00 — Brewed clover-yarrow tea at hearthside; drank at doorsill bench as dusk settled and first stars appeared; clearing gone quiet for the night.
 Day 30 (2026-07-23) 20:05 — Tested pine resin adhesion on practice arrow shaft; laid out fletching materials and lashing cord on supply shelf for morning work.
+Day 30, 21:05 — Banked hearth with green birch for overnight; practice shaft resin cured firm (vane strip held); eight arm-lengths fine two-ply fletching cord twisted and added to coil on supply shelf — all materials in order for arrow fletching at first light.
