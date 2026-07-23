@@ -5586,3 +5586,13 @@ The heat had peaked and was beginning to ease when I walked to the limestone poo
 
 On the way back I stopped in the alder shade at the stream bend where the water runs over gravel. It was cool there and quiet. Day 30, and the light already angling toward late afternoon. Tomorrow the arrow shafts should be firm enough to bind — the vane strips matched and laid out on the shelf, the resin fold waiting. One more night of drying and the arrows begin. I stood in the shade a moment and let that thought settle, then walked back up to the cabin.
 
+
+### 4:05 PM · Garden Earth, Evening Bait
+
+The sun had tilted past the ridge and the clearing softened into that amber quiet between the full heat and the evening. I took the digging stick and the damp bark fold and walked down to the garden bench.
+
+The north border is richest — loosened soil, dark with earthworm castings from the original turning. I worked the stick in slow passes along that strip, lifting each wedge carefully. Two came up in the first foot, then three more along the garlic rows where the new green fans stand bright after the scape cut. The soil smelled fresh and mineral in the late light.
+
+By the time I reached the eastern amended strip I had eleven good worms — fat, lively, coiling into the damp fold. Enough for tonight's deep-run overnight set, with a few left over for the limestone pool line tomorrow morning.
+
+I walked back up and nested the bark fold on the cold-storage shelf. Both lines are baited and in the water; supper is cold-stored; the bow hangs on its peg. The day has been full without being frantic, and there is something satisfying in that — a dozen earthworms found, a dozen small certainties restored.
