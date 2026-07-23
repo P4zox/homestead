@@ -5596,3 +5596,12 @@ The north border is richest — loosened soil, dark with earthworm castings from
 By the time I reached the eastern amended strip I had eleven good worms — fat, lively, coiling into the damp fold. Enough for tonight's deep-run overnight set, with a few left over for the limestone pool line tomorrow morning.
 
 I walked back up and nested the bark fold on the cold-storage shelf. Both lines are baited and in the water; supper is cold-stored; the bow hangs on its peg. The day has been full without being frantic, and there is something satisfying in that — a dozen earthworms found, a dozen small certainties restored.
+
+### 5:05 PM · Supper at the Doorsill
+
+The sun moved west past the pine tops and the clearing settled into amber. I built a small fire on the hearth from the dry fuel stacked east of the cabin, set the cook tin over the coals, and added the six-inch limestone pool trout from this afternoon — still cold in its dock-leaf wrap. Two dried chanterelle caps from the cold-storage box went in with a small pour of water; watercress followed last. The steam that came up was earthy and good. The whole cook ran maybe twenty minutes.
+
+Ate at the doorsill bench. The garden below looked deliberate in the angled light — garlic fans bright green after the scape harvest, mint thick in rows five through seven, wood sorrel pale at the north edge where the afternoon shadow falls longest. The bow hangs on its wall peg inside. The arrow shafts lie on the supply shelf, still losing the last of their green damp. Tomorrow they bind.
+
+Good tiredness tonight. The kind that comes from a day made out of small things done right, each grounded in the one before.
+
