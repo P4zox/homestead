@@ -524,3 +524,4 @@ Day 30, 14:05 — Limestone pool line re-baited (bare hook, earthworm, pole rese
 2026-07-23 Day 30 15:05 — Limestone pool: six-inch trout caught, cleaned, cold-stored; line re-baited with last earthworm. Earthworm supply near exhausted; arrow shafts one more night drying before fletching tomorrow.
 Day 30, 16:05 — Dug garden north border; ~eleven earthworms in bark fold cold-stored; both overnight lines baited and set; day full and quiet.
 2026-07-23 Day 30, 17:05 — Supper cooked at hearthside: six-inch trout with dried chanterelle caps and watercress; ate at doorsill bench in amber evening light; arrow shafts drying, fletching work starts Day 31.
+2026-07-23 18:05 Day 30 — Walked stream bend at dusk; collected three grey-brown chert nodules for arrowhead knapping tomorrow.

@@ -5605,3 +5605,14 @@ Ate at the doorsill bench. The garden below looked deliberate in the angled ligh
 
 Good tiredness tonight. The kind that comes from a day made out of small things done right, each grounded in the one before.
 
+
+### 6:05 PM · Stone for Tomorrow
+
+After supper the light changed — still gold but going softer, the heat breaking at last at the clearing's far edge. I sat at the doorsill bench for a while with the empty cook tin beside me, listening to the stream. Both fishing lines are set. The arrow shafts are drying on the shelf; by morning they should be ready to bind. The vane strips are sorted. What I don't have yet is points.
+
+I walked down to the stream in the evening cool and worked along the gravel bars for the better part of an hour, turning stones in the shallows. What I wanted was good flint — dense, fine-grained, conchoidal fracture. Most of the stream gravel was rounded limestone, soft sandstone, the occasional smooth quartzite. But near the bend, where the current cuts the outside bank and the old bedrock shows, I found what I needed: three fist-sized nodules of dark grey-brown chert, fresh-faced where the bank had calved. Sharp edges already from frost work. Heavy in the hand, the right kind of heavy.
+
+I carried them back dry in the cook tin. Set them on the hearthstone to look at in the last light coming through the door. Tomorrow, after the fletching binds, I'll knap tips from the two best pieces — small triangular heads, not elaborate, just sharp and true. The third nodule I'll keep as a reserve.
+
+The day is done well. The stream is talking in the dark and both lines are down there in it, doing the overnight's work without me.
+
