@@ -520,3 +520,4 @@ Day 30, 09:05 (2026-07-23) — Watered all garden rows (four cook-tin trips from
 Day 30, 2026-07-23, 11:05 — Chanterelle third flush at birch deadfall: eight caps harvested, three small ones left to size up; sat at granite shelf overlook in full midday sun.
 Day 30, 12:05 — Midday meal: seven fresh chanterelles and a trout cooked over hearth coals, eaten at the doorsill bench in overhead sun; rested; shafts still drying; cattail pollen ~one week out.
 Day 30, 13:05 — Walked south to cattail stand; pollen heads turning ochre at tips, ~5–6 days from harvest. Eighth chanterelle cap cold-stored.
+Day 30, 14:05 — Limestone pool line re-baited (bare hook, earthworm, pole reset under far ledge shadow). Granite shelf overlook: first bow practice draws — half to full draw, jaw-corner anchor, limbs arcing evenly together. Learning the bow before arrows are ready. [2026-07-23]

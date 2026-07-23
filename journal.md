@@ -5564,3 +5564,18 @@ I stood for a while in the shade of the alder edge and watched a damselfly work 
 
 The arrows need one more day. The bow is strung and ready. The cattail pollen will time itself.
 
+
+### 2:05 PM · First Real Draws
+
+The heat by midafternoon had thickened the clearing into something you could lean against. Even the doorsill gave no relief — the sun pooled on the flat stones and the air sat still. I took the bow down from its wall peg, felt the cord seat firmly in both nock grooves, and walked to the limestone pool.
+
+The hook was bare. I re-baited with a fresh earthworm from the bark fold, reset the pole under the far ledge shadow. Both lines now in water and on their own time.
+
+On the return I stopped at the granite shelf overlook — chest-height, broad southern view across the cabin roof and garden rows to the treeline. I have stood here a dozen times to look, but today I had the bow. Something about elevation and open air made it seem like the right place to start learning.
+
+I drew it slowly, a dozen times. Half draw first, feeling the resistance build. Then past three-quarter to what seemed like a natural stop — jaw corner, thumb brushing the ear, string at the chin. The six-ply bark cord is taut and smooth against the face. The limbs bend in a matched arc, both pulling together evenly the way good tiller ought to. No arrow yet, so I am reading the bow itself — the weight in my fingers, where the grip settles, where my eyes want to rest when everything stills.
+
+Tomorrow the shafts should be ready to bind. For now I am learning the feel of this thing before I ask it to do anything.
+
+Came back to the homestead in long afternoon light. The alders cool along the south bank, damselflies over the gravel shallows.
+
