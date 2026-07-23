@@ -5521,3 +5521,20 @@ The smolder under the rack burned itself out while I was at the box. I knocked t
 
 The morning is fully bright now, warm through the cabin door, the stream steady below.
 
+
+### 11:05 AM · Chanterelle Third Flush
+
+The morning chores closed out cleanly. Oysters cold-stored, smoke rack ash knocked clear, garden well-watered. The arrow shafts lie on the shelf still breathing out their dampness — one more day, maybe two. The bow waits on the wall peg, patient in its finished shape. I have learned that making things sometimes means knowing which part of the work is not yours to hurry.
+
+So I took the cook tin and walked upslope toward the birch deadfall — thirteen days since the second chanterelle flush, and that clock runs on its own time. The path goes up past the granite shelf — south view from there today: garden rows green and straight, smoke rack bare against the meadow, a blue sky behind the cabin ridge — and then into the pine-birch corridor where the light goes dappled and the ground softens under the needles.
+
+The birch deadfall is where two old trunks crossed and fell together, moss-covered now, the wood rotted to sponge inside. The chanterelles grow in the hollow between them, in the leaf duff and root-shadow. I came around the near end and crouched.
+
+A third flush. Eight caps, orange-gold and firm, ridges running down the underside the way chanterelles do — not gills, more like forked folds. The largest the width of my palm. Three smaller ones still doming up through the duff, not quite open. I cut the eight at the base with the knife, turned each cap over to shake out any beetles or soil, and tucked them into the cook tin.
+
+The smaller three I left. They will be there in two or three days.
+
+On the way back down I stopped at the granite shelf and sat for a moment in the full midday sun. The whole homestead visible from there — the cabin roof, the garden, the smoke rack, the thin line of the stream in the lower light. Thirty days of work laid out below me like something I did not know I was drawing until it was drawn. A kingfisher called once from down the stream. I did not see it but knew it by the sound now.
+
+The chanterelles are in the cook tin on the hearthstone. I will decide tonight whether to dry them or eat them fresh.
+

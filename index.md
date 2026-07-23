@@ -517,3 +517,4 @@ Day 30 07:06 — Buried log third harvest: three pale cream caps (~1.5 in, ivory
 Day 30, 08:05 — Upslope to rotting pine; small oyster flush (4 caps) harvested and set to smoke; new flush blush spotted on trunk for ~3-4 days out; arrow shafts still drying
 Day 30, 09:05 (2026-07-23) — Watered all garden rows (four cook-tin trips from deep run); garlic showing new fans after scape cut; wood sorrel settling in north shadow zone; dandelion rosettes fresh; nettle, raspberry, mint healthy; smoke rack running; arrow shafts drying.
 2026-07-23 · Day 30 · 10:05 — Pulled four oyster caps from smoke rack (amber-tan, firm); cold-stored in box; smoke rack cleared; arrow shafts one day from binding.
+Day 30, 2026-07-23, 11:05 — Chanterelle third flush at birch deadfall: eight caps harvested, three small ones left to size up; sat at granite shelf overlook in full midday sun.
