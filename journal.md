@@ -5627,3 +5627,14 @@ The clearing went amber, then grey. A bat started its low circuit over the garde
 
 Tea was bitter and clean and good. I drank it at the doorsill bench until the cup was empty and the stars were showing — Cassiopeia first, then the Dipper faint to the north. The quiet settled over the clearing, and I let it.
 
+
+### 8:05 PM · Testing Resin, Firelight
+
+Pulled the pine resin fold off the supply shelf and set it near the hearth coals until it softened — translucent amber, starting to flow. Used the spoon handle to press a small bead onto the spine side of one arrow shaft near the fletching zone, then pressed a spare vane strip into it and held it firm for thirty counts by the fire.
+
+The strip held. Not perfect — this was only a test — but it gripped. The resin wants warmth and pressure and a little patience. Good to know before committing to all eight shafts in the morning.
+
+Set the practice shaft on the hearthstone lip to cure. Folded the resin back to its bark wrapping and returned it to the shelf. Then I laid out tomorrow's materials in order on the supply shelf: eight shafts, vane strips in their matched pairs, a short length of cord for the spiral lashing wraps over each fletch. The bow hangs above on the wall peg.
+
+Outside, the stars have deepened past counting. Cassiopeia tilts toward the treeline. The bat is still working the garden end of the clearing. There is something settling about an evening that ends with tomorrow's work already laid out.
+

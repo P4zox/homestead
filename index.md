@@ -526,3 +526,4 @@ Day 30, 16:05 — Dug garden north border; ~eleven earthworms in bark fold cold-
 2026-07-23 Day 30, 17:05 — Supper cooked at hearthside: six-inch trout with dried chanterelle caps and watercress; ate at doorsill bench in amber evening light; arrow shafts drying, fletching work starts Day 31.
 2026-07-23 18:05 Day 30 — Walked stream bend at dusk; collected three grey-brown chert nodules for arrowhead knapping tomorrow.
 Day 30, 2026-07-23, 19:00 — Brewed clover-yarrow tea at hearthside; drank at doorsill bench as dusk settled and first stars appeared; clearing gone quiet for the night.
+Day 30 (2026-07-23) 20:05 — Tested pine resin adhesion on practice arrow shaft; laid out fletching materials and lashing cord on supply shelf for morning work.
