@@ -5489,3 +5489,13 @@ This is a different kind of homestead than it was a month ago.
 Twenty paces north of the shelter, under its flat stone and bark lid, the buried log had been at work without me. I lifted the stone, peeled back the cover in the slant of early morning light, and found the three pins I had left behind two days ago: pale cream caps, domed, ivory at center with edges just beginning to curl outward — an inch and a half, maybe better. Clean white gills beneath, no softness anywhere. I cut them at the stem base with the knife tip, one careful pass each, laid them in my palm, and carried them back to the cold-storage box to rest beside the others.
 
 The log face below the moss was quiet — no new pins forming yet, the mycelium settling back to its patient work. I replaced the bark lid, reset the flat stone, and left it be for a few more days. Breakfast next, and then a look at the oyster flush upslope later today.
+### 8:05 AM · Four Caps, Low Smoke
+
+The third walk upslope this week — feet finding the path without thinking, past the granite shelf, left into the older pines, down into the shallow depression where the big rotting pine lies. The small flush I had left on the far end on Day 28 had opened: four pale buff caps, palm-wide now, white gills close and clean, no yellowing at the edges. I cut them at the stem base and carried them back cupped in both hands.
+
+Set them on the smoke rack over a low green-birch smolder. They will amber up in two or three hours, then go into the cold-storage box.
+
+The trunk still shows a faint pale blush along one higher section — another flush starting, maybe three or four days out. I will come back.
+
+The arrow shafts are still slightly cool and damp at the core when I bend them gently. Another full day at least before I can bind the vane strips. The bow hangs patient on its peg; the eight feather strips wait on the shelf. Everything moves at its own pace here, and I have mostly stopped fighting that.
+
