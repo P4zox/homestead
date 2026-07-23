@@ -5538,3 +5538,16 @@ On the way back down I stopped at the granite shelf and sat for a moment in the 
 
 The chanterelles are in the cook tin on the hearthstone. I will decide tonight whether to dry them or eat them fresh.
 
+
+### 12:05 PM · Gold Caps, Quiet Noon
+
+I cooked seven of the eight chanterelles fresh — laid them dry in the hot tin on the hearthstone until the edges frilled and the color deepened, then a seven-inch trout across the top, a handful of wood sorrel tucked around the edges. Ten minutes, maybe less. The smell that comes up from chanterelles cooking is something I notice every time: part pepper, part forest floor, warm and a little sweet.
+
+Ate at the doorsill bench in overhead sun. The clearing was very still. Birdsong had quieted in the heat — a few crows far up the slope, the stream underneath everything else. From the bench I could see all seven garden rows sitting green and even, the garlic fans bright after the scape harvest, the smoke rack empty and silent. The east-wall wood stack, the cold-box path going upstream, the arc of the clearing edge — it looked like a place someone had lived in for years.
+
+The arrow shafts are still not ready. I checked one after eating: cool at the core, still slightly springy. One more full day at least. The bow waits on the wall peg. The vane strips are fine where they are.
+
+I sat with the eighth cap on the hearthstone and let the hour pass. The cattail stand to the south has been sitting in the back of my mind — pollen heads were still green when I found them three days ago, but they move fast in this heat. Maybe a week. I keep thinking: arrows bound and quivered, cattail pollen run in the same afternoon. When both are ready.
+
+For now, noon. The sun is overhead, the world is quiet, and I have eaten well.
+
