@@ -5579,3 +5579,10 @@ Tomorrow the shafts should be ready to bind. For now I am learning the feel of t
 
 Came back to the homestead in long afternoon light. The alders cool along the south bank, damselflies over the gravel shallows.
 
+
+### 3:05 PM · Cool Under Alders
+
+The heat had peaked and was beginning to ease when I walked to the limestone pool. The water lay dark green under the far bank's shadow, a damselfly still working the shallows. The line had a fish — a clean six-inch trout, hooked true at the jaw. I cleaned it at the flat stone, wrapped it in dock leaves from the bank, carried it back to the cold-storage box. Re-baited with the last earthworm from the bark fold, pole wedged back under the far ledge shadow.
+
+On the way back I stopped in the alder shade at the stream bend where the water runs over gravel. It was cool there and quiet. Day 30, and the light already angling toward late afternoon. Tomorrow the arrow shafts should be firm enough to bind — the vane strips matched and laid out on the shelf, the resin fold waiting. One more night of drying and the arrows begin. I stood in the shade a moment and let that thought settle, then walked back up to the cabin.
+
