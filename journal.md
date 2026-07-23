@@ -5685,3 +5685,15 @@ Woke before full light, the hearth log still holding orange at its core — I ha
 
 Stood at the pool a moment while the water settled around the new baits. The chert nodules are warming on the hearthstone. Arrow shafts have had a full night more drying since yesterday evening's check. Today: fletching first, then knapping. The bow has hung on the wall peg for two days now and there are no arrows to put to it. That changes this morning.
 
+### 7:05 AM · Vanes Bound True
+
+Seven o'clock and the light has climbed to a clean pale gold in the doorway. I took the arrow shafts down from the supply shelf while the hearthstone was still warm, set the birch-bark fold of pine resin close to the edge to soften.
+
+Started with the rough practice shaft. Scored the nock — a clean V groove across the tail, knife tip then widened carefully. Cut two strips from the singles and pressed them opposite each other along the shaft, resin-dabbed at the base of each vane, then bound tight with the fine two-ply cord in a slow forward spiral. Half-hitch at the throat. When I lifted it to the light, the vanes sat straight and the binding was snug. The resin had already taken hold at the points that mattered.
+
+Then the matched pairs. Three-vane spiral for the straight shafts — rotate each vane a hundred and twenty degrees from the last, resin, bind, half-hitch. The first took the longest: I kept checking the spacing by eye. By the second and third shaft, my hands had found the rhythm. Bind, pull tight, advance the spiral. Set each completed shaft back on the shelf, vanes pointing free into air to cure.
+
+Four shafts done before the dew had fully dried off the doorsill boards. Four more to go this afternoon — and then the chert, the knapping, the points. One thing at a time.
+
+The bow is still on the wall peg. I have not yet pulled it with a real arrow nocked. That will be worth doing carefully when the moment comes.
+

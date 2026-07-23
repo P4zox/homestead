@@ -531,3 +531,4 @@ Day 30, 21:05 — Banked hearth with green birch for overnight; practice shaft r
 2026-07-23 Day 30 22:05 — Sat at doorsill under full summer stars; Cassiopeia, Dipper, bat over garden mint; stream audible in night quiet; the thirty-day count felt different in the dark; came inside, bar down, sleep near.
 Day 30, 23:07 (2026-07-23) — Last hour: lying in the sleeping bag, coals dimming, stream audible, thirty-day count settling into memory before sleep.
 2026-07-24 Day 31, 06:06 — Dawn, Day 31: overnight deep-run line gave a seven-inch trout at first light; cleaned, cold-stored, both lines reset. Arrow shafts firm after a full night drying; fletching and knapping planned for the morning.
+2026-07-24 07:05 — Day 31: Four arrow shafts fletched at doorsill bench (practice 2-vane, three matched straight shafts 3-vane spiral); pine-resin-glued and bound; curing on shelf; four more to fletch this afternoon.
