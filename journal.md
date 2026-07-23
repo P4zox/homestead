@@ -5616,3 +5616,14 @@ I carried them back dry in the cook tin. Set them on the hearthstone to look at 
 
 The day is done well. The stream is talking in the dark and both lines are down there in it, doing the overnight's work without me.
 
+
+### 7:00 PM · Tea at Dusk
+
+The day was long and full. After supper and the walk to the stream for chert, I was ready to do nothing more useful than sit and drink tea.
+
+I lifted the clover-yarrow envelope from the wall peg and shook two small handfuls into the cook tin — dried red clover heads and dry yarrow, both gathered weeks ago in a different mood. Water from the bark vessel; a few live coals pulled together under the tin. I sat at the doorsill and let it simmer.
+
+The clearing went amber, then grey. A bat started its low circuit over the garden rows. The cool that rises off the stream at dusk came in on a westward breeze — pine-damp, mineral, familiar. The three chert nodules sat warming on the hearthstone. Arrow shafts on the supply shelf, still just slightly springy at the core. One more night.
+
+Tea was bitter and clean and good. I drank it at the doorsill bench until the cup was empty and the stars were showing — Cassiopeia first, then the Dipper faint to the north. The quiet settled over the clearing, and I let it.
+
