@@ -5499,3 +5499,14 @@ The trunk still shows a faint pale blush along one higher section — another fl
 
 The arrow shafts are still slightly cool and damp at the core when I bend them gently. Another full day at least before I can bind the vane strips. The bow hangs patient on its peg; the eight feather strips wait on the shelf. Everything moves at its own pace here, and I have mostly stopped fighting that.
 
+
+### 9:05 AM · Tending the Rows
+
+The oyster caps are hanging over the smoke rack doing their slow work. I can smell them from the doorsill — sweet and earthy in the brightening air. That particular smell has become a comfort, a sign of things going right.
+
+I walked down to the garden bench with the cook tin and the bark vessel, made four trips from the deep run, and watered each row slowly from east to west. The soil in the western rows — nettle, raspberry, mint — is staying moister than I expected; the pine-needle mulch in the northeast corner is earning its place. The garlic in the eastern strip is strong; the scapes I cut two days ago already show new green fans at the base. The wood sorrel is settling along the north shadow zone. The dandelion roots are sending up fresh rosettes, low and wide.
+
+Fourteen wood sorrel clumps, sixteen garlic bulbs, six nettle patches, three raspberry canes, mint rows thick and clean. I stood at the south end and looked back up the bench toward the cabin, and felt the weight of what has been put into this ground — all those trips for water, all that ash and leaf duff worked in by hand. It is a real garden now. Not a patch. A garden.
+
+I came back to the doorsill in the sun. The trout lines are in. The smoke rack is running. The shafts need one more day. Everything that can be attended to is attended to, and the rest is patience.
+
