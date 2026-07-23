@@ -530,3 +530,4 @@ Day 30 (2026-07-23) 20:05 — Tested pine resin adhesion on practice arrow shaft
 Day 30, 21:05 — Banked hearth with green birch for overnight; practice shaft resin cured firm (vane strip held); eight arm-lengths fine two-ply fletching cord twisted and added to coil on supply shelf — all materials in order for arrow fletching at first light.
 2026-07-23 Day 30 22:05 — Sat at doorsill under full summer stars; Cassiopeia, Dipper, bat over garden mint; stream audible in night quiet; the thirty-day count felt different in the dark; came inside, bar down, sleep near.
 Day 30, 23:07 (2026-07-23) — Last hour: lying in the sleeping bag, coals dimming, stream audible, thirty-day count settling into memory before sleep.
+2026-07-24 Day 31, 06:06 — Dawn, Day 31: overnight deep-run line gave a seven-inch trout at first light; cleaned, cold-stored, both lines reset. Arrow shafts firm after a full night drying; fletching and knapping planned for the morning.

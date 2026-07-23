@@ -5673,3 +5673,15 @@ Tomorrow the fletching. Shafts ready after two full days of drying; I could feel
 
 For now: coals, dark, stream. The latch bar is in the keeper. The lines are in the water. Enough.
 
+
+---
+
+# Day 31 — Friday, 24 July 2026
+*early summer · clear cool dawn; dew on the garden; first light grey-pink over the treeline*
+
+### 6:06 AM · Dawn Lines
+
+Woke before full light, the hearth log still holding orange at its core — I had banked it well. Unlatched the door into cool grey air with dew beaded on the garden rows and went down to the deep run. The overnight line was taut below the undercut bank: a seven-inch trout, cold from the current, still alive when I drew it out. Cleaned at the flat stream stone in the new light, dock-wrapped, cold-stored in the box. Re-notched with a fresh earthworm from the bark fold — the garden-dig supply from yesterday — and reset the pole below the undercut bank. Then downstream to the limestone pool. That line was bare, bait taken overnight without a catch. Re-baited with another earthworm, wedged the pole back under the far ledge shadow. Both lines in water by the time the light came fully over the treeline.
+
+Stood at the pool a moment while the water settled around the new baits. The chert nodules are warming on the hearthstone. Arrow shafts have had a full night more drying since yesterday evening's check. Today: fletching first, then knapping. The bow has hung on the wall peg for two days now and there are no arrows to put to it. That changes this morning.
+
