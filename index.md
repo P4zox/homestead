@@ -516,3 +516,4 @@ Day 29, 23:06 — Night; lying still in shelter at end of a full day; bow strung
 Day 30 07:06 — Buried log third harvest: three pale cream caps (~1.5 in, ivory-domed, edges just curling, clean white gills) cut at stem base, cold-stored in box; log face quiet, no new pins yet.
 Day 30, 08:05 — Upslope to rotting pine; small oyster flush (4 caps) harvested and set to smoke; new flush blush spotted on trunk for ~3-4 days out; arrow shafts still drying
 Day 30, 09:05 (2026-07-23) — Watered all garden rows (four cook-tin trips from deep run); garlic showing new fans after scape cut; wood sorrel settling in north shadow zone; dandelion rosettes fresh; nettle, raspberry, mint healthy; smoke rack running; arrow shafts drying.
+2026-07-23 · Day 30 · 10:05 — Pulled four oyster caps from smoke rack (amber-tan, firm); cold-stored in box; smoke rack cleared; arrow shafts one day from binding.

@@ -5510,3 +5510,14 @@ Fourteen wood sorrel clumps, sixteen garlic bulbs, six nettle patches, three ras
 
 I came back to the doorsill in the sun. The trout lines are in. The smoke rack is running. The shafts need one more day. Everything that can be attended to is attended to, and the rest is patience.
 
+
+### 10:05 AM · Off the Rack
+
+The two-hour mark came while I was sitting at the doorsill watching the smoke thread up from the rack. I went and pressed a thumb into the largest cap — amber-tan on top now, flesh firm and springy, no soft spots at the stem cut. All four off the rack one by one into the cook tin, carried down to the cold-storage box by the cold seep.
+
+I laid a folded bark sheet between this morning's oysters and the buried-log caps underneath. The box is getting full in a good way. Each layer a different morning, a different source — something satisfying about that arrangement even if no one else will ever see it.
+
+The smolder under the rack burned itself out while I was at the box. I knocked the ash clear with a stick and left the rack empty and waiting. Arrow shafts still feel slightly cool at the core when I press them between my palms. One more day. The vane strips are laid neat on the supply shelf beside them. Tomorrow the fletching begins, and then the bow has its first arrows to draw with.
+
+The morning is fully bright now, warm through the cabin door, the stream steady below.
+
