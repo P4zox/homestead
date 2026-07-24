@@ -5815,3 +5815,16 @@ Eight fletched arrow shafts on the supply shelf behind me. Two arrowheads beside
 
 A plain good day. Supper tasted right.
 
+
+### 6:05 PM · Bow at Dusk
+
+The supper things are set aside. I lifted the bow from its wall peg — the alder smooth and familiar now after thirty-one days of handling — and carried it to the doorsill bench. The sun was still up but low, pine shadows long across the garden rows. I sat there with the bow across my knees and did not do anything particular with it. Ran a thumb along the belly of each limb. Both hold their arc clean.
+
+Eight shafts on the shelf. Two arrowheads. Tomorrow morning I will seat them — resin in the notch, head pressed home, wrap of cord, a touch of heat, done. First complete arrows from this land.
+
+The garden was going quiet in the cooling air. I could still pick out the dark fans of the garlic, the mint pale-tipped, the nettles darkening at the far edge. The fishing lines are in the water somewhere downstream. The cold box is stocked.
+
+I have been here thirty-one days. I came with an axe and a knife and a flint. Now I have a roof, a hearth, food I did not carry in, and a bow that draws true. I did not say that out loud to myself until just now, sitting here with the light going gold behind the pines.
+
+Banked the hearth before full dark. Latch bar set.
+
