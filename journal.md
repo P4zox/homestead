@@ -5837,3 +5837,14 @@ Work like that is good in the evenings. Small and exact. The knife moves in fire
 
 Both lines in water. Latch bar set. Quiet outside — a few frogs down at the seep, nothing else.
 
+
+### 8:05 PM · Resin by Coals
+
+Evening well inside the shelter. The hearthstone still holds warmth enough that I set the pine resin fold flat on its surface without flame — just residual heat from coals that have been settling since supper. The resin softened at the edges. I worked a small bead of it between thumb and forefinger: tacky, clean, not too stiff. That is the feel I want tomorrow when I seat the arrowheads.
+
+I arranged both chert points on the supply shelf with their base notches up, and laid the eight cured arrow shafts alongside in pairs. Tomorrow morning: warm a bead over fresh hearthcoals, press each arrowhead base into its scored nock seat, wrap the binding cord tight in a spiral while the resin holds, and let it cool hard on the shelf. Everything in reach and in order.
+
+The resin fold went back into the bark supply tray on its peg. Bow still on the peg beside. Eight fletched shafts in a row. After thirty-one days on this land, I am close to a full hunting kit — something I would not have believed possible from a tent and an axe.
+
+Both fishing lines in water. Night is quiet. Latch bar set.
+
