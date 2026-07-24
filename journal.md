@@ -5897,3 +5897,12 @@ Limestone pool gave a six-inch. Same routine: clean, wrap, store, re-bait, reset
 
 Two fish before anyone or anything was properly awake. I came back up the bank and stood a moment in the still air, watching the light come. The arrowheads are on the shelf. I'll seat them this morning, after the fire.
 
+
+### 7:05 AM · First Arrows Whole
+
+The hearth coals are still warm from yesterday when I work the pine resin fold close to the glow. The resin softens fast — amber paste, faintly fragrant, tacky inside a minute. I work quickly.
+
+Two arrowheads, base-notched and thinned, both faces true. I pick the straightest pair of shafts and split each tip a finger-width with my knife, wedge a bark sliver into the kerf to hold it open, then press each arrowhead base snug into the split. When the resin is right — flowing just enough — I pull the bark sliver and close the split around the stone base, feeding resin into the joint with a fingertip. Then cord: fine two-ply, tight forward spiral from below the tip up and over the base, knotted against the stone. Both heads sit firm. No wobble at all.
+
+I set them on the supply shelf beside the bow. Two complete arrows. It is a small thing and also not a small thing. I have a bow. I have arrows. Whatever comes now, I have a real chance at it.
+
