@@ -5743,3 +5743,14 @@ Standing among the rows in still morning air, cook-tin dripping at my side, I no
 
 Came back to the doorsill bench and sat in the shade of the south eave. Overhead sun, warm and windless. Four arrow shafts still queued on the shelf for the afternoon fletching session. The resin from this morning's knapping is dry on the hearthstone. There is time.
 
+
+### 12:05 PM · Afternoon Fletching
+
+The sun crossed overhead while I was watering the garden, and by the time I sat down at the doorsill bench again the south-eave shadow had stretched out just enough to work in. I brought the four bare shafts down from the shelf along with the remaining vane strips and the pine-resin pot.
+
+Fletching goes quicker now than the first four did this morning. I know the spacing better — where to score the shaft for resin adhesion, how much pressure to hold the vane while the glue sets before binding, how tight the spiral wrap needs to be without cracking the quill. The first shaft I did slowly, checking each vane against its neighbors for cant. The other three went smooth. Six two-ply wraps per vane: base, two body turns, tip. Trim the cord tail short. Press the vane flat for a count of thirty.
+
+By noon I had all eight shafts fletched and curing in a row on the supply shelf — the four from this morning and the four just finished. Tomorrow I will seat the arrowhead. For now the bow hangs on its wall peg and the arrows are drying, and I feel the particular satisfaction of a thing nearly complete.
+
+I ate a cold handful of blueberries standing at the shelf and went back outside to listen to the stream.
+
