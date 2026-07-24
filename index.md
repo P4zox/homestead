@@ -548,3 +548,4 @@ Day 31, 20:05 — Warmed pine resin on cooling hearthstone; bead tested tacky an
 Day 31, 21:05 — Twisted nine arm-lengths two-ply cord by dying hearthfire; everything in order for arrowhead seating at first light.
 2026-07-24 22:05 — Day 31 — Settled on sleeping bag in full dark; stream audible through gable gap; bow on wall peg; two arrowheads and eight fletched shafts ready for morning seating.
 Day 31, 2026-07-24, 23:06 (Fri) — Last Watch — Final waking moment in full dark; eight fletched shafts and two arrowheads ready for morning seating; stream audible, latch bar set.
+2026-07-25 Day 32, 06:05 — Dawn lines: seven-inch deep-run trout and six-inch limestone pool trout; both reset; arrowhead seating this morning.

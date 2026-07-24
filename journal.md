@@ -5879,3 +5879,21 @@ Thirty-one days. When I say it plainly like that it feels short. But the logs st
 
 Latch bar set. Stream audible. Sleep.
 
+
+---
+
+# Day 32 — Saturday, 25 July 2026
+*early summer · clear morning; cool at first light*
+
+### 6:05 AM · Lines at First Light
+
+The door opened into cool and dew. The clearing still lay in shadow — pale gray-blue, the kind of light that comes before the sun clears the pines. I could hear the stream from the step.
+
+Both lines in water through the night. I went to the deep run first.
+
+Seven-inch trout, earthworm still hooked clean. I cleaned it at the flat stream stone without hurrying — the morning was quiet enough that it seemed wrong to rush — rinsed my hands in the current, dock-wrapped the fish, cold-stored it beside last night's reserves. Re-notched with a fresh worm from the bark fold and reset below the undercut bank.
+
+Limestone pool gave a six-inch. Same routine: clean, wrap, store, re-bait, reset. Both poles back in shadow water, both lines set before the first direct sun touched the clearing edge.
+
+Two fish before anyone or anything was properly awake. I came back up the bank and stood a moment in the still air, watching the light come. The arrowheads are on the shelf. I'll seat them this morning, after the fire.
+
