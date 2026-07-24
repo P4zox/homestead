@@ -5697,3 +5697,16 @@ Four shafts done before the dew had fully dried off the doorsill boards. Four mo
 
 The bow is still on the wall peg. I have not yet pulled it with a real arrow nocked. That will be worth doing carefully when the moment comes.
 
+
+### 8:05 AM · Stone Flakes, Morning Light
+
+Moved the cook tin off the hearthstone and spread a dock leaf under the work, then brought the two best chert nodules from the shelf and set them in the morning light coming through the doorway. The first nodule is broad and oval, dark grey with a paler underside — good conchoidal fracture when I tested it at the cut-bank yesterday, chips running long and clean.
+
+I wrapped the lower half in a bark strip to hold it against my palm, then struck the platform edge with the blunt face of the river cobble I had kept for a hammerstone. The first blow broke the cortex crust and sent a fan of pale chips into the dock leaf. The second opened the core — grey-blue inside, almost glassy, with a vein of lighter colour running diagonally that I had to work around.
+
+I roughed out two triangular blanks with the hammerstone, then switched to pressure-flaking with the blunted end of a dry pine spit held at a low angle. The bevelled tip catches a flake edge and you press rather than strike — you feel when it is about to release, a slight give, then the chip pops free. It asks for patience more than force.
+
+By the time the sun cleared the ridgepole shadow I had one arrowhead with a solid shape: base notched on each side for lashing, tip pointed and true, both faces thinned down to about the thickness of two thumbnail lengths. I set it on the supply shelf beside the curing shafts. The second blank broke across the middle on a hidden fissure I did not see. I kept the tip section — still usable as a small scraper. The second nodule stays whole for now; better to work it fresh tomorrow when my hands are rested.
+
+Four fletched shafts curing, one arrowhead done. The chanterelle patch is worth a look this afternoon before I fletch the remaining four shafts.
+

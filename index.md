@@ -532,3 +532,4 @@ Day 30, 21:05 — Banked hearth with green birch for overnight; practice shaft r
 Day 30, 23:07 (2026-07-23) — Last hour: lying in the sleeping bag, coals dimming, stream audible, thirty-day count settling into memory before sleep.
 2026-07-24 Day 31, 06:06 — Dawn, Day 31: overnight deep-run line gave a seven-inch trout at first light; cleaned, cold-stored, both lines reset. Arrow shafts firm after a full night drying; fletching and knapping planned for the morning.
 2026-07-24 07:05 — Day 31: Four arrow shafts fletched at doorsill bench (practice 2-vane, three matched straight shafts 3-vane spiral); pine-resin-glued and bound; curing on shelf; four more to fletch this afternoon.
+Day 31, 2026-07-24, 08:05 — Knapped first chert arrowhead at hearthstone (base-notched, tip true); second blank broke to small scraper; second nodule held in reserve for tomorrow.
