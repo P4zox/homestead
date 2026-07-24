@@ -5804,3 +5804,14 @@ Two chert arrowheads on the shelf. Eight shafts curing overnight. Bow tested tru
 
 Both lines in water. Supper to cook soon.
 
+
+### 5:05 PM · At Doorsill, Supper
+
+Cooked the six-inch trout from the afternoon over hearthcoals in the cook tin — two dried chanterelle caps and a small handful of watercress pressed in alongside. The light through the door gap had dropped low and gold by the time it was ready, long amber bars crossing the earthen floor.
+
+Ate at the doorsill bench in the cooler evening air. The south breeze was still coming, lighter now than midday. Garden below in last light: garlic fans bright in the slant sun, mint low and thick, nettles dark. Both fishing lines somewhere in the quiet water downstream, invisible from here.
+
+Eight fletched arrow shafts on the supply shelf behind me. Two arrowheads beside them. A full day's work, everything done that I meant to do. Tomorrow I'll seat the heads — pine resin packed into the shaft nock, a lashing of bark cord to hold — and by midday there will be complete arrows for the first time on this land. The bow has waited on its wall peg for two days; it will not have to wait much longer.
+
+A plain good day. Supper tasted right.
+
