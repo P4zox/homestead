@@ -5868,3 +5868,14 @@ Day 31. I have been counting them loosely — not to keep score, just to know wh
 
 I am not anxious tonight. Just full of the day's small completions — the resin bead warmed and tested, shafts lined up in order, bait replenished, the bow drawn six times at the granite shelf and feeling true. Sleep comes easy when the hands have been busy and the work waits patient for morning.
 
+
+### 11:06 PM · Last Watch
+
+Somewhere past the eleventh hour, and still half-awake. The hearthcoals have gone cold; the gable gap holds only black sky. I can hear the stream moving past, steady as always, indifferent to what hour it is. Both lines are in the water, doing their patient work in the dark.
+
+All eight shafts are fletched. Two arrowheads wait with their notches cut. Pine resin is tacky and ready. Tomorrow at first light I will seat them, and I will have arrows. Thirty-one days to get here — one thing and then the next — and tonight I lie down knowing what the morning holds.
+
+Thirty-one days. When I say it plainly like that it feels short. But the logs stacked overhead, the garden below with its garlic fans and mint rows, the bow on its wall peg, the latch bar dropped — none of it happened quickly. You press the notch. You hold the cord. You trust the dark enough to let it carry you to morning.
+
+Latch bar set. Stream audible. Sleep.
+

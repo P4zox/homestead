@@ -547,3 +547,4 @@ Day 31 17:05 — Supper at doorsill: six-inch trout, dried chanterelles, watercr
 Day 31, 20:05 — Warmed pine resin on cooling hearthstone; bead tested tacky and clean; both chert arrowheads and eight cured fletched shafts arranged in order on supply shelf ready for seating at first light.
 Day 31, 21:05 — Twisted nine arm-lengths two-ply cord by dying hearthfire; everything in order for arrowhead seating at first light.
 2026-07-24 22:05 — Day 31 — Settled on sleeping bag in full dark; stream audible through gable gap; bow on wall peg; two arrowheads and eight fletched shafts ready for morning seating.
+Day 31, 2026-07-24, 23:06 (Fri) — Last Watch — Final waking moment in full dark; eight fletched shafts and two arrowheads ready for morning seating; stream audible, latch bar set.

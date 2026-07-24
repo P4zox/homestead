@@ -16,3 +16,4 @@
 20:05 — Warmed pine resin on cooling hearthstone to test flow for tomorrow's arrowhead seating; bead tacky and clean. Arranged both chert arrowheads (base notches up) and eight cured fletched shafts in order on supply shelf. Resin fold back on wall-peg tray. Everything ready for first light. Both fishing lines in water. Latch bar set.
 Day 31, 21:05 — Twisted nine arm-lengths two-ply cord by dying hearthfire glow; added to lashing coil. Settled on sleeping bag in full dark. Arrowhead seating at first light. Both fishing lines in water. Latch bar set.
 Day 31, 22:05 — Settled on sleeping bag in full dark; stream audible through gable gap. Bow on wall peg, two arrowheads and eight fletched shafts on supply shelf — arrowhead seating at first light. Both fishing lines in water. Latch bar set.
+Day 31, 23:06 — Lying in full dark, half-awake; final moment of awareness before sleep. Latch bar set, both lines in water, everything ready for arrowhead seating at first light.
