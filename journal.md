@@ -5778,3 +5778,16 @@ I drew six more times, slowly, feeling where the limbs want to go. Both limbs tr
 
 I unstrung it at the shelf, looped the cord over the stave, and walked back down in the afternoon heat. Bow back on its peg. Both lines still in water. Supper will be whatever the deep run gives this evening.
 
+
+### 3:05 PM · Pool Side, Late Sun
+
+The limestone pool was green and still in the mid-afternoon. I came down with the line check as an excuse, but really I just needed a few quiet minutes out of the clearing.
+
+The pole was where I left it, wedged under the ledge shadow. A six-inch trout on the hook — smallish but clean, the way the pool always gives them in the afternoon. Cleaned it at the flat pool stone, folded it in dock leaf, tucked it in the cold-storage box on the way back. Re-baited the hook with what may be the last earthworm in the bark fold and reset the pole under the ledge. I will need to dig more from the garden edge tomorrow.
+
+Then sat on the bank for a while. The pool surface barely moved. A water strider worked the still patch behind the upstream boulder, legs dimpling the surface without breaking it. Downstream I could hear the riffles.
+
+Eight fletched shafts on the supply shelf, two arrowheads beside them. Tomorrow morning I seat the heads — first complete arrows. I have been a long time building toward something I could use to hunt. The bow draws even and holds its tiller. Tomorrow proves whether the arrows fly true.
+
+Came back up the bank in the cooling air of mid-afternoon with the trout tucked in my arm and both lines set for the evening.
+

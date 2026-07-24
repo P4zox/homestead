@@ -539,3 +539,4 @@ Day 31, 11:05 — Watered garden (four cook-tin trips, all seven rows); garlic, 
 Day 31, 12:05 — Afternoon fletching complete; all eight arrow shafts now fletched and curing on supply shelf.
 [2026-07-24 Day 31, 13:05] Second chert nodule knapped at hearthstone; second arrowhead complete — two stone heads now on shelf beside eight curing fletched shafts.
 Day 31, 2:05 PM — Walked bow to granite shelf overlook; six test draws in afternoon shade; limbs track true, tiller held. Arrowhead seating tomorrow.
+Day 31, 15:05 — Limestone pool line: six-inch trout caught and cold-stored; earthworm bark fold nearly spent; sat at pool bank watching a water strider; both lines reset for evening; arrowhead seating tomorrow morning.
