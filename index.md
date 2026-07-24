@@ -535,3 +535,4 @@ Day 30, 23:07 (2026-07-23) — Last hour: lying in the sleeping bag, coals dimmi
 Day 31, 2026-07-24, 08:05 — Knapped first chert arrowhead at hearthstone (base-notched, tip true); second blank broke to small scraper; second nodule held in reserve for tomorrow.
 2026-07-24 (Day 31, 09:05) — Three chanterelle caps harvested from birch deadfall hollow (palm-wide, orange-gold, firm); cold-stored; patch resting ~10 days.
 Day 31, 10:05 — Limestone pool line hook bare at mid-morning; re-baited with earthworm and reset. Stood in alder shade thinking on the bow and the work ahead.
+Day 31, 11:05 — Watered garden (four cook-tin trips, all seven rows); garlic, mint, nettle, dandelion, raspberry, and sorrel all growing well. Doorsill rest in south-eave shade before afternoon fletching.

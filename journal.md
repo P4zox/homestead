@@ -5732,3 +5732,14 @@ There is a quiet satisfaction in work that accumulates. Not dramatic, just hones
 
 I walked back upstream in full mid-morning light, the stream beside me the whole way.
 
+
+### 11:05 AM · Seven Rows, Still Air
+
+The morning has run fast and full. Arrowhead done, chanterelles harvested, both fishing lines baited and set. With the sun still below its peak I brought the cook tin and bark bucket down to the deep run and made four trips to the garden, watering all seven rows east to west.
+
+The garlic is coming back well since the scape harvest — tight new fans pushing up from each bulb, clean green. Mint rows have filled in more than I noticed. Nettles are dark and dense, dandelion rosettes perky and bright, raspberry canes showing maybe an inch of new tip growth in the past few days. Wood sorrel along the north shadow strip is still a little pale but rooted in and holding.
+
+Standing among the rows in still morning air, cook-tin dripping at my side, I noticed the smell of damp turned earth and mint. This was bare ground not long ago. Now it is something — not a full larder yet, not until first harvest properly ripens, but the foundation of one.
+
+Came back to the doorsill bench and sat in the shade of the south eave. Overhead sun, warm and windless. Four arrow shafts still queued on the shelf for the afternoon fletching session. The resin from this morning's knapping is dry on the hearthstone. There is time.
+
