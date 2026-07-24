@@ -540,3 +540,4 @@ Day 31, 12:05 — Afternoon fletching complete; all eight arrow shafts now fletc
 [2026-07-24 Day 31, 13:05] Second chert nodule knapped at hearthstone; second arrowhead complete — two stone heads now on shelf beside eight curing fletched shafts.
 Day 31, 2:05 PM — Walked bow to granite shelf overlook; six test draws in afternoon shade; limbs track true, tiller held. Arrowhead seating tomorrow.
 Day 31, 15:05 — Limestone pool line: six-inch trout caught and cold-stored; earthworm bark fold nearly spent; sat at pool bank watching a water strider; both lines reset for evening; arrowhead seating tomorrow morning.
+Day 31 (2026-07-24) 16:05 — Dug earthworms at north garden edge; ~dozen in damp bark fold, cold-stored; garden walked in late afternoon light; arrowhead seating first light tomorrow.

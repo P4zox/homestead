@@ -5791,3 +5791,16 @@ Eight fletched shafts on the supply shelf, two arrowheads beside them. Tomorrow 
 
 Came back up the bank in the cooling air of mid-afternoon with the trout tucked in my arm and both lines set for the evening.
 
+
+### 4:05 PM · Bait for Morning
+
+The afternoon light was tipping toward amber already, the white overhead burn gone out of the day. I had been noting the earthworm supply since three — used the last one baiting the pool line then. Two hooks need fresh bait by morning, and I would rather do the digging now while the ground is still warm on top.
+
+Took the digging stick to the north garden edge where the soil goes dark and loose — all that transplanting work, the roots settling in, the soil grown friable. Worked slowly, probing four or five inches down, turning the damp underlayer. Found a good colony right behind the second nettle row: fat ones, healthy, the color of good earth. Collected a dozen or so into a fresh bark fold with a palmful of dark soil to keep them damp, sealed it, set the fold in the cold-storage box beside the fish.
+
+Crouched there a moment longer than I needed to. The garlic fans were catching the low light, going gold at their edges. Mint rows thick and fragrant. Dandelion rosettes open wide. The garden is working — I can see it day by day in ways I could not have tracked at the start. A rosette a little fuller, a cane with a new leaf unfurled, a nettle stand that was six transplanted clumps and is now a dense dark thicket.
+
+Two chert arrowheads on the shelf. Eight shafts curing overnight. Bow tested true on the granite ledge this afternoon, both limbs tracing even arcs. Tomorrow morning: seat the heads, wrap the hafts, have something I would call a complete arrow by midday. Thirty-one days in and the whole arc of it — from the first notched log wall to a taut strung bow, from bare hooks to a cold-storage box layered with fish and mushrooms — is something I can almost see at once from where I am crouching.
+
+Both lines in water. Supper to cook soon.
+
