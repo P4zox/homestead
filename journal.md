@@ -5859,3 +5859,12 @@ I twisted nine arm-lengths of two-ply cord in the hearthglow, hands working by f
 
 Thirty-one days. A latched cabin, a bow, eight nearly-finished arrows, two fishing lines running through the night, a garden coming in, a cold-storage box with fish and dried mushrooms. I did not know at the start what a good end to a day felt like here. It feels like this: knowing where everything is in the dark, and trusting it to be there at first light.
 
+
+### 10:05 PM · Full Dark, Still
+
+The hearthcoals have gone gray. I am lying on the sleeping bag in the shelter, in full dark, listening. The stream is audible through the gable gap — a low, steady sound that is always there once the wind drops and the clearing quiets. The bow hangs on its wall peg somewhere to my left; I cannot see it but I know its shape, the slight recurve of the tips, the way the bark cord sits in the nock grooves without slack. Two arrowheads on the supply shelf. Eight fletched shafts in a row, nock seats scored, resin tested and ready. Tomorrow morning, if the light is good and my hands are steady, the bow gets arrows. That feels like a threshold crossed.
+
+Day 31. I have been counting them loosely — not to keep score, just to know where I am in the summer, how much warmth is left, how far the stores have come. The nights are still close and warm. Both fishing lines are in the water somewhere below in the dark. The garden rows are settled. There is food enough in the cold-storage box to see me through a week if the stream gave nothing.
+
+I am not anxious tonight. Just full of the day's small completions — the resin bead warmed and tested, shafts lined up in order, bait replenished, the bow drawn six times at the granite shelf and feeling true. Sleep comes easy when the hands have been busy and the work waits patient for morning.
+
