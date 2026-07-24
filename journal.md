@@ -5765,3 +5765,16 @@ It took longer than the first head. I kept rotating it, checking by touch as muc
 
 It's on the shelf now beside the first, two flat triangles of grey stone catching whatever light comes through the doorway. Tomorrow I'll seat them both on shafts. Tomorrow I'll see what this bow can do.
 
+
+### 2:05 PM · First Draws
+
+Two arrowheads sit on the supply shelf, base-notched and true. Eight fletched shafts are curing beside them. Tomorrow I'll seat the heads — split the shaft ends with my knife, seat each point in pine resin, wrap the binding cord tight. But today the work is quiet, and the bow has been hanging on its wall peg since Day 29, undrawn outside.
+
+I lifted it down after the midday meal, thumbed the string once at the doorsill, then walked upslope to the granite shelf. The afternoon sun was high and cut white through the pines, but the shelf itself had shadow from the rock face behind it. I braced the bow against my thigh, seated the lower nock, and bent it true. The cord sat clean in both grooves.
+
+Then I drew. The limbs bent together in a single even arc — the tiller has held since I set it. The cord came back to my cheekbone and I held it there a moment, watching the clearing below: the garden rows, the smoke rack, the dark line of the root cellar bank. A clear day. From this height, the homestead looked like something that had always been here.
+
+I drew six more times, slowly, feeling where the limbs want to go. Both limbs track true. The handle settles into my palm at a natural angle, and the draw is steady without being hard. Tomorrow the arrows will be seated and I can loose the first real shot — but today it was enough to stand here with the bow bent, looking at what thirty-one days have made.
+
+I unstrung it at the shelf, looped the cord over the stave, and walked back down in the afternoon heat. Bow back on its peg. Both lines still in water. Supper will be whatever the deep run gives this evening.
+

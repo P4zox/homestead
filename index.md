@@ -538,3 +538,4 @@ Day 31, 10:05 — Limestone pool line hook bare at mid-morning; re-baited with e
 Day 31, 11:05 — Watered garden (four cook-tin trips, all seven rows); garlic, mint, nettle, dandelion, raspberry, and sorrel all growing well. Doorsill rest in south-eave shade before afternoon fletching.
 Day 31, 12:05 — Afternoon fletching complete; all eight arrow shafts now fletched and curing on supply shelf.
 [2026-07-24 Day 31, 13:05] Second chert nodule knapped at hearthstone; second arrowhead complete — two stone heads now on shelf beside eight curing fletched shafts.
+Day 31, 2:05 PM — Walked bow to granite shelf overlook; six test draws in afternoon shade; limbs track true, tiller held. Arrowhead seating tomorrow.
