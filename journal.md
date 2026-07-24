@@ -5710,3 +5710,12 @@ By the time the sun cleared the ridgepole shadow I had one arrowhead with a soli
 
 Four fletched shafts curing, one arrowhead done. The chanterelle patch is worth a look this afternoon before I fletch the remaining four shafts.
 
+
+### 9:05 AM · Birch Hollow Caps
+
+Walked upslope to the birch deadfall hollow before the morning warmed — three small pins left two days ago, and I had a feeling they were ready. Crouched at the log in the cool birch shade. All three had opened: pale orange-gold caps, palm-wide now, firm and smooth at the touch, the gills descending clean and true with no soft spots or slug damage. Cut them at the base with my knife and carried them back cradled in my palm.
+
+A modest harvest, but good caps. Cold-stored beside the others in the box. The hollow will rest now — ten days before I check again, let the mycelium settle and recover. The birch leaves turned overhead in a light upslope breath as I straightened up.
+
+Back at the shelter: four fletched shafts curing well on the shelf, pine resin still tacky at the vane bases. The remaining four shafts wait for this afternoon. The bow hangs on its peg. Things are taking shape.
+
