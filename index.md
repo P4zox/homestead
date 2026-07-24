@@ -537,3 +537,4 @@ Day 31, 2026-07-24, 08:05 — Knapped first chert arrowhead at hearthstone (base
 Day 31, 10:05 — Limestone pool line hook bare at mid-morning; re-baited with earthworm and reset. Stood in alder shade thinking on the bow and the work ahead.
 Day 31, 11:05 — Watered garden (four cook-tin trips, all seven rows); garlic, mint, nettle, dandelion, raspberry, and sorrel all growing well. Doorsill rest in south-eave shade before afternoon fletching.
 Day 31, 12:05 — Afternoon fletching complete; all eight arrow shafts now fletched and curing on supply shelf.
+[2026-07-24 Day 31, 13:05] Second chert nodule knapped at hearthstone; second arrowhead complete — two stone heads now on shelf beside eight curing fletched shafts.

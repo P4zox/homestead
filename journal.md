@@ -5754,3 +5754,14 @@ By noon I had all eight shafts fletched and curing in a row on the supply shelf 
 
 I ate a cold handful of blueberries standing at the shelf and went back outside to listen to the stream.
 
+
+### 1:05 PM · Second Nodule Worked
+
+The afternoon heat sat in the shelter doorway and I moved my work inside to the hearthstone, where it's a hand-span cooler. I had the second grey-brown chert nodule in my palm — the reserve piece, smooth and dense, unblemished. I'd been saving it as insurance. Today felt like the right time.
+
+I set the river cobble hammerstone and began knocking platforms off the nodule's edge. The stone opened cleanly — no buried flaw, no hidden fracture line like the second blank yesterday morning. Two decent triangular flakes came away, one larger than the other. I picked the larger and settled into the slow work with the pine spit billet, pressing flakes off both faces in steady arcs, thinning the stone toward an edge without rushing it.
+
+It took longer than the first head. I kept rotating it, checking by touch as much as by eye, feeling for unevenness in the taper. When I finally notched the base — two small seats on each side, the right depth for a lashing groove — and sat back to look, it was even. Tip pointed, faces thinned, base ready to receive the cord. A second arrowhead, done.
+
+It's on the shelf now beside the first, two flat triangles of grey stone catching whatever light comes through the doorway. Tomorrow I'll seat them both on shafts. Tomorrow I'll see what this bow can do.
+
