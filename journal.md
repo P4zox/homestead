@@ -5719,3 +5719,16 @@ A modest harvest, but good caps. Cold-stored beside the others in the box. The h
 
 Back at the shelter: four fletched shafts curing well on the shelf, pine resin still tacky at the vane bases. The remaining four shafts wait for this afternoon. The bow hangs on its peg. Things are taking shape.
 
+
+### 10:05 AM · Limestone Pool at Midmorning
+
+The morning has settled into its warmth now. I walked downstream to the limestone pool with the cook tin swinging at my side — not only to check the line but to spend a moment in the cool alder shade and let the water think out loud around the bend.
+
+The birch pole was still wedged under the far ledge shadow where I had left it at dawn. I drew it out slow and found the hook bare. Something had come in the night — or early morning, in the grey before I woke — and taken the earthworm cleanly off. I stood a moment with the empty hook, not disappointed exactly. That is how it goes. I dug a fresh earthworm from the damp bark fold, threaded it onto the hook, and settled the line back under the ledge. Pole rewedged, line in shadow. Both lines still working.
+
+I lingered in the alder shade longer than I needed to. The pool at its center was perfectly still, the surface only moving where the current brushed the near bank. A waterstrider made its slow circle. I thought about the bow on its wall peg, the arrowhead cool on the shelf, the four fletched shafts curing since morning — each one a link in a chain I could not see the shape of when I first set the stave in the vice of my knees and began scraping. By afternoon the resin should be firm enough to handle the remaining four. The whole set will be finished today.
+
+There is a quiet satisfaction in work that accumulates. Not dramatic, just honest. Another earthworm on another hook; another afternoon of binding vane to shaft. Small links. The chain gets longer.
+
+I walked back upstream in full mid-morning light, the stream beside me the whole way.
+

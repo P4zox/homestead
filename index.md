@@ -534,3 +534,4 @@ Day 30, 23:07 (2026-07-23) — Last hour: lying in the sleeping bag, coals dimmi
 2026-07-24 07:05 — Day 31: Four arrow shafts fletched at doorsill bench (practice 2-vane, three matched straight shafts 3-vane spiral); pine-resin-glued and bound; curing on shelf; four more to fletch this afternoon.
 Day 31, 2026-07-24, 08:05 — Knapped first chert arrowhead at hearthstone (base-notched, tip true); second blank broke to small scraper; second nodule held in reserve for tomorrow.
 2026-07-24 (Day 31, 09:05) — Three chanterelle caps harvested from birch deadfall hollow (palm-wide, orange-gold, firm); cold-stored; patch resting ~10 days.
+Day 31, 10:05 — Limestone pool line hook bare at mid-morning; re-baited with earthworm and reset. Stood in alder shade thinking on the bow and the work ahead.
