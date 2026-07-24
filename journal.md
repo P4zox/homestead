@@ -5848,3 +5848,14 @@ The resin fold went back into the bark supply tray on its peg. Bow still on the 
 
 Both fishing lines in water. Night is quiet. Latch bar set.
 
+
+### 9:05 PM · Cord by Coals
+
+The fire is down to a fine orange thread along the clay hearth base. I did not rebank it — it will find its own way out by midnight. Latch bar set. Both lines in the dark water downstream, doing their quiet patient work.
+
+On the supply shelf: eight arrows, fletched and cured, vanes dry and matched. Two chert arrowheads resting base-notch up. In the morning I will warm the resin, seat the notches, lash the heads home with fine spiral cord, and the bow on the wall peg becomes what it was shaped to be. Tonight I just sit with that readiness. It is a different feeling from wanting — this is already done in the mind, and only waiting on the light.
+
+I twisted nine arm-lengths of two-ply cord in the hearthglow, hands working by feel now, the rhythm in the fingers more than in the head. Added the new length to the coil on the shelf. It is a good end to a full day — something slow and simple, just hands and bark fiber and fading warmth.
+
+Thirty-one days. A latched cabin, a bow, eight nearly-finished arrows, two fishing lines running through the night, a garden coming in, a cold-storage box with fish and dried mushrooms. I did not know at the start what a good end to a day felt like here. It feels like this: knowing where everything is in the dark, and trusting it to be there at first light.
+

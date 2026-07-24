@@ -545,3 +545,4 @@ Day 31 17:05 — Supper at doorsill: six-inch trout, dried chanterelles, watercr
 2026-07-24 18:05 Day 31 — Sat at doorsill with bow in last amber light; eight fletched shafts and two arrowheads ready for seating tomorrow; banked hearth.
 2026-07-24 Day 31, 19:05 — Scored forward nock seat on all eight arrow shafts by hearthfire; shaft seats ready for arrowhead seating at first light.
 Day 31, 20:05 — Warmed pine resin on cooling hearthstone; bead tested tacky and clean; both chert arrowheads and eight cured fletched shafts arranged in order on supply shelf ready for seating at first light.
+Day 31, 21:05 — Twisted nine arm-lengths two-ply cord by dying hearthfire; everything in order for arrowhead seating at first light.
