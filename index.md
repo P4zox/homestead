@@ -543,3 +543,4 @@ Day 31, 15:05 — Limestone pool line: six-inch trout caught and cold-stored; ea
 Day 31 (2026-07-24) 16:05 — Dug earthworms at north garden edge; ~dozen in damp bark fold, cold-stored; garden walked in late afternoon light; arrowhead seating first light tomorrow.
 Day 31 17:05 — Supper at doorsill: six-inch trout, dried chanterelles, watercress in amber evening light. Eight fletched arrow shafts and two arrowheads on supply shelf; seating at first light tomorrow.
 2026-07-24 18:05 Day 31 — Sat at doorsill with bow in last amber light; eight fletched shafts and two arrowheads ready for seating tomorrow; banked hearth.
+2026-07-24 Day 31, 19:05 — Scored forward nock seat on all eight arrow shafts by hearthfire; shaft seats ready for arrowhead seating at first light.

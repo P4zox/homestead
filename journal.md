@@ -5828,3 +5828,12 @@ I have been here thirty-one days. I came with an axe and a knife and a flint. No
 
 Banked the hearth before full dark. Latch bar set.
 
+
+### 7:05 PM · Shaft Ends by Fire
+
+Fed the banked hearth one short stick before the light failed entirely. The coals came up red, and by that glow I worked through all eight arrow shafts: knife tip drawn down the center of the forward end along the grain, just far enough to seat a head cleanly without splitting too deep. Four passes each — score, widen, check with thumbnail, set aside. The chert has a slight taper to the base notch, and I want the wood to meet it true when I press it home tomorrow.
+
+Work like that is good in the evenings. Small and exact. The knife moves in firelight the way a hand moves in water — you feel more than you see. By the time the last shaft was done the fire had eaten the short stick and settled back to coals. Eight shaft seats ready. Two arrowheads on the shelf. Tomorrow morning, the first complete arrows.
+
+Both lines in water. Latch bar set. Quiet outside — a few frogs down at the seep, nothing else.
+
