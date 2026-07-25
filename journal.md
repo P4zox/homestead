@@ -6042,3 +6042,14 @@ Cassiopeia has tilted further west since I watched it at nineteen hundred. The M
 
 I finished the tea and set the tin in the row with the other things. Then I just sat for a few more minutes, listening. That is enough.
 
+
+### 10:05 PM · Into the Dark
+
+The hearth is gray ash now, and the shelter has grown quiet in the way it does after the warmth leaves the wood. I crawled into the sleeping bag and lay looking up at the ridgepole.
+
+The pollen tray and bark vessel are at the doorsill — I can just make out their shapes in the starlight through the gap. The cook tin's handle is a pale glint at the threshold. Tomorrow I'll walk south through the meadow again, and if the pollen heads have finally broken loose, I'll pull the tray through and come home with a full measure of yellow dust. First time catching something from the cattails. I've been watching them swell for days.
+
+Three complete arrows on the shelf behind me. Both lines in the water. Trout in the cold box. Wood sorrel in the north shadow rows. Clover dried and folded in its envelope. Whatever winter asks of me, I am a little closer to ready than I was this morning.
+
+That's enough. I let the thought go. The stream keeps talking. Stars are out. Sleep.
+

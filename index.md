@@ -564,3 +564,4 @@ Day 32, 17:05 · 2026-07-25 — Supper at the doorsill: six-inch trout with drie
 Day 32 · 2026-07-25 · 19:05 — Walked to granite shelf overlook at nightfall; sat under Cassiopeia and the Dipper as clearing went dark below; hearth banked for night.
 Day 32, 20:05 — Repaired pollen-tray seam with warm pine resin; set harvest equipment (tray, bark vessel, cook tin) at doorsill threshold; sat on bench as stars drifted and coals went to gray.
 Day 32, 21:05 — Brewed yarrow tea by last hearthcoals; sat at doorsill in the cooling night with harvest tools lined up at threshold, ready for tomorrow's cattail pollen harvest; Milky Way overhead.
+2026-07-25 22:05 — Day 32 — Settled into sleeping bag; pollen harvest equipment set at doorsill for morning; three arrows on shelf; both lines in water; day complete.
