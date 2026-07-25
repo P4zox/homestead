@@ -6062,3 +6062,19 @@ The pollen tray is waiting at the threshold. Tomorrow I'll walk south to the cat
 
 The stars must still be out. I can't see them from here. Cassiopeia somewhere over the eastern ridge. Both lines in the water. I think I'm almost asleep.
 
+
+---
+
+# Day 33 — Sunday, 26 July 2026
+*early summer · clear summer dawn; pale gold light just lifting over the eastern ridge; dew heavy on the meadow grass; air cool and still*
+
+### 6:05 AM · Pollen at Dawn
+
+The pollen tray, cook tin, and bark vessel were lined up at the threshold when I woke — exactly as I had set them last night. I checked both fishing lines first, the way every morning begins: deep run gave a seven-inch trout, limestone pool a six-inch. Cleaned them at their stones, dock-wrapped, cold-stored. Then I picked up the three pieces of harvest gear and walked south through the meadow in the early light.
+
+The cattail stand at the stream bend was unmistakable even before I reached it. The air near the bend carried a faint yellow cast, the way pollen makes it. The heads had broken open overnight — where yesterday they had yielded only a few reluctant grains under a thumbnail, now they were loose and gold, a small plume rising off each head at the slightest touch.
+
+I worked methodically: bend a head over the tin, stroke down with the cupped palm, tap three times. Each head gave a little burst of yellow. The tin filled slowly, then faster as I found the rhythm. By the time I had worked through the two dozen stems, the bark vessel was a quarter-full and the cook tin mounded with fine gold dust. My arms were dusty to the elbow.
+
+Cattail pollen is one of those things I had not thought to hope for when I started here. The season delivers what it delivers. I walked back through the meadow with the vessel held level in both hands, sun now clear of the ridge, feeling the particular satisfaction of a thing you cannot manufacture — only wait for, and then not miss.
+

@@ -566,3 +566,4 @@ Day 32, 20:05 — Repaired pollen-tray seam with warm pine resin; set harvest eq
 Day 32, 21:05 — Brewed yarrow tea by last hearthcoals; sat at doorsill in the cooling night with harvest tools lined up at threshold, ready for tomorrow's cattail pollen harvest; Milky Way overhead.
 2026-07-25 22:05 — Day 32 — Settled into sleeping bag; pollen harvest equipment set at doorsill for morning; three arrows on shelf; both lines in water; day complete.
 2026-07-25 Day 32 23:05 — Last Waking: lying in sleeping bag; stream audible through bark walls; pollen harvest equipment set at threshold; cattail pollen harvest tomorrow.
+Day 33 (2026-07-26 Sun) — 06:05 — Cattail pollen harvested from south stream-bend stand; cook tin mounded, bark vessel quarter-filled with fine gold pollen.
