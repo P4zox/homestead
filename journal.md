@@ -6078,3 +6078,16 @@ I worked methodically: bend a head over the tin, stroke down with the cupped pal
 
 Cattail pollen is one of those things I had not thought to hope for when I started here. The season delivers what it delivers. I walked back through the meadow with the vessel held level in both hands, sun now clear of the ridge, feeling the particular satisfaction of a thing you cannot manufacture — only wait for, and then not miss.
 
+
+### 7:05 AM · Upslope, Oyster Flush
+
+The pollen tray and bark vessel are sealed and cold in the box, and my arms are still faintly yellow to the wrist. I eat a few bites standing at the doorsill — cold trout, wood sorrel pulled from the north edge of the garden — while the sun clears the ridge and begins to warm the tops of the pines.
+
+Then I take the knife upslope, seventy paces to the rotting pine. I had noticed a pale blush along its upper section when I was last there, four days ago. Four warm mornings and four heavy dews would have done it.
+
+They were there. A broad flush near the upper end of the trunk — four or five good clusters, pale buff caps spread wide, the gills underneath clean white and finely ridged. I cut them at the stem base carefully, without bruising the caps. It is as heavy a harvest as any single visit to this trunk has given.
+
+Back at the smoke rack I built a low smolder from green birch chips: slow, cool, no open flame. The caps are laid out now, gill-side up on the crossbars, the rack already giving off that faint damp-wood smell that turns sweet when the smoke takes hold. In two hours or so they will be amber-tan and firm, and the cold box will take them alongside the trout and the pollen.
+
+The harvest and the flush on the same morning — pollen at dawn, mushrooms at first sun — the kind of overlap that does not happen by plan. There is a full feeling in it. The cold box is stocked and tight, and the day has barely started.
+
