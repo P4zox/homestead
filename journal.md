@@ -5936,3 +5936,7 @@ A small breeze moved through the high birches — leaves turning over silver —
 ### 11:05 AM · Stone Hunting
 
 After the mornings
+### 12:05 PM · Noon Meal, Hearth
+
+Took the seven-inch deep-run trout out of the cold-storage box around midday — it had been in the box since dawn and was still firm. Lit the hearth from three pine splits and last night's bed of coals; while the small fire built I fetched water from the bark vessel, added two dried chanterelle caps and a handful of wood sorrel to the cook tin, and set it all to simmer together. The whole inside of the shelter changed — woodsmoke and something good. Ate at the doorsill bench in the straight-overhead noon sun, looking down over the seven garden rows and the quiet smoke rack and the open meadow. The clearing is summer-still at this hour: no wind, the stream audible at the far edge of hearing, the shadow of the ridgepole short and direct. The nettles are showing new leaf joints, the raspberry canes are holding green, the wood sorrel fans are spreading into the afternoon shade zone along the north border. Three new chert nodules on the supply shelf and six fletched shafts waiting beside them. The afternoon will be for knapping. I am not behind.
+
