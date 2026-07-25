@@ -6053,3 +6053,12 @@ Three complete arrows on the shelf behind me. Both lines in the water. Trout in 
 
 That's enough. I let the thought go. The stream keeps talking. Stars are out. Sleep.
 
+
+### 11:05 PM · Last Waking
+
+Still not fully asleep. The sleeping bag is warm; the cabin holds the day's heat in its log walls, which still surprises me. I can hear the stream through the bark roof and walls — that constant sound has become ordinary, but tonight it sounds close, like it's just outside the door, which it is.
+
+The pollen tray is waiting at the threshold. Tomorrow I'll walk south to the cattail stand and come back with something new: pollen flour, if I time it right. First time attempting it. I'm not sure exactly what I'll do with it yet — flour for flatbread, maybe, cooked on the hearthstone. The idea of bread made from something I found growing wild in a wet meadow feels like a kind of small grace.
+
+The stars must still be out. I can't see them from here. Cassiopeia somewhere over the eastern ridge. Both lines in the water. I think I'm almost asleep.
+
