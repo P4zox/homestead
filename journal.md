@@ -6031,3 +6031,14 @@ Everything for the cattail harvest — tray, vessel, tin — set out in a row at
 
 I sat on the doorsill bench in the dark, feet on the cleared earth. The stars had moved a little since the overlook — Cassiopeia tracking west by a hand-span. The stream audible in the stillness. Hearth coals going to gray behind me.
 
+
+### 9:05 PM · Yarrow Tea by Dying Coals
+
+The coals were down to their last red breath when I crouched and pinched a small fold of dried yarrow into the cook tin, filled it with water from the bark vessel, and set it on the edge of the hearthstone where the heat still rose. Steam came off the rim in a few minutes. I carried it to the doorsill and sat.
+
+The night has cooled. The pollen tray is at my feet, the bark vessel beside it, the empty cook tin waiting to take its place once the tea is gone. Tomorrow morning, if the cattail heads have loosened, I will carry all three south through the meadow and past the alder scrub and come home with the tin full of yellow pollen. That is the plan. Everything is lined up at the threshold; there is nothing left to do but sleep.
+
+Cassiopeia has tilted further west since I watched it at nineteen hundred. The Milky Way is still full overhead — this is the kind of clear night that makes the clearing seem small. The stream talks steadily from somewhere in the dark. Both fishing lines are in the water. Three complete arrows are on the shelf. The week's work is done and visible: in the arrows, in the cord coil, in the lined-up harvest tools, in the banked fire.
+
+I finished the tea and set the tin in the row with the other things. Then I just sat for a few more minutes, listening. That is enough.
+
