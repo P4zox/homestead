@@ -555,3 +555,4 @@ Day 31, 2026-07-24, 23:06 (Fri) — Last Watch — Final waking moment in full d
 2026-07-25 Day 32, 10:05 — Walked upslope; confirmed oyster flush showing (thumbnail clusters, 2–3 days); sat at granite shelf overlook — cabin, garden, and fishing lines all visible below in full sun; came back down.
 2026-07-25 11:05 Day 32 — Walked limestone pool gravel bar for knapping stone; retrieved three chert nodules and a flat cobble anvil; test-flaked largest on doorsill bench, core sound; all on supply shelf.
 Day 32, 2026-07-25, 12:05 PM — Noon meal: deep-run trout with dried chanterelles and wood sorrel cooked on hearth; eaten at doorsill bench in overhead noon sun; afternoon knapping planned.
+Day 32 13:05 (Sat 25 Jul 2026) — Afternoon knapping at doorsill bench; one arrowhead point from palm-sized chert nodule; failed piece salvaged as scrapers.
