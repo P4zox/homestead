@@ -557,3 +557,4 @@ Day 31, 2026-07-24, 23:06 (Fri) — Last Watch — Final waking moment in full d
 Day 32, 2026-07-25, 12:05 PM — Noon meal: deep-run trout with dried chanterelles and wood sorrel cooked on hearth; eaten at doorsill bench in overhead noon sun; afternoon knapping planned.
 Day 32 13:05 (Sat 25 Jul 2026) — Afternoon knapping at doorsill bench; one arrowhead point from palm-sized chert nodule; failed piece salvaged as scrapers.
 2026-07-25 · Day 32 · 14:05 — Third arrowhead seated on shaft; three complete arrows ready on supply shelf; five fletched shafts remaining
+Day 32, 15:05 — Walked to cattail stand at south stream bend; pollen heads swollen and turning gold at tips — ~2 days to full harvest; returned to doorsill bench with cook tin and bark vessel set out and ready.

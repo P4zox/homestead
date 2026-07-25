@@ -5966,3 +5966,12 @@ Three arrows now. Not a quiver yet — but enough for a careful first attempt at
 
 I set the third arrow on the shelf beside the others, swept the cord scraps off the bench, and sat a while watching the light move across the clearing. The shadow of the smoke rack was beginning to reach the garden rows.
 
+
+### 3:05 PM · Gold at the Tips
+
+Walked south through the meadow this afternoon, past the alder scrub, to the stream bend where the cattail stand grows. I first found it on Day 27, the heads still green and just beginning to form — I guessed a week, maybe two, to harvest. Today they look close: two dozen stems taller than my chest, pollen heads swollen and starting to shift from gray-green to a dusty gold at the tips. I pressed a thumbnail in and a few bright yellow grains came free, catching the light. Not the loose cloud that means full harvest, but nearly. Two more days, maybe three.
+
+I stood on the gravel bar and watched the water move around the bend. The afternoon was quiet — just the cattail heads nodding in the faint warm air, a dragonfly working low over the shallows. Pollen is a kind of flour. Mixed into broth or pressed flat on a hearthstone, it stretches a meal. Standing there I noticed I was already thinking past today — about what to bring when the heads open, how much to carry, whether the bark vessel or the cook tin holds it better. That kind of thinking feels different from how I started here. Then it was just: eat today, sleep tonight. Now there is always a week behind the present one.
+
+Walked back through the meadow in the heat. Grass is nearly knee-high, seed heads forming. The field daisies are wide open still. Got back to the doorsill bench and set out the cook tin and the bark vessel beside me — ready for when the pollen opens. The three arrows are still curing on the supply shelf inside. The whole afternoon has a held-breath quality to it, like the clearing is between things.
+
