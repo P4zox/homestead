@@ -5922,3 +5922,13 @@ I stood a moment just looking at it. All those nights by the hearth twisting cor
 ### 9:05 AM · Garden, Tended
 
 I came back from the clearing with the bow over my shoulder and both arrows in hand, still feeling the second arrows
+### 10:05 AM · Upslope, Morning Still
+
+I climbed upslope after the garden work, leaving the axe hanging inside — nothing that needed cutting today. The mist had lifted long before I reached the birch stand, and the sun came warm through the pines, everything drying out after the early dew.
+
+At the rotting pine, the new oyster flush was showing: two small clusters at the far end, pale and tight against the bark, thumbnail-sized. Another two or three days. I left them where they were. The cold-storage box is well stocked, and the forest moves at its own pace — there is no reason to push it.
+
+I sat a while at the granite shelf overlook. Below me, the clearing looked complete in a way I do not usually feel from inside it: the cabin solid and dark against the meadow, the smoke rack upright, the garden rows running east to west in the full sun. Both fishing lines are in the water. The bow hangs on its peg. The arrows are on the shelf. Everything I have worked toward this past month is down there, in order.
+
+A small breeze moved through the high birches — leaves turning over silver — but did not reach the clearing. I sat until the rock felt warm under my palms, then came back down.
+

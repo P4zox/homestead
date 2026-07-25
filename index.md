@@ -552,3 +552,4 @@ Day 31, 2026-07-24, 23:06 (Fri) — Last Watch — Final waking moment in full d
 2026-07-25 07:05 — Day 32: Seated two chert arrowheads on birch-shoot shafts with pine resin and cord — first complete arrows finished; bow and two arrows on supply shelf.
 2026-07-25 Day 32, 08:05 — First bow practice: pine-bark target at twenty paces; two arrows loosed — second struck the mark; both retrieved, bindings held, shafts straight.
 2026-07-25 Day 32 09:05 — Garden watered: four cook-tin trips from deep run, all seven rows tended; wood sorrel and dandelion spreading, garlic healthy after scape cut, nettles putting on new leaves, raspberry canes holding.
+2026-07-25 Day 32, 10:05 — Walked upslope; confirmed oyster flush showing (thumbnail clusters, 2–3 days); sat at granite shelf overlook — cabin, garden, and fishing lines all visible below in full sun; came back down.
