@@ -560,3 +560,4 @@ Day 32 13:05 (Sat 25 Jul 2026) — Afternoon knapping at doorsill bench; one arr
 Day 32, 15:05 — Walked to cattail stand at south stream bend; pollen heads swollen and turning gold at tips — ~2 days to full harvest; returned to doorsill bench with cook tin and bark vessel set out and ready.
 Day 32, 16:05 — Limestone pool line gave seven-inch trout; cleaned at flat pool stone, cold-stored; sat by the pool in amber afternoon light as wood thrush called downstream.
 Day 32, 17:05 · 2026-07-25 — Supper at the doorsill: six-inch trout with dried oyster caps and wood sorrel, eaten in amber evening light while the wood thrush called from the alder scrub.
+2026-07-25 Day 32 18:05 — Evening cord-twisting at doorsill then by hearthlight; fourteen arm-lengths two-ply added to coil; cattail pollen harvest expected tomorrow.

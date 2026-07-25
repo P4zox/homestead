@@ -5994,3 +5994,16 @@ The light was doing its evening work by the time the tin was steaming: amber tur
 A day that finished itself well. Three arrows resting on the supply shelf, the bow hanging on its wall peg, proved. The garden watered and holding. The cattail stand another two days away. Both lines set for the night. The trout was clean and mild, the dried oyster caps giving the broth a quiet depth, the sorrel cutting through with a bright edge. The wood thrush still calling, unhurried, while I scraped the tin clean.
 
 I don't always stop to notice when things are going well. Worth noticing now.
+
+### 6:05 PM · Evening Cords
+
+The meal is done, the cook tin rinsed at the stream. Long shadows now, the sky still bright above the treeline but the clearing floor already in shade. I came back to the doorsill bench and sat.
+
+Three arrows on the shelf. Both lines in the water. The wood thrush filling the alder fringe downstream. Evenings like this one have a completeness to them — I do not mean everything is finished, there is always more, but the shape of the day is clear and the night is still an hour off.
+
+I twisted cord for a while on the doorsill while the light held, rolling the bark fibers forward between palm and thigh the way I have done it a hundred times now. Fourteen arm-lengths came off easy, added to the coil inside. Then the last of the direct light left the clearing and I fed the hearthcoals and moved inside, still twisting.
+
+Tomorrow, or the day after, the cattail stand will be ready. I can feel the day already shaping itself toward that — the cook tin and bark vessel by the door, the stream bend south of the alder scrub, the gold-headed cattails with their pollen held loose and ready. Cakes on the doorsill. Something new in the stores.
+
+For now it is just this: warm fire, cord coiling, the world settling toward dark.
+
