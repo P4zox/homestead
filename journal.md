@@ -5984,3 +5984,13 @@ Then I sat for a few minutes on the bank. I did not need to; I just did. The cur
 
 Three complete arrows wait on the supply shelf. The cattails are two days from harvest. Both fishing lines are set for the night. I had a full day — bow practice, arrowhead seating, garden watered, chert knapped — and there is still an hour of good light and supper to come over the hearth. The water does not care about any of it. It just moves through.
 
+
+### 5:05 PM · Supper at Golden Hour
+
+The wood thrush has been unreeling its call since mid-afternoon, each phrase full and unhurried, rolling out of the alder scrub and across the clearing. I lit the hearth from the coals banked since noon — they caught on the first breath of air — and nestled the morning's six-inch trout into the cook tin with two dried oyster caps from the cold-storage box and a handful of wood sorrel pulled from the garden's north shadow zone. Let it all heat slow.
+
+The light was doing its evening work by the time the tin was steaming: amber turning toward gold, the long shadows spanning the full width of the meadow, the alder fringe at the stream edge glowing almost copper. I sat at the doorsill bench and ate there in that light.
+
+A day that finished itself well. Three arrows resting on the supply shelf, the bow hanging on its wall peg, proved. The garden watered and holding. The cattail stand another two days away. Both lines set for the night. The trout was clean and mild, the dried oyster caps giving the broth a quiet depth, the sorrel cutting through with a bright edge. The wood thrush still calling, unhurried, while I scraped the tin clean.
+
+I don't always stop to notice when things are going well. Worth noticing now.
