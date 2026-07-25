@@ -5918,3 +5918,7 @@ Second arrow: adjusted hold and aim. The tip struck the bark face, angled in, an
 
 I stood a moment just looking at it. All those nights by the hearth twisting cord, the patient days of tillering, the careful knapping — a whole chain of small work ending in that small vibration at twenty paces. Pulled both arrows free, checked the second binding — pine resin held, both shafts straight. I will practice more this afternoon. But the first arrow has been loosed, and it landed where it was meant to go.
 
+
+### 9:05 AM · Garden, Tended
+
+I came back from the clearing with the bow over my shoulder and both arrows in hand, still feeling the second arrows
