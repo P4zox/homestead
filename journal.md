@@ -5906,3 +5906,15 @@ Two arrowheads, base-notched and thinned, both faces true. I pick the straightes
 
 I set them on the supply shelf beside the bow. Two complete arrows. It is a small thing and also not a small thing. I have a bow. I have arrows. Whatever comes now, I have a real chance at it.
 
+### 8:05 AM · First Arrow Loosed
+
+The bow has been hanging on the wall peg since it was strung — finished, but never shot beyond slow test draws on the granite shelf overlook. This morning, with both arrows seated and complete on the supply shelf, the clearing quiet and the grass still damp with dew, it felt like time.
+
+I took a piece of pine bark from the supply stack and wedged it against a split log about twenty paces out from the doorsill bench — pale face toward the clearing, a clean mark against dark wood. No real wind. Sun just clearing the pine ridge to the east.
+
+First draw: the limbs bent evenly, the cord taut and clean. I held a breath and loosed. The arrow flew a hand-span low and left, skipped off the turf, and came to rest in the grass beyond. Found it easily — the bright fletch showed against the green.
+
+Second arrow: adjusted hold and aim. The tip struck the bark face, angled in, and lodged quivering. Not center, but on the mark.
+
+I stood a moment just looking at it. All those nights by the hearth twisting cord, the patient days of tillering, the careful knapping — a whole chain of small work ending in that small vibration at twenty paces. Pulled both arrows free, checked the second binding — pine resin held, both shafts straight. I will practice more this afternoon. But the first arrow has been loosed, and it landed where it was meant to go.
+
