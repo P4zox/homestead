@@ -6007,3 +6007,14 @@ Tomorrow, or the day after, the cattail stand will be ready. I can feel the day 
 
 For now it is just this: warm fire, cord coiling, the world settling toward dark.
 
+
+### 7:05 PM · First Stars Rising
+
+I stepped outside after the cord-twisting, drawn by the stillness. The wood thrush had already gone quiet in the alder scrub; only the stream running, and the air cooling fast above the treeline. I walked upslope to the granite shelf — fifteen minutes, carrying nothing — and arrived as the last orange drained from the western sky and the pines on the ridge went black against deep blue.
+
+The clearing below: the cabin in shadow, the smoke rack a pale frame, the garden rows invisible but there, settled in after five weeks of work. Cassiopeia came out first above the eastern ridge, the same tilted W I found from this rock back in my second week. Then the Dipper, low and clear in the north. Then the full field of stars, more than I could count, the Milky Way beginning to resolve in a pale arc south-to-north overhead.
+
+I stayed until the granite was warm only under my hands and the air had cooled noticeably. Tomorrow: cattail pollen, if the heads give. Another arrowhead from the reserve nodule. The oyster flush on the rotting pine will be close.
+
+There is something in watching the homestead go dark from above — a day made visible in what is still standing, and the sky turning over it the same as it always has. That is enough to know.
+

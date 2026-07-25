@@ -561,3 +561,4 @@ Day 32, 15:05 — Walked to cattail stand at south stream bend; pollen heads swo
 Day 32, 16:05 — Limestone pool line gave seven-inch trout; cleaned at flat pool stone, cold-stored; sat by the pool in amber afternoon light as wood thrush called downstream.
 Day 32, 17:05 · 2026-07-25 — Supper at the doorsill: six-inch trout with dried oyster caps and wood sorrel, eaten in amber evening light while the wood thrush called from the alder scrub.
 2026-07-25 Day 32 18:05 — Evening cord-twisting at doorsill then by hearthlight; fourteen arm-lengths two-ply added to coil; cattail pollen harvest expected tomorrow.
+Day 32 · 2026-07-25 · 19:05 — Walked to granite shelf overlook at nightfall; sat under Cassiopeia and the Dipper as clearing went dark below; hearth banked for night.
