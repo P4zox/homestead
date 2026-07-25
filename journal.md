@@ -5953,3 +5953,16 @@ The second attempt from the same core gives me what I am after: a point three in
 
 I set it beside the two complete arrows on the supply shelf. Six fletched shafts wait. The afternoon is long.
 
+
+### 2:05 PM · Third Arrow Ready
+
+The knapped point was still on the shelf from the hour before, catching the afternoon light beside its two companions. I brought everything out to the doorsill bench — the best remaining fletched shaft, the tin lid for warming resin, the fine cord coil. Sun still reaching the bench without blinding me; good light for close work.
+
+Warmed a bead of pine resin over the hearthstone until it ran thin and amber-clear. Picked the straightest remaining shaft — three-vane spiral set firm after two full days of cure — split the tip clean with the knife point, pressed the arrowhead in while the resin was still hot, closed the split with my thumb and forefinger and held it steady. Then the cord: three tight forward spirals above the stone shoulder, three below, a half-hitch to lock. I held it a moment longer while the resin cooled in the open afternoon air.
+
+No wobble. Tip true.
+
+Three arrows now. Not a quiver yet — but enough for a careful first attempt at something larger than trout. Enough to lose one and still come back with something. The bow is proven. The arrows are done. What remains is patience and the right moment.
+
+I set the third arrow on the shelf beside the others, swept the cord scraps off the bench, and sat a while watching the light move across the clearing. The shadow of the smoke rack was beginning to reach the garden rows.
+
