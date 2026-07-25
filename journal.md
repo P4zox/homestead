@@ -6018,3 +6018,16 @@ I stayed until the granite was warm only under my hands and the air had cooled n
 
 There is something in watching the homestead go dark from above — a day made visible in what is still standing, and the sky turning over it the same as it always has. That is enough to know.
 
+
+### 8:05 PM · Ready at the Doorsill
+
+The coals in the hearth were still orange when I came back inside from the overlook, the banked heat filling the lower half of the room. I did not rebuild the fire — just let it glow.
+
+I took the pollen tray down from the supply shelf: the shallow birch-bark fold, forearm-wide, rim two fingers high, corners stitched through. The seams were dry and one corner had gone a little stiff. I warmed the pine-resin fold over the coals until a bead formed and worked it into that corner seam with my fingertip — pressed it in, smoothed it flat, set the tray back on the shelf to firm up.
+
+Then the bark vessel. I ran a finger along the outer seams: still matte and sound from the second coat weeks ago. The cook tin was already at the doorsill from this afternoon.
+
+Everything for the cattail harvest — tray, vessel, tin — set out in a row at the threshold. The heads will be ready tomorrow morning, or close. When the pollen comes it comes fast, and if you are not there with a vessel you lose half of it to the breeze before you have taken three heads. Better to be ready.
+
+I sat on the doorsill bench in the dark, feet on the cleared earth. The stars had moved a little since the overlook — Cassiopeia tracking west by a hand-span. The stream audible in the stillness. Hearth coals going to gray behind me.
+
