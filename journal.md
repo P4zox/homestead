@@ -5975,3 +5975,12 @@ I stood on the gravel bar and watched the water move around the bend. The aftern
 
 Walked back through the meadow in the heat. Grass is nearly knee-high, seed heads forming. The field daisies are wide open still. Got back to the doorsill bench and set out the cook tin and the bark vessel beside me — ready for when the pollen opens. The three arrows are still curing on the supply shelf inside. The whole afternoon has a held-breath quality to it, like the clearing is between things.
 
+
+### 4:05 PM · Pool in Late Light
+
+The meadow was gold by the time I reached the limestone pool. The line had a seven-inch trout on it — hanging deep in the shadow under the far ledge, barely moving in the current. I cleaned it at the flat pool stone where I always do, the motions quiet and sure by now: knife, gills, dock leaf, cold-storage box. Re-baited the hook with a fat earthworm from the bark fold in my pocket, re-wedged the pole under the ledge shadow, and let the line back down.
+
+Then I sat for a few minutes on the bank. I did not need to; I just did. The current ran clear over the gravel and the afternoon light came slant through the alder fringe, laying gold bars across the far bank. A damselfly hovered at the surface and vanished. Somewhere downstream a wood thrush was calling — three rising notes, a pause, three more.
+
+Three complete arrows wait on the supply shelf. The cattails are two days from harvest. Both fishing lines are set for the night. I had a full day — bow practice, arrowhead seating, garden watered, chert knapped — and there is still an hour of good light and supper to come over the hearth. The water does not care about any of it. It just moves through.
+
