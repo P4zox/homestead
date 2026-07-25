@@ -5932,3 +5932,7 @@ I sat a while at the granite shelf overlook. Below me, the clearing looked compl
 
 A small breeze moved through the high birches — leaves turning over silver — but did not reach the clearing. I sat until the rock felt warm under my palms, then came back down.
 
+
+### 11:05 AM · Stone Hunting
+
+After the mornings
