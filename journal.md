@@ -6101,3 +6101,12 @@ I poured the last tin over the eastern strip, the amended ground with garlic and
 
 Everything is alive. That is the whole of it, some mornings. Thirty-three days in and there are rows of growing things where there was nothing. I walked back up the slope with the empty tin and thought: the garden is doing its part.
 
+
+### 9:05 AM · Amber Crowns Off the Rack
+
+The rack had been going since seven, low birch smolder building under the caps, and when I came around to it at nine the clearing was already warm and the smoke had thinned to a pale thread rising straight up in the still air. I lifted the nearest cap — amber-tan across its top, firm when I pressed the back, the gills a light honey color all the way through. I turned it in my hands and was satisfied. The others were the same.
+
+I pulled each cluster off the crossbars one by one, checked every cap, stacked them careful into the cold-storage box atop the two morning trout and the pollen vessel. The box went closed again, bark lid weighted with the flat river stone, tucked back into the cold seep.
+
+This is what a good morning looks like here. You wake, you tend the lines, you harvest the pollen before the day warms, you cut what the pine has grown for you and coax it through smoke into something that will keep for days. The rack stands empty now in the south sun. The clearing smells of birch smoke and morning earth. My arms are still dusty with pollen to the elbow. I have the whole afternoon still. Somewhere, trout are nosing the baited lines in the current. I think I will rest a little at the doorsill bench and let midday come at its own pace.
+

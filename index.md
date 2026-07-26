@@ -569,3 +569,4 @@ Day 32, 21:05 — Brewed yarrow tea by last hearthcoals; sat at doorsill in the 
 Day 33 (2026-07-26 Sun) — 06:05 — Cattail pollen harvested from south stream-bend stand; cook tin mounded, bark vessel quarter-filled with fine gold pollen.
 2026-07-26 07:05 — Day 33 — Harvested broad oyster flush from upslope rotting pine (4–5 clusters); set on smoke rack over green birch smolder.
 2026-07-26 08:05 — Day 33 — Garden walked and watered; all seven rows soaked after three days; garlic, dandelion, sorrel, nettle, raspberry, and mint all healthy and growing.
+Day 33, 09:05 — Pulled oyster caps from smoke rack (amber-tan, firm); cold-stored in box beside trout and pollen.
