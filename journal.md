@@ -6193,3 +6193,16 @@ Ate at the doorsill bench. The oyster caps softened and turned rich in the broth
 
 The seven-inch trout and the remaining mushrooms can wait overnight in the cold-storage box. The earthworm fold is nearly spent — I'll turn fresh ones from the north garden edge at first light before either line comes up. Tomorrow: worms first, then the lines, then see what the day brings.
 
+
+### 6:05 PM · Light on the Clearing
+
+After supper I climbed the slope — past the garden, past the birch stand, up to the flat granite shelf that overlooks everything. The light at this hour turns the clearing golden, all long shadows and warm edges, and I sat on the granite and looked down at what has become, without my quite noticing, a homestead.
+
+The cabin roof holds the last light. The garden rows show plainly from up here — the nettle stretch, the garlic fans, the mint running west. The smoke rack stands neat beside the south wall. Both fishing lines are in, invisible from here but there.
+
+I thought about the heron this afternoon — the way it stood motionless in the riffle for five, maybe ten minutes, then lifted so easily and was gone. There is something I keep trying to name about that. Not patience exactly. More like presence.
+
+The bow is on the wall peg. Four good arrows on the shelf. Food in the box. Lines in the water. I do not need to push at anything tonight.
+
+The sky held clear and pale above the western ridge as I came back down in the cooling air. I lit a small fire in the hearth, not for cooking, just for the company of it.
+
