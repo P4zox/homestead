@@ -6268,3 +6268,12 @@ Overnight line had a seven-inch trout on it — still lively in the cold current
 
 Stood a moment at the pool in the growing light. I half expected the heron — but the pool was quiet, just the current shaping itself over the stones. Walked back through the meadow with the dew wetting my boots, the east treeline just beginning to catch the first gold. Quiver on the supply shelf with all four arrows. Bow on the peg. A good start.
 
+
+### 7:05 AM · Threshold Meal
+
+The seven-inch trout from the deep run went into the cook tin with two dried chanterelle caps and a fistful of wood sorrel pulled from row five — I take from that row sparingly; it always gives more than it needs to. The hearth caught on the first strike. Good dry pine, banked last night. The steam that rose off the tin smelled like the whole morning: fish and earth and something faintly sweet.
+
+I ate at the doorsill bench with the east treeline still holding the low gold light. Dew was heavy on every garden leaf and blade below. A nuthatch crossed the clearing once, fast, and vanished into the pines. I held the cook tin in both hands to warm them — the air is cool still, even in midsummer, even at seven.
+
+Everything is as it should be: two lines in the water, cold-storage restocked, the quiver on the shelf with four arrows nested inside it. The garden needs watering, and I will get to that. But for now, just this: sitting at the door I built, eating from water I fish and plants I tend, in light that is genuinely mine.
+
