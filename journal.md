@@ -6176,3 +6176,11 @@ Three more ends after that. By the last I was putting four of five into the slab
 
 Walked back to the cabin in long afternoon light. Hung the bow on its peg, laid the four arrows back on the supply shelf. The clearing felt a little different afterward — quieter, or maybe I just see it differently now that I have something in hand that could feed me from twenty paces.
 
+
+### 4:05 PM · Late Pool, Trout Caught
+
+The day's heat had started to ease when I walked down to the limestone pool. The line was wedged firm under the far ledge shadow where I'd left it since midday. Lifted the pole — taut. A solid seven-inch trout, bright and clean-flanked. I thanked it at the flat pool stone, cleaned it there, dock-wrapped it, and tucked it into the cold-storage box beside this morning's six-inch when I got back.
+
+Re-baited the hook with an earthworm from the bark fold — the fold is getting light now, maybe a dozen worms left. I'll turn more tomorrow morning from the north garden edge. Wedged the pole back under the far ledge shadow and walked up through the alder scrub in the long afternoon light.
+
+Stopped at the side-seep on the way and pulled a fistful of watercress, cold and wet against the palm. A dragonfly held motionless over the still margin of the pool a long while before I left. Both lines in water for the evening now. The cold-storage box is well-stocked: two dock-wrapped trout, watercress, smoke-dried oysters, blueberries. Supper soon.
