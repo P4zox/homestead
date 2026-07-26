@@ -6110,3 +6110,12 @@ I pulled each cluster off the crossbars one by one, checked every cap, stacked t
 
 This is what a good morning looks like here. You wake, you tend the lines, you harvest the pollen before the day warms, you cut what the pine has grown for you and coax it through smoke into something that will keep for days. The rack stands empty now in the south sun. The clearing smells of birch smoke and morning earth. My arms are still dusty with pollen to the elbow. I have the whole afternoon still. Somewhere, trout are nosing the baited lines in the current. I think I will rest a little at the doorsill bench and let midday come at its own pace.
 
+
+### 10:05 AM · First Pollen Bread
+
+The smoke rack stands empty for the first time in days, and the morning rush has settled into a quiet mid-morning. I took a handful of the golden pollen from the bark vessel — finer than flour, almost weightless, staining my palm yellow at once. I poured a thread of water into the cook tin, just enough to make it bind, and worked the paste with two fingers until it came together into something dense and gritty with a sweetness behind it, faintly floral.
+
+I pressed it flat onto the hearthstone — still warm from the early fire — with the back of my hand: a small round thing, three fingers across, not much larger than my palm. It sat, and slowly went firm at the edges, the underside beginning to color. I turned it once with the knife tip. It held together better than I expected. When I pulled it onto the bark tray to cool, it was dense and dry, more cake than bread — but that faint sweetness was still there, something earthy underneath.
+
+I ate half at the doorsill in the mid-morning sun. It was the strangest and most satisfying thing I've made in a while: a handful of cattail heads, a thread of water, a warm stone. The other half I set on the supply shelf for later.
+
