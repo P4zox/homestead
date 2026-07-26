@@ -6154,3 +6154,12 @@ A grey heron was standing motionless twenty paces upstream, knee-deep in the rif
 
 Came back with the watercress, dock-wrapped, tucked into the cold-storage box beside the trout. The afternoon is still long.
 
+
+### 2:05 PM · Fourth Arrow Complete
+
+After coming back from the pool I found the doorsill in full afternoon light and sat with the fourth arrow in my hands. Three hours was enough — the resin had gone glassy and cool, the cord wrap sat flush against the shaft with no give at all. I pressed the head sideways, hard enough to feel the structure: nothing moved. Ran a thumbnail along the bind spiral, ten wraps tight and even, no separation. Lifted it to the light and sighted down the shaft — straight as the day I peeled it.
+
+Four arrows complete on the shelf now. Bow on the wall peg, quiver full enough to be useful. It is a different feeling than the earlier days, when every hour was roof logs and water and fire — the essentials stacked against the cold. This is a step past that. The bow is something I made for moving through the land on different terms.
+
+Spent the rest of the hour twisting cord in the east-wall shade — fourteen more arm-lengths of two-ply, the rhythm easy now, hands knowing the motion without thinking about it. The afternoon has that mid-summer heaviness to it, the clearing full of bees working the meadow grasses, heat pressing down without wind. A good afternoon for bench work.
+
