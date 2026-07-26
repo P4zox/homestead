@@ -579,3 +579,4 @@ Day 33, 14:05 — Fourth arrow fully cured and verified; fourteen arm-lengths tw
 Day 33, 16:05 — Limestone pool: seven-inch trout caught, cold-stored; watercress gathered at side-seep; earthworm bait fold running low.
 Day 33, 2026-07-26, 17:05 — Amber Supper: six-inch trout with dried oyster caps and watercress, eaten at doorsill bench in amber evening light; swallows cutting passes over the clearing; lines in overnight.
 Day 33, 18:05 — Walked to granite shelf overlook after supper; sat in last warm light looking down at the whole homestead; came back at dusk and lit a small hearthfire.
+2026-07-26 19:05 Day 33 — Made a birch-bark quiver by hearthlight; four arrows riding point-down inside, resin curing.

@@ -6206,3 +6206,10 @@ The bow is on the wall peg. Four good arrows on the shelf. Food in the box. Line
 
 The sky held clear and pale above the western ridge as I came back down in the cooling air. I lit a small fire in the hearth, not for cooking, just for the company of it.
 
+
+### 7:05 PM · Quiver by Firelight
+
+The hearthfire was still going — one birch length feeding a steady amber glow — and I found myself looking at the four arrows on the supply shelf, lying loose as they always have, points and fletching unprotected. I pulled the best of the large bark sheets and rolled it into a cylinder at the doorsill bench, testing the diameter over my knee until all four shafts fit cleanly without the fletching catching. Cut it to forearm-plus-a-hand length with the knife, stitched the long seam in running two-ply cord pulled tight, tamped warm pine resin into the stitch line with a twig tip, and fitted a small disc of scrap bark into the bottom — stitched that closed and sealed it too. An hour of quiet work with the fire for light and the night settling outside.
+
+The quiver stands on the supply shelf now: four arrows point-down inside, fletching well clear of the rim, resin curing in the hearth warmth. It will be firm by morning. Four arrows loose on a shelf were a collection; the same four in a quiver are a hunting tool. The difference is small in weight and large in readiness.
+
