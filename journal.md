@@ -6230,3 +6230,14 @@ Then I put the tin on with a pinch of dried yarrow and two clover heads from the
 
 Both lines are waiting in dark water. Cold-storage box is full. Tomorrow at first light: dig earthworms from the north garden edge, check what the overnight brought. The day used itself up well — I am glad of that.
 
+
+### 10:05 PM · Night Standing
+
+The hearthfire had gone to coals by the time I set down the cup. I stepped outside without thinking much about it — just needed to stand in the air for a moment before lying down.
+
+The quarter-moon was well up over the east treeline, the meadow pale silver below it. Crickets filling the dark from the south. The stream just audible if I stood still. Warm air going cool along the ground, the way it does after a long clear day.
+
+I stood at the doorsill for a while and looked at it all — the cabin solid behind me, the smoke rack a shadow against the garden, the arc of treeline closing the clearing in. Four arrows on the shelf. Both lines in the water. The quiver holding shape clean.
+
+There is a kind of satisfaction that does not need to be named. I felt it standing there in the silver light, with everything in its place and the summer night around it all. Then I went inside, lay down, and let the dark take over.
+
