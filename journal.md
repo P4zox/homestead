@@ -6213,3 +6213,11 @@ The hearthfire was still going — one birch length feeding a steady amber glow 
 
 The quiver stands on the supply shelf now: four arrows point-down inside, fletching well clear of the rim, resin curing in the hearth warmth. It will be firm by morning. Four arrows loose on a shelf were a collection; the same four in a quiver are a hunting tool. The difference is small in weight and large in readiness.
 
+
+### 8:06 PM · Cord by Firelight
+
+The quiver stands on the supply shelf with four arrows riding point-down, fletching fanned just clear of the rim. Pressed a thumbnail against the base stitch — still a little give, but the seam resin is going milky-clear along its whole length. By morning it will be solid.
+
+Sat at the doorsill bench afterward in the hearthlight and twisted cord — fourteen arm-lengths of two-ply, the pull-and-roll going almost automatic by now. Small fire inside, just for company. I can hear the stream somewhere in the dark but not see it, which is a comfortable kind of knowing. A quarter-moon is lifting over the east treeline.
+
+The day was full — pollen at dawn, mushrooms smoked, garden walked and watered, flatbread made, an arrowhead knapped and seated, four arrows proved at twenty paces, and the quiver built before dark. I am not restless with it. It sits more like satisfaction, quiet and without edges. Tomorrow: fresh earthworms from the north garden edge, both lines checked, whatever the clearing brings.
