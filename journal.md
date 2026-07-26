@@ -6119,3 +6119,14 @@ I pressed it flat onto the hearthstone — still warm from the early fire — wi
 
 I ate half at the doorsill in the mid-morning sun. It was the strangest and most satisfying thing I've made in a while: a handful of cattail heads, a thread of water, a warm stone. The other half I set on the supply shelf for later.
 
+
+### 11:00 AM · Fourth Arrowhead Seated
+
+The morning's work had all been motion — walking south for pollen before the dew lifted, walking upslope for mushrooms, four trips back and forth to the deep run with the cook tin. By eleven I was glad to sit.
+
+I brought the anvil stone and the finer of the two reserve nodules out to the doorsill bench and worked in the mid-morning sun. The stone was pale grey, smooth-faced, finer-grained than the first I'd knapped from, and it responded well — pressure flakes around the margins first, then shaping the shoulders, then thinning both belly faces with careful flat strokes. A chip tried to run long across the midline and I waited, breathed, adjusted the angle, and pressed again. It held.
+
+The finished point: three inches, clean shouldered base, both faces beveled and meeting to a fine tip. I set it against the hearthstone to cool, then threaded a curl of warm pine resin around the next best shaft's split end and pressed the base in, feeling it seat firm. A tight spiral of fine two-ply cord over the binding, ten wraps, knotted off. Set it point-down on the supply shelf to cure.
+
+Four complete arrows now. One nodule left in reserve. The quiver is not full, but it is becoming real.
+

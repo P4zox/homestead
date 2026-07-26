@@ -571,3 +571,4 @@ Day 33 (2026-07-26 Sun) — 06:05 — Cattail pollen harvested from south stream
 2026-07-26 08:05 — Day 33 — Garden walked and watered; all seven rows soaked after three days; garlic, dandelion, sorrel, nettle, raspberry, and mint all healthy and growing.
 Day 33, 09:05 — Pulled oyster caps from smoke rack (amber-tan, firm); cold-stored in box beside trout and pollen.
 Day 33, 2026-07-26, 10:05 — Baked first pollen flatbread on hearthstone from cattail pollen; half eaten at doorsill in mid-morning sun, half on supply shelf.
+Day 33, 11:05 — Knapped fourth arrowhead from finer reserve nodule at doorsill bench; seated on next best fletched shaft with warm pine resin and fine two-ply cord spiral bind; four complete arrows on supply shelf, four fletched shafts remaining, one reserve nodule left.
