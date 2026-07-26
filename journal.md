@@ -6091,3 +6091,13 @@ Back at the smoke rack I built a low smolder from green birch chips: slow, cool,
 
 The harvest and the flush on the same morning — pollen at dawn, mushrooms at first sun — the kind of overlap that does not happen by plan. There is a full feeling in it. The cold box is stocked and tight, and the day has barely started.
 
+### 8:05 AM · Garden at Full Summer
+
+Three days since I last walked the rows with water, and the morning light is already bright over the meadow — no wind yet, dew still pooling in the shadowed north edge of the plot. You can feel the heat beginning to build even in this early hour.
+
+Four trips from the deep run with the cook tin, one for each pair of rows, pouring slow and close to the roots. The garlic fans have spread since the scapes came off — wide, dark green, settled into themselves. Dandelion rosettes are enormous, low and confident. Wood sorrel is busy in the north shadow strip, small leaves turned up to catch what light reaches them there. The nettle rows smell sharp when I brush past them, knee-high now, solid in the ground. Raspberry canes are putting out new laterals. Mint has taken the western rows with conviction — the smell follows me halfway back to the cabin.
+
+I poured the last tin over the eastern strip, the amended ground with garlic and dandelion. It soaked in quickly. I pressed a thumb between the garlic rows — cool a few inches down, which is what you want in this heat. The leaf duff I worked in back in the planting is holding moisture well.
+
+Everything is alive. That is the whole of it, some mornings. Thirty-three days in and there are rows of growing things where there was nothing. I walked back up the slope with the empty tin and thought: the garden is doing its part.
+
