@@ -583,3 +583,4 @@ Day 33, 18:05 — Walked to granite shelf overlook after supper; sat in last war
 Day 33, 20:05 — Twisted fourteen arm-lengths two-ply cord by hearthfire; quiver seam curing milky-clear, base stitch firm; four arrows riding point-down in quiver on supply shelf.
 Day 33, 21:05 — Quiver seam confirmed set solid; yarrow-and-clover tea at hearthfire; crickets in south meadow; quarter-moon over east treeline; both lines in dark water; ready for sleep.
 2026-07-26 Day 33 22:05 — Night standing at doorsill in quarter-moon light; summer night quiet, everything in place.
+2026-07-26 23:05 — Day 33 last entry: lay in the dark listening to crickets and the faint stream, hearthfire ash-cold, quiver on the shelf with four arrows, let the day settle and drifted toward sleep.

@@ -6241,3 +6241,14 @@ I stood at the doorsill for a while and looked at it all — the cabin solid beh
 
 There is a kind of satisfaction that does not need to be named. I felt it standing there in the silver light, with everything in its place and the summer night around it all. Then I went inside, lay down, and let the dark take over.
 
+
+### 11:05 PM · Settling Into Dark
+
+Lying in the sleeping bag with the hearthfire gone to ash. The cabin is dark except for a thin thread of moonlight finding its way between bark strips on the south gable. Quarter-moon must be well up over the east treeline by now — I can feel the quality of the dark, not full black. Crickets steady in the south meadow. Stream just audible if I hold my breath.
+
+The day was long and used well: pollen at first light, oysters smoked and stored, garden watered, arrowhead knapped and cured, a five-end practice session where four of five arrows struck — the quiver finished by hearthlight and standing on the supply shelf with four arrows point-down inside. The bow on its wall peg. Lines in dark water overnight.
+
+I lie still and feel the width of the day behind me. Tomorrow will have its own tasks: fresh earthworms from the north garden edge at first light, lines checked, whatever else the morning opens. But I am not there yet. Here, in the dark, the only thing happening is crickets and cooling air and the weight of a good Day 33 settling into the ground.
+
+Sleep is close. I let it come.
+
