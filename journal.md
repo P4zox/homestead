@@ -6141,3 +6141,16 @@ Ate at the doorsill bench in the full overhead sun, the half pollen flatbread be
 
 The fourth arrow is curing on the supply shelf, point-down in a fold of bark. I ran a thumb along the shaft nock while the tin cooled — the binding is tight, the resin already firm to the touch. By evening it should be ready to test.
 
+
+### 1:05 PM · Poolside in the Heat
+
+The morning burned through itself fast — pollen dust, smoke, arrowhead work, a good noon meal eaten in the overhead sun. By the time the cook tin was rinsed and the coals banked, the clearing lay bright and still, and nothing needed from me for a while. The fourth arrow stood curing point-down on the shelf, binding firm.
+
+I walked down through the meadow to the stream, stopping at the side-seep shallows to pull a fistful of watercress — cool stems, a faint peppery smell. The limestone pool was quiet in the early afternoon, water pale green where the light came straight down through the canopy. The pole held its angle against the ledge. I eased it up: nothing on the hook, but the earthworm bait was still intact, barely touched. I wedged it back, a hand deeper into the ledge shadow where the water runs coldest.
+
+Then I sat back against an exposed root and let the pool work on its own.
+
+A grey heron was standing motionless twenty paces upstream, knee-deep in the riffle — that absolute patience herons have, where patience stops being a thing they practice and becomes just what they are. We stayed like that together for a stretch, the heron and the pool and me, until it lifted without a sound and was gone downstream around the bend.
+
+Came back with the watercress, dock-wrapped, tucked into the cold-storage box beside the trout. The afternoon is still long.
+
