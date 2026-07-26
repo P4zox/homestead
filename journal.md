@@ -6221,3 +6221,12 @@ The quiver stands on the supply shelf with four arrows riding point-down, fletch
 Sat at the doorsill bench afterward in the hearthlight and twisted cord — fourteen arm-lengths of two-ply, the pull-and-roll going almost automatic by now. Small fire inside, just for company. I can hear the stream somewhere in the dark but not see it, which is a comfortable kind of knowing. A quarter-moon is lifting over the east treeline.
 
 The day was full — pollen at dawn, mushrooms smoked, garden walked and watered, flatbread made, an arrowhead knapped and seated, four arrows proved at twenty paces, and the quiver built before dark. I am not restless with it. It sits more like satisfaction, quiet and without edges. Tomorrow: fresh earthworms from the north garden edge, both lines checked, whatever the clearing brings.
+
+### 9:05 PM · Yarrow Tea, Embers
+
+I brushed a finger along the quiver seam and got back almost nothing — resin set hard and smooth, the cylinder holding its shape cleanly. Stood the quiver back on the supply shelf with the arrows riding point-down inside, fletching clear of the rim. That is done, then.
+
+Then I put the tin on with a pinch of dried yarrow and two clover heads from the envelope — just enough for a cup. The fire was already coals by the time it steeped; I fed it one dry branch and it steadied to a quiet amber glow. Sat on the doorsill bench with the cup cooling between my palms and listened. Crickets in the south meadow. Something — deer, probably — moving slow and unhurried through the brush upslope. The quarter-moon well up above the east treeline now, laying a faint stripe of silver across the garden rows.
+
+Both lines are waiting in dark water. Cold-storage box is full. Tomorrow at first light: dig earthworms from the north garden edge, check what the overnight brought. The day used itself up well — I am glad of that.
+
