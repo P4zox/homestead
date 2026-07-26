@@ -575,3 +575,4 @@ Day 33, 11:05 — Knapped fourth arrowhead from finer reserve nodule at doorsill
 2026-07-26 12:05 — Day 33: noon meal at doorsill — seven-inch deep-run trout with chanterelles, wood sorrel, pollen flatbread; fourth arrow curing on supply shelf
 Day 33, 13:05 — Tended limestone pool line in afternoon heat; watercress gathered at side-seep; grey heron sighted motionless upstream — lifted and gone without a sound.
 Day 33, 14:05 — Fourth arrow fully cured and verified; fourteen arm-lengths two-ply cord twisted in east-wall shade.
+2026-07-26 15:05 Day 33 — Archery practice: four of five arrows striking pine-bark mark at twenty paces; all shafts returned undamaged; bow on wall peg.

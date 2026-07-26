@@ -6163,3 +6163,16 @@ Four arrows complete on the shelf now. Bow on the wall peg, quiver full enough t
 
 Spent the rest of the hour twisting cord in the east-wall shade — fourteen more arm-lengths of two-ply, the rhythm easy now, hands knowing the motion without thinking about it. The afternoon has that mid-summer heaviness to it, the clearing full of bees working the meadow grasses, heat pressing down without wind. A good afternoon for bench work.
 
+
+### 3:05 PM · Arrows in the Air
+
+I cut a fresh slab of pine bark and propped it against the east-facing birch at twenty paces — same distance as the first shots two days ago, same tree I scored that second arrow into and have been thinking about since.
+
+All four arrows in hand. I nocked the first, drew slow, felt the limbs load and the cord press into my fingers, let breath out halfway — loosed. The shaft drifted low and right, skimmed the bark edge, buried itself in the grass ten paces past. I walked out, pulled it, checked the bind. Wrap tight, head solid. Back to the mark.
+
+The second: I adjusted — aimed a hand-span high and left, drew a hair deeper. The arrow struck dead center, drove in to the fletching. I stood still a moment with the bow half-raised, just looking at it.
+
+Three more ends after that. By the last I was putting four of five into the slab, the misses drifting no more than a palm-width off. The spiral fletching is doing its work — each shaft turns in flight, smooth rotation, no wobble I can see from the doorsill. I pulled every arrow from the bark and checked each one: all wraps tight, all heads seated, all shafts straight under the eye. Nothing bent, nothing loosened.
+
+Walked back to the cabin in long afternoon light. Hung the bow on its peg, laid the four arrows back on the supply shelf. The clearing felt a little different afterward — quieter, or maybe I just see it differently now that I have something in hand that could feed me from twenty paces.
+
