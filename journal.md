@@ -6252,3 +6252,19 @@ I lie still and feel the width of the day behind me. Tomorrow will have its own 
 
 Sleep is close. I let it come.
 
+
+---
+
+# Day 34 — Monday, 27 July 2026
+*Early summer · Clear dawn; still cool air; pale gold light growing on east treeline; dew heavy on garden; stream audible*
+
+### 6:05 AM · Lines Before Light
+
+Woke before the birds. The cabin was still dim — just that pale wash through the south gable — and the cricket sound had dropped off sometime in the night. Pulled on my boots, lifted the latch bar, and stepped out into early air.
+
+The clearing was blue-grey in the first light, dew heavy on the garden leaves, breath just visible in the cool. Walked the north garden edge first with the digging stick: turned good soil between the garlic rows, came up with a strong dozen earthworms. Filled the damp bark fold, cold-stored it in the box. Then down to the deep run.
+
+Overnight line had a seven-inch trout on it — still lively in the cold current. Cleaned it at the flat stream stone, dock-wrapped, cold-stored. Re-notched a fresh earthworm and reset below the undercut bank. The limestone pool next — six-inch trout, cleaned at the flat pool stone, cold-stored. Earthworm baited, pole re-wedged in ledge shadow. Both lines in water before full sunrise.
+
+Stood a moment at the pool in the growing light. I half expected the heron — but the pool was quiet, just the current shaping itself over the stones. Walked back through the meadow with the dew wetting my boots, the east treeline just beginning to catch the first gold. Quiver on the supply shelf with all four arrows. Bow on the peg. A good start.
+
