@@ -572,3 +572,4 @@ Day 33 (2026-07-26 Sun) — 06:05 — Cattail pollen harvested from south stream
 Day 33, 09:05 — Pulled oyster caps from smoke rack (amber-tan, firm); cold-stored in box beside trout and pollen.
 Day 33, 2026-07-26, 10:05 — Baked first pollen flatbread on hearthstone from cattail pollen; half eaten at doorsill in mid-morning sun, half on supply shelf.
 Day 33, 11:05 — Knapped fourth arrowhead from finer reserve nodule at doorsill bench; seated on next best fletched shaft with warm pine resin and fine two-ply cord spiral bind; four complete arrows on supply shelf, four fletched shafts remaining, one reserve nodule left.
+2026-07-26 12:05 — Day 33: noon meal at doorsill — seven-inch deep-run trout with chanterelles, wood sorrel, pollen flatbread; fourth arrow curing on supply shelf

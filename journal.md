@@ -6130,3 +6130,14 @@ The finished point: three inches, clean shouldered base, both faces beveled and 
 
 Four complete arrows now. One nodule left in reserve. The quiver is not full, but it is becoming real.
 
+
+### 12:05 PM · Trout at Noon
+
+The sun has climbed straight overhead and the shadows pulled in to nothing. There is a stillness to this hour that does not exist anywhere else in the day — the forest quiet, the clearing held, even the stream sound feels lower and far off.
+
+I built up the coals with a few birch splits and set the cook tin to heat, then pulled the seven-inch deep-run trout from cold storage and a pair of dried chanterelle caps from the shelf. Cut a fistful of wood sorrel from the garden — row five is thick with it, the clover-shaped leaves pressing against my fingers as I pinched the stems. Trout in, sorrel over, caps softening in the steam that curled out from under the tin lid. The smell reached me before I got back to the door.
+
+Ate at the doorsill bench in the full overhead sun, the half pollen flatbread beside the tin. The trout was clean and sweet. The chanterelles added depth to the broth at the bottom. The flatbread crumbled into the last of the liquid.
+
+The fourth arrow is curing on the supply shelf, point-down in a fold of bark. I ran a thumb along the shaft nock while the tin cooled — the binding is tight, the resin already firm to the touch. By evening it should be ready to test.
+
