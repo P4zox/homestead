@@ -577,3 +577,4 @@ Day 33, 13:05 — Tended limestone pool line in afternoon heat; watercress gathe
 Day 33, 14:05 — Fourth arrow fully cured and verified; fourteen arm-lengths two-ply cord twisted in east-wall shade.
 2026-07-26 15:05 Day 33 — Archery practice: four of five arrows striking pine-bark mark at twenty paces; all shafts returned undamaged; bow on wall peg.
 Day 33, 16:05 — Limestone pool: seven-inch trout caught, cold-stored; watercress gathered at side-seep; earthworm bait fold running low.
+Day 33, 2026-07-26, 17:05 — Amber Supper: six-inch trout with dried oyster caps and watercress, eaten at doorsill bench in amber evening light; swallows cutting passes over the clearing; lines in overnight.

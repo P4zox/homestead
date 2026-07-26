@@ -6184,3 +6184,12 @@ The day's heat had started to ease when I walked down to the limestone pool. The
 Re-baited the hook with an earthworm from the bark fold — the fold is getting light now, maybe a dozen worms left. I'll turn more tomorrow morning from the north garden edge. Wedged the pole back under the far ledge shadow and walked up through the alder scrub in the long afternoon light.
 
 Stopped at the side-seep on the way and pulled a fistful of watercress, cold and wet against the palm. A dragonfly held motionless over the still margin of the pool a long while before I left. Both lines in water for the evening now. The cold-storage box is well-stocked: two dock-wrapped trout, watercress, smoke-dried oysters, blueberries. Supper soon.
+
+### 5:05 PM · Amber Supper
+
+The cook tin went on the hearthstones with the six-inch trout from this morning, two dried oyster caps crumbled in, and the fistful of watercress I pulled from the side-seep at four. While it heated I went out to stand in the clearing and listen — both fishing lines wedged and still, the stream unhurried, the meadow going quiet in the way it does when the heat lifts and the light shifts direction.
+
+Ate at the doorsill bench. The oyster caps softened and turned rich in the broth; the watercress stayed bright and clean; the trout flaked in a single lift off the bone. A pair of swallows made repeated passes low across the clearing while I sat there — fast banking arcs, then a wide loop into the pine edge and back, then gone for good into the trees. The air is still warm but has that evening coolness coming up from the ground now.
+
+The seven-inch trout and the remaining mushrooms can wait overnight in the cold-storage box. The earthworm fold is nearly spent — I'll turn fresh ones from the north garden edge at first light before either line comes up. Tomorrow: worms first, then the lines, then see what the day brings.
+
