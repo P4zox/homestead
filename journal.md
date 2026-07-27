@@ -6428,3 +6428,12 @@ Added a handful of chips to each end of the fire bed, spread them even, teased t
 
 Came back inside, quiet. Hearth coals banked. The doe on the rack will be there at dawn, and the meat will keep us far into the coming weeks. That sits warm. Sleep now.
 
+
+### 10:05 PM · One More Check
+
+Got up from the doorsill doze and went out through the dark meadow — bare feet on cool grass, stars thick overhead. The smoke rack was holding: column thin but steady, chips still smoldering from the last add. Backstraps have gone deep brown-black along their tops, edges curling down into themselves; they are close. Hindquarters still firm-fleshy at the deepest joint, but pressing from outside shows real progress — another few hours and they will hold.
+
+Spread a careful layer of green birch chips even under both sections — not too thick, just enough to keep the smolder alive until first light. Scorpius a little lower in the south now. The meadow holding its breath at this hour, nothing moving but the stream far off and the soft tick of the fire bed.
+
+Back inside. Tomorrow: liver and heart for breakfast, assess the rack at dawn, begin the hide. The deer still sits somewhere in my chest — a good weight, the kind you carry easy.
+
