@@ -6305,3 +6305,12 @@ Half a dozen new pins on the log face — pale ivory, each about thumbnail-sized
 
 The mornings are very still here now in midsummer. Everything moving, but slowly enough that you can watch it.
 
+
+### 11:05 AM · Stone Work at the Bench
+
+Brought the reserve chert nodule out to the doorsill bench — the small piece with the natural right-angle break, sitting on the supply shelf since Day 32. Morning light showed it clearly: pale grey, smooth cortex on one face, a clean knap-edge where the fracture had left it open. I set the flat cobble anvil beside me and worked through platform preparation, angling my pressure flaker to thin both faces in long, flat passes.
+
+The stone shed in larger flakes than I expected. Lost a corner early, dressed a new platform at a shallower approach, and came back. Slower. Slower is fine. By the time the sun moved past the east treeline into open sky, I had a finished head — three inches, shouldered base, tip sharp enough to cut cord cleanly. Not as clean as the fourth, but balanced and true in the hand.
+
+Seated it on the next best shaft with warm pine resin from the bark fold, bound the base with ten wraps of fine two-ply cord, set it on the hearthstone by the low coals to cure. Five complete arrows when it holds. The quiver will ride heavier going forward. I am glad of that weight.
+
