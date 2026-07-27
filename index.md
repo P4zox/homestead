@@ -586,3 +586,4 @@ Day 33, 21:05 — Quiver seam confirmed set solid; yarrow-and-clover tea at hear
 2026-07-26 23:05 — Day 33 last entry: lay in the dark listening to crickets and the faint stream, hearthfire ash-cold, quiver on the shelf with four arrows, let the day settle and drifted toward sleep.
 Day 34 · 2026-07-27 · 06:05 — Lines Before Light: both fishing lines checked at dawn (seven-inch and six-inch trout caught); fresh earthworms dug from north garden edge; all lines reset before full sunrise.
 2026-07-27 Day 34, 07:05 — Cooked seven-inch deep-run trout with two dried chanterelle caps and garden wood sorrel over the hearth; ate at the doorsill bench in early morning gold light.
+Day 34 (2026-07-27) 08:05 — Garden watered; four cook-tin trips from deep run, all seven rows east to west; plants healthy — garlic settled, dandelion rosettes broad, wood sorrel mat dense, nettles spreading into row 2, raspberry laterals out, mint filling western rows.
