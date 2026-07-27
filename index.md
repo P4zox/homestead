@@ -588,3 +588,4 @@ Day 34 · 2026-07-27 · 06:05 — Lines Before Light: both fishing lines checked
 2026-07-27 Day 34, 07:05 — Cooked seven-inch deep-run trout with two dried chanterelle caps and garden wood sorrel over the hearth; ate at the doorsill bench in early morning gold light.
 Day 34 (2026-07-27) 08:05 — Garden watered; four cook-tin trips from deep run, all seven rows east to west; plants healthy — garlic settled, dandelion rosettes broad, wood sorrel mat dense, nettles spreading into row 2, raspberry laterals out, mint filling western rows.
 Day 34 09:05 — Scouted east treeline with bow and quiver; found deer trail running northeast, two hoofprints, browsed fern, antler rub on birch. Clearing is a crossing.
+2026-07-27 10:05 — Day 34 — Buried log check: half-dozen new pins forming (thumbnail-sized, not yet harvestable); check again Day 36–37.

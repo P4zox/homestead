@@ -6297,3 +6297,11 @@ Walking back along the north edge I found two more signs: a patch of waist-high 
 
 I hung the bow back on the wall peg and stood in the doorway for a moment, looking out at the clearing. It is not only a garden and a stream. It is a crossing.
 
+### 10:05 AM · New Pins
+
+Went out to the buried log twenty paces north, flat stone still in place from the last check. Morning quiet — only the stream and something small moving in the fern patch at the clearing edge. Lifted the cover carefully.
+
+Half a dozen new pins on the log face — pale ivory, each about thumbnail-sized, with the fine white fuzz at the base that tells me they are just starting. Not ready yet. Two more days, maybe three. I laid the bark lid back and re-weighted the flat stone, feeling the particular satisfaction of a thing coming around again on its own schedule.
+
+The mornings are very still here now in midsummer. Everything moving, but slowly enough that you can watch it.
+
