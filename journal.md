@@ -6446,3 +6446,17 @@ Stood in the smoke for a breath. The clearing was all silver and black — strea
 
 Back inside. Sleep.
 
+
+---
+
+# Day 35 — Tuesday, 28 July 2026
+*Early summer · First light; dew on meadow; cook-fire smoke mixing with green birch smoke from the rack; stream audible; east treeline brightening*
+
+### 6:05 AM · First Meal from the Doe
+
+Woke to smoke smell — good smoke, steady, the green birch carried through the night. First thing out the door in the grey before sunrise: smoke rack. Hindquarters still on the bars, smolder low but alive. Surface deep brown-black, edges curing; I pressed a finger into the thick joint section near the femur — still cool at center. Not through yet. Added three double handfuls of green chips spread even under both sections, teased the smolder up. Column rising again when I stepped away.
+
+Fishing lines next. Deep-run gave a seven-inch trout — cleaned at the flat stream stone, dock-wrapped, cold-stored; line re-notched with fresh earthworm from the fold, reset below the undercut bank. Limestone pool line was bare overnight; re-baited with a fresh earthworm, pole re-wedged deep under the ledge shadow. Both lines back in water before the light was full.
+
+Back inside, I unwrapped the liver from its dock-leaves. Cut it into two-finger slices and laid them in the cook tin over low hearthcoals — soft sizzle, dark and rich. Heart quartered the same way, nested alongside. Ate at the doorsill bench in the first full light, cold trout from the deep-run beside them. The liver is dense and savory, the heart clean and lean, both tasting of the deer and the forest and something I can only call real. The meadow silver with dew. Smoke rising steady south. The land is the same as every morning. I am the same. But first deer changes something quietly, and I let it.
+
