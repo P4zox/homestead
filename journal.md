@@ -6327,3 +6327,12 @@ A kingfisher came through: the same blue-orange blur I have seen before, low and
 
 The bow and full quiver hang together on the wall peg. The evening watch at the deer trail is still ahead. For now, everything is where it needs to be.
 
+
+### 1:05 PM · A Seat at the Treeline
+
+The midday heat has peaked and begun to soften. I walked to the east treeline with nothing in hand — no axe, no bucket, just my eyes and a little time to spare before the lines need checking again. The deer trail I found this morning runs northeast along the edge where the clearing grass thins against the first birch roots. I followed it twenty paces in, moving slowly, watching the ground. The track stays in the shade. There is a big birch leaning slightly south at the trail's natural bend — its exposed roots form a kind of low seat, and the trunk is thick enough that my silhouette will disappear against it.
+
+I spent the better part of the hour clearing the ground around that seat. Dry sticks broken and moved aside so there would be no sound underfoot. Bent grass re-smoothed so nothing looked disturbed. Then I sat down with my back against the bark and went still for a while, testing the view: I can see twenty or thirty paces into the clearing through the outer fringe of ferns, with the meadow and the shadow of the smoke rack just visible beyond. Anything coming from the northeast would pass through the gap between the two largest birches, and from where I sit, that gap frames open sky.
+
+I will come back here at dusk with the bow. The spot is already mine. I just have to be quiet when I arrive.
+
