@@ -6336,3 +6336,13 @@ I spent the better part of the hour clearing the ground around that seat. Dry st
 
 I will come back here at dusk with the bow. The spot is already mine. I just have to be quiet when I arrive.
 
+
+### 2:00 PM · Greens for Evening
+
+The afternoon has gone soft and golden, the kind of heat that flattens sound and holds still. I packed nothing but the cook tin and walked down to the side-seep below the deep run — fifty paces through meadow grass already drying at the tips, seed heads brushing my hands as I passed.
+
+The seep is reliably cool even now. Watercress crowding the outflow, dark green and thick-stemmed, some of it spilling down onto the wet stone below. I pulled a good fistful — more than a handful — rinsed it in the current running just beside, then stood a moment with my feet in the shallows and my eyes on the middle of the stream. Upstream the water bends and disappears under alder shadow; downstream it opens again into the flat run below the meadow. No heron today. A small brown bird darting low along the far bank, too quick to hold in view.
+
+On the way back I swung wide through the east side of the garden and pinched a double handful of wood sorrel from the north edge of row 5 — the clumps have filled in well, and the leaves are bright and lemony in the afternoon light. Deer have not touched the garden border. Everything looks watered and well.
+
+The watercress and sorrel are dock-wrapped and sitting in the cold-storage box now, cool and still. Tonight I'll cook the smaller trout with the greens — quick meal, then bow in hand and out to the treeline before light falls. The watching spot is ready. I feel the quiet focus that comes before something might happen, or might not, and either way the evening is worth being in.

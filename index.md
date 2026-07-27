@@ -592,3 +592,4 @@ Day 34 09:05 — Scouted east treeline with bow and quiver; found deer trail run
 Day 34, 11:05 — Knapped fifth arrowhead from reserve chert nodule at doorsill bench; seated on shaft with warm pine resin and ten-wrap fine cord, curing on hearthstone.
 Day 34, 12:05 — Fifth arrowhead set firm by noon; joined quiver — five complete arrows all riding point-down, fletchings clear. Limestone pool line checked at noon (bait holding, no catch; re-wedged). Evening deer-trail watch ahead.
 2026-07-27 13:05 — Day 34 — Prepared a watching seat at the east treeline deer trail; cleared approach, tested sightlines; dusk hunt planned.
+2026-07-27 14:00 Day 34 — Gathered watercress at side-seep and wood sorrel from garden for tonight's supper; cool stream; deer-watch at dusk still planned.
