@@ -6407,3 +6407,16 @@ First deer. I keep turning it over — the thirty days of practice, the stillnes
 
 Tonight the smoke is rising and the rack is holding and the food is secured. That is enough.
 
+
+### 8:05 PM · Last Fuel, First Deer
+
+Went out once more to the smoke rack at full dark. The birch smolder had dropped to a thin thread — I opened the bundle and added three more double handfuls of green chips, spreading them even under the meat. The backstraps have taken on amber color across their length; the hindquarters are still rosy near the bone but firm-edged and dry at the surface. Smell: woodsmoke and something deeper, the thick iron scent of the venison itself. Going to be good.
+
+I stood there a while in the smoke, just watching the column rise and bend south in the night air. The stars had multiplied overhead while I was inside — Scorpius fully visible now, low in the south. First deer. I keep coming back to that.
+
+This morning I found the trail. This afternoon I prepared the spot. At dusk the doe appeared, broadside, twenty paces. I've been building toward this moment since Day 1 without knowing exactly what I was building toward — the shelter for a base, the food for fuel, the bow for this. It came together the way things do when you've been patient: not all at once, but suddenly.
+
+Added one more handful of chips to keep the smolder through dawn. Rack is holding steady; I'll check again at first light.
+
+Came inside and banked the hearth. Quiver and bow on the wall peg; kitchen tools clean; smoke rack burning behind the closed door. Everything in its place.
+

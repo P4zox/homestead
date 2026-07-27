@@ -598,3 +598,4 @@ Day 34, 12:05 — Fifth arrowhead set firm by noon; joined quiver — five compl
 2026-07-27 Day 34, 17:05 — First deer: doe taken at east treeline deer trail with bow at dusk; field-dressing begun.
 2026-07-27 18:05 — Day 34: Doe quartered at east treeline and hauled to shelter (four trips, full dark); smoke rack loaded with backstraps and hindquarters over green birch; liver and heart cold-stored for morning.
 Day 34, 19:05 — Tended smoke rack at dusk; deer meat over steady green birch smolder; yarrow tea at doorsill bench; first stars east; smoke column even and rising.
+2026-07-27 Day 34 20:05 — Last smoke rack check at full dark; green birch chips added; backstraps amber, hindquarters firming; Scorpius overhead; settled inside for the night.
