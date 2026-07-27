@@ -6420,3 +6420,11 @@ Added one more handful of chips to keep the smolder through dawn. Rack is holdin
 
 Came inside and banked the hearth. Quiver and bow on the wall peg; kitchen tools clean; smoke rack burning behind the closed door. Everything in its place.
 
+### 9:05 PM · Night Smolder Check
+
+Went out barefoot through the dark to check the smoke rack once more before sleep truly takes. Scorpius still low and bright in the south, stars thick overhead. The smolder had dropped to a dull orange glow at the center — chips nearly spent. Backstraps have gone from amber to a deeper brown, pulling tight along their length. The hindquarters are firming: edges darker, juice weeping only at the thickest joint now, less rosy than an hour before. Good work through the night.
+
+Added a handful of chips to each end of the fire bed, spread them even, teased the coals open. The column steadied and thickened again, rising south across the meadow in a straight line. Stood there long enough to be sure — stream audible below, no sound from the trees, the whole clearing silver and still. Everything holding.
+
+Came back inside, quiet. Hearth coals banked. The doe on the rack will be there at dawn, and the meat will keep us far into the coming weeks. That sits warm. Sleep now.
+
