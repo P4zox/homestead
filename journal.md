@@ -6396,3 +6396,14 @@ The smoke rack is loaded now: both backstraps across the top bars, the hindquart
 
 Sat on the doorsill bench when it was done, tea in hand, smoke rising through the dark. First deer. It felt like it should: heavier than a fish, quieter than I expected. The meadow silver out there. The smoke drifting.
 
+
+### 7:05 PM · Smoke Rising Steady
+
+The fire under the smoke rack is what it needs to be — low and steady, not burning but not cooling either. I added a double handful of green birch chips and watched the column straighten and thin. The backstraps lie across the top bars, the hindquarters hang lower. Even in the near-dark you can see the color at the meat edges beginning to shift — bright red going deeper, amber where the smoke touches longest.
+
+I sat at the doorsill with the last of the yarrow tea and let the evening settle. The smoke moved through the meadow in a long slow drift southward. Stream loud in the quiet. First stars over the east ridge.
+
+First deer. I keep turning it over — the thirty days of practice, the stillness at the watching spot, the doe stepping from the treeline, the arrow loosed without thinking. Tonight it worked, once, exactly. The meat will carry me through the coming weeks. The hide is rolled at the east wall, stiff and needing attention in the days ahead. There is a lot still to learn — tanning, careful processing — but that is tomorrows work.
+
+Tonight the smoke is rising and the rack is holding and the food is secured. That is enough.
+
