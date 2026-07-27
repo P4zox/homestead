@@ -590,3 +590,4 @@ Day 34 (2026-07-27) 08:05 — Garden watered; four cook-tin trips from deep run,
 Day 34 09:05 — Scouted east treeline with bow and quiver; found deer trail running northeast, two hoofprints, browsed fern, antler rub on birch. Clearing is a crossing.
 2026-07-27 10:05 — Day 34 — Buried log check: half-dozen new pins forming (thumbnail-sized, not yet harvestable); check again Day 36–37.
 Day 34, 11:05 — Knapped fifth arrowhead from reserve chert nodule at doorsill bench; seated on shaft with warm pine resin and ten-wrap fine cord, curing on hearthstone.
+Day 34, 12:05 — Fifth arrowhead set firm by noon; joined quiver — five complete arrows all riding point-down, fletchings clear. Limestone pool line checked at noon (bait holding, no catch; re-wedged). Evening deer-trail watch ahead.

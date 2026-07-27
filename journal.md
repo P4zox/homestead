@@ -6314,3 +6314,16 @@ The stone shed in larger flakes than I expected. Lost a corner early, dressed a 
 
 Seated it on the next best shaft with warm pine resin from the bark fold, bound the base with ten wraps of fine two-ply cord, set it on the hearthstone by the low coals to cure. Five complete arrows when it holds. The quiver will ride heavier going forward. I am glad of that weight.
 
+
+### 12:05 PM · Quiver Full, Pool Still
+
+The arrowhead had been resting on the hearthstone since just before noon. I pressed a thumbnail against the cord wrapping — firm, no creak, no movement. I eased the shaft upright, flexed it once, and the point held true. Satisfied, I lifted it away from the warmth and slid it into the quiver with the others: five arrows now, all riding point-down in the birch-bark cylinder, fletchings clear of the rim. I hung the quiver beside the bow on the wall peg and stood back to look at them together for a moment.
+
+Then I took the cook tin and walked down to the limestone pool.
+
+The path through the meadow was warm underfoot, grasses brushing my legs, no wind, shadows running short and straight. At the pool the water was green-clear in the overhead light, and the pole was still wedged under the far ledge shadow, line taut. Bait holding. I pressed the pole a little deeper into the shadow and sat down on the flat pool stone with three dried oyster caps and a handful of cold blueberries. The pool had that noon-quiet to it — still, bright, unhurried.
+
+A kingfisher came through: the same blue-orange blur I have seen before, low and straight upstream and gone before I could track it. A water strider made slow arcs in the far shallows. No catch by the time the shadows began to lengthen again. I left the line in the water and walked back through the meadow to the shelter.
+
+The bow and full quiver hang together on the wall peg. The evening watch at the deer trail is still ahead. For now, everything is where it needs to be.
+
