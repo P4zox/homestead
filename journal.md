@@ -6437,3 +6437,12 @@ Spread a careful layer of green birch chips even under both sections — not too
 
 Back inside. Tomorrow: liver and heart for breakfast, assess the rack at dawn, begin the hide. The deer still sits somewhere in my chest — a good weight, the kind you carry easy.
 
+
+### 11:06 PM · Backstraps Off
+
+Went out one last time. The backstraps were done — deep brown-black their whole length, edges curled and dry, the surface nearly lacquered. Pulled them from the top bars, let them rest a moment on the cold-storage lid in the night air, then set them inside beside the liver and heart. The hindquarters are still going — firming at depth, rosy only near the deep bone. Spread a careful layer of green birch chips across the coals; smolder caught again and steadied, column thin and even.
+
+Stood in the smoke for a breath. The clearing was all silver and black — stream running, stars overhead, Scorpius dropping toward the pines in the south. This is what a good day sounds like at the end of it: fire banking slow, meat curing through the dark, everything where it should be. First deer. I will not forget the weight of it.
+
+Back inside. Sleep.
+

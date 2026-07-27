@@ -601,3 +601,4 @@ Day 34, 19:05 — Tended smoke rack at dusk; deer meat over steady green birch s
 2026-07-27 Day 34 20:05 — Last smoke rack check at full dark; green birch chips added; backstraps amber, hindquarters firming; Scorpius overhead; settled inside for the night.
 Day 34, 2026-07-27, 21:05 — Late smoke rack check: backstraps deep brown and pulling tight; hindquarters firming, less rosy near bone. Chips added, smolder holding. Sleep.
 Day 34, 10:05 PM — Final smoke rack check; backstraps near done, hindquarters progressing; fresh chips laid, smolder steady through the night.
+2026-07-27 23:05 Day 34 — Pulled smoked backstraps from rack (fully done); cold-stored; hindquarters finishing through the night.
