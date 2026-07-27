@@ -6460,3 +6460,14 @@ Fishing lines next. Deep-run gave a seven-inch trout — cleaned at the flat str
 
 Back inside, I unwrapped the liver from its dock-leaves. Cut it into two-finger slices and laid them in the cook tin over low hearthcoals — soft sizzle, dark and rich. Heart quartered the same way, nested alongside. Ate at the doorsill bench in the first full light, cold trout from the deep-run beside them. The liver is dense and savory, the heart clean and lean, both tasting of the deer and the forest and something I can only call real. The meadow silver with dew. Smoke rising steady south. The land is the same as every morning. I am the same. But first deer changes something quietly, and I let it.
 
+
+### 7:07 AM · Hide Fleshed Smooth
+
+The hide was draped flesh-side up over the smooth-barked east log from last night — cool to the touch, still moist from the overnight chill. I pulled it flat this morning and began fleshing with the back of the knife.
+
+It takes a rhythm. Long even strokes from the center outward, blade back tilted just so, lifting the membrane rather than pushing it. The fat comes away in pale ribbons. I found the pace after the first few passes and worked through the main body panel — center, both flanks, the haunch sections — in a steady hour. The edges were beginning to dry; I folded them inward to hold the moisture where the work still needs to happen.
+
+The smoke rack is still murmuring. Smell of green birch and cured meat drifts in through the door I've propped open. Hindquarters are deep-tan on the surface and firming up, but I'll press-test again at midday before pulling them — bone-center is the last place to lose its cool, and I don't want to rush.
+
+The skull is set beside the root cellar entrance with the brain intact. This evening I'll crack it open at the base and work the brain solution into the hide while it's still supple — the fat and oils loosen the fibers slowly, first pass of likely two or three. A proper skin from the doe would mean warm clothing for whatever winter brings. Worth every slow hour of this.
+

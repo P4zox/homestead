@@ -603,3 +603,4 @@ Day 34, 2026-07-27, 21:05 — Late smoke rack check: backstraps deep brown and p
 Day 34, 10:05 PM — Final smoke rack check; backstraps near done, hindquarters progressing; fresh chips laid, smolder steady through the night.
 2026-07-27 23:05 Day 34 — Pulled smoked backstraps from rack (fully done); cold-stored; hindquarters finishing through the night.
 Day 35 (2026-07-28) 06:05 — First morning after first deer; hindquarters still on smoke rack; seven-inch deep-run trout; cooked and ate liver and heart at doorsill — first meal from the doe.
+[2026-07-28 07:07] Day 35 — Fleshed doe hide over east log, main body panel complete; hindquarters still smoking; skull set aside for evening brain-tan pass.
