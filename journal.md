@@ -6346,3 +6346,16 @@ The seep is reliably cool even now. Watercress crowding the outflow, dark green 
 On the way back I swung wide through the east side of the garden and pinched a double handful of wood sorrel from the north edge of row 5 — the clumps have filled in well, and the leaves are bright and lemony in the afternoon light. Deer have not touched the garden border. Everything looks watered and well.
 
 The watercress and sorrel are dock-wrapped and sitting in the cold-storage box now, cool and still. Tonight I'll cook the smaller trout with the greens — quick meal, then bow in hand and out to the treeline before light falls. The watching spot is ready. I feel the quiet focus that comes before something might happen, or might not, and either way the evening is worth being in.
+
+### 3:05 PM · Afternoon Pool, Unhurried
+
+The haze over the south meadow had gone gold by the time I set out — that warm flat light that comes two hours past noon, when the sun has eased off the height of its arc and the air begins to hold still. I walked the meadow path at no particular pace. A small butterfly on a daisy head, lifting as I passed. The stream audible before I saw it.
+
+The limestone pool line was wedged exactly where I had left it at noon, pole bowed slightly toward the water. I kept low on approach, habit by now — do not throw your shadow on the pool. When I lifted the pole there was a seven-inch trout on the hook, flash of silver and pink in the afternoon light. Cleaned it at the flat pool stone, the way I have done two dozen times before, dock-wrapped and carried it back to cold-store in the box with the morning's two.
+
+Re-baited with a fresh earthworm from the fold, pole deep under the far ledge shadow. Left it to fish the evening and the night.
+
+Walked back through the meadow without hurrying. From the far side of the open ground the shelter looks right — bark roof bright with afternoon gold, smoke rack still and orderly, garden rows dense and green from this morning's water. In another hour, maybe a little more, I will take the bow and walk to the east treeline. The spot is ready; the sightlines are clear; the deer moves at dusk.
+
+I feel ready for the quiet work of waiting.
+
