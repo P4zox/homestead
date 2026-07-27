@@ -6359,3 +6359,12 @@ Walked back through the meadow without hurrying. From the far side of the open g
 
 I feel ready for the quiet work of waiting.
 
+
+### 4:05 PM · Coals Before Dusk
+
+I pulled one of the seven-inch trout from the cold-storage box and set it to cook over the hearth coals with the fistful of watercress and a pinch of wood sorrel from row 5. The fire was still low and even from this morning's breakfast — just enough to bring the tin to a slow simmer. While it cooked I cleaned the doorsill bench, ran a thumb over the fifth arrowhead's binding to confirm no movement, and stood in the doorway watching the meadow go amber under the declining sun.
+
+Ate sitting on the bench in the long evening light. The trout was clean and firm, the watercress bright and a little bitter against it, the wood sorrel cutting through both. Two trout remain cold-stored. The pollen vessel and the dried mushrooms are in good order.
+
+The watching spot at the treeline is ready — dry sticks cleared, sightlines open to the meadow gap. I'll take the bow and quiver when the light goes copper. Dusk in this season comes easy; it doesn't announce itself until you're already in it.
+
