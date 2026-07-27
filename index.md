@@ -595,3 +595,4 @@ Day 34, 12:05 — Fifth arrowhead set firm by noon; joined quiver — five compl
 2026-07-27 14:00 Day 34 — Gathered watercress at side-seep and wood sorrel from garden for tonight's supper; cool stream; deer-watch at dusk still planned.
 2026-07-27 Day 34 15:05 — Limestone pool gave seven-inch trout at midafternoon; cleaned, cold-stored; three trout in box; dusk deer-watch with bow still planned.
 2026-07-27 Day 34 16:05 — Cooked and ate supper (seven-inch trout, watercress, wood sorrel) at doorsill bench in evening gold light; two trout remain cold-stored; bow and quiver ready for dusk deer-trail watch at east treeline.
+2026-07-27 Day 34, 17:05 — First deer: doe taken at east treeline deer trail with bow at dusk; field-dressing begun.

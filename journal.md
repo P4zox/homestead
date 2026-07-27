@@ -6368,3 +6368,20 @@ Ate sitting on the bench in the long evening light. The trout was clean and firm
 
 The watching spot at the treeline is ready — dry sticks cleared, sightlines open to the meadow gap. I'll take the bow and quiver when the light goes copper. Dusk in this season comes easy; it doesn't announce itself until you're already in it.
 
+
+### 5:05 PM · Doe at the Trail's Bend
+
+I headed out at low sun with just the bow and quiver — the approach already cleared this morning, no dry sticks to snap underfoot. The watching birch was right where I'd left it. I folded into the root-seat, settled, went still.
+
+The meadow went amber, then deeper gold. The wind was down to almost nothing. A thrush called twice upstream and then quit. Minutes passed. The birch stems caught the last lateral light in thin lines.
+
+She came from the northeast, just as the trail said she would — a doe, young, stepping careful through the fern gap. She stopped at the antler-rubbed birch and raised her nose to the air. I was already at full draw, bow arm firm, weight settled back into the roots. She turned broadside.
+
+I loosed.
+
+The arrow struck clean behind the shoulder. She bolted twenty paces and went down in the fern. I stayed at the root-seat for a slow count of fifty, listening. Then walked forward with knife in hand.
+
+It was a good death — quick, and I think without much fear. I knelt there a moment before starting the work. No particular words, just acknowledgment: this matters, and I know it.
+
+Field-dressing in the last of the light now. The haul back to shelter will be heavy. But the cold-storage box will hold what it can, the smoke rack will do the rest. This is the first deer. It changes what winter looks like.
+
