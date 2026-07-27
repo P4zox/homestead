@@ -6385,3 +6385,14 @@ It was a good death — quick, and I think without much fear. I knelt there a mo
 
 Field-dressing in the last of the light now. The haul back to shelter will be heavy. But the cold-storage box will hold what it can, the smoke rack will do the rest. This is the first deer. It changes what winter looks like.
 
+
+### 6:05 PM · Deer Hauled Home
+
+The doe was still in the fern where she had gone down, twenty paces from the trail bend, dark flanks just visible in the last of the light. I knelt and worked quietly — liver out first, then heart, set on dock leaves to keep them clean. The gut cavity opened without trouble.
+
+By the time the body was emptied it was nearly dark. I quartered her at the treeline, axe for the joints and knife for the seam-work, and hauled her back across the meadow in stages. Four trips. Arms aching by the last carry.
+
+The smoke rack is loaded now: both backstraps across the top bars, the hindquarters lower, forequarters set aside for tomorrow. Green birch smoldering underneath. The liver and heart are cold-stored on dock leaves — I want them cooked fresh at first light, not dried to leather.
+
+Sat on the doorsill bench when it was done, tea in hand, smoke rising through the dark. First deer. It felt like it should: heavier than a fish, quieter than I expected. The meadow silver out there. The smoke drifting.
+
