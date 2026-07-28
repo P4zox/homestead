@@ -6541,3 +6541,16 @@ One doe. If I do this right, I get a hide that lasts years. It's worth being car
 
 The smoke column rises. The afternoon holds still.
 
+
+### 2:05 PM · Smoke Done
+
+The hindquarters have been on the rack since just before dark last night — nearly twenty hours of green birch smolder. When I pressed the thigh at noon there was still a hair of give deep inside; now at mid-afternoon I walk out and press again with two thumbs at the heaviest point. Solid. Firm and dry all the way through.
+
+I lift the first hindquarter off the crossbar — heavier than I expect, dense and stiff, the outer crust papery and crackling slightly. Deep mahogany, almost black, pulling tight at every seam. The smell is woodsmoke and something deeper underneath, almost sweet. I set them both on the supply shelf to cool, then spread the coals and let the smolder die.
+
+The rack is quiet now. Backstraps came off last night; hindquarters today. That is the whole doe accounted for: liver and heart eaten this morning, backstraps cured on the shelf, hindquarters beside them now. One deer, portioned into many meals.
+
+I stand in the afternoon sun a moment. There is more food in that cold-storage box than I have had at any point since coming here — smoked oysters, blueberries, pollen, fresh trout, and now most of a deer worth of smoke-cured meat. The weight of that sits differently. Some lightness I had not known I was carrying lifts a little.
+
+Brain-tan at dusk. The hide is still on the east rail, firming up.
+
