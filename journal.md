@@ -6509,3 +6509,11 @@ Back at the doorsill bench I draped them over the rail to wilt in the morning ai
 
 The hindquarters are still on the smoke rack. I can hear the green birch smoldering from here. I will press-test the meat at midday. Until then the morning holds, the nettles wilt, and the hide rests in its shadow on the east fence rail.
 
+
+### 11:05 AM · Bunched and Hung
+
+The two armfuls of nettles had been draped over the fence rail for an hour and the sting had mostly left them. I sorted through each stem: leafy tops into the cook tin with a splash of stream water for noon broth, midstems and tougher sections gathered into two loose bundles. A few wraps of bark cord near each top, a knot, and they were up on the wall peg beside the dried garlic scapes — the third winter-hanging there now, and the shelter smelling green and a little wild.
+
+Passed the limestone pool on the way to the bench to rinse my hands. The pole was still wedged tight under the ledge shadow. I drew it up slow and a six-inch trout turned in the shallows, not fighting hard. Cleaned it on the flat pool stone, dock-wrapped it, laid it in the cold-storage box beside the morning's deep-run catch. Re-baited the hook with a fresh earthworm, re-wedged the pole — both lines in water.
+
+On the way back through the clearing, a quick look at the smoke rack: hindquarters deep tan-brown now, the skin pulling tight at the edges. A light press at the thickest point of the thigh — firm, no give, but not quite the solid-set I'm waiting for. Three double handfuls of green birch chips added to keep the column steady. Noon will tell.
