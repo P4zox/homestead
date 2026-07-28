@@ -6627,3 +6627,11 @@ Forty days is not long to have made all this from a tent and an axe. But tonight
 
 I will bank the coals and sleep.
 
+### 10:07 PM · Last Look at the Night
+
+The coals are banked, the lines set in water, and all four doe quarters sit cured on the supply shelf. I stepped outside one last time — no task attached, just restlessness — and stood at the doorsill looking up. The stars tonight are extraordinary: dense and close-seeming, the Milky Way a proper smear of light above the clearing, brighter than I have seen it since the first weeks here. The stream is louder than it was at dusk; the night has gone cooler and still. The brain-tanned hide is rolled firm against the east wall, waiting for tomorrow's smoke-set pass.
+
+I stood there long enough to feel the air on my face and let the day settle. Then came back inside, pulled the door to, let the latch bar drop into its keeper. The hearth coals glow orange-red in the northwest corner. This is the last waking hour, and for once there is almost nothing left to attend to — shelter solid, food substantial, tools sharp, fire tended. That condition doesn't arrive often. I notice it plainly, without trying to hold it.
+
+Thirty-five days. Tomorrow: smoke the hide, check both lines, let the day find its own shape.
+
