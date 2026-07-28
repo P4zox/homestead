@@ -6578,3 +6578,7 @@ Four hours, maybe five, will see them through. I'll tend the rack at dusk when I
 
 The sun is warm on my left shoulder. The smoke column rises steady into clear sky above the stream.
 
+
+### 5:07 PM · First Brain-Tan Pass
+
+Carried the brain tin and the hide down to the stream together in the last amber hour. The hide went in at the shallows, just deep enough — I stepped it under with both boots until it went limp, cool water through my socks, then hauled it out dripping and spread it back over the east rail. Worked the brain slurry in with the flat of my palms in long strokes from neck to haunches, each leg flap folded back and pressed until the pale grey paste had disappeared into the grain. The hide smelled faintly animal and warm, and the slurry soaked in fast the way wet leather takes everything offered to it. Rolled it tight, hair-side in, and set it against the east wall to rest and absorb — it will want working out again as it starts to dry, maybe a couple of hours from now when the membrane begins to pull. Checked the smoke rack on the same trip: forequarters have been on just over an hour, surface bronzing warm tobacco-brown, smolder rising clean — added two double handfuls of green birch chips and left it to keep. The cook tin rinsed clean at the stream, ready for supper when the time comes. The clearing held its breath a little in the long gold light.
