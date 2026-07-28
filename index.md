@@ -605,3 +605,4 @@ Day 34, 10:05 PM — Final smoke rack check; backstraps near done, hindquarters 
 Day 35 (2026-07-28) 06:05 — First morning after first deer; hindquarters still on smoke rack; seven-inch deep-run trout; cooked and ate liver and heart at doorsill — first meal from the doe.
 [2026-07-28 07:07] Day 35 — Fleshed doe hide over east log, main body panel complete; hindquarters still smoking; skull set aside for evening brain-tan pass.
 Day 35 — 08:05 — Completed fleshing doe hide: neck, shoulders, three leg panels done; flesh side pale cream throughout; hide resting in east shade before first brain-tan pass this evening.
+Day 35, 09:05 — Watered all seven garden rows (four cook-tin trips); nettles past knee-height in rows 1–2, garlic fanning strong, mint crowding rows 6–7.

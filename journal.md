@@ -6483,3 +6483,16 @@ When I step back the whole flesh side is pale — cream throughout, nearly white
 
 The smoke rack is still smoldering steady. The stream is loud in the cool air. Good morning's work.
 
+
+### 9:05 AM · Four Trips Down
+
+The hide is resting on the east fence rail, flesh side out, slowly drying in the morning shade. The rack is smoldering steady. There is time before the midday press-test, so I take the cook tin and walk down to the garden.
+
+The soil in the eastern strip is drier than I would like — two days since the last watering, and the summer morning is already warm. I make four trips from the deep run, slow, pouring each load close to the soil at the base of each row. The loam darkens and drinks it in. When I reach the western rows the mint leaves are thick enough that water beads on them before reaching the ground.
+
+Walking east to west, I take stock. The garlic has put out new fans since the scape harvest — leaves upright, a deep and healthy green. The dandelion rosettes are flat against the mulch, wide and settled. Wood sorrel is small-leafed and busy in the north shadow strip. The nettles in rows one and two are past knee-height now, thick-stemmed; they will need cutting before the summer advances much further. The raspberry canes are sending out laterals from their main stems — real branching, real growth. The mint in rows six and seven has started to crowd itself, spreading past what I had planned.
+
+On the walk back I checked the limestone pool line — hook still baited, pole set deep under the ledge shadow, no catch yet. Left it and came home in the strengthening morning light.
+
+The garden is good. I had not realized how glad I would be to find it good.
+
