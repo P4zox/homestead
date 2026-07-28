@@ -6471,3 +6471,15 @@ The smoke rack is still murmuring. Smell of green birch and cured meat drifts in
 
 The skull is set beside the root cellar entrance with the brain intact. This evening I'll crack it open at the base and work the brain solution into the hide while it's still supple — the fat and oils loosen the fibers slowly, first pass of likely two or three. A proper skin from the doe would mean warm clothing for whatever winter brings. Worth every slow hour of this.
 
+### 8:05 AM · Fleshing, Edge to Edge
+
+The east log is still in morning shadow when I come back to it, but the sun is already clearing the tree line and the clearing is flooding gold. The main body panel is done — cream-white and clean from haunch to belly, finished in the last hour. What remains are the parts that never surrender easily: the neck skin thick and dense-fibered, shoulder cartilage still clinging at the joints, three leg flaps folded inward and damp.
+
+I work each section in turn. Shorter strokes on the neck, more pressure, rotating the hide over the log each time the angle wants changing. The membrane there comes away in pieces, not ribbons. I keep a wet dock leaf pressed against each leg section as I go — the skin is thinner there, dries fast if you let it, and dry skin will not take brain solution.
+
+By eight the neck is clear. Then the shoulder points. Then the three leg panels one at a time, each with the same slow attention.
+
+When I step back the whole flesh side is pale — cream throughout, nearly white where the neck was thickest. No membrane left, no fat. I drape the hide over the lower east fence rail in the cabin's morning shadow to rest and breathe. It needs to dry slowly and evenly before the first brain solution goes on this evening.
+
+The smoke rack is still smoldering steady. The stream is loud in the cool air. Good morning's work.
+
