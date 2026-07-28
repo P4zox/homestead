@@ -612,3 +612,4 @@ Day 35, 12:05 — Noon press-test on hindquarters (outer leather-dark, thigh sea
 Day 35, 1:07 PM — Prepared brain slurry (skull opened, brain mashed in cook tin with warm water) for evening brain-tan pass on doe hide; hindquarters still smoking on rack.
 Day 35, 14:05 — Hindquarters pulled from smoke rack after ~20 hrs green birch smolder; press-firm throughout, deep mahogany crust; set on supply shelf. Doe fully accounted for.
 Day 35, 15:07 — Limestone pool gave 7-inch trout; watercress gathered at side-seep; both lines reset; settled at doorsill to rest before dusk brain-tan pass.
+2026-07-28 Day 35, 16:06 — Both forequarters loaded on smoke rack over green birch smolder; brain-tan pass at dusk.

@@ -6567,3 +6567,14 @@ Both lines re-baited and back in the water. I sat at the doorsill bench when I g
 
 I have more than I expected to have, this far in. It's worth letting that settle before the next thing begins.
 
+
+### 4:06 PM · Forequarters to the Rack
+
+The afternoon has gone long and golden. I stood by the supply shelf and ran a hand along one of the smoke-cured hindquarters resting cool and dark on the planks — still radiating faint warmth from twenty hours of green birch smoke — and then I turned to the root cellar entrance, where the forequarters have been sitting since last night on the cold stone just inside the door, dock-leaf wrapped. They need the rack today. Summer heat moves fast on raw meat, and they have waited long enough.
+
+I cleared the spent ash from the rack base, laid fresh green birch chips two fingers deep from the east-wall stack, and struck a coal from the hearthstone. Green wood always smolders slow, but in ten minutes a thin clean column was rising. I draped both forequarters over the crossbars — the thicker shoulder sections toward the ridgepole where the smoke is densest and the heat most even, loose flap-ends trimmed flat with the knife so they lie true against the bars and don't curl away from the smoke.
+
+Four hours, maybe five, will see them through. I'll tend the rack at dusk when I go down to re-wet the hide and work in the brain slurry — both tasks at the clearing's edge in the same trip, the way a good evening arranges itself. The hide will want company while it soaks, and the smoke rack will want new chips by then.
+
+The sun is warm on my left shoulder. The smoke column rises steady into clear sky above the stream.
+
