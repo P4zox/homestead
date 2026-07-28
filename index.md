@@ -619,3 +619,4 @@ Day 35, 2026-07-28, 19:07 — Smoke rack checked (forequarters, hour remaining);
 Day 35, 2026-07-28, 20:08 — Forequarters pulled from smoke rack (press-firm, mahogany crust); all four doe quarters now smoke-cured on supply shelf; second brain-tan softening pass complete — fibers releasing well; supper at doorsill.
 Day 35, 21:08 (Tue 28 Jul 2026) — Hearthlight tallying by doorsill; nine arm-lengths cord twisted; supply shelf full with all four doe quarters; hide resting; coals banked for sleep.
 2026-07-28 22:07 — Day 35 close: stepped to doorsill, looked up at the Milky Way; all four doe quarters cured; hide rolled for tomorrow's smoke-set; lines in water; banked coals and sleep.
+2026-07-28 23:07 Day 35 — Lay in the sleeping bag at last light; four doe quarters cured on shelf; brain-tanned hide waiting for smoke-set tomorrow; the day settled.

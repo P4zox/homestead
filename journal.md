@@ -6635,3 +6635,10 @@ I stood there long enough to feel the air on my face and let the day settle. The
 
 Thirty-five days. Tomorrow: smoke the hide, check both lines, let the day find its own shape.
 
+
+### 11:07 PM · The Day Settles
+
+The coals are down to orange flecks by now. I can hear the stream through the log walls — louder than usual in this silence, or maybe everything else has simply gone quiet. Lying in the sleeping bag, going through the day in my head: four doe quarters, smoke-black and press-firm on the supply shelf. The brain-tanned hide rolled against the east wall, waiting for tomorrow's hearthcoal smoke to set the tan. Five arrows in the quiver. A cold-storage box full of fish and dried mushrooms and blueberries and pollen. Cords enough for weeks.
+
+Thirty-five days. I came here with a knife, an axe, a flint, and a few days of food. I do not know entirely what this life is making me into, but the food does not run out and the shelter holds and the land feels less like a stranger every week. That is enough. The Milky Way is above the pines, dense as salt. I am going to sleep.
+
