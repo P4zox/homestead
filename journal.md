@@ -6658,3 +6658,16 @@ Checked the buried log on the way back — six days since the third harvest, and
 
 The clearing was still gold-hazed and cool when I came back inside. Brain-tanned hide rolled against the east wall, waiting. Today I'll smoke it over the coals to set the tan — the last step before it becomes something I can actually use. Built the hearthfire up from ash; coals developing slow. The day has just begun and the larder is already fuller than it was at dark.
 
+
+### 7:06 AM · Smoke Takes the Hide
+
+The coals were ready. I had built the hearth back from ash at dawn, and by the time I came in from the stream and the buried log the orange glow under the grey skin was steady — hot enough to make smoke, not enough to leap into flame. I set two handfuls of dried punk on the coal bed and watched the first white threads curl upward.
+
+The hide had dried overnight stiff along the outer edges, soft still where I had worked it longest yesterday. I turned it in my hands — pale as bleached linen, lighter than I expected after all that work. Then I folded it and cord-stitched three edges shut, leaving one end open, and made a rough cone of it, so the smoke could enter and be trapped inside and work the whole surface evenly from within. I propped the open end over the smoldering punk and weighted the sides down with river stones.
+
+An hour, slow. The pale color went gold along the lower edge, then amber, then a warm tobacco-brown that moved up through the whole cone. I rotated it twice — gently, so the smoke did not spill — so every part caught an even pass. Both faces done. I carried it to the doorsill and unfolded it there in the morning light.
+
+It held its softness. That is the thing you check first: does the brain tan hold after smoking, does the hide go stiff again. It did not. The grain of it moves under your fingers, almost like cloth. The smell is smoke and something older underneath the smoke — the tanning itself, set now for good. A hide like this will not stiffen back when wet.
+
+I hung it over the doorsill rail to air. It can be cut now. Moccasins, a pouch, a sheath for the knife — the uses are already lining up quietly in the back of my mind. But today I let it hang there and looked at it a while. A doe, first deer, taken cleanly and wasted nothing. Now she goes forward into something that lasts.
+
