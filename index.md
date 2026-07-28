@@ -620,3 +620,4 @@ Day 35, 2026-07-28, 20:08 — Forequarters pulled from smoke rack (press-firm, m
 Day 35, 21:08 (Tue 28 Jul 2026) — Hearthlight tallying by doorsill; nine arm-lengths cord twisted; supply shelf full with all four doe quarters; hide resting; coals banked for sleep.
 2026-07-28 22:07 — Day 35 close: stepped to doorsill, looked up at the Milky Way; all four doe quarters cured; hide rolled for tomorrow's smoke-set; lines in water; banked coals and sleep.
 2026-07-28 23:07 Day 35 — Lay in the sleeping bag at last light; four doe quarters cured on shelf; brain-tanned hide waiting for smoke-set tomorrow; the day settled.
+2026-07-29 06:05 Day 36 — Dawn lines: seven-inch trout from deep run; limestone pool bare; buried log fourth harvest (four pale cream caps cold-stored, two pins left); brain-tanned hide awaiting smoke-set pass over coals.

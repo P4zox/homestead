@@ -6642,3 +6642,19 @@ The coals are down to orange flecks by now. I can hear the stream through the lo
 
 Thirty-five days. I came here with a knife, an axe, a flint, and a few days of food. I do not know entirely what this life is making me into, but the food does not run out and the shelter holds and the land feels less like a stranger every week. That is enough. The Milky Way is above the pines, dense as salt. I am going to sleep.
 
+
+---
+
+# Day 36 — Wednesday, 29 July 2026
+*early summer · clear dawn; dew on clearing; first light gilding east treeline*
+
+### 6:05 AM · First Light, Thirty-Six
+
+Woke to the stream and a clear sky — the kind of morning that comes after a hard sequence of days with nowhere left to be urgent. The hearthcoals were ash-grey when I got up; I unbarred the door and walked the dew-wet grass to the deep run first.
+
+Deep-run line gave a seven-inch trout, fat and still alive at the hook. Cleaned it at the flat stone, dock-wrapped it, and reset with a fresh earthworm from the fold before moving upstream. Limestone pool line held nothing this morning — hook bare; re-baited and re-wedged under the ledge shadow before I moved on.
+
+Checked the buried log on the way back — six days since the third harvest, and it was due. Lifted the bark lid: four caps at good size, pale cream, ivory-domed, edges just beginning to curl, one-and-a-half to two inches, clean white gills, no soft spots. Cut each at the stem base, dock-wrapped, cold-stored beside the trout. Two smaller pins left under the lid; give them three or four more days.
+
+The clearing was still gold-hazed and cool when I came back inside. Brain-tanned hide rolled against the east wall, waiting. Today I'll smoke it over the coals to set the tan — the last step before it becomes something I can actually use. Built the hearthfire up from ash; coals developing slow. The day has just begun and the larder is already fuller than it was at dark.
+
