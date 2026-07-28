@@ -6582,3 +6582,16 @@ The sun is warm on my left shoulder. The smoke column rises steady into clear sk
 ### 5:07 PM · First Brain-Tan Pass
 
 Carried the brain tin and the hide down to the stream together in the last amber hour. The hide went in at the shallows, just deep enough — I stepped it under with both boots until it went limp, cool water through my socks, then hauled it out dripping and spread it back over the east rail. Worked the brain slurry in with the flat of my palms in long strokes from neck to haunches, each leg flap folded back and pressed until the pale grey paste had disappeared into the grain. The hide smelled faintly animal and warm, and the slurry soaked in fast the way wet leather takes everything offered to it. Rolled it tight, hair-side in, and set it against the east wall to rest and absorb — it will want working out again as it starts to dry, maybe a couple of hours from now when the membrane begins to pull. Checked the smoke rack on the same trip: forequarters have been on just over an hour, surface bronzing warm tobacco-brown, smolder rising clean — added two double handfuls of green birch chips and left it to keep. The cook tin rinsed clean at the stream, ready for supper when the time comes. The clearing held its breath a little in the long gold light.
+
+### 6:07 PM · First Softening Pass
+
+At about the hour mark since I rolled the hide, I could feel it starting to change — thumb pressed to the folded edge, and there was resistance where there had been none. That is the moment: damp enough to stretch, dry enough to work against.
+
+I unrolled it on the east rail and began. The method is simple and takes no cleverness: grip a section, pull it across the rounded top edge in a long slow stroke, move six inches, repeat. Start at the neck, work toward the haunches, fold over each leg flap, come back. The hide was still cool from the stream and heavier than I expected — the brain slurry adds weight, works into the grain slowly. I could feel the fibers giving as I pulled, a slight loosening under sustained pressure. That release is what you are trying to catch before the hide sets.
+
+Worked through the full main body panel — both flanks, the back, the belly — then the four leg flaps one at a time. By the last pass my forearms ached in a pleasant, purposeful way. The hide has gone from raw chamois-stiff to something that moves, folds, does not crack when bunched. Not soft yet — not finished — but responding.
+
+Smoke rack check in the same trip: forequarters two hours in, surface browning deep to mahogany at the shoulder caps, smolder steady. Two double handfuls fresh green birch chips added; column thickened and leveled again. ~2 hours remaining, likely done by 20:00.
+
+Rolled the hide loosely and set it back against the east wall. Another working pass when it starts to tighten again — 20:00 or so. Supper after.
+
