@@ -6614,3 +6614,16 @@ Then the hide. I unrolled it from against the east wall — it had lost half its
 
 The clearing is dark now at the treeline; the last rose-gold is just a band above the western pines. I ate supper — the watercress and a piece of smoked hindquarter — at the doorsill in near-dark. The smoke rack stands empty and cold for the first time in two days. The whole doe is now accounted for.
 
+
+### 9:08 PM · Hearthlight Tallying
+
+The fire has gone to a deep orange pulse — coals wide and settled, no flames, just steady heat radiating off the hearthstones. I have been sitting at the doorsill bench with the cord bundle in my lap, pulling bark strips by feel and twisting them in the dark while the smoke rack outside goes quiet and cold.
+
+This is the kind of evening you earn. All four doe quarters are on the supply shelf above my head — backstraps and hindquarters from last night, forequarters from tonight. The cold-storage box is the richest it has been: three trout from today's lines, the oyster caps and dried mushrooms, the pollen vessel, blueberries still holding cold. The hide is rolled against the east wall waiting for tomorrow's smoke-set. Nine more arm-lengths of cord added to the coil.
+
+I did not plan to tally. But when you sit quiet long enough with just the fire and the stream sound through the open doorway, your mind runs its own count without being asked. Food enough for weeks. Shelter solid. Garden alive and pushing. Bow proven. Lines set and fishing in the dark.
+
+Forty days is not long to have made all this from a tent and an axe. But tonight it does not feel short either. It feels like the right amount of time. The work that needed doing has mostly been done, and the work ahead — smoking the hide tomorrow, tending the garden, the buried log check, the next mushroom flush — is the good kind. The kind that layers rather than scrambles.
+
+I will bank the coals and sleep.
+
