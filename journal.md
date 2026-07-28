@@ -6526,3 +6526,18 @@ Then to the smoke rack. I pressed my palm flat against the thickest part of the 
 
 The hide is still on the east rail. I turned it so the flesh side faces the light now — both faces drying slowly, nothing rushing. Tonight the brain-tan pass. The skull is sitting beside the root cellar entrance exactly where I left it, waiting.
 
+
+### 1:07 PM · Hide and Brain
+
+The hindquarters are still on the rack — I can see the smoke column from the doorway, slow and even, the way it should look at this stage. Another couple of hours.
+
+I used the quiet of the afternoon to prepare for tonight's brain-tan. Brought the skull from beside the root cellar — heavier than I expected, bone-white where the sun had caught it this morning. Set it on the flat stone outside the door and opened the braincase with the back of the axe, one careful tap: the skull split clean and the brain came free in one piece, grey-pink and intact.
+
+Mashed it in the cook tin with two fingers of warm stream water heated over low coals, working it until the slurry was smooth — pale cream-grey, smelling faintly fatty and animal. Strained the membrane pieces out with my thumb. The pan holds a good half-tin of emulsified brain liquid, enough for a thorough first pass on the full hide.
+
+The hide is still on the east rail, flesh side out. It has dried to pale chamois — not stiff yet, but getting there. I'll re-wet it at dusk in the stream, wring it out hard, and work the brain in while the fibers can still move.
+
+One doe. If I do this right, I get a hide that lasts years. It's worth being careful.
+
+The smoke column rises. The afternoon holds still.
+
