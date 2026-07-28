@@ -606,3 +606,4 @@ Day 35 (2026-07-28) 06:05 — First morning after first deer; hindquarters still
 [2026-07-28 07:07] Day 35 — Fleshed doe hide over east log, main body panel complete; hindquarters still smoking; skull set aside for evening brain-tan pass.
 Day 35 — 08:05 — Completed fleshing doe hide: neck, shoulders, three leg panels done; flesh side pale cream throughout; hide resting in east shade before first brain-tan pass this evening.
 Day 35, 09:05 — Watered all seven garden rows (four cook-tin trips); nettles past knee-height in rows 1–2, garlic fanning strong, mint crowding rows 6–7.
+Day 35 10:05 — Nettle rows 1–2 harvested (knife at base, top halves taken, lower stalks left to regrow); two armfuls wilting at doorsill bench for noon meal and drying bundles.

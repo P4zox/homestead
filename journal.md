@@ -6496,3 +6496,16 @@ On the walk back I checked the limestone pool line — hook still baited, pole s
 
 The garden is good. I had not realized how glad I would be to find it good.
 
+
+### 10:05 AM · The Nettle Rows
+
+I pulled three broad dock leaves from the stream bank before going back into the garden — rolled them together into a loose glove for my left hand, the cutting hand. Nettles sting through inattention more than anything else.
+
+Rows one and two are dense now. The stems at the base are stiff and fibrous, almost woody; higher up they go soft and pliable, and the leaves there are younger and finer. I took the top halves with the knife — cut stem by stem, just below the second or third pair of leaves — and left the lower stalks standing. They will push new shoots from the nodes within a week. The roots stay undisturbed; there is no reason to end the plant when trimming it will do.
+
+Came away with two armfuls. Felt one sting on the inside of my wrist where the dock leaf slipped. The burn faded inside a minute.
+
+Back at the doorsill bench I draped them over the rail to wilt in the morning air. Wilted nettle loses its sting without any heat at all — half an hour in open air is enough. Some I will cook fresh at noon alongside whatever the limestone pool line offers. The rest I will bundle loosely and hang from the wall peg to dry for winter broth or tea. The bundles are already forming in my mind: two narrow bundles, stems tied at the cut end, hung with the leaves downward.
+
+The hindquarters are still on the smoke rack. I can hear the green birch smoldering from here. I will press-test the meat at midday. Until then the morning holds, the nettles wilt, and the hide rests in its shadow on the east fence rail.
+
