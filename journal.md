@@ -6517,3 +6517,12 @@ The two armfuls of nettles had been draped over the fence rail for an hour and t
 Passed the limestone pool on the way to the bench to rinse my hands. The pole was still wedged tight under the ledge shadow. I drew it up slow and a six-inch trout turned in the shallows, not fighting hard. Cleaned it on the flat pool stone, dock-wrapped it, laid it in the cold-storage box beside the morning's deep-run catch. Re-baited the hook with a fresh earthworm, re-wedged the pole — both lines in water.
 
 On the way back through the clearing, a quick look at the smoke rack: hindquarters deep tan-brown now, the skin pulling tight at the edges. A light press at the thickest point of the thigh — firm, no give, but not quite the solid-set I'm waiting for. Three double handfuls of green birch chips added to keep the column steady. Noon will tell.
+
+### 12:05 PM · Press Test at Noon
+
+At noon the nettle broth in the cook tin was steaming and ready — I sat at the doorsill bench with it in both hands, the steam rising green and faintly bitter in the midday sun. Something almost sweet underneath where the nettles had cooked down. The first proper garden-to-pot meal: leaves cut from rows 1 and 2 not two hours ago, already soft and done in the tin.
+
+Then to the smoke rack. I pressed my palm flat against the thickest part of the nearest hindquarter. Outer surface firm and dark, skin dried to a hard leather. Pressed deeper at the thigh seam, right up against the central mass — still a hair of give there, the slightest yielding near the hip joint. Not done yet, but close. Added four double handfuls of green birch chips. The smolder had thinned in the last hour; within a minute the column rose again pale and steady. Mid-afternoon should close it out.
+
+The hide is still on the east rail. I turned it so the flesh side faces the light now — both faces drying slowly, nothing rushing. Tonight the brain-tan pass. The skull is sitting beside the root cellar entrance exactly where I left it, waiting.
+
