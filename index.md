@@ -615,3 +615,4 @@ Day 35, 15:07 — Limestone pool gave 7-inch trout; watercress gathered at side-
 2026-07-28 Day 35, 16:06 — Both forequarters loaded on smoke rack over green birch smolder; brain-tan pass at dusk.
 Day 35, 2026-07-28 17:07 — Brain-tan first pass: re-wet doe hide in stream, worked brain slurry into grain; hide rolled and resting against east wall; forequarters on smoke rack (~3 hours remaining)
 2026-07-28 Day 35 18:07 — Unrolled brain-tanned hide after one-hour soak; first softening pass across east rail (neck to haunches, all four leg flaps) — hide responsive, fibers giving under pull; smoke rack check: forequarters browning well, green birch chips added, ~2 hours remaining.
+Day 35, 2026-07-28, 19:07 — Smoke rack checked (forequarters, hour remaining); twisted fourteen arm-lengths cord at doorsill bench in amber evening light.

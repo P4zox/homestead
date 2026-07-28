@@ -6595,3 +6595,14 @@ Smoke rack check in the same trip: forequarters two hours in, surface browning d
 
 Rolled the hide loosely and set it back against the east wall. Another working pass when it starts to tighten again — 20:00 or so. Supper after.
 
+
+### 7:07 PM · Amber Interval
+
+The smoke rack smolders steady. I checked the forequarters — deep mahogany at the shoulder caps, even heat on the back of my hand held near — and confirmed no new chips needed yet. Another hour, maybe less, and they will be done.
+
+With nothing pressing until the pull, I took the cord bundle to the doorsill bench and sat down. The clearing had gone gold. The garden rows lay in long shadow below, the stream whispering somewhere beyond the south meadow edge. I worked two-ply cord — split bark lengths fed end over end, twist held between palm and knee — and let the evening settle around me.
+
+The doe has come apart into everything she will be: two backstraps and two hindquarters already smoke-cured on the supply shelf, forequarters still finishing on the rack, liver and heart eaten this morning, hide resting against the east wall waiting for its second softening pass. I turned that over in my mind while my hands kept working. There is a kind of completeness in it I do not have a good word for.
+
+Fourteen arm-lengths added to the coil before the light went too low to see the fiber clearly. The second hide pass comes at twenty o'clock, same time as the forequarter pull. Until then: the bench, the last gold light, the sound of the stream.
+
