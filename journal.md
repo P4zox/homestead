@@ -6606,3 +6606,11 @@ The doe has come apart into everything she will be: two backstraps and two hindq
 
 Fourteen arm-lengths added to the coil before the light went too low to see the fiber clearly. The second hide pass comes at twenty o'clock, same time as the forequarter pull. Until then: the bench, the last gold light, the sound of the stream.
 
+### 8:08 PM · Forequarters Pulled, Hide Softened
+
+The forequarters came off the rack just past eight. I pressed both sections at every plane — shoulder cap, neck-end joint, thin flap — and the meat held firm throughout, deep mahogany crust crackling faintly under finger pressure, no give anywhere. Carried both in dock-leaf wraps and set them on the supply shelf beside the hindquarters. Four pieces from one doe, all smoked and cured. The smoke rack is quiet now; I spread the coals and left them to die.
+
+Then the hide. I unrolled it from against the east wall — it had lost half its moisture since the last pass, still pliable but firming noticeably at the edges. Draped it back over the east rail and worked it section by section: neck panel with short kneading pulls, then the broad body in long strokes across the rail edge, then all four leg flaps. The fibers are releasing well — the hide folds without stiffness, returns slowly, no cracking anywhere. A good sign. Tomorrow I will smoke it over coals to set the tan and lock in the softness.
+
+The clearing is dark now at the treeline; the last rose-gold is just a band above the western pines. I ate supper — the watercress and a piece of smoked hindquarter — at the doorsill in near-dark. The smoke rack stands empty and cold for the first time in two days. The whole doe is now accounted for.
+
