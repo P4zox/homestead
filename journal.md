@@ -6554,3 +6554,16 @@ I stand in the afternoon sun a moment. There is more food in that cold-storage b
 
 Brain-tan at dusk. The hide is still on the east rail, firming up.
 
+
+### 3:07 PM · Still Water, Slow Hours
+
+The supply shelf is full. Two smoke-cured hindquarters, both backstraps, morning fish still cold in the box. The rack is quiet for the first time in nearly twenty hours. There is nothing urgent in the next few hours — just the brain-tan pass at dusk, when the hide is re-wet.
+
+Walked down to the limestone pool in the full afternoon warmth. Birdsong lighter now; a few calls from the pines, but none of the morning chorus. The line was riding in deep ledge shadow, untouched by the current — pulled it easy and found a seven-inch trout, firm and bright-eyed. Cleaned it at the flat pool stone, dock-wrapped it, carried it back to the cold-storage box.
+
+Stopped at the side-seep on the way home. Watercress coming in thick below the main bank — cut a good fistful, rinsed in the slow current, dock-wrapped, set in the box. For tonight's meal after the brain-tan.
+
+Both lines re-baited and back in the water. I sat at the doorsill bench when I got back, just for a while, watching the hide on the east rail. Pale chamois, drying even in the shade, pulling a little firmer at the edges where the air catches. When the light starts to go gold I'll take it down to the stream.
+
+I have more than I expected to have, this far in. It's worth letting that settle before the next thing begins.
+

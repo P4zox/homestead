@@ -611,3 +611,4 @@ Day 35, 11:05 — Sorted and hung nettle bundles (two bark-cord ties, wall peg);
 Day 35, 12:05 — Noon press-test on hindquarters (outer leather-dark, thigh seam slight give — 2–3 hrs remaining); first garden-to-pot meal (nettle broth from rows 1–2) eaten at doorsill; hide turned on east rail; brain-tan pass planned for evening.
 Day 35, 1:07 PM — Prepared brain slurry (skull opened, brain mashed in cook tin with warm water) for evening brain-tan pass on doe hide; hindquarters still smoking on rack.
 Day 35, 14:05 — Hindquarters pulled from smoke rack after ~20 hrs green birch smolder; press-firm throughout, deep mahogany crust; set on supply shelf. Doe fully accounted for.
+Day 35, 15:07 — Limestone pool gave 7-inch trout; watercress gathered at side-seep; both lines reset; settled at doorsill to rest before dusk brain-tan pass.
