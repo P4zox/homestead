@@ -6845,3 +6845,18 @@ Thirty-six days. I started with a tent and an axe. Tonight I sleep on a rush mat
 
 I close my eyes.
 
+
+---
+
+# Day 37 — Thursday, 30 July 2026
+*early summer · cool summer dawn, grey light, heavy dew*
+
+### 6:05 AM · Morning Rounds
+
+Dawn came grey and quiet through the gable gap. I lay still a moment in the sleeping bag, listening — stream below, a thrush somewhere back in the pines, bats all gone. Then I pulled on the moccasins. First thing, before standing, without thinking about it. That shift happened fast.
+
+Both lines first. The deep run gave a seven-inch trout, hook set clean under the undercut bank. I cleaned it at the flat stream stone in the early grey light, dock-wrapped it, cold-stored it beside last night's catch. Line re-notched with a fresh earthworm from the bark fold, reset below the bank. The limestone pool was bare — bait stripped sometime in the night. Re-baited, pole wedged back under the far ledge shadow. Both lines running again before the mist had lifted off the clearing.
+
+Then the bow. The braided sling was coiled on the supply shelf where I left it last night. I looped one end over the lower nock groove, ran the flat braid along the bow's back face, and looped the other end over the upper nock. Settled it on the left shoulder: diagonal, string-face in, limbs angled up over the right side. It sits steady — no shift.
+
+First morning walking the clearing with the bow on my back, five arrows in the quiver, leather on both feet. The clearing looked the same. I felt different moving through it — more present to it, maybe. Something about having the right things in their right places at the right time of day.

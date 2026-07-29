@@ -638,3 +638,4 @@ Day 36, 17:06 — Supper at doorsill: seven-inch trout with dried oyster caps an
 Day 36, 21:05 — Cut hide scraps into three bow-sling strips by coalfire at doorsill bench; will braid and attach to bow tomorrow.
 Day 36, 2026-07-29, 22:07 — Braided bow sling from hide strips by hearthfire; sling complete, ready to attach to bow at dawn.
 Day 36, 23:07 — Settled in for sleep; moccasins on door peg, pouch hung, bow sling on shelf; both fishing lines in dark water; stars through gable gap.
+Day 37 · 2026-07-30 · 06:05 — Both lines checked at dawn (deep-run seven-inch trout; limestone pool bare); braided bow-sling looped to bow; first morning slung and shod in the clearing.
