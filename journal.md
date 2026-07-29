@@ -6786,3 +6786,14 @@ Carried it out and ate at the doorsill bench in the evening light. The pine shad
 
 Came back and sat in the doorway while the last of the color left the sky. Nothing wasted from that deer. It fed me. It shod me. It gave me a pouch to carry things in. Tomorrow the lines will give breakfast and the day will start again from here, but not empty — from here, with everything the past week built.
 
+
+### 6:06 PM · Granite Shelf at Dusk
+
+The fire has died to coals and supper is well behind me. The new moccasins are still on my feet — I keep finding excuses not to take them off. So I follow the pine-duff path upslope in the last amber of the day, past the shelter corner and the smoke rack, up through the birch stand, to the granite shelf.
+
+The shelf is warm under my palms. The sun is somewhere behind the western pines, casting long gold light sideways across the clearing below. I can see the whole layout from up here: the cabin roof dark with its bark courses, the smoke rack standing clean and empty, eight rows of garden fanning out in the south-facing bench — and the stream catching the last light in two silver flashes where it bends around the deep run. It looks like a homestead. It actually looks like a homestead.
+
+I sit for a long time without doing anything. The air is cooling fast now that the sun is gone, and the first bats are out over the clearing — low, quick, tilting after insects above the mint rows. Something in the meadow below gives a single short call, then nothing. Both fishing lines are set and I have nothing that needs doing this hour. That is its own kind of richness.
+
+The moccasins kept my feet warm on the walk up. That matters more than I expected it to.
+
