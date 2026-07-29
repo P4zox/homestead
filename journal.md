@@ -6817,3 +6817,14 @@ The hide scraps on the supply shelf are still worth thinking about. Not tonight 
 
 Both fishing lines are in the dark water. The clearing is quiet. I'll let the coals settle another hour before sleep.
 
+
+### 9:05 PM · Strips by Coallight
+
+The fire is well down now, just a steady orange coal bed throwing flat amber light across the shelter floor. I sat at the doorsill bench with the hide scrap and the knife and thought for a while about what it could still become.
+
+A belt needs more than I have. But a bow-sling — three narrow strips, braided and knotted at each end — that is manageable. Finger-wide cuts along the grain, arm-length each. I scored the lines with the knife tip on the flesh side first, then worked slowly through the cuts. No hurry in the low light.
+
+Three strips now on the supply shelf, ready to braid tomorrow. The small remaining scrap too narrow for much else — set aside. The bow has served me well; a sling will let me carry it over one shoulder and keep both hands free on the trail. That matters more as I range farther from the cabin.
+
+Moccasins are by the door, still smelling faintly of smoke and new leather. The pouch hangs on the wall peg. Outside, the bats have gone quiet and the clearing is very still.
+

@@ -635,3 +635,4 @@ Day 36, 17:06 — Supper at doorsill: seven-inch trout with dried oyster caps an
 2026-07-29 18:06 — Day 36 — Walked to granite shelf overlook at dusk in new moccasins; sat in the cooling air watching bats over the garden rows and the stream catching the last light below.
 2026-07-29 Day 36 19:05 — Cord-twisting by hearthfire in new moccasins; fourteen arm-lengths two-ply spun in evening firelight.
 [2026-07-29 20:06] Day 36 — Evening; fire fed to coal bed for sleep; reflected on milestone day (moccasins and pouch complete, first day fully shod); hide scraps noted for tomorrow.
+Day 36, 21:05 — Cut hide scraps into three bow-sling strips by coalfire at doorsill bench; will braid and attach to bow tomorrow.
