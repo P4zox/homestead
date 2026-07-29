@@ -6740,3 +6740,16 @@ When the last loop was knotted and tucked, I slipped it on. Firm. Warm. Even. I 
 
 Thirty-six days in this place, and I finally have something proper on my feet.
 
+
+### 2:06 PM · First Steps, Moccasined
+
+I took them off the door peg at the end of noon — both moccasins, smoke-amber and soft, smelling of birch and cured deer. I had not worn anything on my feet in thirty-six days, or if I had it was rough bark scrap and cord, more wrapping than shoe. These are different.
+
+I tied them on slowly at the doorsill bench, feeling the fit around heel and arch. The running stitch holds the seam inward so nothing digs. I stood up and walked out the door.
+
+The first thing I noticed was the granular shift of earth — small stones, root crossings, the way the ground texture talks back differently when there is something between you and it. Softer at the ball, still reading the world, but cushioned. I walked the garden rows and tested on the loose loam: stable, no sliding. I walked down to the stream and across the stepping stones — the hide gripped wet rock better than bare skin. I stood in the shallows for a moment just to see. When I stepped out the moccasins were damp but not soaked. They will dry by evening. They will not stiffen.
+
+I went up the bank and followed the path behind the shelter toward the granite shelf. The pine duff felt almost luxurious underfoot — the needles made a kind of cushion and the moccasins moved through them without catching. At the shelf I sat for a while in the afternoon light, looking down at the cabin roof and the smoke rack and the garden rows and the stream bend. Everything I have made is visible from here.
+
+I am well-shod, now. That is a thing worth sitting with for a moment.
+

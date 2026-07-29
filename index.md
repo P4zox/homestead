@@ -628,3 +628,4 @@ Day 36, 10:05 — Upslope scout: oyster trunk new pins starting (2–3 days to h
 Day 36, 11:05 — Left moccasin heel and inner ankle seam stitched at doorsill bench; first footwear taking shape.
 2026-07-29 12:05 Day 36 — Noon meal: smoked hindquarter and garden nettles cooked in cook tin, eaten at doorsill bench in overhead noon sun.
 Day 36, 13:05 — Right moccasin seam-stitched at doorsill bench; pair complete, both hanging on door pegs.
+2026-07-29 Day 36 14:05 — First walk in completed moccasins: tested on garden loam, stepping stones, stream shallows, and pine duff to granite shelf overlook — hide supple and gripping, seams held.
