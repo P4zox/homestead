@@ -6753,3 +6753,14 @@ I went up the bank and followed the path behind the shelter toward the granite s
 
 I am well-shod, now. That is a thing worth sitting with for a moment.
 
+
+### 3:05 PM · A Pouch from the Doe
+
+The first walk in the moccasins is still with me — the damp stepping stones, the pine duff path, the way the hide gripped where bare feet would have slipped. Something settled this afternoon that I had not noticed was unsettled.
+
+The remaining deer hide has been sitting rolled on the supply shelf since this morning. I brought it to the doorsill bench an hour after returning from the overlook, unrolled it flat on the pine planks. It still smells of smoke — tobacco-amber, warm. The grain is clean. I marked out a rectangle with the knife tip, a hand wide and two hands long, and cut it free. Hide this well-prepared cuts without any drag.
+
+The plan is simple: fold the rectangle in half, seam both sides with running stitch, leave the top open for a drawstring loop. Small enough to hang at the belt, large enough to carry bait or seeds without wrapping everything in bark sheets. I have been improvising pockets for thirty-six days. A proper pouch is overdue.
+
+I am halfway through piercing the seam holes now — every finger-width, knife tip pushed clean through both layers. The bench is warm. Afternoon light slants across the stream bend below. I will have it stitched before supper.
+
