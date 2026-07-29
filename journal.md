@@ -6764,3 +6764,14 @@ The plan is simple: fold the rectangle in half, seam both sides with running sti
 
 I am halfway through piercing the seam holes now — every finger-width, knife tip pushed clean through both layers. The bench is warm. Afternoon light slants across the stream bend below. I will have it stitched before supper.
 
+
+### 4:05 PM · Pouch Cinched Shut
+
+The seam holes were only half-pierced when I set the work down last hour — the rest came quick in the afternoon light. I finished piercing through both layers at finger-width intervals, then threaded a length of fine two-ply cord and ran a tight running stitch along the bottom seam and up the side. The smoke-set hide moved without complaint under the cord, the stitch pulling each hole snug against its neighbor.
+
+At the top I folded a casing — a finger-width fold of leather turned over and stitched down on three sides, one end left open for the drawstring channel. I slipped a thin strip of bark through to lead the cord, pulled a length of two-ply through, and knotted each end short so it can't slip back. The pouch draws shut with a clean cinch and opens with a tug. It fits in one palm.
+
+Held it a moment in the doorway light. Smoke-amber hide, tight seams, a working drawstring. Simple thing, and right. I hung it on the wall peg beside the herb tray — it will carry flint, dried herbs, anything small that needs a home and tends to end up loose in a pocket that doesn't exist yet. The scraps of hide are still rolled on the supply shelf. Enough for a patch or a belt loop when the need comes.
+
+Supper is next. The hearth coals are banked; the day has been full.
+
