@@ -6860,3 +6860,12 @@ Both lines first. The deep run gave a seven-inch trout, hook set clean under the
 Then the bow. The braided sling was coiled on the supply shelf where I left it last night. I looped one end over the lower nock groove, ran the flat braid along the bow's back face, and looped the other end over the upper nock. Settled it on the left shoulder: diagonal, string-face in, limbs angled up over the right side. It sits steady — no shift.
 
 First morning walking the clearing with the bow on my back, five arrows in the quiver, leather on both feet. The clearing looked the same. I felt different moving through it — more present to it, maybe. Something about having the right things in their right places at the right time of day.
+
+### 7:05 AM · Water Before Heat
+
+The garden was what needed doing at this hour. Four cook-tin trips from the deep run, east to west — garlic first, then dandelion crowns, wood sorrel, nettles, raspberry, and mint at the western end. The soil held moisture from yesterday but the surface was already dry to the touch; another morning round was right.
+
+The nettles in rows one and two are proper stands now, past knee-height, serrated leaves catching the flat early light. The garlic fans are wide and settled. The wood sorrel in the north shadow strip had the look of something that had been waiting — cloverleaf clusters pressed together in the thin slant of early sun. Mint tumbling into its western neighbors again; I pressed it back with a hand as I passed.
+
+A blackbird called once from somewhere in the pines while I worked. The moccasins felt good on the dew-wet grass between rows. I noticed that, and was glad.
+
