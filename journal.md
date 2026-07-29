@@ -6697,3 +6697,12 @@ I rinsed the cook tin at the shallows on the way back and stood there a moment, 
 
 A good thing, a garden. Four trips and twenty minutes, and you come back feeling like you have earned the rest of the morning.
 
+
+### 10:05 AM · Up the Slope
+
+After the garden I walked upslope with the axe, out of habit. The sun had cleared the treeline but was not yet high — good light for reading what is growing. At seventy paces: the rotting pine, and on the upper section three small clusters of new oyster pins, pale white nubs just breaking through the bark, not yet a thumbnail across. In two or three days they will be worth cutting. I left them undisturbed.
+
+The chanterelle hollow at the birch deadfall showed nothing ready — dark, damp soil in there, old orange stems from the last flush, but no new caps domed up yet. Another five days, maybe. I covered the hollow loosely with a scrap of bark to hold the moisture.
+
+At the granite shelf I stopped. Below me: the cabin roof, the smoke rack poles, the garden rows catching the morning light in strips, the stream glinting where it bends toward the limestone pool. I have stood here before. Today it settled differently — not finished, never finished, but something I made, something that holds. I stayed a few minutes, not thinking much. Then came back down.
+
