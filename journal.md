@@ -6828,3 +6828,7 @@ Three strips now on the supply shelf, ready to braid tomorrow. The small remaini
 
 Moccasins are by the door, still smelling faintly of smoke and new leather. The pouch hangs on the wall peg. Outside, the bats have gone quiet and the clearing is very still.
 
+### 10:07 PM · Sling Braided
+
+I said tomorrow, but the hearthfire still had orange in it and the three hide strips were right there on the supply shelf. I brought them to the doorsill bench, sorted them by feel — each near arm-length, finger-wide, smooth on the grain side — and began braiding over my knee in the amber light. Left over center, right over center, and slowly a flat braid grew, tight and even. By the time the coals had settled to dull red I had the full length finished, tied off at both ends with a close whipping of fine two-ply cord. I held it up in the last of the glow and pulled both ends — no stretch, gave evenly, held firm. A good sling. I will tie it to the bow tomorrow at the doorsill bench. The shelter was very quiet: just the settling of the coal bed and the faint sound of the stream through the gable gap.
+
