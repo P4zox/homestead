@@ -6684,3 +6684,16 @@ Four pieces on the supply shelf now, weighted flat under the bark tray so they h
 
 Tonight when the light holds long, I'll start piercing the seam lines and threading the cord.
 
+
+### 9:05 AM · Garden Rounds
+
+The moccasin pieces are resting under the bark tray, holding their shape while the smell of smoke settles. I have left them alone.
+
+The garden wanted watering. Four trips down to the deep run and back, cook tin full each time — the same quiet circuit I know well now. The morning air already carried a little warmth in it; the ground has had a full day since yesterday's pour. The garlic fans had straightened with the sun; the mint in the west rows is tumbling into its neighbors like it is trying to take over.
+
+The eastern strip drank fastest — the amended soil always pulls the water in quickly. After the last trip I pressed a finger two inches into the garlic row: cool and damp, the way it should be. The nettles in rows one and two are past knee-height, going strong. The dandelion rosettes look fresh and wide. Everything is doing what it is supposed to do.
+
+I rinsed the cook tin at the shallows on the way back and stood there a moment, watching the current run. The limestone pool line is still set downstream. From the stream bank the whole clearing was visible in morning light — cabin, smoke rack, garden rows — all sitting easy under the pines. No wind. A woodpecker drumming somewhere upslope.
+
+A good thing, a garden. Four trips and twenty minutes, and you come back feeling like you have earned the rest of the morning.
+
