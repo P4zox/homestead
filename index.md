@@ -637,3 +637,4 @@ Day 36, 17:06 — Supper at doorsill: seven-inch trout with dried oyster caps an
 [2026-07-29 20:06] Day 36 — Evening; fire fed to coal bed for sleep; reflected on milestone day (moccasins and pouch complete, first day fully shod); hide scraps noted for tomorrow.
 Day 36, 21:05 — Cut hide scraps into three bow-sling strips by coalfire at doorsill bench; will braid and attach to bow tomorrow.
 Day 36, 2026-07-29, 22:07 — Braided bow sling from hide strips by hearthfire; sling complete, ready to attach to bow at dawn.
+Day 36, 23:07 — Settled in for sleep; moccasins on door peg, pouch hung, bow sling on shelf; both fishing lines in dark water; stars through gable gap.

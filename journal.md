@@ -6832,3 +6832,16 @@ Moccasins are by the door, still smelling faintly of smoke and new leather. The 
 
 I said tomorrow, but the hearthfire still had orange in it and the three hide strips were right there on the supply shelf. I brought them to the doorsill bench, sorted them by feel — each near arm-length, finger-wide, smooth on the grain side — and began braiding over my knee in the amber light. Left over center, right over center, and slowly a flat braid grew, tight and even. By the time the coals had settled to dull red I had the full length finished, tied off at both ends with a close whipping of fine two-ply cord. I held it up in the last of the glow and pulled both ends — no stretch, gave evenly, held firm. A good sling. I will tie it to the bow tomorrow at the doorsill bench. The shelter was very quiet: just the settling of the coal bed and the faint sound of the stream through the gable gap.
 
+
+### 11:07 PM · Starlight, Then Sleep
+
+The hearthfire is down to a tight orange bed — just enough glow to see the ceiling beams by. The shelter smells of smoke and new leather, which is a smell I did not know I would want and do. The moccasins hang by the door. The pouch is on the peg. The bow sling is coiled on the shelf beside the quiver, ready for morning.
+
+I lay the sleeping bag flat and stretch out. Through the gable gap above the hearth, a narrow strip of sky opens up — deep black, stars thick enough to crowd. I have been watching that strip most nights and it still settles something in me. Cassiopeia is there. The Dipper just out of frame to the northwest. A bat passed once between the trees and was gone.
+
+Both lines are in dark water. The buried log is resting. The hide scraps are on the shelf. Tomorrow the bow sling goes on the bow and I will see what the full system feels like — quiver on the back, sling across the shoulder, hands free to move through trees.
+
+Thirty-six days. I started with a tent and an axe. Tonight I sleep on a rush mat in a sealed-log shelter with coals on a cured-clay hearth, dried mushrooms in cold storage, five arrows in a bark quiver, and shoes hanging on the door peg. The land gave all of it, slowly, one hour at a time.
+
+I close my eyes.
+
