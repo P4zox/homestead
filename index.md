@@ -633,3 +633,4 @@ Day 36, 13:05 — Right moccasin seam-stitched at doorsill bench; pair complete,
 Day 36, 16:05 — Drawstring pouch stitched complete (smoke-set deer hide, running-stitched seams, two-ply cord drawstring — cinches shut cleanly); hanging on wall peg beside herb tray.
 Day 36, 17:06 — Supper at doorsill: seven-inch trout with dried oyster caps and fresh nettles in amber evening light; limestone pool line re-baited and reset; both lines overnight; reflected on a full day in new moccasins.
 2026-07-29 18:06 — Day 36 — Walked to granite shelf overlook at dusk in new moccasins; sat in the cooling air watching bats over the garden rows and the stream catching the last light below.
+2026-07-29 Day 36 19:05 — Cord-twisting by hearthfire in new moccasins; fourteen arm-lengths two-ply spun in evening firelight.

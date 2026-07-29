@@ -6797,3 +6797,12 @@ I sit for a long time without doing anything. The air is cooling fast now that t
 
 The moccasins kept my feet warm on the walk up. That matters more than I expected it to.
 
+
+### 7:05 PM · Evening Cord at Hearth
+
+The shelter smells of new leather and old smoke tonight. I banked the hearthfire after supper and it has built back to a steady amber glow — enough to see by, warm enough to keep the damp out of the air. I am sitting cross-legged on the rush mat with a bundle of stripped bark across my knees, rolling and twisting by firelight while the clearing outside goes fully dark.
+
+Today was a long one. Moccasins cut and sewn and worn. A drawstring pouch completed and hung. The first evening walking the pine-duff path to the overlook with something between me and the ground — soft tanned hide, supple seams, the smell of good work. Small things. But they add up to a kind of completeness that is hard to explain and easy to feel.
+
+I twisted fourteen arm-lengths of two-ply cord before the fire burned low. The coil is growing. Outside, both lines are in the water. The bats are working the clearing. Everything in order for the night.
+
