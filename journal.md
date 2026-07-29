@@ -6727,3 +6727,16 @@ I sat for a while after eating. The garden rows are still damp from this morning
 
 Almost shoes now. One stitched left moccasin hanging by the door. One right moccasin in cut pieces on the shelf. By this evening, both.
 
+
+### 1:05 PM · Right Moccasin Closed
+
+The right moccasin pieces had been waiting on the supply shelf since morning, cut and trimmed, sitting quiet. I carried them to the doorsill bench after the noon meal settled and let the afternoon sun angle do the work.
+
+The knife tip made short work of the seam holes. I worked the heel first, spacing each puncture a finger-width apart, feeling the resistance of the smoke-set hide — it had firmed up just right, neither brittle nor spongy. Then the inner ankle curve, where the upper wants to flare away from the sole. I kept a thumb pressed to the outside to hold the layers flush while I pierced.
+
+The cord came through clean. Running stitch heel to ankle, pulling each loop snug but not so tight as to cheese-wire the hide. The shape grew in my hands. At the heel curve I slowed, holding the leather in the bent position I wanted while the stitches set it there. The inner ankle seam followed naturally.
+
+When the last loop was knotted and tucked, I slipped it on. Firm. Warm. Even. I hung it on the door peg beside the left moccasin. A pair.
+
+Thirty-six days in this place, and I finally have something proper on my feet.
+

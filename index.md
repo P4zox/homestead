@@ -627,3 +627,4 @@ Day 36, 2026-07-29, 09:05 — Garden watered (four cook-tin trips, deep run); al
 Day 36, 10:05 — Upslope scout: oyster trunk new pins starting (2–3 days to harvest), chanterelle hollow still resting (~5 more days), paused at granite shelf overlook.
 Day 36, 11:05 — Left moccasin heel and inner ankle seam stitched at doorsill bench; first footwear taking shape.
 2026-07-29 12:05 Day 36 — Noon meal: smoked hindquarter and garden nettles cooked in cook tin, eaten at doorsill bench in overhead noon sun.
+Day 36, 13:05 — Right moccasin seam-stitched at doorsill bench; pair complete, both hanging on door pegs.
