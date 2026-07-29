@@ -625,3 +625,4 @@ Day 36, 07:06 — Smoke-set the brain-tanned deer hide over punk-coal smolder; h
 2026-07-29 Day 36 08:06 — First cuts from smoke-set deer hide: four moccasin pieces (two soles + two uppers) cut and laid flat on supply shelf under bark tray.
 Day 36, 2026-07-29, 09:05 — Garden watered (four cook-tin trips, deep run); all seven rows east to west; soil cool and damp two inches down in garlic rows; nettles past knee-height in rows 1–2; mint spreading into western neighbors.
 Day 36, 10:05 — Upslope scout: oyster trunk new pins starting (2–3 days to harvest), chanterelle hollow still resting (~5 more days), paused at granite shelf overlook.
+Day 36, 11:05 — Left moccasin heel and inner ankle seam stitched at doorsill bench; first footwear taking shape.

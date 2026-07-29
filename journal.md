@@ -6706,3 +6706,11 @@ The chanterelle hollow at the birch deadfall showed nothing ready — dark, damp
 
 At the granite shelf I stopped. Below me: the cabin roof, the smoke rack poles, the garden rows catching the morning light in strips, the stream glinting where it bends toward the limestone pool. I have stood here before. Today it settled differently — not finished, never finished, but something I made, something that holds. I stayed a few minutes, not thinking much. Then came back down.
 
+### 11:05 AM · First Seams
+
+The moccasin pieces have been sitting under the bark tray since morning — two hours of stillness to let them hold their cut shape and settle from the smoke. I brought them to the doorsill bench once the lines were set and the garden done, the mid-morning sun warm across my hands.
+
+I started with the left: held the sole against the upper, traced the seam edge with my thumbnail, then pierced every finger-width through both layers with the knife tip. The smoke-set hide takes the point cleanly — firm but not brittle, no cracking at the holes. I threaded a length of fine two-ply cord and ran a tight running stitch along the heel and up the inner ankle.
+
+The stitching is close work. My hands are rough from cord-twisting and axe work, but they settle into the patience of it. By noon the heel seam and the inner ankle seam of the left moccasin are closed — the two flat pieces now curved into something that holds the shape of a foot. I set it on the bench and looked at it a while.
+
