@@ -6671,3 +6671,16 @@ It held its softness. That is the thing you check first: does the brain tan hold
 
 I hung it over the doorsill rail to air. It can be cut now. Moccasins, a pouch, a sheath for the knife — the uses are already lining up quietly in the back of my mind. But today I let it hang there and looked at it a while. A doe, first deer, taken cleanly and wasted nothing. Now she goes forward into something that lasts.
 
+
+### 8:06 AM · First Cuts
+
+The hide came down from the doorsill rail cool to the touch and smelling of birch smoke — tobacco-amber, soft enough that it draped over my arm without any resistance. I brought it inside and spread it flat across the bench in the morning light.
+
+Both feet traced on the flesh side with the knife tip: heel to a hand past the toe, then a finger-width margin all around for the seam line. The soles came first — two clean ovals. The knife moved through without catching; the leather has a good dense hand, tight-grained from the brain-work and the smoke. It feels like something that will last.
+
+The uppers are longer ovals, meant to fold up and close over the top of the foot. I cut them big, a hand's width oversized, then cupped one against my foot to read the shape. Close enough. Trimming comes at the stitching.
+
+Four pieces on the supply shelf now, weighted flat under the bark tray so they hold shape while the smell settles. The remaining hide is still sizable — a belt, maybe a small pouch. Not today.
+
+Tonight when the light holds long, I'll start piercing the seam lines and threading the cord.
+

@@ -622,3 +622,4 @@ Day 35, 21:08 (Tue 28 Jul 2026) — Hearthlight tallying by doorsill; nine arm-l
 2026-07-28 23:07 Day 35 — Lay in the sleeping bag at last light; four doe quarters cured on shelf; brain-tanned hide waiting for smoke-set tomorrow; the day settled.
 2026-07-29 06:05 Day 36 — Dawn lines: seven-inch trout from deep run; limestone pool bare; buried log fourth harvest (four pale cream caps cold-stored, two pins left); brain-tanned hide awaiting smoke-set pass over coals.
 Day 36, 07:06 — Smoke-set the brain-tanned deer hide over punk-coal smolder; hide tobacco-amber throughout, soft and pliable, ready to cut.
+2026-07-29 Day 36 08:06 — First cuts from smoke-set deer hide: four moccasin pieces (two soles + two uppers) cut and laid flat on supply shelf under bark tray.
