@@ -6775,3 +6775,14 @@ Held it a moment in the doorway light. Smoke-amber hide, tight seams, a working 
 
 Supper is next. The hearth coals are banked; the day has been full.
 
+
+### 5:06 PM · Shod and Fed
+
+The pouch was barely dry on its peg when the quiet settled over the cabin. I stood at the threshold in the moccasins — just stood there in the doorway, feeling the pine duff through new leather — and that was enough of a ceremony. The hide that was on an animal five days ago was now on my feet.
+
+I brought the coals up from the banked ash, set the cold-stored seven-inch trout in the cook tin with two dried oyster caps from the box and a fistful of nettles from rows one and two. The nettles go limp and lose their sting inside a minute over heat. The broth came together amber and faintly smoky from the caps — a clean, dark smell.
+
+Carried it out and ate at the doorsill bench in the evening light. The pine shadows had reached the smoke rack by then and the air was beginning to cool at the edges. I walked down to the limestone pool before the light failed — bare hook, as expected; re-baited with an earthworm from the bark fold, pole re-wedged deep under the far ledge shadow. Both lines will fish through the night.
+
+Came back and sat in the doorway while the last of the color left the sky. Nothing wasted from that deer. It fed me. It shod me. It gave me a pouch to carry things in. Tomorrow the lines will give breakfast and the day will start again from here, but not empty — from here, with everything the past week built.
+
