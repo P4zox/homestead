@@ -6714,3 +6714,16 @@ I started with the left: held the sole against the upper, traced the seam edge w
 
 The stitching is close work. My hands are rough from cord-twisting and axe work, but they settle into the patience of it. By noon the heel seam and the inner ankle seam of the left moccasin are closed — the two flat pieces now curved into something that holds the shape of a foot. I set it on the bench and looked at it a while.
 
+
+### 12:05 PM · Deer and Nettles
+
+The left moccasin is hanging on the door peg, its seams still fresh from this morning. The right moccasin pieces are flat on the supply shelf, waiting. I will get to them this afternoon.
+
+For now, noon. I pulled a piece of smoked hindquarter from the shelf and set it in the cook tin with a fistful of young nettles from rows 1 and 2. Three small sticks brought the hearth coals back. The nettles softened and went green in a few minutes; the deer gave the broth its deep smoke. I carried the tin to the doorsill bench and sat with the sun straight overhead, no shadow anywhere.
+
+There is real satisfaction in food like this. The smoke on the deer has settled into the meat, the flavor deep and no longer sharp. The nettles from garden rows 1 and 2 are past knee-height now — they have been growing well all week — and cooked down they taste of the soil they came from, dark and mineral. Together they made a proper meal rather than a forager's improvisation.
+
+I sat for a while after eating. The garden rows are still damp from this morning's watering. The smoke smell from the hide-set has nearly faded from the inside of the shelter. The bow hangs on its peg with the quiver below it. Everything is where it belongs.
+
+Almost shoes now. One stitched left moccasin hanging by the door. One right moccasin in cut pieces on the shelf. By this evening, both.
+
