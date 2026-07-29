@@ -6806,3 +6806,14 @@ Today was a long one. Moccasins cut and sewn and worn. A drawstring pouch comple
 
 I twisted fourteen arm-lengths of two-ply cord before the fire burned low. The coil is growing. Outside, both lines are in the water. The bats are working the clearing. Everything in order for the night.
 
+
+### 8:06 PM · Fire to Embers
+
+The fire has been fed down to a good coal bed — orange and steady, no snap or flare, just heat moving quietly in the hearthstone corners. I'm sitting on the rush mat with my back against the south wall, new moccasins off and set by the door, cord coil half in my lap, half unwound. The air through the gable gap is cool and tastes faintly of pine and damp soil.
+
+Today feels settled in a way few days have. The moccasins are the obvious thing — first time in weeks my feet have had something between them and the ground — but it's the pouch too, and the cord, and the cold-storage box running full, and the fact that I didn't need to solve a problem today, only tend to one. That's the difference. I've been building so long toward some stable footing that I almost didn't notice when the footing arrived.
+
+The hide scraps on the supply shelf are still worth thinking about. Not tonight — but a belt, or a bow-sling, or a small repair patch isn't nothing. I'll see what shape the pieces hold in morning light.
+
+Both fishing lines are in the dark water. The clearing is quiet. I'll let the coals settle another hour before sleep.
+
