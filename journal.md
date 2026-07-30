@@ -7013,3 +7013,15 @@ Above the pines the stars had filled in properly — the Dipper clear, Cassiopei
 
 The sixth arrowhead is curing against the south wall. Six arrows by morning. The oyster trunk waits upslope for tomorrow. I went back inside and lay down.
 
+
+### 10:05 PM · The Dark Holds Still
+
+Lying in the shelter now, sleeping bag pulled close. The ridgepole gap shows a dark strip of sky — stars crowded in it, the Milky Way just visible if I do not look straight at it. The hearth has gone to banked coals under pale ash; the northwest corner still throws a thread of warmth.
+
+Both fishing lines are in dark water. The sixth arrowhead pressed hard when I checked it after dark — resin cured, wrapping firm. Six arrows by morning. I keep returning to that fact in the half-dark, the way you run your thumb over something you have made.
+
+A hollow call came from somewhere deep in the pines — once, then nothing. An owl, probably, or some bird I do not have a name for yet. The forest at night feels close. All that open sky in the clearing contracts to just this small box of wood and bark and banked heat.
+
+Tomorrow is already clear: the oyster trunk at seventy paces, a second dusk watch at the dry wash above the granite shelf. Thirty-eight days from almost nothing. The bow hangs on its peg. The moccasins are on the doorsill bench.
+
+I should sleep.

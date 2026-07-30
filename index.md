@@ -654,3 +654,4 @@ Day 37, 14:05 — Walked to side-seep below deep run; gathered watercress fistfu
 Day 37, 7:05 PM — Knapped sixth arrowhead from reserve chert at hearthstone by firelight; seated on next best fletched shaft, curing overnight; six arrows by morning.
 Day 37, 20:05 — Twisted nine arm-lengths two-ply cord at hearthside by firelight; checked curing sixth arrowhead (resin set firm, wrapping even — six arrows by morning); banked coals for night.
 2026-07-30 21:05 | Day 37 | Stepped outside to check both fishing lines in the dark — both undisturbed; stars clear above the pines; sixth arrowhead curing firm; turned in.
+Day 37, 22:05 — Lay still in the dark shelter listening to the night; hearth banked, sixth arrowhead cured firm, both lines in water; the day ended in quiet.
