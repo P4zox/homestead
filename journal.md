@@ -6953,3 +6953,12 @@ The hour held me. Insects in the warm air. One squirrel high on a branch watched
 
 No deer came. But I know the spot now: the wind line, the footing, the sight angles. The prints were real and the trail is used. I will come back.
 
+
+### 4:05 PM · Amber Pool, Late Light
+
+The dusk watch ran its hour at the dry wash without a deer, but the spot is known now — wind line, footing, sight angles figured out. On the walk back down I loop past the limestone pool before the light changes too much.
+
+The pole sits wedged under the far ledge shadow where I left it at ten. I pull slowly: weight on the line, a seven-inch trout clean and firm. Clean it at the flat pool stone, dock-wrap it, carry it back and cold-store it in the box beside the morning catches. Re-bait with a fresh earthworm from the bark fold, wedge the pole back in under the ledge shadow — line set again for the evening.
+
+The sun still hangs well above the ridge but the shadows have gone long. Yellow bars cross the meadow when I walk through it, the dry grass lit sideways, moccasins quiet underfoot. The cold-storage box is full now and supper is still to come. Tonight: trout and watercress over hearthcoals, eaten at the doorsill in whatever light is left.
+

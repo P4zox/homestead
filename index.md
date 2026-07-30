@@ -648,3 +648,4 @@ Day 37, 2026-07-30, 08:05 — Upslope walk with bow and moccasins; oyster trunk 
 2026-07-30 13:05 Day 37 — Carved birch toggle for drawstring pouch in east-wall shade; afternoon still; dusk watch at dry wash above granite shelf planned for when sun angles west.
 Day 37, 14:05 — Walked to side-seep below deep run; gathered watercress fistful; sat at stream bend in afternoon heat; dusk watch still planned for dry wash above granite shelf.
 2026-07-30 15:05 — Day 37, dusk watch at dry wash above granite shelf; one hour still at north edge; no deer this hour; spot now known well; will return.
+2026-07-30 16:05 Day 37 — Limestone pool: seven-inch trout on afternoon pull; supper set (trout and watercress over hearthcoals).
