@@ -6924,3 +6924,16 @@ The dusk watch at the dry wash above the granite shelf is still the plan. The de
 
 Quiet here at midday. A wood pigeon calling from somewhere deep in the pines, the low murmur of the stream below, nothing else.
 
+
+### 1:05 PM · A Toggle and the Wait
+
+The shadow line runs tight against the cabin walls. I have been sitting at the doorsill bench since noon — the clearing out there shimmers and stills, shimmers and stills, and the wood pigeon has been calling from the pines in that looping, low way it does when the day goes thick with heat. There is nothing to do in this hour that wants urgency. That is a luxury, and I am trying to receive it as one.
+
+I have the remaining hide scrap in my lap and my knife on the bench beside it. The scrap is a hand-span wide, maybe two hands long — not enough for another pouch, but something. I split a thumb-length of dry birch from the woodpile, trim it to a cylinder with three passes of the knife edge, and score a shallow groove around its center with the tip. Four strokes to ease the ends round, one pass to smooth the belly. It is the kind of work that empties the mind without demanding it.
+
+The toggle threads onto the drawstring cord and knots cleanly below the groove. The pouch cinches with a quarter-turn now instead of a full pull — a small gain, but the kind that matters each time. I hold the pouch for a moment, test the open and close twice, and hang it back on the wall peg.
+
+The clearing is completely still. A bee comes and goes in the lower meadow — I can hear the note of it now and then on almost no air at all. The deer trail is in the back of my mind: the dry wash above the granite shelf, east-traveling prints crisp within a day, the hollow of the crossing where animals move by habit. I am planning the approach from the north, downwind of the trail. I will leave when the light tips.
+
+I put the knife back on the bench and sit with my back against the doorpost. The wood sorrel in row five is just visible from here — small bright tufts nodding in nothing. Cold wood sorrel eaten, last of the noon. I wait for the angle of the light to change.
+
