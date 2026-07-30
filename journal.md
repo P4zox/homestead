@@ -7004,3 +7004,12 @@ Before I bank the coals I check the curing arrowhead. The pine resin has gone fr
 
 Both lines in the stream. The wood thrush went quiet an hour ago. I add ash over the coals, set the new cord coil on the supply shelf, and that is the end of Day 37.
 
+
+### 9:05 PM · Dark Lines, Clear Stars
+
+I stepped outside once more before sleep — doorsill plank, then cool ground to the stream edge. Both lines sat in their places: the deep-run cord angled down into the undercut bank, the limestone pool pole wedged firm in ledge shadow. No tug to either. I stood a moment with the stream sound all around me.
+
+Above the pines the stars had filled in properly — the Dipper clear, Cassiopeia tilting north, the Milky Way spread thin between the ridgelines. No wind. Forest perfectly quiet except the water running over stones.
+
+The sixth arrowhead is curing against the south wall. Six arrows by morning. The oyster trunk waits upslope for tomorrow. I went back inside and lay down.
+

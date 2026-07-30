@@ -653,3 +653,4 @@ Day 37, 14:05 — Walked to side-seep below deep run; gathered watercress fistfu
 2026-07-30 | Day 37, 18:05 | Hearthside, Evening Cord | Rebuilt evening fire from supper coals with three birch splits; twisted fourteen arm-lengths two-ply cord at hearthside in firelit evening; wood thrush singing in the pines.
 Day 37, 7:05 PM — Knapped sixth arrowhead from reserve chert at hearthstone by firelight; seated on next best fletched shaft, curing overnight; six arrows by morning.
 Day 37, 20:05 — Twisted nine arm-lengths two-ply cord at hearthside by firelight; checked curing sixth arrowhead (resin set firm, wrapping even — six arrows by morning); banked coals for night.
+2026-07-30 21:05 | Day 37 | Stepped outside to check both fishing lines in the dark — both undisturbed; stars clear above the pines; sixth arrowhead curing firm; turned in.
