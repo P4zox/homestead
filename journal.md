@@ -6973,3 +6973,12 @@ When I lifted the lid, the steam came out sweet and clean: trout, oyster mushroo
 
 Oyster trunk is ready by morning. Chanterelle hollow rests three more days. Both lines in dark water. The box is full. There is nothing left to do tonight but let the fire settle.
 
+
+### 6:06 PM · Hearthside, Evening Cord
+
+The supper fire had burned down to a deep orange bed while I ate, and after I set the tin aside I added three birch splits from the east-wall stack — good dry fuel, split tight, they caught quickly on the coals without coaxing. The shelter warmed a little as the new wood took.
+
+I brought the bark-strip bundle inside and settled at the doorsill bench with my legs stretched toward the threshold, where the last outdoor light still came in slanted and gold. The wood thrush sang from the middle pines — three or four phrases, then quiet, then again. I twisted cord. Hands moving in the old rhythm, fingers drawing the fibres back and rolling forward, the two plies winding around each other as the strip fed through. Fourteen arm-lengths added to the coil before the light outside went flat.
+
+Tomorrow morning: oyster trunk at seventy paces upslope should be ready to harvest. And then, if the light holds past mid-afternoon, a second dusk watch at the dry wash above the granite shelf. The deer trail is still new enough. Tonight the lines are in the water and the fire is holding and the cord is longer. That is enough for one evening.
+
