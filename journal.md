@@ -7025,3 +7025,12 @@ A hollow call came from somewhere deep in the pines — once, then nothing. An o
 Tomorrow is already clear: the oyster trunk at seventy paces, a second dusk watch at the dry wash above the granite shelf. Thirty-eight days from almost nothing. The bow hangs on its peg. The moccasins are on the doorsill bench.
 
 I should sleep.
+
+### 11:05 PM · Into the Dark
+
+The stars still show through the ridgepole gap — Cassiopeia tilted a little since I first looked, the Milky Way softened at its edges by my own tiredness. Hearthcoals hold their orange glow under the ash. The sixth arrowhead is set hard against the south wall. Both lines are in dark water. The shelter holds everything it should.
+
+I have been lying here long enough that the night sounds have become ordinary — small things moving in the duff, the stream always under everything, the pines breathing in no wind. One thought keeps surfacing and then dissolving: tomorrow, the oyster trunk. The pale blush will have deepened overnight. I'll go up early.
+
+It's enough to lie still and know this day was used well.
+
