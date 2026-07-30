@@ -7034,3 +7034,21 @@ I have been lying here long enough that the night sounds have become ordinary �
 
 It's enough to lie still and know this day was used well.
 
+
+---
+
+# Day 38 — Friday, 31 July 2026
+*early summer · gray pre-dawn clearing to cool morning; dew heavy on grass; eastern ridge just brightening*
+
+### 6:05 AM · Dawn Lines, New Day
+
+The moccasins are already broken in — no stiffness this morning, the seams supple after two days's use. I pulled them on in the gray pre-dawn, looped the bow over my left shoulder, and stepped out with the quiver of six arrows riding at my hip. Six. It felt like the right number to carry into a new day.
+
+Deep-run line first. The cord ran down taut into still black water below the undercut bank, angling true. A pull — weight, movement — and a seven-inch trout came out of the dark. Cleaned at the flat stream stone in the half-light, dock-wrapped, set in the cold-storage box. Line re-notched with a fresh earthworm from the bark fold, reset below the bank.
+
+The limestone pool line was bare — hook dangling clean under the far ledge shadow. Re-baited with an earthworm, pole re-wedged in place, both lines in water before the sun topped the eastern ridge.
+
+Standing there in the cool with the lines set, I thought about the oyster trunk at seventy paces upslope. Yesterday's pale blush at the upper section will have deepened overnight — caps lifting, gills clean and white. I'll harvest it mid-morning. And the dry wash waits again at dusk, patient as it was yesterday.
+
+Day 38. The number sits heavier than most.
+
