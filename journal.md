@@ -6962,3 +6962,14 @@ The pole sits wedged under the far ledge shadow where I left it at ten. I pull s
 
 The sun still hangs well above the ridge but the shadows have gone long. Yellow bars cross the meadow when I walk through it, the dry grass lit sideways, moccasins quiet underfoot. The cold-storage box is full now and supper is still to come. Tonight: trout and watercress over hearthcoals, eaten at the doorsill in whatever light is left.
 
+
+### 5:05 PM · Supper at the Threshold
+
+The fire lit cleanly on this evening's coal bed — the hearthstones still held warmth from breakfast, and a birch-bark twist and three dry splits had the bed glowing in minutes. I laid the seven-inch limestone pool trout in the cook tin with the fistful of watercress and two dried oyster caps, lidded it loosely, and set it over the coals to steam.
+
+The clearing has gone all amber. Long shadows from the pines reach east past the garden rows; the nettles at the end of row two look lit from inside. I sat on the doorsill bench with the tin between my feet and watched the open ground cool while the trout cooked. Moccasins kept the step-stone cold off my soles. Somewhere in the middle pines a wood thrush was singing — that slow, spiraling call, the one that sounds like it means something more than a bird means.
+
+When I lifted the lid, the steam came out sweet and clean: trout, oyster mushroom, the green bite of watercress. Ate it in the doorway with my back to the warm hearth and my face to the last west light. The bow leaning on the doorpost beside me. Quiver beside that. A full day behind me — cord twisted in the east-wall shade, the toggle carved, the dusk watch held for an hour on the dry wash with no deer and no regret. The position is known now. The wind line, the footing, the twenty paces of trail I'm watching. Tomorrow's watch will be calmer for having sat through this one.
+
+Oyster trunk is ready by morning. Chanterelle hollow rests three more days. Both lines in dark water. The box is full. There is nothing left to do tonight but let the fire settle.
+
