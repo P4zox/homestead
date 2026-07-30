@@ -6913,3 +6913,14 @@ My thoughts keep going up the slope to the dry wash. The deer trail crossing it 
 
 For now: cord. The garden is alive in full sun. Both lines are in the water. The cold-storage box is stocked. A good day before anything has happened yet.
 
+
+### 12:05 PM · Noon Rest, Arrows Ready
+
+The sun is straight overhead, the shadow of the cabin pulled in tight against the walls. I took down a piece of smoked hindquarter from the supply shelf and pulled a handful of wood sorrel from row five — bright, cool little leaves, good against the warm dry meat. Ate at the doorsill bench in the narrow noon shade. The moccasins warm on my feet in the slant of light that reached the threshold.
+
+Afterward, I took the quiver down and went through all five arrows slowly. Each head firm in its resin-and-cord binding, each shaft straight, each vane sitting clean and flat. One slow draw on the bow to feel where the limbs are — even, honest, no complaint from either limb. I looped the sling back over my shoulder and set the quiver against the doorpost.
+
+The dusk watch at the dry wash above the granite shelf is still the plan. The deer trail I found at 08:05 was east-traveling, prints within a day. If the animal keeps a circuit, it might cross the wash again near dusk. I'll leave when the sun begins to angle — another few hours. For now: rest, let the noon heat roll by, let the morning work settle in the body.
+
+Quiet here at midday. A wood pigeon calling from somewhere deep in the pines, the low murmur of the stream below, nothing else.
+
