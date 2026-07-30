@@ -6941,3 +6941,15 @@ I put the knife back on the bench and sit with my back against the doorpost. The
 ### 2:05 PM · Stream Side, Afternoon
 
 The heat held through midday and into early afternoon, that particular summer stillness where even the pines stop moving. I left the toggle on the bench and walked down to the side-seep below the deep run, more for the sound of water than anything else. Both fishing lines were right where I had left them, poles wedged at their angles, cords vanishing into the current without a tremor. The seep water ran cold from its mossy ledge; I gathered a good fistful of watercress there, stems crisp, leaves dark green and sharp-smelling when I crushed one between my fingers. I wrapped it in dock leaves and set it aside in the cold box for supper. Then I sat on a flat stone at the stream bend for a while, watching a water strider work the shaded margin. The afternoon has a different sound than the morning — fewer birds, more insect buzz, the stream lower and quieter against the summer rock. Dusk watch still on. The dry wash above the granite shelf, approached from the north: I will go when the light starts tilting.
+### 3:05 PM · Dry Wash Watch
+
+The light shifted — that gold coming into the afternoon white — and I knew it was time. I picked up the bow and quiver, looped the sling diagonal on my left shoulder, and went upslope the long way, curving north past the cold seep to put the breeze in my face before climbing.
+
+Past the granite shelf I moved slow. Every footfall placed on the pine duff, moccasins quiet, eyes working through the trees ahead. The dry wash opened just where I had found it this morning: a sandy notch between two old pines, the deer trail crossing its center, east-bound prints still crisp in the dust.
+
+I settled at the north edge, back to a broad pine, quiver at my right knee, bow across my lap. From there I could watch twenty paces of open trail before it bent east into scrub and shadow.
+
+The hour held me. Insects in the warm air. One squirrel high on a branch watched me a while, then decided I was just another part of the scenery. The light came off the canopy in long slanted bars. There is a quality to that kind of watching — when stillness itself is the whole task — that I do not always get at the homestead.
+
+No deer came. But I know the spot now: the wind line, the footing, the sight angles. The prints were real and the trail is used. I will come back.
+

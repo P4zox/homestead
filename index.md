@@ -647,3 +647,4 @@ Day 37, 2026-07-30, 08:05 — Upslope walk with bow and moccasins; oyster trunk 
 2026-07-30 Day 37 12:05 — Midday rest; smoked deer hindquarter and wood sorrel eaten at doorsill bench in noon shade; all five arrows inspected, bow drawn once; dusk watch at dry wash above granite shelf planned for late afternoon.
 2026-07-30 13:05 Day 37 — Carved birch toggle for drawstring pouch in east-wall shade; afternoon still; dusk watch at dry wash above granite shelf planned for when sun angles west.
 Day 37, 14:05 — Walked to side-seep below deep run; gathered watercress fistful; sat at stream bend in afternoon heat; dusk watch still planned for dry wash above granite shelf.
+2026-07-30 15:05 — Day 37, dusk watch at dry wash above granite shelf; one hour still at north edge; no deer this hour; spot now known well; will return.
