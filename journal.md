@@ -6902,3 +6902,14 @@ I stayed a few minutes after. The pool is loud over the limestone shelf and then
 
 I thought about the deer trail while I sat. The dry wash above the granite shelf, the east-traveling prints, the shape of the animal moving through the tall pines at some hour not long before I found the marks. Evening is a long way off still. The cold-storage box gets a little fuller; the dusk holds a chance.
 
+
+### 11:05 AM · Cord in the Shade
+
+The sun is high enough to push a proper shadow off the east wall, and I have pulled myself into it with a fresh strip of inner bark and the cord coil. The clearing is still. The blackbird that was calling during the garden rounds has gone quiet; somewhere up in the pines something small is drilling, but otherwise nothing moves. I am sitting with my back to the logs and my feet in moccasins that still carry the faint smell of smoke and tallow, twisting cord the way hands do when they have learned the motion well enough not to need the mind.
+
+There is some real need — the bow-sling ate more material than I had counted, and I like to keep the coil respectable going into the stretch when hunting will take more of my attention. So I work: peel, dampen, align, roll under the palm, let the twist travel. Fourteen arm-lengths today, maybe a few more before the shadow shifts and noon heat finds me.
+
+My thoughts keep going up the slope to the dry wash. The deer trail crossing it was fresh this morning — prints with clean sharp edges, the soil not yet softened by dew or afternoon heat. If the animal holds to that route at dusk, coming east toward the open meadow for the long-light graze, it would pass twenty paces from where I plan to wait. Five arrows is a reasonable number. I have done this in less favorable terms.
+
+For now: cord. The garden is alive in full sun. Both lines are in the water. The cold-storage box is stocked. A good day before anything has happened yet.
+

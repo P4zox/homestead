@@ -643,3 +643,4 @@ Day 37 · 2026-07-30 · 06:05 — Both lines checked at dawn (deep-run seven-inc
 Day 37, 2026-07-30, 08:05 — Upslope walk with bow and moccasins; oyster trunk pale blush, one day from harvest; deer trail and dry wash found beyond the granite shelf — dusk-watch position noted.
 2026-07-30 09:05 · Day 37 · Cooked dawn trout with dried oyster caps at doorsill; planned dusk deer watch at dry wash above granite shelf.
 2026-07-30 10:05 Day 37 — Checked limestone pool line (six-inch trout, cold-stored); sat at pool in morning sun; dusk deer watch planned for dry wash above granite shelf.
+2026-07-30 Day 37, 11:05 — Cord in the Shade: twisted fourteen arm-lengths two-ply bark cord in east-wall shade; dusk watch planned at dry wash for the deer trail found this morning.
