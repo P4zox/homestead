@@ -6869,3 +6869,16 @@ The nettles in rows one and two are proper stands now, past knee-height, serrate
 
 A blackbird called once from somewhere in the pines while I worked. The moccasins felt good on the dew-wet grass between rows. I noticed that, and was glad.
 
+
+### 8:05 AM · Upslope at Eight
+
+After watering the garden I slung the bow across my left shoulder and climbed. First time going upslope properly outfitted — moccasins on, pouch at my hip, the five arrows riding fletching-up in the bark quiver. The bow-sling sits well; the limbs angle up clear of branches.
+
+I stopped at the rotting pine at seventy paces. The oyster trunk showed a pale blush along the upper section — a new flush coming, maybe one more day to harvestable size. I replaced the bark I had lifted and kept climbing.
+
+Past the dry birch stand, past the granite shelf. I paused there and looked south — cabin roof just visible through the canopy edge, garden rows a pale-green stripe on the bench below, smoke rack standing quiet. Stream sound somewhere through the trees.
+
+Beyond the shelf I had never been. The pines grow taller here, spacing apart, undergrowth thinner and softer underfoot. I found a deer trail twenty paces in — hoofprints pressed into soft earth, their edges still crisp, within a day at most. The trail crossed a narrow dry wash and ran east across the slope. Likely a route between bedding ground and water. I followed it fifty paces east and crouched at the wash, studying the ground. Good place to wait below at dusk, sheltered by the bank.
+
+Coming back down through the full morning light I felt something settle in me. The homestead is not just the clearing anymore. It has edges I know now, paths I have walked, ground I can read. That is a different kind of belonging than just having a roof.
+

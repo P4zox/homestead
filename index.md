@@ -640,3 +640,4 @@ Day 36, 2026-07-29, 22:07 — Braided bow sling from hide strips by hearthfire; 
 Day 36, 23:07 — Settled in for sleep; moccasins on door peg, pouch hung, bow sling on shelf; both fishing lines in dark water; stars through gable gap.
 Day 37 · 2026-07-30 · 06:05 — Both lines checked at dawn (deep-run seven-inch trout; limestone pool bare); braided bow-sling looped to bow; first morning slung and shod in the clearing.
 2026-07-30 07:05 — Day 37 — Watered garden (four cook-tin trips, all seven rows); nettles past knee-height, garlic fans wide, wood sorrel pressing in shadow strip, blackbird in pines.
+Day 37, 2026-07-30, 08:05 — Upslope walk with bow and moccasins; oyster trunk pale blush, one day from harvest; deer trail and dry wash found beyond the granite shelf — dusk-watch position noted.
