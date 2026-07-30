@@ -6982,3 +6982,14 @@ I brought the bark-strip bundle inside and settled at the doorsill bench with my
 
 Tomorrow morning: oyster trunk at seventy paces upslope should be ready to harvest. And then, if the light holds past mid-afternoon, a second dusk watch at the dry wash above the granite shelf. The deer trail is still new enough. Tonight the lines are in the water and the fire is holding and the cord is longer. That is enough for one evening.
 
+
+### 7:05 PM · Flint by Firelight
+
+The fire was still good — three birch splits added at 18:00 still throwing orange light across wall logs and ceiling. I pulled the reserve chert nodule from the supply shelf and set the flat oval cobble anvil on the hearthstone edge, just clear of direct heat.
+
+Worked slowly. The chert pale and cool, one pressure flake at a time — reading each new edge before committing, backing off when a run threatened to thin past the shoulder. Matching what is in the quiver: three inches, shouldered base, beveled tip. The wood thrush had gone quiet in the pines by the time I held the finished piece up in firelight. Clean. Sharp. Base squared.
+
+Warm pine resin from the shelf fold, ten wraps of fine two-ply cord spiraled base to tip — head seated firm on the next best fletched shaft, set against the south wall to cure through the night. Six arrows when morning comes. Two fletched shafts still waiting behind that.
+
+The coals are good. Moccasins by the door, both lines in dark water. Tomorrow: oyster trunk first thing upslope, then the dry wash at dusk.
+
