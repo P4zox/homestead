@@ -6993,3 +6993,14 @@ Warm pine resin from the shelf fold, ten wraps of fine two-ply cord spiraled bas
 
 The coals are good. Moccasins by the door, both lines in dark water. Tomorrow: oyster trunk first thing upslope, then the dry wash at dusk.
 
+
+### 8:05 PM · Hearthside Hold
+
+Outside the open door the clearing is fully dark now — pines as silhouettes, first stars coming in through the gap above the ridgepole. The hearth fire from supper has burned down to a steady coal bed, orange-edged and even, and I have pulled a length of bark cord across my knees and set to work in the warm light.
+
+Nine arm-lengths by the time the rhythm slows. My hands know the twist without much thought now — I can be somewhere else while they work. I am at the dry wash above the granite shelf, tracing the deer trail east in my mind, choosing where to sit tomorrow, thinking about wind. The oyster trunk at seventy paces will be first light work; the dusk watch comes after.
+
+Before I bank the coals I check the curing arrowhead. The pine resin has gone from amber gloss to a dull firm set, the cord wrapping sitting even and tight. Good. Six arrows by morning.
+
+Both lines in the stream. The wood thrush went quiet an hour ago. I add ash over the coals, set the new cord coil on the supply shelf, and that is the end of Day 37.
+
