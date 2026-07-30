@@ -641,3 +641,4 @@ Day 36, 23:07 — Settled in for sleep; moccasins on door peg, pouch hung, bow s
 Day 37 · 2026-07-30 · 06:05 — Both lines checked at dawn (deep-run seven-inch trout; limestone pool bare); braided bow-sling looped to bow; first morning slung and shod in the clearing.
 2026-07-30 07:05 — Day 37 — Watered garden (four cook-tin trips, all seven rows); nettles past knee-height, garlic fans wide, wood sorrel pressing in shadow strip, blackbird in pines.
 Day 37, 2026-07-30, 08:05 — Upslope walk with bow and moccasins; oyster trunk pale blush, one day from harvest; deer trail and dry wash found beyond the granite shelf — dusk-watch position noted.
+2026-07-30 09:05 · Day 37 · Cooked dawn trout with dried oyster caps at doorsill; planned dusk deer watch at dry wash above granite shelf.

@@ -6882,3 +6882,14 @@ Beyond the shelf I had never been. The pines grow taller here, spacing apart, un
 
 Coming back down through the full morning light I felt something settle in me. The homestead is not just the clearing anymore. It has edges I know now, paths I have walked, ground I can read. That is a different kind of belonging than just having a roof.
 
+
+### 9:05 AM · Breakfast and a Plan
+
+The hearth still held coals from the night — raked one orange cluster forward, fed it a handful of dry needles, had a small fire going before my moccasins were pulled off my feet. The dawn-caught trout went into the cook tin with two dried oyster caps and a little water, and while it cooked I sat on the doorsill bench and let the morning settle around me.
+
+The deer trail was still running in my head. Crisp prints, edges unblurred — the animal had moved through within a day, maybe overnight. East-traveling, crossing the dry wash where the pines thin and the slope drops into shadow. If I sit at the lip of the wash at dusk, the wind will run upslope and carry my scent clear. Five arrows in the quiver. A bow proven at twenty paces. The preparation is already done.
+
+I ate slowly in full morning light. Good fish, lean and clean. Not every dusk watch gives you anything — but the sitting and the stillness are worth something on their own. I will go up before the light fails and let the slope tell me what it will.
+
+The mist is gone off the clearing now. Both lines are in water. The morning feels still and full.
+
