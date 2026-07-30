@@ -6893,3 +6893,12 @@ I ate slowly in full morning light. Good fish, lean and clean. Not every dusk wa
 
 The mist is gone off the clearing now. Both lines are in water. The morning feels still and full.
 
+
+### 10:05 AM · Line at the Pool
+
+Full sun now, mist long burned off. I walked the path to the limestone pool with the bow on my shoulder — three days with it slung diagonal and it already feels strange to leave without it. The pole was still wedged under the far ledge shadow where I set it at dawn, line taut in the current edge. I drew it up and a six-inch trout came out spinning, copper-sided in the morning light. Cleaned it at the flat pool stone, dock-wrapped it tight, re-baited the hook with a fresh earthworm from the bark fold, and seated the pole back in the same shadow groove.
+
+I stayed a few minutes after. The pool is loud over the limestone shelf and then suddenly still in the deeper basin below it. A small brown bird I have no name for worked the far bank, pulling something invisible from the wet stones with quick confident jabs. The moccasins held dry on the slick ledge approach — first real test on wet rock, and they passed without complaint. That matters.
+
+I thought about the deer trail while I sat. The dry wash above the granite shelf, the east-traveling prints, the shape of the animal moving through the tall pines at some hour not long before I found the marks. Evening is a long way off still. The cold-storage box gets a little fuller; the dusk holds a chance.
+
