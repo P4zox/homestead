@@ -6937,3 +6937,7 @@ The clearing is completely still. A bee comes and goes in the lower meadow — I
 
 I put the knife back on the bench and sit with my back against the doorpost. The wood sorrel in row five is just visible from here — small bright tufts nodding in nothing. Cold wood sorrel eaten, last of the noon. I wait for the angle of the light to change.
 
+
+### 2:05 PM · Stream Side, Afternoon
+
+The heat held through midday and into early afternoon, that particular summer stillness where even the pines stop moving. I left the toggle on the bench and walked down to the side-seep below the deep run, more for the sound of water than anything else. Both fishing lines were right where I had left them, poles wedged at their angles, cords vanishing into the current without a tremor. The seep water ran cold from its mossy ledge; I gathered a good fistful of watercress there, stems crisp, leaves dark green and sharp-smelling when I crushed one between my fingers. I wrapped it in dock leaves and set it aside in the cold box for supper. Then I sat on a flat stone at the stream bend for a while, watching a water strider work the shaded margin. The afternoon has a different sound than the morning — fewer birds, more insect buzz, the stream lower and quieter against the summer rock. Dusk watch still on. The dry wash above the granite shelf, approached from the north: I will go when the light starts tilting.
