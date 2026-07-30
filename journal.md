@@ -7052,3 +7052,12 @@ Standing there in the cool with the lines set, I thought about the oyster trunk 
 
 Day 38. The number sits heavier than most.
 
+
+### 7:06 AM · Morning Rounds
+
+The dew is still heavy when I carry the first cook-tin of water from the deep run to the garden. Seven rows east to west — four trips, unhurried. The garlic fans are wide and dark green in the angled morning light, dandelion rosettes broad and well-settled, wood sorrel tucked along the north edge in the last of the shadow. The nettles in rows one and two are past knee-height now, stems thick and bristled. The mint in five through seven has pushed out into its neighbors — I note it but leave it; that fight can wait a day.
+
+By the third tinful, there is that smell: wet loam and crushed mint rising in the still air. The sun is just clearing the eastern ridge, long and low through the pines, and the mist is beginning to lift out of the slope behind the shelter. I do this every morning. Some mornings it is just work, and some mornings — like this one, in the haze before the air warms — it is the whole of a life laid out in seven rows.
+
+The cold-storage box holds two trout and mushrooms. The quiver holds six arrows. The oyster trunk upslope is waiting, ready for mid-morning harvest. I rinse the tin in the stream shallows and set it on the hearthstone to dry.
+

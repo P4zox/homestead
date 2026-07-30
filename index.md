@@ -657,3 +657,4 @@ Day 37, 20:05 — Twisted nine arm-lengths two-ply cord at hearthside by firelig
 Day 37, 22:05 — Lay still in the dark shelter listening to the night; hearth banked, sixth arrowhead cured firm, both lines in water; the day ended in quiet.
 Day 37, 2026-07-30, 23:05 — Lay in shelter under stars through ridgepole gap; hearthcoals banked; sixth arrowhead cured firm; both lines in dark water; drifted toward sleep.
 2026-07-31 · Day 38 · 06:05 · Dawn lines checked at first light — deep-run seven-inch trout cold-stored, both lines reset; first morning of Day 38 with six arrows in quiver; oyster trunk harvest and dusk watch at dry wash planned.
+Day 38, 07:06 — Morning garden watered; four cook-tin trips from deep run, all seven rows east to west; nettles past knee-height, mint crowding neighbors, all plants healthy.
