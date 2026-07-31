@@ -7170,3 +7170,16 @@ I raked the hearth coals forward and fed them a few dry pine pieces until the fi
 It was a good supper. The oyster caps soften at the edges when they cook, and the trout separates cleanly off the bone when it's right. I ate slowly and watched the light leave the clearing.
 
 The bucket of stream water is waiting by the cold-storage box. After dark I'll lower the hide off the stakes and let it soak through the night. By tomorrow morning the center should have loosened enough to work with. Both lines are in the water. The seventh arrowhead is curing against the south wall. The day is nearly done.
+
+### 6:06 PM · Hide to Water
+
+The clearing was all amber when I pulled the last stake free. The hide came off the frame in one piece — pale and stiff at the edges, still holding a little give in the thicker center. A day in the sun does that: drives the moisture out, leaves the skin hard as parchment where it thins toward the flanks.
+
+I carried it over one shoulder, the birch-bark bucket in the other hand. Thirty paces upstream to the cold seep, where the bucket was already waiting beside the cold-storage box. I folded the hide down into the water — had to press the stiff edges under — then walked the stream bank for a flat stone heavy enough to hold it and laid it over the rim. The hide settled, pulled down by the weight, edges softening in the cold.
+
+The water will do the rest tonight. By morning the whole skin will be workable again, and I can start the render.
+
+Standing there in the last of the rose light I noticed the seventh arrowhead had cured while I was at supper — three hours on the pine resin is enough. I lifted it from the south wall: firm, no wobble, shaft true. Slid it into the quiver with the others. Seven now. That felt like a quiet milestone, standing there in the seep shadow with my feet in wet grass and both fishing lines ticking somewhere below in the dark water.
+
+The stream runs very quiet tonight. No wind at all.
+

@@ -668,3 +668,4 @@ Day 38, 14:07 — Doe hide checked on stakes: edges cream-stiff, center still so
 2026-07-31 15:07 Day 38 — Knapped seventh arrowhead at hearthstone (pale grey, 3 in, shouldered base); seated on seventh fletched shaft with pine resin and ten-wrap fine cord — curing against south wall. One fletched shaft remaining.
 [Day 38 — 2026-07-31 16:05] Dusk watch at the dry wash above the granite shelf — bow slung, six arrows, settled on a fallen pine downwind of the deer trail; no deer appeared but geometry of the site well-learned for future watches.
 2026-07-31 17:05 — Day 38 — Evening supper at doorsill: deep-run trout, smoke-dried oyster caps, watercress; hide bucket-ready for tonight's soak; seventh arrowhead curing; brain-render tomorrow.
+2026-07-31 (Day 38, 18:06) — Doe hide unstaked and submerged in cold seep for overnight soak; seventh arrowhead cured, seven complete arrows in quiver.
