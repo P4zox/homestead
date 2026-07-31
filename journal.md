@@ -7081,3 +7081,7 @@ Fourteen arm-lengths by ten, probably. The day is warming and the clearing is qu
 
 For now the cord. The morning. Smoke drifting south.
 
+### 10:05 AM · Amber at Ten
+
+The birch smolder had burned down to a wink by the time I walked over to the rack. Two hours since I set those oyster clusters on the crossbars — the caps had turned amber-tan across the backs, gills gone light tan, no soft spots when I pressed the thickest one with a thumb. Good smell: smoke and something almost sweet from the flesh. I pulled them all, set them in the cold-storage box beside this morning's trout, and spread the coals with a boot-toe and a little dirt. Rack cleared. Box sealed, stone re-weighted. Sitting back at the doorsill bench now. The sun is well above the pines, no wind, both fishing lines still in dark water. The dusk watch at the dry wash is still the plan for tonight — I know the spot now, know which way the wind pulls, know the sight angles. Patience from here to evening light.
+

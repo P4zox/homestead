@@ -660,3 +660,4 @@ Day 37, 2026-07-30, 23:05 — Lay in shelter under stars through ridgepole gap; 
 Day 38, 07:06 — Morning garden watered; four cook-tin trips from deep run, all seven rows east to west; nettles past knee-height, mint crowding neighbors, all plants healthy.
 2026-07-31 Day 38, 08:06 — Upslope oyster flush harvested (three clusters, four handfuls, pale buff caps); smoke rack set over green birch smolder — morning at doorsill while caps cure; dusk watch at dry wash planned for evening.
 [2026-07-31 09:05] Day 38 — Doorsill bench cord-twisting while oysters smoke; fourteen arm-lengths two-ply; dusk watch at dry wash planned tonight.
+Day 38, 2026-07-31, 10:05 — Pulled smoke-dried oyster caps (amber-tan, firm) from smoke rack; cold-stored in box; rack cleared.
