@@ -7214,3 +7214,10 @@ All eight shafts fletched, all eight arrowheads fitted. The bow has a full quive
 
 The stream sounds unchanged beyond the door. The doe hide is soaking in its cold bucket. Everything is in place for what comes tomorrow. I lay down with the fire breathing slow under its ash and the ridgepole gap full of stars.
 
+
+### 10:08 PM · All Eight Done
+
+Late — the shelter holds the warmth the day pressed into it, faint now and good. Through the ridgepole gap the stars are thick; I know the bright ones by place now, not by name, but by where they sit in the gap when I look straight up. The eighth arrowhead is curing against the south wall. By morning every arrow will be solid — eight shafts, eight heads, all lashed and resin-set. No fletched shafts remaining to seat. That chapter of making is done.
+
+The doe hide soaks in the cold seep bucket with a flat stone over it. Tomorrow I will render the brain at the hearthstone and work the slurry through the hide — I know the logic from watching my own hands figure things out; the practice will teach me the rest. Both fishing lines sit in dark water. The stream runs on underneath everything. I am tired in the way that asks nothing further of you — it just closes, and you let it.
+

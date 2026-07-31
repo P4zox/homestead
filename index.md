@@ -672,3 +672,4 @@ Day 38, 14:07 — Doe hide checked on stakes: edges cream-stiff, center still so
 2026-07-31 19:06 Day 38 — cord-twisting at doorsill, stars in ridgepole gap; both lines in dark water; brain-render tomorrow
 Day 38, 20:06 — Red clover tea at doorsill bench in still night; owl heard upslope, stream below; reflected on tomorrow's brain-render before sleep.
 2026-07-31 Day 38, 21:06 — Eight Arrows Complete: last arrowhead knapped from reserve chert by hearthlight, seated on final fletched shaft to cure overnight; all eight arrows complete by morning.
+Day 38, 2026-07-31, 22:08 — Late night quiet: all eight arrows complete (eighth curing south wall), doe hide soaking for brain-render at dawn Day 39.
