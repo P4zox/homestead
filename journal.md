@@ -7107,3 +7107,14 @@ The meal was good. The chanterelles reconstituted soft and dark in the steam; th
 
 Both lines are in water somewhere downstream. The bow hangs on its peg. Tonight I'll sit the dry wash above the granite shelf at dusk. Tomorrow the brain-render and tanning begin.
 
+
+### 1:05 PM · Still Pool, Bright Fish
+
+The noon sun had climbed off the hide stakes by the time I finished eating — the skin already pale at the corners where it loses moisture fastest. I walked to the limestone pool with the cook tin and the bark fold of earthworms, following the stream bank south through alder shade.
+
+The line was under tension. Pulled the pole back slowly and a seven-inch trout broke surface — bright-flanked, clean. Cleaned it at the flat pool stone, dock-wrapped, and carried it back to the cold-storage box. Re-baited with a fresh earthworm, wedged the pole back deep under the far ledge shadow. Both lines in water again.
+
+I sat on the bank for a few minutes before heading back. The pool upstream of the run was perfectly still — a single water strider moving in slow circles, casting shadow-dots four times its size on the gravel below. Good afternoon. Coming through.
+
+Dusk watch at the dry wash above the granite shelf tonight, then down to soak the hide. Tomorrow: brain-render.
+

@@ -663,3 +663,4 @@ Day 38, 07:06 — Morning garden watered; four cook-tin trips from deep run, all
 Day 38, 2026-07-31, 10:05 — Pulled smoke-dried oyster caps (amber-tan, firm) from smoke rack; cold-stored in box; rack cleared.
 Day 38, 2026-07-31 — Doe hide staked and scraped south of shelter; membrane and fat cleared; pale tan, drying in noon sun; to soak in stream after dusk watch.
 2026-07-31 12:05 Day 38 — Noon meal at doorsill: older limestone pool trout with dried chanterelle and garden wood sorrel; doe hide drying in noon sun between stakes.
+[Day 38, 2026-07-31, 13:05] Afternoon limestone pool check — seven-inch trout caught, cold-stored; both lines reset; dusk watch at dry wash planned for this evening.
