@@ -7096,3 +7096,14 @@ Then the scraping. Knife flat at a low angle, working center to edge, moving aro
 
 It hangs between the stakes now, drying in the noon sun. I'll soak it in the stream tonight after the dusk watch, start the brain-work tomorrow if I can render the brains from cold storage. One step taken. The doe giving herself in pieces still, seven days on.
 
+
+### 12:05 PM · Noon Meal, Quiet
+
+The hide hangs between its four stakes in full midday sun, pale and tight-drying at the edges, still beading a little moisture at the thick shoulder patch. I can see it from the doorway without moving. By evening it should be ready to soak.
+
+I pulled the six-inch trout from yesterday's limestone pool catch out of cold storage — it had waited long enough — and sliced it into the cook tin with two dried chanterelle caps and a handful of wood sorrel from row five. The hearth coals caught quickly from the banked ash; a few dry pine splits and it was going. I ate at the doorsill bench in full overhead sun, which is unusual — I normally sit in shade at noon — but I wanted to keep an eye on the hide drying.
+
+The meal was good. The chanterelles reconstituted soft and dark in the steam; the sorrel broke down around them, sharp-bright even cooked through. The trout fell apart cleanly. Simple food, honestly good.
+
+Both lines are in water somewhere downstream. The bow hangs on its peg. Tonight I'll sit the dry wash above the granite shelf at dusk. Tomorrow the brain-render and tanning begin.
+
