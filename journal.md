@@ -7085,3 +7085,14 @@ For now the cord. The morning. Smoke drifting south.
 
 The birch smolder had burned down to a wink by the time I walked over to the rack. Two hours since I set those oyster clusters on the crossbars — the caps had turned amber-tan across the backs, gills gone light tan, no soft spots when I pressed the thickest one with a thumb. Good smell: smoke and something almost sweet from the flesh. I pulled them all, set them in the cold-storage box beside this morning's trout, and spread the coals with a boot-toe and a little dirt. Rack cleared. Box sealed, stone re-weighted. Sitting back at the doorsill bench now. The sun is well above the pines, no wind, both fishing lines still in dark water. The dusk watch at the dry wash is still the plan for tonight — I know the spot now, know which way the wind pulls, know the sight angles. Patience from here to evening light.
 
+
+### 11:06 AM · Hide at the Stakes
+
+The morning's doing is behind me — oysters cold-stored, both lines in water, cord coiled in the bundle. The clearing settles into that particular late-morning quiet when the work catches its breath. I thought of the doe hide, folded in the root cellar these seven days since Day 34.
+
+I pulled it out and spread it flat in the sunlit stretch south of the shelter. Stiff at the edges from the cold, still faintly damp at the fold, but it opened out well enough. Four sharp stakes cut from the birch scrap pile, driven into the ground at the corners, hide stretched between them with lashing loops through small holes I awled with the knife tip — not drum-tight, just flat and firm, something to work against.
+
+Then the scraping. Knife flat at a low angle, working center to edge, moving around all four sides. The inner membrane comes away in long pale strips when you catch it right; it tears ragged when you don't. The fat was light, thin white deposits along the belly fold, and the membrane followed once the fat was clear. An hour of it — scraping, wiping the blade clean on a fistful of grass, moving to the next section. The hide lightened from grey-pink to pale tan as the membrane freed.
+
+It hangs between the stakes now, drying in the noon sun. I'll soak it in the stream tonight after the dusk watch, start the brain-work tomorrow if I can render the brains from cold storage. One step taken. The doe giving herself in pieces still, seven days on.
+
