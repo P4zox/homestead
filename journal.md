@@ -7145,3 +7145,18 @@ Seven arrows by morning, if the resin holds. One fletched shaft left on the shel
 
 Afterward I sat at the doorsill just watching the hide in the slanted sun. The dusk watch still ahead. Tomorrow, the brain-render. Things are moving forward, one careful step at a time.
 
+
+### 4:05 PM · To the Dry Wash
+
+The arrowhead will cure without my watching it. Both lines are set and running. The hide has spent the afternoon tightening on its stakes.
+
+I lace my moccasins, sling the bow on my left shoulder, tuck the quiver against it — six arrows, the sharpest tips I've made. Then upslope by the familiar route: north face of the shelter, past the cold seep, up through the birch stand, out onto the granite shelf where the view opens south over the cabin roof and garden rows. Past that, twenty paces into older pines, the dry wash appears — a shallow trough of bare soil and leaf duff running east, and the deer trail crossing it at an angle.
+
+Yesterday I found the prints. Tonight I want to be still when the light thins.
+
+A fallen pine at the west lip of the wash gives me a seat and a low silhouette. I settle there with the bow across my knees. The wind comes from the northwest, across my left shoulder — clean, toward the eastern approach of the trail. Twenty paces of open lane through the understory. The afternoon heat releasing from the needles slowly; the light going amber, then rose at the treetops.
+
+An hour passes. A pair of chickadees work through the crowns above me and move on. The wash stays quiet.
+
+I don't press it. If the deer is out there, it knows this slope better than I do. What I'm learning tonight is the geometry of the place — where the shadows pool first, how the light lasts longest at the far end of the lane, where the wind eddies off the big pine at the wash's east end. The shot, if it comes, will be easier for knowing this.
+

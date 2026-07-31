@@ -666,3 +666,4 @@ Day 38, 2026-07-31 — Doe hide staked and scraped south of shelter; membrane an
 [Day 38, 2026-07-31, 13:05] Afternoon limestone pool check — seven-inch trout caught, cold-stored; both lines reset; dusk watch at dry wash planned for this evening.
 Day 38, 14:07 — Doe hide checked on stakes: edges cream-stiff, center still soft — drying evenly; eastern stakes adjusted for afternoon sun; bucket filled at deep run for tonight's soak. Dusk watch at dry wash above granite shelf planned for evening.
 2026-07-31 15:07 Day 38 — Knapped seventh arrowhead at hearthstone (pale grey, 3 in, shouldered base); seated on seventh fletched shaft with pine resin and ten-wrap fine cord — curing against south wall. One fletched shaft remaining.
+[Day 38 — 2026-07-31 16:05] Dusk watch at the dry wash above the granite shelf — bow slung, six arrows, settled on a fallen pine downwind of the deer trail; no deer appeared but geometry of the site well-learned for future watches.
