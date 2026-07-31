@@ -7250,3 +7250,12 @@ Back inside to the cold-storage box for the brain. I had set it aside at the Day
 
 I took the warm brain paste out to the hide and began working it in by sections — palms pressing, fingers spreading, working it into the grain from center out to edges, turning the hide and going again. The hide begins to change under your hands almost immediately: it drinks the paste, loses its cold rigidity, begins to feel more like cloth than carcass. This will take most of the morning. I am only beginning now. Outside the birdsong is full, dew still on the meadow grass, mist thin over the lower clearing. A good morning to work with my hands.
 
+
+### 7:00 AM · Brain Worked Through
+
+The paste had gone into every inch of the hide by the time the sun cleared the treeline — palms and a smooth rounded river stone, working in slow circles, pressing through the grain section by section until each part felt different under my hands: more yielding, cooler in a different way, less raw. The smell was old and animal and not quite unpleasant. Something like the forest floor after rain.
+
+I twisted the hide hard over the low birch pole I had lashed between two tree stubs last evening — wringing it to drive the brain liquid through — then unrolled it and began pulling. Two hands at opposite corners, leaning back, working each section until I felt the fibers loosen. The brain only opens the lock; the pulling is what makes the hide soft. You have to work it while it dries or it will set like bark.
+
+The morning is still cool and the air is damp from last night's dew. Good conditions. A slower dry gives me more time to work each section before it sets. I'll pull and stretch through the next hour in the open shade on the south side, let it rest at midday, and think about smoking it this afternoon or tomorrow morning when it's fully worked and dry.
+

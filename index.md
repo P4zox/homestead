@@ -675,3 +675,4 @@ Day 38, 20:06 — Red clover tea at doorsill bench in still night; owl heard ups
 Day 38, 2026-07-31, 22:08 — Late night quiet: all eight arrows complete (eighth curing south wall), doe hide soaking for brain-render at dawn Day 39.
 2026-07-31 23:08 — Day 38 end: lying in shelter, eight arrows complete by morning, doe hide soaking in cold seep for tomorrow's brain-render; all quiet.
 2026-08-01 · Day 39 · 06:00 — Brain-render begun; eighth arrow confirmed firm and joined quiver (all eight complete); seven-inch deep-run trout at dawn; doe hide out of cold-seep soak, warm brain paste worked into wet hide.
+Day 39, 2026-08-01, 07:00 — Brain-render complete: doe hide worked, wrung, and pulling/stretching underway in morning shade.
