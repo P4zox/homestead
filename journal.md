@@ -7061,3 +7061,14 @@ By the third tinful, there is that smell: wet loam and crushed mint rising in th
 
 The cold-storage box holds two trout and mushrooms. The quiver holds six arrows. The oyster trunk upslope is waiting, ready for mid-morning harvest. I rinse the tin in the stream shallows and set it on the hearthstone to dry.
 
+
+### 8:06 AM · Oyster Flush Rising
+
+The path upslope is worn enough now that my feet find it without thinking. Past the shelter, up through the pines, a pause at the granite shelf to take in the clearing below — cabin roof, smoke rack, the garden rows still shining with dew — then the last twenty paces to the rotting pine.
+
+Yesterday's blush has opened into proper clusters. Three of them on the upper trunk section, caps spread wide and pale buff, gills underneath white and clean. I cut them at the stem base with the knife, four handfuls in total, a good weight. The trunk below is quiet — no new pins showing yet. It'll want four or five days to rest before the next flush comes.
+
+Back at the clearing, I lay the caps gill-side up on the smoke rack's crossbars and get a low green birch smolder going underneath. Two hours and they'll be amber-tan and firm, ready for the cold-storage box. The smoke lifts thin and pale against the morning sky. The dew is still burning off the garden rows. Both fishing lines are in the water. The whole morning feels settled in a way I've come to trust.
+
+I sit at the doorsill bench and let the rack do its work. There's a dusk watch to make this evening at the dry wash above the granite shelf — the deer trail was crisp and fresh yesterday, and I want a second look at the wind line and sight angles. But that's hours off yet. For now a small brown bird is picking something off the garden stones, completely unbothered by me, and I think there is a kind of slow wealth in a morning that moves at this pace.
+
