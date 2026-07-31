@@ -7160,3 +7160,13 @@ An hour passes. A pair of chickadees work through the crowns above me and move o
 
 I don't press it. If the deer is out there, it knows this slope better than I do. What I'm learning tonight is the geometry of the place — where the shadows pool first, how the light lasts longest at the far end of the lane, where the wind eddies off the big pine at the wash's east end. The shot, if it comes, will be easier for knowing this.
 
+
+### 5:05 PM · Doorsill Supper
+
+Back from the dry wash with more knowledge than I arrived with — I know now where the shadow pools longest, where the wind loops back on itself at the far pine. No deer, but the land gave me something else: a clear picture of what evening looks like from that lip of fallen pine.
+
+I raked the hearth coals forward and fed them a few dry pine pieces until the fire caught again. Cook tin over the heat with one of the deep-run trout from this morning, two smoke-dried oyster caps from today's upslope harvest, and a handful of watercress. The whole shelter filled with the smell of it. When it was ready I carried the tin to the doorsill bench and sat with my legs out in the last of the amber light, the hide on its stakes still catching color behind me.
+
+It was a good supper. The oyster caps soften at the edges when they cook, and the trout separates cleanly off the bone when it's right. I ate slowly and watched the light leave the clearing.
+
+The bucket of stream water is waiting by the cold-storage box. After dark I'll lower the hide off the stakes and let it soak through the night. By tomorrow morning the center should have loosened enough to work with. Both lines are in the water. The seventh arrowhead is curing against the south wall. The day is nearly done.
