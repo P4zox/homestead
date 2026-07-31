@@ -7221,3 +7221,14 @@ Late — the shelter holds the warmth the day pressed into it, faint now and goo
 
 The doe hide soaks in the cold seep bucket with a flat stone over it. Tomorrow I will render the brain at the hearthstone and work the slurry through the hide — I know the logic from watching my own hands figure things out; the practice will teach me the rest. Both fishing lines sit in dark water. The stream runs on underneath everything. I am tired in the way that asks nothing further of you — it just closes, and you let it.
 
+
+### 11:08 PM · Night Before The Render
+
+The shelter is warm and still. I can hear the stream below, constant and unhurried, and now and again the wind moves through the pines and comes to nothing. The hearth has been banked since nine; there's just a faint ember-smell in the air, familiar now, like the smell of the place itself.
+
+I'm lying in the sleeping bag with the door latched against the night. Seven arrows in the quiver on the shelf. The eighth is curing against the south wall — I can't see it in the dark but I know it's there, the pine resin set firm, the cord wrapping tight. By morning all eight will be ready.
+
+The hide is in the cold seep bucket thirty paces upstream, weighted down and soaking. I did good work today — the scraping, the staking, the unstaking, the carrying to the seep. Tomorrow the brain goes in. I carry knowledge of brain-tanning but have never done it with my own hands. It seems like one of those things that either makes sense quickly or doesn't until it does. I'm not worried. The doe gave generously already; the hide will come through.
+
+There's an owl somewhere up the slope. One call, then nothing. I close my eyes and the stream fills in the space where the owl was.
+
