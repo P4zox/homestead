@@ -7130,3 +7130,18 @@ Then down to the stream with the birch-bark bucket. Filled it at the deep run, c
 The air is dry and still. A good drying day. I stood beside the hide for a moment and thought about the doe — first deer, east treeline. There's a weight to this work that doesn't go away: turning what was alive into what keeps you alive, doing it carefully, without waste. It feels like the right way to carry it.
 
 One more hour of sun. Then upslope.
+
+### 3:07 PM · Seventh from Chert
+
+The afternoon settled into its longest quiet. The hide was stiffening on its stakes — I could see the pale eastern edge from the doorway, nearly drumtight, catching the angled western sun. Both fishing lines lay in still water. The dusk watch at the dry wash was still a few hours off.
+
+I sat cross-legged at the hearthstone with the flat oval cobble anvil and the reserve chert nodule — pale grey-white, fine-grained — from the supply shelf. The light through the doorway was soft and even. Good light for reading stone.
+
+The first few strikes found the line of the blank. A clean flake off the face opened a working surface. I brought it around slowly, beveling from one face then the other, pressing the flaker in short strokes along the edge. The shouldered base came in clean. The tip sharpened without losing width.
+
+Three inches when I held it to the doorway light. Pale grey, beveled on both faces, shoulder clean. I fetched the seventh fletched shaft and the pine resin from the supply shelf. The resin went on warm, the head pressed firm, and I wound ten wraps of fine two-ply cord in a slow spiral up from the shoulder. Set it against the south wall to cure.
+
+Seven arrows by morning, if the resin holds. One fletched shaft left on the shelf.
+
+Afterward I sat at the doorsill just watching the hide in the slanted sun. The dusk watch still ahead. Tomorrow, the brain-render. Things are moving forward, one careful step at a time.
+
