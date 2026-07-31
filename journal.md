@@ -7232,3 +7232,21 @@ The hide is in the cold seep bucket thirty paces upstream, weighted down and soa
 
 There's an owl somewhere up the slope. One call, then nothing. I close my eyes and the stream fills in the space where the owl was.
 
+
+---
+
+# Day 39 — Saturday, 1 August 2026
+*early summer · clear cool summer dawn; dew on clearing grass; sky pale in the east; birdsong starting; mist thin over the lower meadow*
+
+### 6:00 AM · Brain Work at Dawn
+
+The ridgepole gap showed a paling sky when I unlatched the door — not quite light yet, but that deep pre-dawn grey where objects start to have edges again. I went to the south wall first. The eighth arrowhead, seated last night in warm pine resin, had set firm through the cool hours. I pressed a thumbnail against the bind and felt nothing give. Eight arrows. I slid it into the quiver beside the others, all eight now, and hung the quiver on its peg.
+
+Down to the lines next, moccasins through the dew-wet grass. The deep-run gave a seven-inch trout — reliable, almost companionable at this point. Cleaned it at the flat stream stone in the cold half-light, dock-wrapped, cold-stored. Both lines re-baited with earthworms from the bark fold and reset before the sun had fully cleared the pines.
+
+Then upstream to the cold seep. The birch-bark bucket sat where I left it last night, the flat river stone still weighing the hide down in the dark water. I lifted the stone, reached in, and pulled the hide free. It came out cool and swollen, every fiber opened by the long soak — heavy and pale and yielding. I spread it over a clean section of log at the seep edge and looked at it in the rising light. The scraping had gotten the membrane clean; the soaking had done the rest.
+
+Back inside to the cold-storage box for the brain. I had set it aside at the Day 34 quartering in a bark-fold, kept in the chill of the cold seep since. I mashed it through with my fingers into the cook tin, added a small pour of stream water, and held it over a low hearthfire — not to boiling, just to warm and loosen, the paste going translucent as it heated. The smell is animal and particular. There is knowledge in my hands that knows this is exactly what hides need; I trust it.
+
+I took the warm brain paste out to the hide and began working it in by sections — palms pressing, fingers spreading, working it into the grain from center out to edges, turning the hide and going again. The hide begins to change under your hands almost immediately: it drinks the paste, loses its cold rigidity, begins to feel more like cloth than carcass. This will take most of the morning. I am only beginning now. Outside the birdsong is full, dew still on the meadow grass, mist thin over the lower clearing. A good morning to work with my hands.
+
