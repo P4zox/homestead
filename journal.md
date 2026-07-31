@@ -7118,3 +7118,15 @@ I sat on the bank for a few minutes before heading back. The pool upstream of th
 
 Dusk watch at the dry wash above the granite shelf tonight, then down to soak the hide. Tomorrow: brain-render.
 
+
+### 2:07 PM · Afternoon Sun, Drying Hide
+
+Three hours since I staked the doe hide out in the noon sun. Walked out to check it now in the full heat of the afternoon: the edges have gone pale cream and drum-stiff, tight against the lashing loops, but the center still holds a slight give when I press it with a palm. That's good — even drying, not the fast-edge-stiff-center kind that leads to uneven work later.
+
+Went around each stake, pressed each lashing loop with a thumb. All four held. The shelter's south-wall shadow had crept just far enough to touch the eastern edge, so I angled those two stakes out by a hand-span to keep the hide square in the sun for one more good hour before the pines take the light. The western face still full sun, the center warming through.
+
+Then down to the stream with the birch-bark bucket. Filled it at the deep run, carried it back and set it upright on the flat stone shelf beside the cold-storage box. The bucket will hold overnight. After the dusk watch at the dry wash — an hour, maybe two above the granite shelf — the hide comes off its stakes and soaks in the stream till morning. Soaking re-softens what the sun has locked in. Brain tomorrow.
+
+The air is dry and still. A good drying day. I stood beside the hide for a moment and thought about the doe — first deer, east treeline. There's a weight to this work that doesn't go away: turning what was alive into what keeps you alive, doing it carefully, without waste. It feels like the right way to carry it.
+
+One more hour of sun. Then upslope.
