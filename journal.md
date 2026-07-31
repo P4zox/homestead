@@ -7183,3 +7183,14 @@ Standing there in the last of the rose light I noticed the seventh arrowhead had
 
 The stream runs very quiet tonight. No wind at all.
 
+
+### 7:06 PM · Stars in the Gap
+
+Supper done, hide soaking in the cold seep bucket, seven arrows in the quiver. I carried a length of bark fiber to the doorsill bench as the clearing went from amber to slate — not from need, the cord stock is deep, but because twisting something gives the hands a reason to be still while the rest of the day settles.
+
+Fourteen arm-lengths against the thigh before the light left me. Then inside, a few fresh coals under the banked ash, and I sat by the hearth long enough for the stars to show through the ridgepole gap overhead.
+
+I have been turning the brain-render over in my mind for days. The logic seems sound: soften the brain in warm water, work it into wet hide repeatedly, let the oils bind into the fibers and preserve them against rot and stiffness. But theory and hide are different things. Tomorrow I will find out what the doe can teach me. There is something between anticipation and honest uncertainty in that — the same feeling I had before the first fire, before the first fish, before the bow drew clean.
+
+Both lines are in dark water. Everything today got done that needed doing. That is enough.
+
