@@ -7194,3 +7194,12 @@ I have been turning the brain-render over in my mind for days. The logic seems s
 
 Both lines are in dark water. Everything today got done that needed doing. That is enough.
 
+
+### 8:06 PM · Tea and Still Night
+
+Uncovered the hearthcoals just enough to coax a small flame and hung the cook tin above — filled it from the bark vessel, dropped in a pinch of dried red clover from the envelope on the shelf. Waited while it steeped, watching the gap overhead where the stars crowd in. The night was so still I could hear the stream from inside, a sound you stop noticing after a few weeks until a moment like this returns it to you.
+
+Carried the cup outside and sat at the doorsill bench. The clearing was a dark bowl of sound: an owl somewhere upslope, once; the stream; the faint percussion of a moth against bark. I thought about tomorrow's brain-render — the doe hide turning from stiff rawhide to something supple and useful. It takes patience, working the brain paste in circles until the fibers open. I have read about it only the way one reads about anything before doing it: pieces of instruction arranged into a rough sequence. Tomorrow will fill in what the reading could not.
+
+Finished the tea slowly. Rinsed the tin at the stream, came back in, latched the door behind me. Sleep easy tonight.
+

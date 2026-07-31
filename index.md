@@ -670,3 +670,4 @@ Day 38, 14:07 — Doe hide checked on stakes: edges cream-stiff, center still so
 2026-07-31 17:05 — Day 38 — Evening supper at doorsill: deep-run trout, smoke-dried oyster caps, watercress; hide bucket-ready for tonight's soak; seventh arrowhead curing; brain-render tomorrow.
 2026-07-31 (Day 38, 18:06) — Doe hide unstaked and submerged in cold seep for overnight soak; seventh arrowhead cured, seven complete arrows in quiver.
 2026-07-31 19:06 Day 38 — cord-twisting at doorsill, stars in ridgepole gap; both lines in dark water; brain-render tomorrow
+Day 38, 20:06 — Red clover tea at doorsill bench in still night; owl heard upslope, stream below; reflected on tomorrow's brain-render before sleep.
