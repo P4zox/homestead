@@ -7072,3 +7072,12 @@ Back at the clearing, I lay the caps gill-side up on the smoke rack's crossbars 
 
 I sit at the doorsill bench and let the rack do its work. There's a dusk watch to make this evening at the dry wash above the granite shelf — the deer trail was crisp and fresh yesterday, and I want a second look at the wind line and sight angles. But that's hours off yet. For now a small brown bird is picking something off the garden stones, completely unbothered by me, and I think there is a kind of slow wealth in a morning that moves at this pace.
 
+
+### 9:05 AM · Cord and Smoke
+
+The smoke from the rack drifts south, birch-sweet and steady. Oysters on, not ready yet — an hour more. I pull bark strips from the bundle and sit on the doorsill bench, shoulders against the doorframe, feet in the sun. The cord grows slowly against my thigh: pinch, roll, add, roll. My hands know the motion without needing me to think it through.
+
+Fourteen arm-lengths by ten, probably. The day is warming and the clearing is quiet, and I find I don't need it to be anything more than that. When the oysters are done there'll be good food in the box and the afternoon still ahead. Tonight I'll carry the bow up to the dry wash above the granite shelf — second time in that spot. Last time I learned the ground: wind line, shadow angles, where the trail dips through the wash. This time I want to arrive quieter, be still in the right place before the light thins.
+
+For now the cord. The morning. Smoke drifting south.
+

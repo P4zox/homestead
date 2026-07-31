@@ -659,3 +659,4 @@ Day 37, 2026-07-30, 23:05 — Lay in shelter under stars through ridgepole gap; 
 2026-07-31 · Day 38 · 06:05 · Dawn lines checked at first light — deep-run seven-inch trout cold-stored, both lines reset; first morning of Day 38 with six arrows in quiver; oyster trunk harvest and dusk watch at dry wash planned.
 Day 38, 07:06 — Morning garden watered; four cook-tin trips from deep run, all seven rows east to west; nettles past knee-height, mint crowding neighbors, all plants healthy.
 2026-07-31 Day 38, 08:06 — Upslope oyster flush harvested (three clusters, four handfuls, pale buff caps); smoke rack set over green birch smolder — morning at doorsill while caps cure; dusk watch at dry wash planned for evening.
+[2026-07-31 09:05] Day 38 — Doorsill bench cord-twisting while oysters smoke; fourteen arm-lengths two-ply; dusk watch at dry wash planned tonight.
