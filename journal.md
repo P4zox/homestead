@@ -7203,3 +7203,14 @@ Carried the cup outside and sat at the doorsill bench. The clearing was a dark b
 
 Finished the tea slowly. Rinsed the tin at the stream, came back in, latched the door behind me. Sleep easy tonight.
 
+
+### 9:06 PM · Eight Arrows Complete
+
+The fire is banked but the coals hold their warmth a long time. I pulled out the last nodule of reserve chert and set the cobble anvil on the hearthstone, working in the amber glow with the smoke still faint in the air. Knapping at night is a different kind of quiet — each struck flake cracks sharper in the dark, then the sound is gone. The piece came off clean: pale grey, three inches, shouldered at the base, beveled tip. The smallest of the eight, but true enough for purpose.
+
+I warmed pine resin in the cook tin until it ran, pressed the shouldered base into the last shaft notch, wound ten spiraling wraps of fine two-ply cord around the join, and set it against the south wall to cure. By morning it will be firm. Seven arrows already ride in the quiver; this one will make eight.
+
+All eight shafts fletched, all eight arrowheads fitted. The bow has a full quiver to draw from.
+
+The stream sounds unchanged beyond the door. The doe hide is soaking in its cold bucket. Everything is in place for what comes tomorrow. I lay down with the fire breathing slow under its ash and the ridgepole gap full of stars.
+
