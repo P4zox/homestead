@@ -7374,3 +7374,12 @@ The first side seam is started. Punching holes with my knife tip along the edge 
 
 Both lines are in the water. The stream sounds below in the cooling air. One seam tonight, the second seam tomorrow — the bag will be functional by midmorning.
 
+
+### 7:06 PM · Seams by Firelight
+
+The first seam was only half-done when I last sat at it — a running stitch moving up from the bottom corner, the hide taking awl holes cleanly at each thumb-width interval. I picked it up again after supper and finished it to the top edge as the last real light faded past the treeline. Tied off with three half-hitches and trimmed the tail.
+
+The second side seam went faster. Both sides of the bag pressed flat under my knee while I worked, the doubled two-ply cord pulling snug with each pass. By the time the fire had settled into low coals, both seams were run and tied. The bag holds its shape now — a wide rectangle, honey-amber on the outside, pale gold within, and faintly smoke-scented still.
+
+I folded the top edge down and marked where the strap holes will go: four punch-points, two per side, a finger-width back from the edge. The neck strip is coiled on the supply shelf. Three strips to braid into a flat strap — that is tomorrow's first quiet hour. For now the bag body hangs on the wall peg beside the drawstring pouch. Both fishing lines are in the water. Night has settled outside.
+
