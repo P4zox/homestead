@@ -7325,3 +7325,14 @@ The hide billowed faintly with each breath from the smolder. A stain of amber al
 
 I am on the doorsill bench now, close enough to watch the smolder, far enough not to choke. The smoke rises in a thin column, bends in the midday air, disappears. A small bird crossed the clearing low and quick, not landing. The forest is quiet in the noon heat. The hide hangs pale and patient over its smoke.
 
+
+### 2:06 PM · Turning the Smoke
+
+The hide bag has been on the rack a little over an hour. I turned it — unhooked the cord loops from the crossbar ends, gave it a half-rotation so the top section that had been riding away from the heat dropped into the amber zone, and the bottom piece rose to cool for a moment in open air. The punky wood was still breathing, just barely, a thin thread of blue-white smoke finding its way up through the rack crossbars. I broke up the outer char with a stick and packed in three more fist-sized chunks of rotten heartwood from the pile I gathered at midday. The smolder deepened back to steady.
+
+The color coming in is good — not dark tan yet, but amber honey beginning to show along the lower seams and the belly of the bag. Smoke tanning works slowly, the dye moving through the pores of the hide like water into cloth, and patience is the only tool that matters now. Another hour or two and I will open the bag, turn it inside out, and smoke the flesh side too.
+
+I sat back on the doorsill bench with the afternoon at its warmest, the pines standing still and the stream nearly inaudible below. Both lines are out. I watched the rack for drift and listened. A thrush somewhere above the ridge, calling three notes and stopping. The creek. Otherwise just heat and held breath.
+
+This is the last step in the doe. All that work since Day 34 — the quartering and smoking, the scraping in noon heat, the soaking and brain-render, the long morning of pulling and stretching — and now it comes down to a slow afternoon of smoke. By evening it should hold its color even when wet. Then it will be a true piece of gear, soft and golden-brown, and I will decide what to make of it next.
+
