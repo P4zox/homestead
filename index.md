@@ -677,3 +677,4 @@ Day 38, 2026-07-31, 22:08 — Late night quiet: all eight arrows complete (eight
 2026-08-01 · Day 39 · 06:00 — Brain-render begun; eighth arrow confirmed firm and joined quiver (all eight complete); seven-inch deep-run trout at dawn; doe hide out of cold-seep soak, warm brain paste worked into wet hide.
 Day 39, 2026-08-01, 07:00 — Brain-render complete: doe hide worked, wrung, and pulling/stretching underway in morning shade.
 2026-08-01 Day 39 08:00 — Working the Hide Soft — continued pulling and stretching doe hide in morning shade; upper section paling to cream as fibres loosen.
+Day 39, 09:05 — Continued pulling and stretching doe hide in open shade; upper two-thirds going pale cream and supple; lower hindquarter section still being worked; garden watering to follow when hide can hang.

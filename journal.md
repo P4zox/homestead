@@ -7268,3 +7268,14 @@ The morning light is almost level, cutting low across the clearing and catching 
 
 Garden watering waits. It can wait another hour.
 
+
+### 9:00 AM · Pulling Pale
+
+Two hours into the pulling now, and the hide is telling me something. The grey has mostly gone out of it — wide patches are pale cream, almost ivory, and when I press my thumb into a section that has dried, it gives back supple instead of stiff. That is the test. That is what I am working toward.
+
+The process is monotonous in the best way. Grip the edge, pull it over itself toward the center, shift a quarter-turn, pull again. Heel-press the stubborn spots near the dorsal where the hide was thickest. The grain matters — along it, across it, diagonal, diagonal the other way — and you have to stay at it while it dries or you lose the suppleness to the set. Miss that window and you end up with rawhide. Keep at it and you end up with something soft enough to fold and wear.
+
+The morning has warmed while I have worked. The cool that bit at my knuckles at six is gone now, replaced by a pleasant light warmth coming through the shade of the birches. The birdsong has changed too — the full pre-dawn chorus has settled to occasional single calls, the birds busy with other business. Stream sound carries up from below the shelter, steady and low.
+
+The upper two-thirds of the hide is going cream and soft. The lower hindquarter section is still a little grey and damp. I will shift focus there through this half-hour, work those fibres fully open while they are still willing. Another hour of hand-work and it should be ready to hang on the ridge between two birches — let the midday warmth finish drying it while I water the garden. I am watching it slowly become something. That is enough for a morning.
+
