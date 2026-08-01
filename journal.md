@@ -7411,3 +7411,12 @@ I looked around the room while my hands worked. Quiver on the wall peg, all eigh
 
 I’m not sure what that adds up to, exactly. Readiness, maybe. The kind you build quietly, without realizing you’re building it.
 
+
+### 10:05 PM · Lines Before Sleep
+
+Stepped outside just now to check the pegs before the night truly settles in. The stars are sharp and numerous — the Milky Way faint but there above the ridge, Cassiopeia in her usual place, the creek below running its steady sound under everything. Both lines are as I left them: the deep-run peg solid against the undercut bank, the limestone pool pole angled correctly under the far ledge shadow. Nothing pulling. I stood there a little longer than necessary, just letting the dark be dark.
+
+The cabin sits warm behind me. Through the gable gap there is a faint orange cast from the last coals. On the wall peg inside, the new shoulder bag hangs beside the drawstring pouch. Quiver against the south wall. Bow on its peg. Moccasins on the door hooks. Spoon on the shelf. Everything that has been made is accounted for, and that is a rare kind of quiet.
+
+I will leave the lines in and let the night do its work. There is nothing more to do today except lie down.
+
