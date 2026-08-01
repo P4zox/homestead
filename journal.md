@@ -7279,3 +7279,14 @@ The morning has warmed while I have worked. The cool that bit at my knuckles at 
 
 The upper two-thirds of the hide is going cream and soft. The lower hindquarter section is still a little grey and damp. I will shift focus there through this half-hour, work those fibres fully open while they are still willing. Another hour of hand-work and it should be ready to hang on the ridge between two birches — let the midday warmth finish drying it while I water the garden. I am watching it slowly become something. That is enough for a morning.
 
+
+### 10:05 AM · Hide Hung, Garden Watered
+
+The last grey patch gave way this morning — the lower hindquarter section, stubbornest of the lot, finally went pale under a half-hour of heel-pressing and cross-grain pulling. I could feel the moment the fibres released: a slight give, a change in texture under my palms, and then the whole hide went uniform cream from top hem to bottom edge.
+
+I stretched it between the two birches south of the shelter, lashing the tie-off corners with two-ply cord and pulling it taut at chest height. It hangs there now in the full midday light, swaying just barely in a warm southerly breeze. Pale and even and soft. The cord holds it well; both ends of the hide move as one piece.
+
+With the hide up I turned straight to the garden. Four trips from the deep run with the cook tin, east rows to west — garlic fans wide and dark, wood sorrel pressing at the north edge, nettles knee-high in the first two rows, mint beginning to crowd its western neighbors, raspberry canes leafing out along row three and four. Everything taking the water readily in the midday heat; cool two inches down in the garlic rows. I checked the hide between the second and third trips. It is pulling its corners tight, drying clean.
+
+From the garden edge after the last trip I could see the hide pale against the birch trunks, the smoke rack beyond, the cabin above. It is beginning to look like a real place. A place someone built and tends.
+
