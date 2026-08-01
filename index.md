@@ -688,3 +688,4 @@ Day 39, 16:00 — Smoke-tanning complete: doe hide bag cut open and hung over ri
 Day 39, 17:05 — Doe hide off the ridgepole and onto the supply shelf; limestone pool line gave seven-inch trout; supper over hearthcoals; evening at doorsill planning a shoulder carry bag from the finished hide.
 2026-08-01 18:06 Day 39 — Shoulder bag cut and first seam started at doorsill bench from finished doe hide; neck strip cut for braided strap; both lines in water.
 Day 39, 19:06 — Shoulder bag body complete: both side seams run and tied with doubled fine two-ply cord; strap holes marked; neck strip on shelf for braiding strap tomorrow.
+2026-08-01 Day 39 20:06 — Braided and attached shoulder bag strap by hearthlight; bag complete; evening at doorsill under first stars.

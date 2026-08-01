@@ -7383,3 +7383,18 @@ The second side seam went faster. Both sides of the bag pressed flat under my kn
 
 I folded the top edge down and marked where the strap holes will go: four punch-points, two per side, a finger-width back from the edge. The neck strip is coiled on the supply shelf. Three strips to braid into a flat strap — that is tomorrow's first quiet hour. For now the bag body hangs on the wall peg beside the drawstring pouch. Both fishing lines are in the water. Night has settled outside.
 
+
+### 8:06 PM · Strap by Hearthlight
+
+The bag hung on the wall peg all day — body finished, strap still a strip of hide on the shelf. A good evening task.
+
+I brought the neck strip in by hearthlight and cut it into three even lengths on the doorsill bench. Back inside, I anchored the top ends to the wall peg with a loose tie and held the bag in my lap while I worked — left strip over center, right over new center, slow and deliberate in the orange firelight. The smoke-set hide braids cleanly, no stretch, no slip. After maybe forty minutes I had an arm-length of tight flat braid, even throughout, ends tapered naturally where the strips narrowed.
+
+I threaded each tapered end through the punch-holes at the top of the bag — two per side, already placed last evening — and whip-wrapped each with doubled fine two-ply cord, half-hitched twice to hold. Shouldered it: strap sits right, bag rests at the hip, the smoke-amber grain facing out.
+
+Hung it on the wall peg and sat back.
+
+For a little while I had nothing in my hands. The crickets were going outside, loud now in the dark. The first real stars were out above the western treeline — the sky that deep blue-grey it gets on a clear summer night just before it goes black. I sat at the doorsill and looked at the room: quiver against the south wall, bow on the peg above, moccasins on the door peg, shoulder bag amber in the firelight. All made. All here.
+
+The lines are in the water. Tomorrow will come. This one felt complete.
+
