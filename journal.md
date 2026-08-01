@@ -7259,3 +7259,12 @@ I twisted the hide hard over the low birch pole I had lashed between two tree st
 
 The morning is still cool and the air is damp from last night's dew. Good conditions. A slower dry gives me more time to work each section before it sets. I'll pull and stretch through the next hour in the open shade on the south side, let it rest at midday, and think about smoking it this afternoon or tomorrow morning when it's fully worked and dry.
 
+
+### 8:00 AM · Working the Hide Soft
+
+An hour of pulling has already made a difference. The hide was heavy and cool when I started; now the upper section is beginning to pale, fibres parting under my hands rather than straining against them. I work methodically — grip a section near the spine, pull along the grain, then across it, then at a diagonal, coaxing each square of skin from grey and limp toward cream and alive. Where a patch resists I press the heel of my palm in hard, hold a count, then draw outward. The hide is telling me where the brain paste settled fully and where it still needs urging.
+
+The morning light is almost level, cutting low across the clearing and catching the last of the mist off the lower meadow. I work in the open shade south of the shelter where a little air moves — enough to dry the hide slowly without rushing it. If it dries too fast the fibres lock before they loosen, and I lose the morning to re-wetting. So I go steadily. Grip, pull, hold. Then the other side. The colour shifts section by section from grey to pale cream wherever the moisture leaves, and where it has gone the hide is soft, almost like worn cloth.
+
+Garden watering waits. It can wait another hour.
+
