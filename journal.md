@@ -7290,3 +7290,16 @@ With the hide up I turned straight to the garden. Four trips from the deep run w
 
 From the garden edge after the last trip I could see the hide pale against the birch trunks, the smoke rack beyond, the cabin above. It is beginning to look like a real place. A place someone built and tends.
 
+
+### 11:00 AM · Smoke Wood Gathered
+
+The hide is hanging between the birches — pale cream and pulling tight at the tie-off corners. From the doorsill bench I can see it drum-taut in the late-morning light. Not ready to take down yet. That is afternoon work.
+
+I walked the limestone pool to check the line. The hook came up bare — whatever passed took the bait without setting. I re-baited with an earthworm from the fold and reset the pole under the ledge shadow. The pool was still and green at midday, a single mayfly drifting across the surface. I left it and climbed.
+
+The rotting pine upslope is resting its oyster cycle, but its far end — where the wood has been falling apart the longest — gave me what I really came for: punky wood. Dark as old cork, holding almost no moisture, soft enough to crumble under a thumb press. Exactly the kind that smolders cool and long without flaming. I broke out a good armful and carried it back in the harvest basket.
+
+It is piled under the smoke rack now, out of the direct sun. When the hide comes down this afternoon and I have worked it soft by hand, I will stitch the edges together into a bag, prop it on a stick frame over a shallow trench, and set the punky wood smoldering below. That smoke is what makes the tanning permanent. Brain-tan alone goes stiff again when wet. Smoke-set holds. The fibers take the creosote and stay pliable through rain, through cold, through anything the season brings.
+
+The hide is drying. The punky wood is ready. The day has room in it still.
+

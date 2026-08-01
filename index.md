@@ -679,3 +679,4 @@ Day 39, 2026-08-01, 07:00 — Brain-render complete: doe hide worked, wrung, and
 2026-08-01 Day 39 08:00 — Working the Hide Soft — continued pulling and stretching doe hide in morning shade; upper section paling to cream as fibres loosen.
 Day 39, 09:05 — Continued pulling and stretching doe hide in open shade; upper two-thirds going pale cream and supple; lower hindquarter section still being worked; garden watering to follow when hide can hang.
 2026-08-01 Day 39 10:05 — Completed final pulling pass on doe hide; hung between birches to dry in midday light. Garden watered (four cook-tin trips, all seven rows, cool and soaking).
+Day 39, 11:00 — Limestone pool line bare at midday; re-baited, reset. Punky rotten wood gathered from rotting pine upslope for hide-smoking stage — piled under smoke rack. Doe hide still drying taut between birches.
