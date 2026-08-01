@@ -686,3 +686,4 @@ Day 39, 14:06 (2026-08-01, Sat) — Rotated doe hide bag on smoke rack; tended p
 Day 39, 2026-08-01 15:06 — Flipped smoke-tanning doe hide bag inside-out on rack; flesh side now facing the smolder to complete the tanning.
 Day 39, 16:00 — Smoke-tanning complete: doe hide bag cut open and hung over ridgepole to air — grain side honey-amber, flesh side pale gold, brain-tan set firm. First full leather piece.
 Day 39, 17:05 — Doe hide off the ridgepole and onto the supply shelf; limestone pool line gave seven-inch trout; supper over hearthcoals; evening at doorsill planning a shoulder carry bag from the finished hide.
+2026-08-01 18:06 Day 39 — Shoulder bag cut and first seam started at doorsill bench from finished doe hide; neck strip cut for braided strap; both lines in water.

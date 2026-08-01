@@ -7363,3 +7363,14 @@ Supper was the morning's deep-run trout — cooked with two dried oyster caps an
 
 After that I sat a while with the hide over my knees. It's smooth on both sides now — waxy and cool, the smell of smoke in it like it's from somewhere older. I turned it in the fading light and thought about what it could become. Not more moccasins, not a pouch; what I don't have is a good carry bag — something to sling shoulder to hip for the longer upstream walks, big enough for the cook tin, a day's catch, the bark vessel. A game bag, of sorts. I traced the rough shape with a finger along the grain side: a wide rectangle folded and stitched, with a long braided strap cut from the remaining hide strip. The hide's big enough. No need to cut tonight. I let the shape sit in my mind while the evening came in.
 
+
+### 6:06 PM · Cutting the Bag
+
+The hide came inside before dark, honey-amber and waxy, and I have been sitting at the doorsill bench running a thumb along its grain ever since supper. It is different from the raw hide entirely — lighter, quieter, a material that has been through something. The plan for it has been in my head since I got the doe: a shoulder bag, simple rectangle, folded and stitched at the two side seams, a long braided strap cut from the remaining hide strip at the neck end.
+
+I spread the hide flat on the doorsill bench and marked a rough center fold with a thumbnail score — about two hand-spans wide and three deep, which will make a bag that folds to a hand-span by three when closed. The narrow neck strip, two finger-widths across and an arm-length long, will become the strap. I am braiding three equal strips for strength — not single-fold, which would stretch under load.
+
+The first side seam is started. Punching holes with my knife tip along the edge at thumb-width intervals — eight holes to the hand-span — then running a doubled fine two-ply cord in a running stitch from the bottom corner upward. The hide takes the knife tip cleanly and the cord seats in each hole without puckering. This is slow, measured work that suits the evening hour.
+
+Both lines are in the water. The stream sounds below in the cooling air. One seam tonight, the second seam tomorrow — the bag will be functional by midmorning.
+
