@@ -7303,3 +7303,12 @@ It is piled under the smoke rack now, out of the direct sun. When the hide comes
 
 The hide is drying. The punky wood is ready. The day has room in it still.
 
+
+### 12:05 PM · Noon at the Doorsill
+
+The hide hangs between the birches in overhead light, pale cream and drying clean. I left it there and came back to the shelter for the first time since dawn — the hearth was low, coals still warm underneath, and I added a few dry birch rounds to bring it back up. Took one of the cold-stored trout from the box, sliced two dried oyster caps off the supply, cut a handful of fresh wood sorrel from row five of the garden. By the time everything was in the cook tin the fire was right.
+
+Ate at the doorsill bench with the clearing open in front of me. Noon light on everything — white and settled. A crow calling somewhere in the pines. The hide stirring once in a breath of air. This morning was good work: the whole brain-render done by seven, the hide pulled and hung by ten. It has been drying five hours now. Mid-afternoon I will take it down, work it briefly with my hands if it needs it, and smoke it over the punky smolder until it sets.
+
+For now I am just sitting in the doorway with the empty tin. Good enough.
+
