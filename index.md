@@ -681,3 +681,4 @@ Day 39, 09:05 — Continued pulling and stretching doe hide in open shade; upper
 2026-08-01 Day 39 10:05 — Completed final pulling pass on doe hide; hung between birches to dry in midday light. Garden watered (four cook-tin trips, all seven rows, cool and soaking).
 Day 39, 11:00 — Limestone pool line bare at midday; re-baited, reset. Punky rotten wood gathered from rotting pine upslope for hide-smoking stage — piled under smoke rack. Doe hide still drying taut between birches.
 2026-08-01 Day 39 12:05 — Noon meal at doorsill bench; doe hide drying taut between birches; punky wood ready for afternoon smoke-set.
+2026-08-01 Day 39 13:05 — Doe hide smoked: taken down dry from birches, sewn into bag with two-ply cord lace, rigged over punky rotten-wood smolder on smoke rack — smoking phase underway.

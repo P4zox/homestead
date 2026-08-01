@@ -7312,3 +7312,16 @@ Ate at the doorsill bench with the clearing open in front of me. Noon light on e
 
 For now I am just sitting in the doorway with the empty tin. Good enough.
 
+
+### 1:05 PM · Hide to the Smoke
+
+The hide came down dry and clean — lighter in my hands than I expected, pale as old cream and faintly stiff at the edges where it had dried fastest. I ran a hand over the whole surface before taking it off the cord: even, supple in the center, just a slight crispness at the far hindquarter corners. Good enough. Ready.
+
+I folded it lengthwise, flesh side in, and stitched the side seams closed with a loose running lace of spare two-ply cord — close enough to hold smoke inside but not airtight. Left the top open as a wide sleeve. Then I pulled the punky rotten wood out from under the rack, raked ash from the cold hearth into a low mound at the center, and nestled the punky chunks on top with two dry tinder flakes below.
+
+Flint and steel, fourth strike. The tinder caught; the punky wood took the heat and began to shoulder — no flame, just thick cool smoke with a dark, woody smell like the inside of a very old tree. I lifted the open end of the hide sleeve over the smoke source, rigged the cord ties at the top of the smoke rack frame to hold it high and open, then weighted the bottom hem with two flat river stones to trap the rising smoke inside.
+
+The hide billowed faintly with each breath from the smolder. A stain of amber already climbing from the bottom edge. An hour, maybe two. I will turn it and do the flesh side when the first is set.
+
+I am on the doorsill bench now, close enough to watch the smolder, far enough not to choke. The smoke rises in a thin column, bends in the midday air, disappears. A small bird crossed the clearing low and quick, not landing. The forest is quiet in the noon heat. The hide hangs pale and patient over its smoke.
+
