@@ -691,3 +691,4 @@ Day 39, 19:06 — Shoulder bag body complete: both side seams run and tied with 
 2026-08-01 Day 39 20:06 — Braided and attached shoulder bag strap by hearthlight; bag complete; evening at doorsill under first stars.
 2026-08-01 · Day 39, 21:00 — Cord twisted by hearthlight (fourteen arm-lengths two-ply); evening reflection on completed kit — quiver, bow, moccasins, pouches, and bag all made.
 2026-08-01 (Day 39, 22:05) — Stepped out under the stars to check both fishing lines before sleep; lines in position, all well. Night quiet, cabin warm, everything made and accounted for.
+Day 39, 2026-08-01 — 11:05 PM: Lying awake in sleeping bag as Day 39 closes; last thoughts on the doe hide shoulder bag and all the made things — quiver full, lines in water, hearth coals low, eyes closing.

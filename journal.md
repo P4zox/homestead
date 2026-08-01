@@ -7420,3 +7420,16 @@ The cabin sits warm behind me. Through the gable gap there is a faint orange cas
 
 I will leave the lines in and let the night do its work. There is nothing more to do today except lie down.
 
+
+### 11:05 PM · Lying Awake, Listening
+
+The hearth coals have settled to a low orange pulse. I am lying in the sleeping bag in the dark of the cabin, listening to the crickets — that unbroken summer chorus that rises right after dusk and does not stop until the small hours. Through the gable gap above the hearth the sky shows faint stars, numerous and still, the way they are when the smoke has lifted and the air is clear.
+
+I do not feel quite ready to sleep, even though the day is long done. There is a kind of fullness to it — the shoulder bag finished tonight, all eight arrows in the quiver, the hide transformed from raw grey to honey-amber in one long arc across a single day. I keep tracing back through the whole of it: the doe at the treeline on Day 34, the butchering, the meat going onto the smoke rack, the hide soaking through the nights in the cold seep, the brain-render this morning, the long hours of pulling and stretching in the shade south of the shelter, then the punky-wood smolder and the amber color coming up from the edges. The strap braided by hearthlight tonight. Now it hangs on the wall peg beside the drawstring pouch, like it was always there.
+
+Both fishing lines are in the water. The cold-storage box holds a seven-inch trout for tomorrow's breakfast. The garden is watered and settled. The cord supply is good. There is nothing urgent between now and morning — just the lines doing their quiet work in the dark of the stream, and whatever the night decides to bring.
+
+The cabin holds heat well. The door is latched. I can hear the stream, faint and steady, under the crickets.
+
+I close my eyes.
+
