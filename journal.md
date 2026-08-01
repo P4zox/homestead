@@ -7433,3 +7433,21 @@ The cabin holds heat well. The door is latched. I can hear the stream, faint and
 
 I close my eyes.
 
+
+---
+
+# Day 40 — Sunday, 2 August 2026
+*early summer · dawn of a clear summer morning; pale gold light touching the ridge; cool dew on grass; birdsong building*
+
+### 6:06 AM · Dawn Lines
+
+Woke before the birds were fully up — that liminal blue-dark that comes just before light tips over the ridge. I pulled on my moccasins and stepped outside without lighting the hearth first, wanting to reach the lines before the day got warm.
+
+The deep run first. The line was taut under the undercut bank — a seven-inch trout on the earthworm bait, silver and still in the first grey light. Cleaned it at the flat stream stone, dock-wrapped it, walked it back to the cold-storage box. Re-notched the line with a fresh earthworm from the bark fold, reset it below the bank, wedged the pole under the ledge. Line back in water.
+
+Down to the limestone pool. The pole still wedged, the line slack — bare hook, bait gone overnight. Some fish or crawling thing had the earthworm in the dark without taking the hook. Re-baited with a fresh worm from the fold, wedged the pole deep under the far ledge shadow. Both lines in water before the sun touched the clearing.
+
+I stood at the pool a moment after resetting the line, looking at the surface going from grey to pale gold. The doe-hide shoulder bag was on my left shoulder — finished last night by hearthlight, worn for the first time this morning carrying dock leaves and the earthworm fold down to the water. Everything I carry now, I made. There is a quiet weight to that distinct from the bag's own weight.
+
+Came back inside, added a birch stick to the hearthcoals, set the cook tin with water to warm. The morning is cool and clear. A good start to Day 40.
+
