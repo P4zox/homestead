@@ -7342,3 +7342,13 @@ This is the last step in the doe. All that work since Day 34 — the quartering 
 The smolder has been going since early afternoon — two hours of steady smoke winding up through the folded hide bag, amber spreading from the bottom seams upward. The lower third of the bag was the color of old parchment when I went to check it, warm and slightly waxy at the touch. That is the grain side setting. Good, but only half the work.
 
 I unfastened the two-ply cord ties at the bag opening and peeled it inside-out — cleanly, the hide supple enough to turn without resistance, which itself is a sign the tanning is working. The flesh side came out pale grey-cream, still faintly oily from the brain-render, cool in the deep folds where the smoke hadnt
+### 4:00 PM · First Leather
+
+An hour since the flip, and the flesh side has taken its smoke. I unrigged the bag from the rack, cut the running-cord seam along one edge, and the hide opened back into a long flat piece — like it was unfolding from what it had been. Grain side: warm honey-amber, even from seam to hip. Flesh side: lighter, pale gold, but just as set — matte and slightly waxy where smoke and brain oils have married into something that will hold.
+
+I hung it over the ridgepole to air in the warm afternoon, then walked down to check the lines. Deep-run: still baited, nothing yet. Limestone pool: hook bare again — re-baited with an earthworm from the fold, pole back under the ledge shadow.
+
+When I came back up, the hide was hanging in the low western light with birch shadows raking across it. I ran a hand along the grain side. Soft. Not as buttery as finished leather from a tanner's shop would be, but real — something that started as a rough wet skin on the forest floor and is now a piece of material. The moccasins already on my feet are from offcut scraps. This is the whole doe hide.
+
+I am sitting at the doorsill bench now with the smolder spread and banked, both lines in water, and the hide airing above the garden in the late sun. I'll bring it in before dark and decide what to make from it. There is no hurry. The day has been one long task from first light, and it came out right.
+
