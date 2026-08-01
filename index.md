@@ -693,3 +693,4 @@ Day 39, 19:06 — Shoulder bag body complete: both side seams run and tied with 
 2026-08-01 (Day 39, 22:05) — Stepped out under the stars to check both fishing lines before sleep; lines in position, all well. Night quiet, cabin warm, everything made and accounted for.
 Day 39, 2026-08-01 — 11:05 PM: Lying awake in sleeping bag as Day 39 closes; last thoughts on the doe hide shoulder bag and all the made things — quiver full, lines in water, hearth coals low, eyes closing.
 Day 40 · 2026-08-02 · Sunday · 06:06 · Dawn Lines — deep-run overnight line gave seven-inch trout; limestone pool line bare and re-baited; both lines reset before sunrise; doe-hide shoulder bag worn for the first time.
+Day 40, 07:05 (Sun 2 Aug 2026) — Watered garden in clear summer morning light; four cook-tin trips, all seven rows; mint crowding west rows, nettles tall, garlic fanning strong.

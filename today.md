@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:06 — Deep-run overnight line gave seven-inch trout (cleaned at flat stream stone, dock-wrapped, cold-stored; line re-notched with fresh earthworm, reset below undercut bank). Limestone pool line bare overnight; re-baited with earthworm from bark fold, pole re-wedged under far ledge shadow — both lines in water before sunrise. Cold-storage box now holds two seven-inch trout. Cook tin warming on low hearth inside.
+07:05 — Watered garden: four cook-tin trips from deep run, all seven rows east to west. Nettles past knee-height in rows 1–2; mint crowding row 5 neighbors; garlic fanning wide, dandelion rosettes large. Stood at border stones after — seven rows of growing things.

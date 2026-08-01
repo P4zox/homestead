@@ -7451,3 +7451,11 @@ I stood at the pool a moment after resetting the line, looking at the surface go
 
 Came back inside, added a birch stick to the hearthcoals, set the cook tin with water to warm. The morning is cool and clear. A good start to Day 40.
 
+
+### 7:05 AM · Garden in Gold Light
+
+The morning was all pale gold and birdsong when I started the first trip down to the deep run with the cook tin. Dew still clung to the grass along the south-facing bench, cool on my knees when I crouched to pour the first load slow and close to the garlic rows — they have fanned wide since the scape harvest, deep green leaves against dark loam. Four trips, east to west, the same circuit I have walked for weeks now, the paths between rows worn slightly softer underfoot.
+
+The nettles in rows one and two are well past knee-height. I brushed one with the back of my hand without thinking and got a sting for it. The mint in the western rows has started crowding its neighbors — I will need to thin it in a few days or it will take over row five. But the garlic is doing what garlic does: steady, unhurried, building underground while the fans spread wide above.
+
+I stood at the border stones on the north edge when it was done and looked back over all seven rows. Everything growing. The dandelion rosettes have spread enormous and flat. Wood sorrel presses into every north-shadow corner. It still surprises me that I planted all of this from wild roots and cuttings, row by row, and that it is real now — real food, coming.
