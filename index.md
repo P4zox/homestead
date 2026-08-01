@@ -689,3 +689,4 @@ Day 39, 17:05 — Doe hide off the ridgepole and onto the supply shelf; limeston
 2026-08-01 18:06 Day 39 — Shoulder bag cut and first seam started at doorsill bench from finished doe hide; neck strip cut for braided strap; both lines in water.
 Day 39, 19:06 — Shoulder bag body complete: both side seams run and tied with doubled fine two-ply cord; strap holes marked; neck strip on shelf for braiding strap tomorrow.
 2026-08-01 Day 39 20:06 — Braided and attached shoulder bag strap by hearthlight; bag complete; evening at doorsill under first stars.
+2026-08-01 · Day 39, 21:00 — Cord twisted by hearthlight (fourteen arm-lengths two-ply); evening reflection on completed kit — quiver, bow, moccasins, pouches, and bag all made.

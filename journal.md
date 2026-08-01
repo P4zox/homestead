@@ -7398,3 +7398,16 @@ For a little while I had nothing in my hands. The crickets were going outside, l
 
 The lines are in the water. Tomorrow will come. This one felt complete.
 
+
+### 9:00 PM · Hands to Cord
+
+The bag is on its peg now. I keep glancing at it — honey-amber, the strap hanging straight, the whole thing smelling faintly of woodsmoke and brain and the long day’s work.
+
+I pulled the cord bundle off the shelf and settled by the hearth. Not because I need more cord urgently — the coil is healthy — but because my hands want something repetitive after a day of decisions. Drafting, measuring, cutting, stitching: all of that asks you to pay attention, to commit. Twisting cord asks nothing. You just begin at one end and keep going.
+
+Fourteen arm-lengths this evening. The cricket chorus hasn’t let up since dusk. The coals are a steady orange. Both lines are in the water.
+
+I looked around the room while my hands worked. Quiver on the wall peg, all eight arrows in it. Bow slung across. Moccasins soft on the door peg. The drawstring pouch. The new shoulder bag. None of these things existed a month ago. They didn’t grow from the land the way the shelter did — I had to work toward them on purpose, one piece at a time.
+
+I’m not sure what that adds up to, exactly. Readiness, maybe. The kind you build quietly, without realizing you’re building it.
+
