@@ -683,3 +683,4 @@ Day 39, 11:00 — Limestone pool line bare at midday; re-baited, reset. Punky ro
 2026-08-01 Day 39 12:05 — Noon meal at doorsill bench; doe hide drying taut between birches; punky wood ready for afternoon smoke-set.
 2026-08-01 Day 39 13:05 — Doe hide smoked: taken down dry from birches, sewn into bag with two-ply cord lace, rigged over punky rotten-wood smolder on smoke rack — smoking phase underway.
 Day 39, 14:06 (2026-08-01, Sat) — Rotated doe hide bag on smoke rack; tended punky smolder; amber color spreading — tanning set in progress.
+Day 39, 2026-08-01 15:06 — Flipped smoke-tanning doe hide bag inside-out on rack; flesh side now facing the smolder to complete the tanning.

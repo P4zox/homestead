@@ -7336,3 +7336,9 @@ I sat back on the doorsill bench with the afternoon at its warmest, the pines st
 
 This is the last step in the doe. All that work since Day 34 — the quartering and smoking, the scraping in noon heat, the soaking and brain-render, the long morning of pulling and stretching — and now it comes down to a slow afternoon of smoke. By evening it should hold its color even when wet. Then it will be a true piece of gear, soft and golden-brown, and I will decide what to make of it next.
 
+
+### 3:06 PM · Flesh Side Turned
+
+The smolder has been going since early afternoon — two hours of steady smoke winding up through the folded hide bag, amber spreading from the bottom seams upward. The lower third of the bag was the color of old parchment when I went to check it, warm and slightly waxy at the touch. That is the grain side setting. Good, but only half the work.
+
+I unfastened the two-ply cord ties at the bag opening and peeled it inside-out — cleanly, the hide supple enough to turn without resistance, which itself is a sign the tanning is working. The flesh side came out pale grey-cream, still faintly oily from the brain-render, cool in the deep folds where the smoke hadnt
