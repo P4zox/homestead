@@ -7352,3 +7352,14 @@ When I came back up, the hide was hanging in the low western light with birch sh
 
 I am sitting at the doorsill bench now with the smolder spread and banked, both lines in water, and the hide airing above the garden in the late sun. I'll bring it in before dark and decide what to make from it. There is no hurry. The day has been one long task from first light, and it came out right.
 
+
+### 5:05 PM · Amber and After
+
+The hide had been airing over the ridgepole for an hour. I watched it from the doorsill bench while the sun dropped and the birch shadows stretched longer across the clearing — the grain side going a deeper amber in the angled light, the flesh side pale and matte. An hour felt right. I lifted it off the ridgepole careful and slow, folded it once along its length, and carried it inside. It went on the supply shelf beside the spoon and the bark tray.
+
+Then I walked down to the limestone pool. The line was taut against the far-bank ledge — the way it sits when something's on it. Seven inches. Cleaned it at the flat pool stone, dock-wrapped, cold-stored. Earthworm re-baited, pole re-wedged in ledge shadow. Both lines in water.
+
+Supper was the morning's deep-run trout — cooked with two dried oyster caps and a fistful of watercress over hearthcoals in the cook tin, eaten at the doorsill bench in the last amber light.
+
+After that I sat a while with the hide over my knees. It's smooth on both sides now — waxy and cool, the smell of smoke in it like it's from somewhere older. I turned it in the fading light and thought about what it could become. Not more moccasins, not a pouch; what I don't have is a good carry bag — something to sling shoulder to hip for the longer upstream walks, big enough for the cook tin, a day's catch, the bark vessel. A game bag, of sorts. I traced the rough shape with a finger along the grain side: a wide rectangle folded and stitched, with a long braided strap cut from the remaining hide strip. The hide's big enough. No need to cut tonight. I let the shape sit in my mind while the evening came in.
+
