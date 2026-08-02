@@ -7537,3 +7537,11 @@ Sat at the pool stone for a bit before resetting the line. The dragonflies here 
 
 Line re-baited with an earthworm from the bark fold. Both lines in water for the evening.
 
+
+### 5:05 PM · Long Light Supper
+
+The sun is behind the pines now, but the clearing still holds its heat — that particular warmth that comes from the ground itself giving back what it has been taking in all day. I pulled one of the trout from cold storage, the limestone pool catch from this afternoon, still firm and cold-wrapped in dock leaf. Cut dried oyster caps from the shelf, pulled a handful of wood sorrel from row five on the way past the garden. The cook tin settled in the hearthcoals and I came out to sit at the doorsill bench while things heated.
+
+The clearing was all long shadows east and still air. A dragonfly worked the pool margin without hurry. I could hear the stream but not see it from the bench, just its sound coming through the alder stand — that particular clean cold sound that belongs to this place and nowhere else.
+
+Ate slowly. The trout came off the bone in clean flakes, the oyster caps earthy and smoke-sweet, the sorrel bright and a little sour against everything else. It is a good meal when the cook tin makes it. I sat after, bowl empty in my lap, watching the clearing go from gold to gray, and felt — not triumphant exactly, but satisfied. Forty days of this. The lines are in the water. The snare is set. The garden grows. There is enough, and for now enough is everything.
