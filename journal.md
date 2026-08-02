@@ -7545,3 +7545,13 @@ The sun is behind the pines now, but the clearing still holds its heat — that 
 The clearing was all long shadows east and still air. A dragonfly worked the pool margin without hurry. I could hear the stream but not see it from the bench, just its sound coming through the alder stand — that particular clean cold sound that belongs to this place and nowhere else.
 
 Ate slowly. The trout came off the bone in clean flakes, the oyster caps earthy and smoke-sweet, the sorrel bright and a little sour against everything else. It is a good meal when the cook tin makes it. I sat after, bowl empty in my lap, watching the clearing go from gold to gray, and felt — not triumphant exactly, but satisfied. Forty days of this. The lines are in the water. The snare is set. The garden grows. There is enough, and for now enough is everything.
+### 6:05 PM · Fire and Cord
+
+After supper I laid three dry pine rounds on the hearthstone over the low coals and worked the flint and steel. The tinder caught on the second strike — birch bark curl taking light and giving it up fast — and now there is a proper small fire going in the northwest corner, throwing orange light across the log walls and up to the ridgepole.
+
+I pulled the cord bundle into my lap and twisted fourteen arm-lengths of two-ply by firelight. The work is good evening work: both hands occupied, steady and slow, and the mind allowed to drift. The clearing outside the open door has gone dark blue. In the pines upslope a thrush is calling in falling triplets — that three-note descent that seems to say something is settling down for the night.
+
+Both fishing lines are out there in the dark water, doing their quiet work without me. The snare sits at the north garden edge, loop open above the rabbit run. Everything that can work while I sleep is working. That is a good kind of evening, when the land carries on without asking anything more of you.
+
+The cabin walls hold the fire's warmth. I am good here.
+
