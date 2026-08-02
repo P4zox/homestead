@@ -697,3 +697,4 @@ Day 40, 07:05 (Sun 2 Aug 2026) — Watered garden in clear summer morning light;
 Day 40, 08:05 — Upslope walk to granite shelf; deer trail at dry wash scouted (no fresh prints, trail leads east past ridge fold — noted); wood sorrel clumps pulled from hollow and transplanted into garden north-edge shadow strip.
 2026-08-02 Day 40 09:05 — Cooked morning seven-inch trout with dried oyster caps and wood sorrel; ate at doorsill bench as sun cleared the ridge fully.
 2026-08-02 Day 40 10:05 — Limestone pool gave seven-inch trout; cleaned, cold-stored; sat at pool stone in midmorning sun.
+Day 40, 11:05 — Cord-twisting in east-wall shade; fourteen arm-lengths two-ply added to bundle; midday sun overhead; both lines in water.

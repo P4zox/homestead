@@ -7487,3 +7487,14 @@ I walked the south path to the limestone pool in the late-morning warmth. The de
 The line had weight to it when I pulled. A seven-inch trout came up from the shadow, clean-flanked. I cleaned it at the flat pool stone, dock-wrapped it, and cold-stored it in the box beside yesterday's catch. Line re-baited, pole re-wedged under the ledge — both lines back in water.
 
 Then I sat on the warm stone at the pool's edge and let things go quiet for a while. The water made its small sound over the gravel bar downstream. A pair of dragonflies worked the near margin, hovering and darting. The sun was past the ridge, fully on the open side, and the pool lay in its own stillness below the tree line. There is something about a place like this — the way it asks nothing of you, and lets you ask nothing of it. I sat until I felt settled, and then I walked back.
+
+### 11:05 AM · Cord in Midday Shade
+
+The east wall throws a wide shadow by this hour, and I moved into it after the morning rounds. The clearing was already whitening under the full overhead sun — the garden rows sitting perfectly still, not a leaf stirring — and there wasn't much sense in walking far under it. Found a sitting place against the log wall, the cord bundle in my lap, and let the morning quieten down around me.
+
+There's a rhythm to the twisting that I know now without thinking: pinch and roll one strand down the thigh, catch the other, let them ply back and grip each other with the right tension. If you hurry it the strands go lumpy; if you let them find their own rate they come out even and pull firm under two thumbs. Fourteen arm-lengths today, good two-ply, a length I can feel coiling into the bundle with real weight behind it.
+
+I thought, sitting there, about how much cord there is now. It began as a scarcity problem — I was always running short, always counting what remained before committing to a lash or a stitch. Now the bundle has grown past what I could use in a season of ordinary work. Every length in it is an evening or a midday shade, a small act of forward-thinking compressed into something you can run between two fingers and trust. The moccasins were stitched with it. The quiver. The bark vessel. The shoulder bag. It's been through everything.
+
+Both fishing lines are still in water. The pool dragonflies are probably working the near margin in this heat. Whatever the afternoon holds, the cord is ready for it.
+
