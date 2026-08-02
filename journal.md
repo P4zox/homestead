@@ -7470,3 +7470,12 @@ I walked on past the shelf to the dry wash where the deer trail crosses. No prin
 
 Coming back through the birch stand I stopped at the wood sorrel hollow. Still dense and bright-leafed in the fallen birch shade. I pulled half a dozen clumps from the thick center, where they crowd each other anyway, and settled them into my shoulder bag. Back at the doorsill I pressed them into the north-edge shadow strip of the garden, filling in the thin patch there. Watered them in with the last cook-tin carry. The strip looks more complete now.
 
+
+### 9:05 AM · Trout at the Bench
+
+Back from the upslope walk before the dew was fully off — the bow riding easy on my shoulder, the bag light. Came inside and stoked the hearth with dry pine, let the coals build while I retrieved one of the dock-wrapped trout from the cold-storage box. Rinsed it at the stream with a splash of cold water, laid it in the cook tin with two dried oyster caps and a fistful of wood sorrel pulled from row five. The tin went over the coals.
+
+Ten minutes, no more. The sorrel wilted down and turned bright, the oyster caps loosened and colored the water amber. I sat at the doorsill bench with the tin on my knees and ate slowly, watching the sun clear the ridge entirely and fall full across the garden rows.
+
+The garden looks good. Seven rows of growing things, all of them living. Mint starting to lean into its neighbors. Nettles taller than my knee. The garlic fans wide and green. I stayed at the bench a while after the tin was empty, just watching the morning settle.
+
