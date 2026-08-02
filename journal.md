@@ -7459,3 +7459,14 @@ The morning was all pale gold and birdsong when I started the first trip down to
 The nettles in rows one and two are well past knee-height. I brushed one with the back of my hand without thinking and got a sting for it. The mint in the western rows has started crowding its neighbors — I will need to thin it in a few days or it will take over row five. But the garlic is doing what garlic does: steady, unhurried, building underground while the fans spread wide above.
 
 I stood at the border stones on the north edge when it was done and looked back over all seven rows. Everything growing. The dandelion rosettes have spread enormous and flat. Wood sorrel presses into every north-shadow corner. It still surprises me that I planted all of this from wild roots and cuttings, row by row, and that it is real now — real food, coming.
+
+### 8:05 AM · Morning from the Shelf
+
+After the garden I took the bow off the wall, looped the sling across my left shoulder, settled the quiver cord across the right, and walked upslope through the birch stand into the older pines. The air under the canopy still held the night cool — that smell of dry needles beginning to warm.
+
+The granite shelf caught the morning sun exactly. I sat there a while and let my eyes go over the clearing below: the cabin, the garden rows a brighter green than the surrounding grass, the smoke rack in its two-pair of poles. The stream line was invisible from here but I traced it by the alder draw along its course. Everything in its place. A long way from the first morning I woke here with an axe and almost nothing else.
+
+I walked on past the shelf to the dry wash where the deer trail crosses. No prints from today — the soil was dust-dry, the old impressions fading at their edges. The trail dips east into a hollow I have not followed past the ridge fold. Somewhere there is water on the far side; does would travel a morning circuit to it and back. I noted the lay of the land and did not go further. There is a right time to follow a trail and this was not it — I had the bow, but I also had two trout cold-stored and the day was not hungry enough to justify a long push into new ground alone.
+
+Coming back through the birch stand I stopped at the wood sorrel hollow. Still dense and bright-leafed in the fallen birch shade. I pulled half a dozen clumps from the thick center, where they crowd each other anyway, and settled them into my shoulder bag. Back at the doorsill I pressed them into the north-edge shadow strip of the garden, filling in the thin patch there. Watered them in with the last cook-tin carry. The strip looks more complete now.
+
