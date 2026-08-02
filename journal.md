@@ -7585,3 +7585,12 @@ Forty days. I have a roof, a latch, a garden with seven rows alive, a cold-stora
 
 That is not nothing. That is quite a lot, actually.
 
+
+### 10:05 PM · Night laid down
+
+Yarrow went cold in the tin. I brought it inside, set the tin on the shelf beside the empty herb envelopes, and spent a few minutes banking the coals — raked ash over the glowing base, laid one last split pine piece lengthwise across the bed to smolder slow. The hearthstone will stay warm until first light if I don't let the ash smother it.
+
+Stepped outside one more time. The clearing is fully dark now, no moon yet, the Dipper wheeling overhead past where it was an hour ago. Air cool and still. Stream carrying in the silence. The snare sits on the north garden edge in the dark and both lines are deep in running water — the night's work running on without me. Nothing left to tend until dawn.
+
+Came back in. Settled the latch bar into its keeper — the groove and pin still fit clean after forty days. Pulled the sleeping bag flat on the mat, lay down. The shelter is warm and still and solid around me. Forty days tonight. That is not nothing.
+
