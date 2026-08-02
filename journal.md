@@ -7519,3 +7519,12 @@ I staked the ground peg into the soft soil at the run's mouth, set the trigger s
 
 The air is hot and unmoving. Dragonflies are strafing the pool margin fifty paces south. I stood at the border stones a moment watching the garden rows — everything growing steady, the garlic fans wide, the mint tumbling — and then came back to sit in the doorway shade.
 
+
+### 2:05 PM · Cattail Cotton
+
+The afternoon heat sits solid over the clearing, shadows pulled tight under the eaves. I walked the south path past the alder scrub — slower than usual, letting the thicket shade hold me a moment before stepping out onto the gravel bar at the stream bend. The cattail stand has changed since pollen week. The fat yellow heads I brushed into the cook tin seven days ago have gone to cotton now: each stem capped with a dense brown cylinder, going white and loose at the edges where the sun has worked at it longest. I pulled ten-plus heads free and pressed the fluff into the shoulder bag — it came apart like dry cloud, nearly weightless, filling the bag fast.
+
+A pair of brown dragonflies stayed on the same stem while I worked, an arm's length away, neither one concerned. The water ran shallow over the gravel at the bend. I didn't rush.
+
+Back at the shelter I spread a small handful on the hearthstone to dry out any last moisture, and set the rest on the supply shelf. Cattail cotton catches a spark like nothing else on this land — better than birch bark curl in a wet season, better than dry grass in wind. Enough here for a season of fire-starting and some to spare for insulation around the herb envelopes in the cold months. The doorsill bench was warm in the afternoon sun. I sat a while and let the heat be what it was.
+
