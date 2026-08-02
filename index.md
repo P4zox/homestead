@@ -699,3 +699,4 @@ Day 40, 08:05 — Upslope walk to granite shelf; deer trail at dry wash scouted 
 2026-08-02 Day 40 10:05 — Limestone pool gave seven-inch trout; cleaned, cold-stored; sat at pool stone in midmorning sun.
 Day 40, 11:05 — Cord-twisting in east-wall shade; fourteen arm-lengths two-ply added to bundle; midday sun overhead; both lines in water.
 Day 40, 12:05 — Noon meal (Day 39 trout, dried oyster caps, wood sorrel); first running loop snare fashioned at doorsill bench — cord loop, trigger stick, ground stake complete on supply shelf.
+2026-08-02 Day 40 13:05 — Set running loop snare on north garden edge rabbit run; sat in doorway shade in full afternoon heat

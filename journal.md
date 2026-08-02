@@ -7508,3 +7508,14 @@ Spent the better part of the noon hour at the doorsill bench with the cord coil 
 
 The completed snare is on the supply shelf, parts tied together in a small bundle so nothing wanders. Tomorrow I will walk the north garden edge at first light and look for the right run — somewhere the brush pinches, where the prints show a repeating line.
 
+
+### 1:05 PM · Snare Set, North Run
+
+The afternoon heat has settled fully over the clearing — heavy and still, the kind that irons the birdsong out of the trees and leaves only insects. I took the snare bundle from the supply shelf and walked to the north garden edge, where the garden rows end and the tall dry grass begins.
+
+Just past the first row of nettles, pressed flat in the stems, there is a run no wider than my hand. Small, consistent, the kind of path made by a body traveling the same route again and again, night after night. Rabbit, most likely — the prints too small and light to read in the dry soil, but the channel of flattened grass clear enough. Something has been coming to work the garden margin, and I have not noticed until now.
+
+I staked the ground peg into the soft soil at the run's mouth, set the trigger stick notch-up in the path, looped the cord around it, and worked the running loop to stand open just above ground — hand-span circle, finger-height off the soil. If anything comes through in the dark, the loop should draw. Then I stepped back to look at it: small, nearly invisible in the dry grass, nearly nothing. But honest work, I think. It took more patience to make than skill.
+
+The air is hot and unmoving. Dragonflies are strafing the pool margin fifty paces south. I stood at the border stones a moment watching the garden rows — everything growing steady, the garlic fans wide, the mint tumbling — and then came back to sit in the doorway shade.
+
