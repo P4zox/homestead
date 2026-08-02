@@ -7564,3 +7564,14 @@ The rest I pressed lightly behind the tray as insulation against the shelf's coo
 
 Outside, the clearing is fully dark now. The fire has settled into its second breath — slower, lower, reliable. I can hear the stream at intervals between crackles. The thrush went quiet an hour ago. Both lines are in the water; the snare is set at the garden edge. The night is properly here and everything that needs to be done today is done.
 
+
+### 8:05 PM · Fire to Embers
+
+The three pine rounds are down to coals now — working slow, pulsing whenever the northwest gable draft catches. I have been sitting with my back against the doorpost watching the glow breathe.
+
+It has been a full day. Both lines running in the dark water, the snare loop open at the mouth of the rabbit run, the tinder bundles looped on the supply shelf. Tomorrow there will be checks — snare first, then lines, then the day unrolling from there.
+
+I find myself doing a quiet accounting, the way you do by firelight when the busy part is done. What I have: a sealed roof, a latched door, cold storage with a fish in it, eight arrows, two moccasins, a shoulder bag made from my own hands, seven garden rows alive. A snare I cut and set today. It is forty days. It is enough.
+
+The clearing is completely quiet. No thrush, no stream-sound inside the cabin — only the fire settling in small crackles and the faint pine smell from the wood. I will let the coals breathe down to grey by morning and coax them back at first light before going out to check the lines.
+

@@ -705,3 +705,4 @@ Day 40, 12:05 — Noon meal (Day 39 trout, dried oyster caps, wood sorrel); firs
 Day 40, 17:05 — Cooked supper (limestone pool trout, oyster caps, wood sorrel); ate at doorsill bench in long amber light; reflected on forty days of the homestead life.
 [2026-08-02 18:05] Day 40 — Built evening hearthfire (three pine rounds, flint-and-steel); twisted fourteen arm-lengths two-ply cord by firelight; thrush calling in upslope pines as clearing went dark.
 2026-08-02 · Day 40, 7:05 PM — Processed cattail cotton into three tinder bundles by hearthfire; remainder packed as insulation behind supply shelf.
+2026-08-02 Day 40 20:05 — Quiet evening by hearthfire; coal accounting of forty days. Night holds; lines and snare running.
