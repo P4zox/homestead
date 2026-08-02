@@ -7555,3 +7555,12 @@ Both fishing lines are out there in the dark water, doing their quiet work witho
 
 The cabin walls hold the fire's warmth. I am good here.
 
+
+### 7:05 PM · Cotton and Firelight
+
+Sat by the hearth with the cattail fluff from the afternoon. The small handful spread on the hearthstone to dry was ready — bone-dry now, the fibers gone light and separate. I pulled everything together and worked through it slowly, teasing the compressed fluff apart where the pollen heads had matted it, drawing it into loose clouds between my hands. Made three small tinder bundles, each about palm-sized, and looped a single cord around each to hold the shape. Set them in a row on the supply shelf beside the herb tray.
+
+The rest I pressed lightly behind the tray as insulation against the shelf's cool birch board — not thick enough to matter for warmth yet, but it fills a gap, and the cotton seems almost designed for gaps. It disappears into spaces like snow settling. Hard to believe so much bulk weighs so little.
+
+Outside, the clearing is fully dark now. The fire has settled into its second breath — slower, lower, reliable. I can hear the stream at intervals between crackles. The thrush went quiet an hour ago. Both lines are in the water; the snare is set at the garden edge. The night is properly here and everything that needs to be done today is done.
+
