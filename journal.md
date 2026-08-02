@@ -7528,3 +7528,12 @@ A pair of brown dragonflies stayed on the same stem while I worked, an arm's len
 
 Back at the shelter I spread a small handful on the hearthstone to dry out any last moisture, and set the rest on the supply shelf. Cattail cotton catches a spark like nothing else on this land — better than birch bark curl in a wet season, better than dry grass in wind. Enough here for a season of fire-starting and some to spare for insulation around the herb envelopes in the cold months. The doorsill bench was warm in the afternoon sun. I sat a while and let the heat be what it was.
 
+
+### 4:05 PM · Limestone Pool, Late Light
+
+The walk south in the afternoon heat is familiar by now — same path through the alder scrub, same turn at the flat pool stone. The line was taut. Another seven-inch trout, clean-flanked and cold from the limestone shelf water, came up without drama. I cleaned it at the flat stone, dock-wrapped it, and carried it back to the cold box alongside the morning's catch.
+
+Sat at the pool stone for a bit before resetting the line. The dragonflies here have their own circuit — they patrol the near margin, land on a stem, lift, return. I've been watching them most of the summer now and still don't know what they're doing. Maybe just the same thing I am.
+
+Line re-baited with an earthworm from the bark fold. Both lines in water for the evening.
+

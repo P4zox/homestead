@@ -701,3 +701,4 @@ Day 40, 11:05 — Cord-twisting in east-wall shade; fourteen arm-lengths two-ply
 Day 40, 12:05 — Noon meal (Day 39 trout, dried oyster caps, wood sorrel); first running loop snare fashioned at doorsill bench — cord loop, trigger stick, ground stake complete on supply shelf.
 2026-08-02 Day 40 13:05 — Set running loop snare on north garden edge rabbit run; sat in doorway shade in full afternoon heat
 [2026-08-02 Day 40 14:05] Walked to south stream bend; cattail pollen heads spent and gone to cotton; pulled ten-plus heads, pressed seed fluff into shoulder bag — on supply shelf for tinder and insulation.
+2026-08-02 | Day 40 16:05 | Limestone pool line: seven-inch trout caught and cold-stored; line re-baited; both lines in water for evening.
