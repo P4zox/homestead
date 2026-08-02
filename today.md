@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:06 — Dawn snare check: rabbit caught on first night — small, red-brown, on flat hearthstone to be skinned when sun is up. Deep-run line bare this morning; re-baited with earthworm and reset. Limestone pool line gave seven-inch trout; cleaned at flat pool stone, dock-wrapped, cold-stored beside yesterday's catch; line reset. Both lines in water. Snare retrieved, parts on supply shelf.
+07:07 — Rabbit skinned at doorsill bench: pelt set fur-down on bench to dry; liver and heart cooked in cook tin with watercress and two dried chanterelle caps, eaten for breakfast; hindquarters and saddle on supply shelf for smoke rack this afternoon; bones set aside for midday broth.

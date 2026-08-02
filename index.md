@@ -710,3 +710,4 @@ Day 40, 21:05 — Brewed yarrow tea by dying hearthfire; sat on doorsill bench i
 Day 40, 22:05 — Banked coals; latch seated; lay down. Forty days, shelter sound, night running on without me.
 2026-08-02 Day 40 23:05 — Night Still: half in sleep; coals banked; snare set; lines in water; shelter holds.
 Day 41, 06:06 (Mon 3 Aug 2026) — Dawn snare check: rabbit caught on first night; limestone pool gave seven-inch trout; deep-run bare; both lines reset and in water.
+[2026-08-03 07:00] Day 41, Mon — Rabbit skinned at doorsill; liver and heart for breakfast; hindquarters and saddle to smoke rack this afternoon.

@@ -7621,3 +7621,14 @@ The rabbit waits on the hearthstone. I'll skin it when the sun is higher and my 
 
 That is something.
 
+
+### 7:00 AM · Morning Rabbit
+
+The sun was past the eastern pines when I brought the rabbit in from the hearthstone — red-brown fur, small body, maybe two pounds cleaned. I've taken a lot from this stream and these slopes, but a rabbit from a cord snare feels different in the hands: the first time I caught something that ran.
+
+I took it to the doorsill bench with the knife. Pinched the belly skin, cut careful, worked the pelt loose from hindquarters up to neck in one clean motion. It came whole. I set it fur-down on the planks to dry — too small for a coat, but enough for a pouch liner or mittens once I've smoked and worked the flesh side. The bones I kept for a midday broth.
+
+Liver and heart into the cook tin with watercress and two dried chanterelle caps. I ate that at the doorsill in the cool of early morning while the light came across the clearing. It was a good breakfast: rich and clean, nothing wasted.
+
+The hindquarters and saddle are on the supply shelf. I'll set them on the smoke rack this afternoon over low green birch smolder — two hours, maybe three — and cold-store them beside the trout. That will add to the larder noticeably, even from a small animal.
+
