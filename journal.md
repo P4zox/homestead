@@ -7479,3 +7479,11 @@ Ten minutes, no more. The sorrel wilted down and turned bright, the oyster caps 
 
 The garden looks good. Seven rows of growing things, all of them living. Mint starting to lean into its neighbors. Nettles taller than my knee. The garlic fans wide and green. I stayed at the bench a while after the tin was empty, just watching the morning settle.
 
+
+### 10:05 AM · Still Water, Still Morning
+
+I walked the south path to the limestone pool in the late-morning warmth. The dew was gone from the grass by then, the air carrying the faint resinous smell of pine heated in full sun. The pool lay ahead in a gap between the alders — surface glassy in the open, shadow-dark below the far ledge.
+
+The line had weight to it when I pulled. A seven-inch trout came up from the shadow, clean-flanked. I cleaned it at the flat pool stone, dock-wrapped it, and cold-stored it in the box beside yesterday's catch. Line re-baited, pole re-wedged under the ledge — both lines back in water.
+
+Then I sat on the warm stone at the pool's edge and let things go quiet for a while. The water made its small sound over the gravel bar downstream. A pair of dragonflies worked the near margin, hovering and darting. The sun was past the ridge, fully on the open side, and the pool lay in its own stillness below the tree line. There is something about a place like this — the way it asks nothing of you, and lets you ask nothing of it. I sat until I felt settled, and then I walked back.
