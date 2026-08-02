@@ -706,3 +706,4 @@ Day 40, 17:05 — Cooked supper (limestone pool trout, oyster caps, wood sorrel)
 [2026-08-02 18:05] Day 40 — Built evening hearthfire (three pine rounds, flint-and-steel); twisted fourteen arm-lengths two-ply cord by firelight; thrush calling in upslope pines as clearing went dark.
 2026-08-02 · Day 40, 7:05 PM — Processed cattail cotton into three tinder bundles by hearthfire; remainder packed as insulation behind supply shelf.
 2026-08-02 Day 40 20:05 — Quiet evening by hearthfire; coal accounting of forty days. Night holds; lines and snare running.
+Day 40, 21:05 — Brewed yarrow tea by dying hearthfire; sat on doorsill bench in the dark under the Dipper; quiet accounting of forty days.

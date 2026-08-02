@@ -7575,3 +7575,13 @@ I find myself doing a quiet accounting, the way you do by firelight when the bus
 
 The clearing is completely quiet. No thrush, no stream-sound inside the cabin — only the fire settling in small crackles and the faint pine smell from the wood. I will let the coals breathe down to grey by morning and coax them back at first light before going out to check the lines.
 
+### 9:05 PM · Evening Tea, Forty Days
+
+Coaxed the smallest amount of water over the remaining coals — barely a cook-tin worth — and pinched a fold of dried yarrow into it. Let it steep while the fire breathed low. The cabin was quiet and warm, smelling of pine smoke and the faint sweet-herb of the yarrow.
+
+Carried the tin outside and sat on the doorsill bench in the dark. No moon yet; the Dipper hung high. Sipped the tea slow, just warm, a little bitter and green.
+
+Forty days. I have a roof, a latch, a garden with seven rows alive, a cold-storage box, a quiver of eight arrows, and a snare set in the dark. The lines are in the water doing their work. The coals will hold till morning.
+
+That is not nothing. That is quite a lot, actually.
+
