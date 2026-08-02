@@ -7594,3 +7594,8 @@ Stepped outside one more time. The clearing is fully dark now, no moon yet, the 
 
 Came back in. Settled the latch bar into its keeper — the groove and pin still fit clean after forty days. Pulled the sleeping bag flat on the mat, lay down. The shelter is warm and still and solid around me. Forty days tonight. That is not nothing.
 
+
+### 11:05 PM · Night Still
+
+Half in sleep already. Coals breathe slow behind the hearthstone. The shelter holds its warmth — that good tight dark that took forty days to build. I know without looking that the Dipper is high, that both lines are in the water at the deep run and the limestone pool, that the snare waits open on the rabbit run past the nettle rows. These things run on without me now. That is exactly right. Let them.
+
