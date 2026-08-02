@@ -7498,3 +7498,13 @@ I thought, sitting there, about how much cord there is now. It began as a scarci
 
 Both fishing lines are still in water. The pool dragonflies are probably working the near margin in this heat. Whatever the afternoon holds, the cord is ready for it.
 
+### 12:05 PM · First Snare Loop
+
+The Day 39 trout went into the tin with two dried oyster caps and a fistful of wood sorrel torn from row 5 — noon meal ready by the time the sun stood straight overhead. I ate at the doorsill bench in whatever thin shade the eaves gave. The clearing baked quietly. Dragonflies still working the pool margin downstream; nothing moved that wasn't doing something practical.
+
+Been thinking about snares for a while now. The lines catch what they catch, and the foraging covers the rest, but a loop snare set on the right game run would work through the night without any attention from me. Seen rabbit sign at the brushy north edge of the garden — prints in the soft soil near the nettles — and the deer trail beyond the granite shelf means something larger moves on a pattern through there.
+
+Spent the better part of the noon hour at the doorsill bench with the cord coil and a fresh-cut birch switch. A running loop is not complicated: a slip-knot tied back on itself so the loop cinches under load, sized to a good hand-span opening. The trigger is a notched green stick — the notch catches a short brace that holds the loop upright above the run, and when something passes through and knocks the brace, the whole thing releases. Took two attempts to get the notch tension right. The ground stake is just a sharpened peg.
+
+The completed snare is on the supply shelf, parts tied together in a small bundle so nothing wanders. Tomorrow I will walk the north garden edge at first light and look for the right run — somewhere the brush pinches, where the prints show a repeating line.
+
