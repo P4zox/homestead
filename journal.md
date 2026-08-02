@@ -7599,3 +7599,25 @@ Came back in. Settled the latch bar into its keeper — the groove and pin still
 
 Half in sleep already. Coals breathe slow behind the hearthstone. The shelter holds its warmth — that good tight dark that took forty days to build. I know without looking that the Dipper is high, that both lines are in the water at the deep run and the limestone pool, that the snare waits open on the rabbit run past the nettle rows. These things run on without me now. That is exactly right. Let them.
 
+
+---
+
+# Day 41 — Monday, 3 August 2026
+*early summer · dawn, cold for the season; mist low on the stream*
+
+### 6:06 AM · First Snare, First Catch
+
+Woke before the clearing was light. Coals still breathing under ash from last night — raked them open, fed one dry pine split onto the glowing bed, waited for a catch of flame before stepping outside.
+
+Cold this morning. The kind of cold that stiffens the hands and makes the clearing feel bigger than it is in the gray half-light. Walked first to the north garden edge, crouching through the nettle rows, and saw the snare from ten paces: loop fallen, trigger stick flat, ground stake still driven.
+
+A rabbit. Small, red-brown, still. First one the snare has held.
+
+I stood there a moment longer than I needed to. Then picked it up by the hind legs — it was light, but you feel the weight of a caught thing differently than a stone. Carried it back to the doorsill and set it on the flat hearthstone.
+
+The deep-run line came up bare this morning; re-baited with fresh earthworm from the bark fold and reset below the undercut bank. The limestone pool line had a seven-inch trout, clean-flanked — cleaned at the flat pool stone, dock-wrapped, cold-stored beside yesterday's catch, line reset. Both lines back in water before the sun cleared the ridge.
+
+The rabbit waits on the hearthstone. I'll skin it when the sun is higher and my hands are steadier. Forty-one days in, and the snare has paid for itself on the very first night.
+
+That is something.
+
