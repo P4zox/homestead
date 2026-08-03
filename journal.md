@@ -7729,3 +7729,12 @@ Supper was a smoked rabbit hindquarter from cold storage, two dried chanterelle 
 
 Lines are in the water. Snare reset on the north run for a second night. The pelt inside, the box full, the fire low. Forty-one days in and there is something that feels like steadiness. Not done — there is always more — but a place you could actually stand in, and mean it.
 
+
+### 6:05 PM · Evening Cord
+
+The work of today is done. The rabbit is smoked and cold-stored, the pelt drying against the south wall on its cross-frame, the snare reset, both lines in the water. After a day that started before sunrise with a caught snare — through skinning, broth, smoke rack, scraping, and supper — I find I want something simple to close it.
+
+I fed the hearth with two dry birch splits, not for warmth so much as light, and sat down with the lashing-cord coil. Cord-twisting has become its own kind of thinking. My hands do the work — draw, roll, fold, pull — and my mind goes quiet in a different way than rest does. I twisted fourteen arm-lengths of two-ply before my hands started to slow. The cord went on smooth and even; I have gotten better without noticing.
+
+Outside I can hear the stream. The snare is on the rabbit run. Tomorrow I will check the buried log, the oyster pine the day after. Tonight the fire is good, the pelt is drying, and I have cord enough for whatever the next thing turns out to be.
+

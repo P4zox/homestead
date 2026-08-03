@@ -721,3 +721,4 @@ Day 41, 13:05 — Rabbit pelt scraped clean and stretched on birch cross-frame t
 Day 41, 15:05 — Tended smoke rack (fresh green birch chips; rabbit amber-tan at surface, deeper still giving — pull at ~16:00); pelt tightening on cross-frame in afternoon sun.
 2026-08-03 | Day 41 | 16:05 | Pulled rabbit hindquarters and saddle from smoke rack — press-firm, mahogany crust; cold-stored in box. Pelt drying on cross-frame south of doorsill.
 Day 41, 17:07 — Brought rabbit pelt (cross-frame) under roof before evening dew; supper of smoked hindquarter with chanterelles and fresh mint at doorsill in amber light.
+2026-08-03 Day 41 18:05 — Evening Cord: twisted fourteen arm-lengths two-ply cord by hearthlight; fire banked for the night.
