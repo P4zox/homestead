@@ -724,3 +724,4 @@ Day 41, 17:07 — Brought rabbit pelt (cross-frame) under roof before evening de
 2026-08-03 Day 41 18:05 — Evening Cord: twisted fourteen arm-lengths two-ply cord by hearthlight; fire banked for the night.
 Day 41, 19:05 — Sat by hearthfire as dark came on; reflected on the day — rabbit, pelt, broth, smoked meat, lines and snare both out. Let the fire drop to coals and the day be finished.
 Day 41, 20:05 — Worked rabbit pelt by hearthlight; pulled, folded, and stretched hide while still damp to keep it supple as it cures; coals banked, snare out, both lines in water.
+Day 41, 21:08 — Brewed dried red clover tea on hearthcoals; drank at doorsill in full dark listening to crickets and stream; pelt drying, snare out, lines in water, fire to coals for the night.

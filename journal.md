@@ -7758,3 +7758,12 @@ It is quiet work, this — a small movement repeated until the skin starts to un
 
 The snare is out on the north run. Both lines are in the water. Tomorrow I will check the buried log and the oyster pine — first harvest in a few days, by the look of things. For now the fire is a pile of coals, the pelt is softer than it was, and that is enough.
 
+
+### 9:08 PM · Herb Tea, Still Dark
+
+The coals breathe orange at the hearth edges and the shelter holds warmth. The pelt leans against the south wall curing firm. Snare is reset outside on the rabbit run; both lines in the dark water. Nothing left to do tonight but let the day settle.
+
+I pinched a small fold of dried red clover from the third bark envelope, set it in the cook tin with a ladleful of water, and rested the tin on the hottest coal cluster. The clover steeped slowly — the tin came to a low simmer, and a faint sweetness rose in the dark air. I drank it at the doorsill bench with the door just cracked, listening to the forest. Crickets. An owl somewhere in the upper pines. The stream a low constant murmur.
+
+Forty-one days. The life has shape now: shelter, food, garden, arrows in the quiver, cord on the coil. Tomorrow I will check the buried log, see if the oyster pine has woken again. But tonight I just drank the tea and let the night be dark.
+
