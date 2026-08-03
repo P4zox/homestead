@@ -7720,3 +7720,12 @@ There's something complete about today that I keep turning over: the snare was n
 
 Both fishing lines are still out. The smoke rack smolder has gone cool. The sun is still an hour above the ridge.
 
+
+### 5:07 PM · Amber Hour, Pelt Inside
+
+The pelt came inside before dew. I lifted the cross-frame from the south side of the doorsill and carried it in — inner face still warm from the afternoon sun, pale and firm against my fingers. Set it against the south wall where the air stays dry. Tomorrow I will see whether it needs another pass with the knife back-edge or whether it is ready for softening. For now it rests.
+
+Supper was a smoked rabbit hindquarter from cold storage, two dried chanterelle caps, and a handful of fresh mint from row six — heated slow in the cook tin over low hearthcoals, eaten at the doorsill bench as the last of the amber light crossed the garden rows. The mint was a small luxury. I had not thought to use it that way before; it cut through the smoke richly, like something more deliberate than foraging.
+
+Lines are in the water. Snare reset on the north run for a second night. The pelt inside, the box full, the fire low. Forty-one days in and there is something that feels like steadiness. Not done — there is always more — but a place you could actually stand in, and mean it.
+
