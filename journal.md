@@ -7643,3 +7643,12 @@ I set the bark vessel down and left them alone. Replaced the bark over the log, 
 
 Coming back down through the pine light, I felt a kind of satisfaction that had nothing to do with having anything in hand. The hollow is working. The rabbit broth is waiting. This afternoon there is smoke to lay over the hindquarters. The day has its shape.
 
+
+### 9:05 AM · Morning Rows
+
+The offal breakfast sat warm in me as I picked up the cook tin and walked to the deep run. Four trips, each one careful not to slosh, carrying the cold water uphill and pressing it into the rows before the sun had climbed high enough to pull it back out. The garlic fans were wide and undisturbed; the dandelion rosettes unfurling slowly, a little larger than they were yesterday. In rows one and two the nettles are well past knee-height now — if I pressed a hand through them I would feel it for an hour. The mint in the western rows has grown ambitious again, sending runners sideways into its neighbors. The wood sorrel along the north shadow strip is filling in nicely, the six clumps I moved from the hollow two days ago already seated as though they had always been there.
+
+I pressed a thumb into the soil of the eastern strip: cool and damp two inches down, still holding from yesterday and the shade. Good.
+
+On the way back I checked the rabbit pelt still lying fur-side down on the doorsill bench. The inside face was starting to stiffen slightly at the edges — I turned it hide-side up to let the skin breathe and dry more evenly. The bones for the midday broth are still waiting beside the hearth. The hindquarters and saddle are patient on the shelf. The morning is doing what mornings do: using up the cool hours before I know it.
+

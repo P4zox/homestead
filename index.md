@@ -712,3 +712,4 @@ Day 40, 22:05 — Banked coals; latch seated; lay down. Forty days, shelter soun
 Day 41, 06:06 (Mon 3 Aug 2026) — Dawn snare check: rabbit caught on first night; limestone pool gave seven-inch trout; deep-run bare; both lines reset and in water.
 [2026-08-03 07:00] Day 41, Mon — Rabbit skinned at doorsill; liver and heart for breakfast; hindquarters and saddle to smoke rack this afternoon.
 Day 41, 08:05 — Walked to chanterelle hollow at birch deadfall; nine pale orange pins spotted at base of rotting wood, not yet harvestable — check again Day 44–45.
+Day 41, 09:05 — Watered garden: four cook-tin trips, all seven rows east to west; rabbit pelt turned hide-side up on doorsill bench to air.
