@@ -7778,3 +7778,16 @@ Forty-one days. The clearing does not look like it did at the start. The cabin s
 
 The fire gutters. I do not reach for the last split. Let it rest.
 
+
+### 11:06 PM · Night Holds
+
+The coals have gone quiet — just a dull orange pulse in the northwest corner, barely enough to read by if I leaned over, which I won't. The pelt is against the south wall; I can make out its pale shape in the dark. The snare is on the run. The lines are in the water. The smoke-cured meat is sealed in the box.
+
+Outside: crickets have thinned. The stream is still there — constant, familiar. I heard the owl once more in the upper pines, and then nothing. The wind has gone flat.
+
+Lying in the bag, legs loose, I am thinking about tomorrow. Pelt first at dawn — the rabbit brain fold is on the supply shelf beside the herb tray. Brain-tanning: work the softened brain mass into the scraped hide and pull it supple over a curved stick. I have seen it done once in some half-remembered place; I believe my hands will figure it out. After that, lines and snare, then whatever the day asks.
+
+Forty-one days. Each one its own shape.
+
+Sleep comes.
+
