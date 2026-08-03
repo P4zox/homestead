@@ -7652,3 +7652,12 @@ I pressed a thumb into the soil of the eastern strip: cool and damp two inches d
 
 On the way back I checked the rabbit pelt still lying fur-side down on the doorsill bench. The inside face was starting to stiffen slightly at the edges — I turned it hide-side up to let the skin breathe and dry more evenly. The bones for the midday broth are still waiting beside the hearth. The hindquarters and saddle are patient on the shelf. The morning is doing what mornings do: using up the cool hours before I know it.
 
+
+### 10:05 AM · Bones into Broth
+
+The morning has settled into full light. I brought the rabbit bones in from the doorsill bench — the whole frame of that small animal, picked clean from breakfast — and filled the cook tin from the deep run, cold enough to sting my wrist. Set it over the hearth coals on the flat hearthstones, and worked in three nettle sprigs from rows one and two, pinched in dock-leaf folds to spare my hands, along with two pinches of dried yarrow from the herb shelf and a few wood sorrel leaves from the eastern strip. The pot simmers now, pale steam threading up through the cabin air and drifting out the gable gap.
+
+There is something satisfying about using all of it. The liver and heart at first light, the hindquarters going to the smoke rack this afternoon, and now the bones giving what they have left. A rabbit taken clean, nothing wasted, nothing hurried. The snare did its work overnight while I slept — the whole first night it was out.
+
+I will pull the tin when the broth deepens and the bones float light. Then drink it at the doorsill in the midday sun. The pelt is still airing on the bench; I will work it after the hindquarters are on the rack, while the afternoon is warm and dry.
+
