@@ -723,3 +723,4 @@ Day 41, 15:05 — Tended smoke rack (fresh green birch chips; rabbit amber-tan a
 Day 41, 17:07 — Brought rabbit pelt (cross-frame) under roof before evening dew; supper of smoked hindquarter with chanterelles and fresh mint at doorsill in amber light.
 2026-08-03 Day 41 18:05 — Evening Cord: twisted fourteen arm-lengths two-ply cord by hearthlight; fire banked for the night.
 Day 41, 19:05 — Sat by hearthfire as dark came on; reflected on the day — rabbit, pelt, broth, smoked meat, lines and snare both out. Let the fire drop to coals and the day be finished.
+Day 41, 20:05 — Worked rabbit pelt by hearthlight; pulled, folded, and stretched hide while still damp to keep it supple as it cures; coals banked, snare out, both lines in water.

@@ -7749,3 +7749,12 @@ Outside, both lines are in water. The snare is reset on the same run. The quiver
 
 I sit by the hearth as it drops and let the day be finished. That is enough.
 
+
+### 8:05 PM · Hide by Hearthlight
+
+The pelt has been drying against the south wall since I brought it in before dew. By hearthlight I can see the inner face going pale and tight — if I leave it alone it will cure to rawhide, stiff as a board, and harder to work later. So I lifted it off the wall and began working it in the firelight: pulling the edges between my hands, folding the neck end over itself, stretching each quarter inch by inch until I felt the fibers give a little. The hide is still damp in the thicker spots, which is good — easier to move while there is still moisture in it.
+
+It is quiet work, this — a small movement repeated until the skin starts to understand what soft means. The fire dropped to coals sometime in the middle of it. I did not notice when. There is something in this kind of labor that takes the hours gently. I will work it again at first light if it needs it; if the morning shows it stiff despite tonight, I will dampen it and start over. That is the way of it.
+
+The snare is out on the north run. Both lines are in the water. Tomorrow I will check the buried log and the oyster pine — first harvest in a few days, by the look of things. For now the fire is a pile of coals, the pelt is softer than it was, and that is enough.
+
