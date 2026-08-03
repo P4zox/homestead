@@ -716,3 +716,4 @@ Day 41, 09:05 — Watered garden: four cook-tin trips, all seven rows east to we
 Day 41, 10:05 — Bone broth started over hearthcoals; rabbit bones simmered with nettles, dried yarrow, and wood sorrel; hindquarters for smoke rack this afternoon; pelt airing on bench.
 Day 41, 11:05 — Bone broth consumed at doorsill bench (noon meal); smoke rack and pelt scraping planned for afternoon.
 Day 41, 12:05 PM (2026-08-03) — Smoke rack loaded with rabbit hindquarters and saddle over green birch smolder; pelt scraping begun at doorsill bench.
+Day 41, 13:05 — Rabbit pelt scraped clean and stretched on birch cross-frame to dry in afternoon sun; smoke rack holding steady.

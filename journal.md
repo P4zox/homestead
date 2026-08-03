@@ -7680,3 +7680,14 @@ With the rack loaded and the smolder settled, I pulled the pelt from the bench. 
 
 Midday and the clearing is quiet. Just the thread of smoke, the knife working, and the rabbit pelt slowly becoming something I can use.
 
+
+### 1:05 PM · Hide and Smoke
+
+The smoke rack is holding — pale thread lifting south without hurry. I can smell the green birch underlying the meatier smell of the rabbit slowly firming on the upper crossbars. Still a couple of hours to go.
+
+I have kept to the pelt at the doorsill bench through midday. The knife-back is slow and deliberate work on a rabbit's thin hide: short overlapping strokes outward from the spine line, reading with the fingertips where the membrane is peeling clean from real tissue. A rabbit gives less hide than a deer, and I do not want to punch through it now. By early afternoon the inner face is clean — pale, almost translucent in places where the membrane pulled free completely.
+
+I find two split birch sticks in the fuel stack and cord-lash them into a rough cross-frame. Nothing elaborate — just enough to keep the hide flat while it cures. I drape the pelt over the frame and set it in full sun just south of the doorsill, stretching the edges with small notched pegs along the cord border. It goes taut: fawn and cream on the fur side, pale on the flesh. The sun will carry it the rest of the way through the afternoon.
+
+The snare parts are still on the supply shelf. Once the pelt is settled I will walk the garden edge and reset the running loop on the run where I found the rabbit this morning. Maybe it takes again; maybe not. But it seems worth keeping a line in the earth as much as a line in the water.
+
