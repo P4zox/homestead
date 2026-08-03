@@ -7691,3 +7691,10 @@ I find two split birch sticks in the fuel stack and cord-lash them into a rough 
 
 The snare parts are still on the supply shelf. Once the pelt is settled I will walk the garden edge and reset the running loop on the run where I found the rabbit this morning. Maybe it takes again; maybe not. But it seems worth keeping a line in the earth as much as a line in the water.
 
+
+### 2:05 PM · Second Setting
+
+The afternoon settled into its heat while the smoke rack did its slow work. I took the snare parts down from the supply shelf — the running loop, trigger stick, and ground stake — and walked out to the north garden edge to set it again on the same rabbit run. The track from this morning is still fresh in the soft earth, crossing with older prints and something smaller, maybe a vole working the garden border. I notched the trigger stick in its groove, drove the stake, adjusted the loop a hand-span above the run. The same work as yesterday, but with a catch behind it now — it feels less like hope and more like a practice.
+
+The pelt looked good when I passed it on the return: hide face pale and tightening against the cord-pegs, no longer slack. Another hour in this heat and it should be firm enough to come inside. Overhead the sun pressed white through thin haze, the kind of afternoon that makes everything feel suspended. The smoke rack's pale thread drifted south across the clearing, carrying the smell of curing meat. The rabbit pieces need one more hour, maybe two. I'll pull them at the first press-firmness and hang them beside the doe quarters on the supply shelf.
+
