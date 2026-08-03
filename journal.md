@@ -7767,3 +7767,14 @@ I pinched a small fold of dried red clover from the third bark envelope, set it 
 
 Forty-one days. The life has shape now: shelter, food, garden, arrows in the quiver, cord on the coil. Tomorrow I will check the buried log, see if the oyster pine has woken again. But tonight I just drank the tea and let the night be dark.
 
+
+### 10:05 PM · Coals and Quiet
+
+The shelter is warm in that deep, close way it gets after a long day — not stuffy, just held. I am in the sleeping bag now, fire dropped to a low orange glow at the hearthstone, one split of birch resting uncrossed at the edge in case I want it before true sleep. The latch bar is dropped. Through the smoke gap above the gable I can hear the pines moving, just barely, and the stream underneath everything the way it always is.
+
+The pelt is dry against the south wall. I pressed it in the center one last time — firm and pale, holding the shape the cross-frame gave it. Tomorrow I will begin working fat or broth into the hide when the skin is ready to take it. Not tonight.
+
+Forty-one days. The clearing does not look like it did at the start. The cabin stands, the garden holds, the smoke rack is quiet in the dark, the snare is set on the run, and both fishing lines are in the water. I am not counting as a boast. I am counting because it helps me sleep. Each day added to the row is a day the land agreed to let me stay.
+
+The fire gutters. I do not reach for the last split. Let it rest.
+
