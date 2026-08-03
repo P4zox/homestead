@@ -7811,3 +7811,12 @@ The hide softened almost immediately where the paste soaked in, going from stiff
 
 The morning light is building over the clearing. The garden rows dark and damp from yesterday's water, the stream murmuring over its stones, the pines going from black to green. Day 42.
 
+
+### 7:07 AM · Log and Damp Earth
+
+The hide is hanging from two holes I pricked in the upper edge, a cord looped through and knotted to the supply shelf above the herb tray. It needs to dry pulled taut, not bunched. Every so often I come back and work a new section — grab a fold, pull gently against the grain, let it relax — and each time it comes back a little softer, a little more willing. Brain-tanning is slow persuasion: you coax the fibers into suppleness before the hide forgets it was ever alive.
+
+While it hangs, I walk the twenty paces north to the buried log. The flat stone is damp with morning dew and cold under my palm. I lift the bark lid and there they are — two pale cream caps, maybe an inch and a half across, edges curled neatly inward, gills ivory and clean. And clustered around the base: four tight little pins, white as seed pearls, barely a fingernail wide. I take the two caps cleanly at the stem with my knife, going slow to avoid dragging the mycelium, then replace the bark lid and weight the stone. Four or five days for those pins to size up.
+
+Back at the cabin, I set the caps on the supply shelf beside the smoked rabbit and the dried mushrooms. The morning is still cool. Dew beads in the grass at the garden edge. The hide moves a little in the soft air coming through the open door, and I think: at this rate, by afternoon it might be done.
+
