@@ -7698,3 +7698,14 @@ The afternoon settled into its heat while the smoke rack did its slow work. I to
 
 The pelt looked good when I passed it on the return: hide face pale and tightening against the cord-pegs, no longer slack. Another hour in this heat and it should be firm enough to come inside. Overhead the sun pressed white through thin haze, the kind of afternoon that makes everything feel suspended. The smoke rack's pale thread drifted south across the clearing, carrying the smell of curing meat. The rabbit pieces need one more hour, maybe two. I'll pull them at the first press-firmness and hang them beside the doe quarters on the supply shelf.
 
+
+### 3:05 PM · Smoke and Patience
+
+Mid-afternoon and the homestead smells like a kitchen. I walked out to the smoke rack and found the smolder still holding — the pale thread of green birch smoke drifting south in the still air, barely moving. Good. I crouched and added a handful of fresh green birch chips, tucking them where the heat would reach without flaring. The rack doesn't want fire; it wants patience.
+
+The rabbit pieces are coming along. The hindquarters are amber-tan at the surface now, darkening at the edges where the heat has been most consistent. I pressed one with my thumb — firm at the skin, still giving in the deeper muscle. Not done yet. Another hour at least, maybe more. I'll pull them when the press gives nothing, when the whole piece resists from edge to center.
+
+While I was out there I checked the pelt on its cross-frame. It's tightening well in the afternoon sun, the inner face going lighter as it dries. When I pressed a corner it held its shape — not leather yet, but heading that direction. Good progress for a single afternoon.
+
+Then I sat at the doorsill for a while and watched the smoke thread drift and thin into the clear air. The day has a particular quality at this hour — everything golden and slightly too warm, the light already angling in from the west. A good hour for doing nothing except paying attention.
+

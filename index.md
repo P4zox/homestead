@@ -718,3 +718,4 @@ Day 41, 11:05 — Bone broth consumed at doorsill bench (noon meal); smoke rack 
 Day 41, 12:05 PM (2026-08-03) — Smoke rack loaded with rabbit hindquarters and saddle over green birch smolder; pelt scraping begun at doorsill bench.
 Day 41, 13:05 — Rabbit pelt scraped clean and stretched on birch cross-frame to dry in afternoon sun; smoke rack holding steady.
 2026-08-03 Day 41, 14:05 — Snare reset on north garden-edge rabbit run for second night; pelt tightening on frame in afternoon sun, smoke rack still running.
+Day 41, 15:05 — Tended smoke rack (fresh green birch chips; rabbit amber-tan at surface, deeper still giving — pull at ~16:00); pelt tightening on cross-frame in afternoon sun.
