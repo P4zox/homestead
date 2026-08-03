@@ -7738,3 +7738,14 @@ I fed the hearth with two dry birch splits, not for warmth so much as light, and
 
 Outside I can hear the stream. The snare is on the rabbit run. Tomorrow I will check the buried log, the oyster pine the day after. Tonight the fire is good, the pelt is drying, and I have cord enough for whatever the next thing turns out to be.
 
+
+### 7:05 PM · Hearthside, all in order
+
+A day does not always need to end with something still left to do. Tonight it does not. The smoked hindquarter was good at supper — richer than trout, something different in the mouth — and the smells in the shelter were something this place has not had before. Mint and birch smoke and meat. Ordinary and fine.
+
+The pelt stands against the south wall on its cross-frame, inner face pale and drying. I keep glancing at it. There is something about it — the loop of the snare, the trigger stick notch, the rabbit's own run used against it — that settles a question I had been carrying since I set the thing yesterday. It works. First principles, first night.
+
+Outside, both lines are in water. The snare is reset on the same run. The quiver holds eight arrows. The root cellar is stocked. The garden has been watered. I have not yet thought of the next large thing to build, and that is all right. The pelt will probably become something — an insole, a patch, some scrap of warmth — but I can let that declare itself in time.
+
+I sit by the hearth as it drops and let the day be finished. That is enough.
+
