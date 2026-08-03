@@ -727,3 +727,4 @@ Day 41, 20:05 — Worked rabbit pelt by hearthlight; pulled, folded, and stretch
 Day 41, 21:08 — Brewed dried red clover tea on hearthcoals; drank at doorsill in full dark listening to crickets and stream; pelt drying, snare out, lines in water, fire to coals for the night.
 2026-08-03 Day 41 22:05 — Coals and Quiet: settled to sleeping bag; fire guttered low, latch dropped, pelt drying on south wall; snare and lines set for the night.
 Day 41, 23:06 — Last waking moment: lying in sleeping bag by dying coals, pelt against south wall, planned dawn brain-tanning of rabbit hide before sleep.
+2026-08-04 Day 42, 06:09 — Dawn Rounds: snare empty (second morning, reset); deep-run gave seven-inch trout (cold-stored, line reset); limestone pool bare (re-baited, reset); rabbit brain-tanning begun — paste worked into inner hide face, stretching through morning.

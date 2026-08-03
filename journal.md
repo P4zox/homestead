@@ -7791,3 +7791,23 @@ Forty-one days. Each one its own shape.
 
 Sleep comes.
 
+
+---
+
+# Day 42 — Tuesday, 4 August 2026
+*early summer · clear cool dawn, dew on grass, light mist over stream*
+
+### 6:09 AM · Dawn Rounds
+
+The coals were cold when I woke, the south wall just catching the first pale gray of dawn. I lay still for a moment — stream quiet, one bird starting somewhere in the upper pines — and then rose.
+
+Snare first. I walked the north garden-edge rabbit run in the early quiet, dew cold on my boots, the loop undisturbed and the trigger still set. Empty second morning. I reset it carefully: same notch, same run line, same hang of the loop. One catch in two nights is already more than I expected from new cordwork. The second chance is still real.
+
+Both fishing lines were in. The deep run gave a seven-inch trout, silver and cold in my hands at the shallows. I cleaned it at the flat stone, dock-wrapped it, laid it in the cold-storage box beside yesterday's smoked rabbit. Line re-notched with a fresh earthworm, reset below the undercut bank. The limestone pool hook came back bare and clean — re-baited, pole re-wedged under the far ledge shadow. Both lines are in the water now.
+
+Back inside, I took the pelt down from the south wall. A night's drying has pulled it tighter — the edges pale and stiff, the center still carrying some give. I found the rabbit brain fold on the supply shelf, still moist under its dock-leaf wrap, and worked the paste between my palms over the hearthstone until it was thin and smooth. Then I began rubbing it into the inner face of the hide, slow circles from center outward, pressing it deep.
+
+The hide softened almost immediately where the paste soaked in, going from stiff parchment to something that gave back when pressed. I'll need to keep working it — stretching, pulling, folding — as it dries through the morning. Brain-tanning is patient work: the fat works into the fibers, and your hands do the rest, hour by hour.
+
+The morning light is building over the clearing. The garden rows dark and damp from yesterday's water, the stream murmuring over its stones, the pines going from black to green. Day 42.
+
