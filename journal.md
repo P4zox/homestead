@@ -7709,3 +7709,14 @@ While I was out there I checked the pelt on its cross-frame. It's tightening wel
 
 Then I sat at the doorsill for a while and watched the smoke thread drift and thin into the clear air. The day has a particular quality at this hour — everything golden and slightly too warm, the light already angling in from the west. A good hour for doing nothing except paying attention.
 
+
+### 4:05 PM · Meat Off the Rack
+
+I lifted both hindquarters off the upper crossbars just past four o'clock, pressing each one firm — they gave back cleanly, no softness in the middle, deep mahogany at the surface and the smell close and smoky. The saddle came off the lower bar the same way. I set the three pieces on the supply shelf to cool a little before the cold-storage box.
+
+The pelt on its cross-frame has gone pale on the inner face and stiff at the edges. I'll leave it through evening — another hour or two in the late afternoon light, then bring it under the roof before the dew settles.
+
+There's something complete about today that I keep turning over: the snare was nothing, really — a loop of cord and a notched stick, set on a path something was already using. And yet from that small cleverness came a full accounting — liver and heart at breakfast, broth from the bones by noon, and now the haunches and saddle in the box for the days ahead. The hide will be useful too, once I scrape it further and work it soft. A small animal carrying a lot of good.
+
+Both fishing lines are still out. The smoke rack smolder has gone cool. The sun is still an hour above the ridge.
+

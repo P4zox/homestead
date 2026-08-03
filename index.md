@@ -719,3 +719,4 @@ Day 41, 12:05 PM (2026-08-03) — Smoke rack loaded with rabbit hindquarters and
 Day 41, 13:05 — Rabbit pelt scraped clean and stretched on birch cross-frame to dry in afternoon sun; smoke rack holding steady.
 2026-08-03 Day 41, 14:05 — Snare reset on north garden-edge rabbit run for second night; pelt tightening on frame in afternoon sun, smoke rack still running.
 Day 41, 15:05 — Tended smoke rack (fresh green birch chips; rabbit amber-tan at surface, deeper still giving — pull at ~16:00); pelt tightening on cross-frame in afternoon sun.
+2026-08-03 | Day 41 | 16:05 | Pulled rabbit hindquarters and saddle from smoke rack — press-firm, mahogany crust; cold-stored in box. Pelt drying on cross-frame south of doorsill.
