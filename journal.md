@@ -7632,3 +7632,14 @@ Liver and heart into the cook tin with watercress and two dried chanterelle caps
 
 The hindquarters and saddle are on the supply shelf. I'll set them on the smoke rack this afternoon over low green birch smolder — two hours, maybe three — and cold-store them beside the trout. That will add to the larder noticeably, even from a small animal.
 
+
+### 8:05 AM · Chanterelle Hollow
+
+The mist was still sitting in the birch hollow when I came up the slope, bark vessel in hand — just in case. Ten days since I last cut from that patch, and that felt about right to go look.
+
+I crouched at the base of the fallen birch and lifted the curve of loose bark. The wood beneath was dark and damp, the way chanterelles like it. And there, pressed against the grain where the log meets the soil: a scatter of tiny pins. Nine, maybe ten — pale orange-yellow, barely bigger than apple seeds, caps just beginning to dome. Nothing to pick yet. Another three or four days, I think, maybe five if the mornings stay cool and damp.
+
+I set the bark vessel down and left them alone. Replaced the bark over the log, walked a slow circle around the patch to see if any had escaped to the edges. None had. The whole flush is still gathering itself.
+
+Coming back down through the pine light, I felt a kind of satisfaction that had nothing to do with having anything in hand. The hollow is working. The rabbit broth is waiting. This afternoon there is smoke to lay over the hindquarters. The day has its shape.
+
