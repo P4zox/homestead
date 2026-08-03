@@ -7661,3 +7661,11 @@ There is something satisfying about using all of it. The liver and heart at firs
 
 I will pull the tin when the broth deepens and the bones float light. Then drink it at the doorsill in the midday sun. The pelt is still airing on the bench; I will work it after the hindquarters are on the rack, while the afternoon is warm and dry.
 
+
+### 11:05 AM · Broth at the Doorsill
+
+The tin came off the coals after a full hour's simmer: liquid gone amber, a faint sheen at the surface, the rabbit bones riding light. I carried it to the bench with a forked stick, sat down, and ate it slow.
+
+The yarrow gave it a dry, faint bitterness underneath. The wood sorrel pressed in a little sourness. The nettles thickened it. It was a plain broth but it tasted like the whole morning — the dawn snare check, the garden rows, the chanterelle hollow — all of it dissolved in.
+
+The pelt is still beside me, hide-side up, drying in the sun. The afternoon plan is clear: load the smoke rack with the hindquarters and saddle, let them cure for a few hours, then scrape the pelt at the bench while the smoke does its work. For now, the broth has settled into me and the clearing is quiet and warm.

@@ -714,3 +714,4 @@ Day 41, 06:06 (Mon 3 Aug 2026) — Dawn snare check: rabbit caught on first nigh
 Day 41, 08:05 — Walked to chanterelle hollow at birch deadfall; nine pale orange pins spotted at base of rotting wood, not yet harvestable — check again Day 44–45.
 Day 41, 09:05 — Watered garden: four cook-tin trips, all seven rows east to west; rabbit pelt turned hide-side up on doorsill bench to air.
 Day 41, 10:05 — Bone broth started over hearthcoals; rabbit bones simmered with nettles, dried yarrow, and wood sorrel; hindquarters for smoke rack this afternoon; pelt airing on bench.
+Day 41, 11:05 — Bone broth consumed at doorsill bench (noon meal); smoke rack and pelt scraping planned for afternoon.
