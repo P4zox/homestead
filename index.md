@@ -715,3 +715,4 @@ Day 41, 08:05 — Walked to chanterelle hollow at birch deadfall; nine pale oran
 Day 41, 09:05 — Watered garden: four cook-tin trips, all seven rows east to west; rabbit pelt turned hide-side up on doorsill bench to air.
 Day 41, 10:05 — Bone broth started over hearthcoals; rabbit bones simmered with nettles, dried yarrow, and wood sorrel; hindquarters for smoke rack this afternoon; pelt airing on bench.
 Day 41, 11:05 — Bone broth consumed at doorsill bench (noon meal); smoke rack and pelt scraping planned for afternoon.
+Day 41, 12:05 PM (2026-08-03) — Smoke rack loaded with rabbit hindquarters and saddle over green birch smolder; pelt scraping begun at doorsill bench.

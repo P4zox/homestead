@@ -7669,3 +7669,14 @@ The tin came off the coals after a full hour's simmer: liquid gone amber, a fain
 The yarrow gave it a dry, faint bitterness underneath. The wood sorrel pressed in a little sourness. The nettles thickened it. It was a plain broth but it tasted like the whole morning — the dawn snare check, the garden rows, the chanterelle hollow — all of it dissolved in.
 
 The pelt is still beside me, hide-side up, drying in the sun. The afternoon plan is clear: load the smoke rack with the hindquarters and saddle, let them cure for a few hours, then scrape the pelt at the bench while the smoke does its work. For now, the broth has settled into me and the clearing is quiet and warm.
+
+### 12:05 PM · Smoke Rack Loaded
+
+The bone broth was still warm in my stomach when I stood from the doorsill bench. The hindquarters and saddle had been sitting on the supply shelf all morning, patient as the morning itself.
+
+I cut a few lengths of green birch from the east-wall stack, split them thin, and arranged them beneath the smoke rack crossbars. The fire caught low and steady — exactly the smoke I wanted, pale and cool, not hot. Both hindquarters went on the upper crossbars first, then the saddle piece below. The smoke threaded up through the meat and drifted south into the open clearing.
+
+With the rack loaded and the smolder settled, I pulled the pelt from the bench. Hide-side up, still soft from the morning's airing. I ran the back edge of the knife along the inner face in slow strokes, working from the center outward, clearing away the thin membrane and fat. The pelt is small — this will go quickly. By the time the meat is firm and amber-colored, the hide should be clean and ready for the next step.
+
+Midday and the clearing is quiet. Just the thread of smoke, the knife working, and the rabbit pelt slowly becoming something I can use.
+
