@@ -7820,3 +7820,12 @@ While it hangs, I walk the twenty paces north to the buried log. The flat stone 
 
 Back at the cabin, I set the caps on the supply shelf beside the smoked rabbit and the dried mushrooms. The morning is still cool. Dew beads in the grass at the garden edge. The hide moves a little in the soft air coming through the open door, and I think: at this rate, by afternoon it might be done.
 
+
+### 8:07 AM · The Hide Softens
+
+The mist is thinning over the stream now, sun finding the east wall of the cabin. I have been working the hide for the better part of two hours — pulling it taut across the supply shelf cord in slow arcs, first north to south, then corner to corner, reversing each time I feel the grain resist. The brain paste has sunk deep into the fiber by now; what was stiff parchment at first light is becoming something closer to cloth.
+
+There is a rhythm to it. Four fingers along the cord, pull, rotate, pull again. The hide gives a little more with each pass. The smell is earthy and faintly sweet — something between damp soil and old butter. I once read that brain-tanning is described as "working the life back in," and standing here in the morning doorway with sun on my hands and the cord humming faintly under the tension, I think I understand that now.
+
+Both fishing lines are in the water. The snare is reset on the rabbit run. The buried log gave two good caps this morning before brain-tanning began in earnest. Somewhere upslope the oyster pine may be flush again — four or five days have passed since the last harvest. I will check after midday, once the hide has had its full working and can hang still to finish curing. For now, just this: the pull, the slow give, the transformation happening one pass at a time.
+
