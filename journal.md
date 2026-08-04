@@ -7836,3 +7836,16 @@ The hide has been working toward this all morning. Around the ninth hour I feel 
 
 Brain-tanning complete for the working phase. What is left is the smoking step — a brief cold smoke from punky green wood would set the tanning and keep the hide from stiffening again if it gets wet. I hang the finished pelt from the wall peg beside the herb tray to rest through midday, and start thinking about when to build the smoke.
 
+
+### 10:06 AM · Punky Wood, Patience
+
+The pelt hangs on its peg, held by morning light and the need for time. Brain-tanning works in its own rhythm — soften the hide, let it rest, smoke it slow. You cannot hurry the middle step.
+
+I went upslope while it rested. Not far — thirty paces past the granite shelf, to where a fallen birch lies soft with rot on the north-facing slope. I was looking for punky wood: the kind that barely catches, that smolders instead of flames, that makes cool pale smoke without real heat. Too much heat and the fat molecules already worked into the leather collapse. It must be cool smoke, patient.
+
+Found three good sections. Forearm-length each — punky, pale inside, damp with that forest-rot smell that has no sharp bite to it, no real decay. Cut them free with the axe and carried them back to the clearing. Set them near the south-facing wall to dry a little before afternoon. Not too much. Just enough to catch a smolder when I build the low fire.
+
+The clearing is warm now. Both lines in the water, snare reset on the rabbit run. Sky above the pines clear and deep blue-white, the kind of sky that holds heat well into afternoon. Sat on the doorsill bench a while and just listened — stream behind the shelter, light wind in the upper birches, meadow quiet.
+
+This afternoon: check the oyster pine, smoke the pelt.
+

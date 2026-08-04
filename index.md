@@ -731,3 +731,4 @@ Day 41, 23:06 — Last waking moment: lying in sleeping bag by dying coals, pelt
 Day 42 (2026-08-04) 07:07 — Buried log fifth harvest: two pale cream caps cut and cold-stored, four tight white pins left — next check Day 47. Brain-tanning continuing through morning.
 Day 42, 2026-08-04, 08:07 — Brain-tanning: worked rabbit hide through stiffening phase across supply shelf cord — parchment transitioning to cloth-like give in morning sun.
 Day 42, 09:07 — Brain-tanning working phase complete: rabbit pelt fully softened to cloth-like give; hanging on wall peg to rest before cold smoke.
+Day 42, 10:06 — Gathered three punky birch sections (forearm-length, pale damp rot) from fallen birch upslope past granite shelf — stacked near south wall; brain-tanned pelt resting on peg through midday ahead of afternoon cold smoking.
