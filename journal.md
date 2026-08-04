@@ -7849,3 +7849,13 @@ The clearing is warm now. Both lines in the water, snare reset on the rabbit run
 
 This afternoon: check the oyster pine, smoke the pelt.
 
+
+### 11:06 AM · Garden Watered, Midday Still
+
+The morning's brain-tanning work is settled — pelt soft on the wall peg, punky birch sections stacked near the south wall losing their damp in the morning air. Between now and the afternoon smoke, there's a band of standing noon sun, and I put it toward the garden.
+
+Four cook-tin trips from the deep run. The garlic rows drink slowly, soil still cool two inches down when I press a finger in. Nettles past knee-height in rows one and two, wood sorrel pressing into the north shadow strip, mint tumbling into its western neighbors — fragrant when I brush against it walking the row. Everything looks prosperous for midsummer.
+
+A dragonfly held station over row five the whole time I was pouring, hovering without apparent effort. The clearing was still in the noon heat — the kind of still that makes small sounds loud: water soaking in, one birch leaf rustling high up in a breath of wind.
+
+Afterward I sat a moment at the doorsill bench. Pelt resting, birch drying, both lines in the water. By midafternoon the cold smoke begins, and this morning's work will be sealed in. A good day's arc.
