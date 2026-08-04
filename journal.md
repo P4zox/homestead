@@ -7870,3 +7870,14 @@ I'll tend the smolder for two or three hours, turning the hide once halfway thro
 
 Both lines still in water. Snare empty a second morning but I'm patient. The clearing is quiet and full of noon sun.
 
+
+### 1:00 PM · The Hide Turns
+
+The smoke has been feeding itself quietly for nearly an hour — punky birch holds good even without much tending, just a slow cold exhale through the gable gap. I checked the coals and they were holding: no flame, a thin steady plume, the pelt hanging still on the upper crossbar where I had rigged it at noon.
+
+Now the halfway turn. I lifted the hide off the cord loops and flipped it — fur-side down, flesh-side up now. The flesh side had been closest to the smoke all morning and was already taking color at the edges: a faint amber tint spreading inward from the rim. The fur side had only been catching the drift; it will get its full hour now. Smoke-set hides feel finished in a way that brain-tanning alone does not quite reach — something in the oils and the slow heat together that locks the softness in.
+
+The coals needed a gentle nudge. I broke one of the remaining punky birch sections against the edge of the hearthstone and laid the fresher face down onto the embers. A brief pale puff, then it settled back to a steady smolder. The gable gap is drawing clean — the plume goes straight and true up through the rain-flap without doubling back into the room.
+
+One more hour, give or take. When the color is even — that amber-gold of a smoke-set hide — I will pull it and let it cool on the supply shelf. Then I will take the bow upslope and check the oyster pine before evening light fails.
+
