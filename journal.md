@@ -7905,3 +7905,14 @@ On the way back I stopped at the doorsill bench and sat longer than I meant to. 
 
 Supper will be the trout with some dried oyster caps and whatever wood sorrel I can pull from the garden row at dusk. The evening is long still.
 
+
+### 4:08 PM · Cord in the Afternoon
+
+The afternoon is warm and still, the clearing quietly itself. The hide hangs amber and supple on its wall peg — proof of a long day's attention — and the tanning work is finished. Now there is just the afternoon: dragonflies over the mint rows, a light wind in the upper birches, the stream running its usual course below.
+
+I pulled the inner bark bundle from the shelf and settled at the doorsill with the light at a low angle. Cord-twisting takes no thinking, only hands — two strips held at the knee, fingers walking the twist, adding new lengths when the first runs out. After the close concentration of tanning, that was exactly what I wanted. Fourteen arm-lengths of two-ply, even and tight throughout; rubbed with a little tallow at the end and coiled onto the supply shelf.
+
+The cord supply is probably better than it has ever been here. I don't know what the next build will need, but I know I'll have what I need for it. That quiet certainty is its own kind of comfort.
+
+There is something satisfying about an afternoon like this — not a project, just a thing done with the hands while the sun moves. The homestead quiet around you, the work accumulating slowly, nothing pressing until supper.
+

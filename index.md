@@ -737,3 +737,4 @@ Day 42, 11:06 — Garden watered in midday sun (four cook-tin trips, all seven r
 2026-08-04 Day 42 13:00 — Tended cold-smoke at halfway mark; pelt turned flesh-side-up on smoke rack; coals nudged with fresh punky birch; plume steady through gable gap.
 [2026-08-04] Day 42 14:14 — Pulled cold-smoked brain-tanned rabbit pelt (amber-gold, complete); oyster pine quiet, 2–3 days to harvest.
 Day 42, 2026-08-04, 15:09 — Limestone pool line: seven-inch trout (cold-stored); sat at doorsill bench reflecting on completion of first brain-tanned hide.
+2026-08-04 Day 42, 16:08 — Twisted fourteen arm-lengths two-ply cord at doorsill in afternoon shade; tallow-rubbed and coiled onto shelf. Quiet end to the day that completed the first brain-tanned hide.
