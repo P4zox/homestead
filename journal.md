@@ -7967,3 +7967,13 @@ The fire was a slow glow behind me, banked on one round, and the cabin smelled o
 
 Came back inside when the cold night air finally reached me. Lay down. The clearing went on without me, as it always does, and that felt right.
 
+### 10:10 PM · Night Already Deep
+
+Twenty-two past ten and I am still awake, which surprises me a little. The cabin is dark except for the faint orange breath of the banked coals through the hearth gap. Outside, nothing moving — that soft forest-night silence that is never quite silent, only speaks in tree creak and stream murmur and the occasional far bark of something in the upper dark.
+
+Today was a complete thing. The pelt is done — amber-gold, supple, water-resistant — hanging on the wall peg where I can see its outline even in this low light. Forty-two days from an axe, a knife, and a flint, and now a tanned hide on the wall. Each piece made from the land by hand sits differently in the mind than things you simply carry in. You know exactly where it came from and what it cost.
+
+Both snares wait on the supply shelf. Tomorrow morning I will set them both, ten paces apart on the north garden-edge rabbit run. Both lines are in the water. The oyster pine is resting; the buried log has four tight white pins sizing up; the chanterelle hollow will be ready in a few days. There is enough forward motion that sleep comes easy.
+
+I am going to stop thinking now.
+
