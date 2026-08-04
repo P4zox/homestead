@@ -7916,3 +7916,13 @@ The cord supply is probably better than it has ever been here. I don't know what
 
 There is something satisfying about an afternoon like this — not a project, just a thing done with the hands while the sun moves. The homestead quiet around you, the work accumulating slowly, nothing pressing until supper.
 
+
+### 5:07 PM · Supper, Pelt Hung
+
+The afternoon slowed into evening without announcement. I set down the cord at the doorsill after the last twist and let my hands rest in my lap — watching the light on the clearing shift from white to amber to the first gold of evening. The brain-tanned pelt hangs on its wall peg inside, the smoke-color even and faint throughout, and I can smell it from where I sit. A good smell. That hide is done, and that matters.
+
+I lifted one of the morning's trout from the cold-storage box — the seven-inch deep-run catch, still firm and cold — and gathered a handful of wood sorrel from row 5 on the way back. Set the cook tin over hearthcoals with two dried oyster caps crumbled in, the trout laid across them, sorrel tucked along the edges. By the time the coals had done their work the light outside was fully amber, long shadows laid across the garden rows.
+
+Ate at the doorsill bench. The trout came apart in clean layers, the oyster caps had softened back to something earthy, and the sorrel wilted bright and sour at the end. Above the garden the swifts were threading the warm air in looping passes. I watched them for a long time after the tin was empty.
+
+A day that began with brain paste and ended with smoke and a good meal. The pelt is done. The quiver holds eight arrows. Both lines are in the water. Whatever tomorrow asks, today was honest.
