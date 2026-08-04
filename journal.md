@@ -7829,3 +7829,10 @@ There is a rhythm to it. Four fingers along the cord, pull, rotate, pull again. 
 
 Both fishing lines are in the water. The snare is reset on the rabbit run. The buried log gave two good caps this morning before brain-tanning began in earnest. Somewhere upslope the oyster pine may be flush again — four or five days have passed since the last harvest. I will check after midday, once the hide has had its full working and can hang still to finish curing. For now, just this: the pull, the slow give, the transformation happening one pass at a time.
 
+
+### 9:07 AM · Hide Breaks Soft
+
+The hide has been working toward this all morning. Around the ninth hour I feel the last resistance let go — a small give in the center where it clung longest to structure. I work it across the cord in every direction, both hands pulling, turning, pulling again. The rabbit pelt is small, barely two spread palms wide, but it responds like cloth now: even, pliable, warm from the working.
+
+Brain-tanning complete for the working phase. What is left is the smoking step — a brief cold smoke from punky green wood would set the tanning and keep the hide from stiffening again if it gets wet. I hang the finished pelt from the wall peg beside the herb tray to rest through midday, and start thinking about when to build the smoke.
+

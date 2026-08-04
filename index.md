@@ -730,3 +730,4 @@ Day 41, 23:06 — Last waking moment: lying in sleeping bag by dying coals, pelt
 2026-08-04 Day 42, 06:09 — Dawn Rounds: snare empty (second morning, reset); deep-run gave seven-inch trout (cold-stored, line reset); limestone pool bare (re-baited, reset); rabbit brain-tanning begun — paste worked into inner hide face, stretching through morning.
 Day 42 (2026-08-04) 07:07 — Buried log fifth harvest: two pale cream caps cut and cold-stored, four tight white pins left — next check Day 47. Brain-tanning continuing through morning.
 Day 42, 2026-08-04, 08:07 — Brain-tanning: worked rabbit hide through stiffening phase across supply shelf cord — parchment transitioning to cloth-like give in morning sun.
+Day 42, 09:07 — Brain-tanning working phase complete: rabbit pelt fully softened to cloth-like give; hanging on wall peg to rest before cold smoke.
