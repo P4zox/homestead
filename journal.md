@@ -7936,3 +7936,16 @@ The light was long and amber through the upper pines. A thrush called once from 
 No deer came. I didn't expect one on the first real watch. What I was after was the shape of the hour, the way the light moves, which branch shadows which branch. And this: the crossing is still fresh — damp scuff marks in the wash soil, one stem bent low and not yet sprung. They're using this trail. I'll learn their timing before I press anything.
 
 Walked home as the first stars came out above the clearing. The pelt swings on its peg. Lines in the water. The day full and done.
+
+### 7:10 PM · Second Snare Made
+
+Came home from the dry wash with dusk light still holding, the stars just picking through. The clearing was settling — both lines out, first snare reset on the north run, the pelt hanging amber and settled on the wall peg. A full day, and a good one.
+
+I lit the evening fire, set water to warm in the cook tin for clover tea, and went to the cord coil. If one snare catches on first night, two might catch twice. I sorted cord lengths by hearthlight — long enough for a good running loop, stiff enough to hold its shape — and fashioned a second snare: fine two-ply loop, trigger stick notched from a green birch twig, ground stake sharpened to drive clean. I lashed and tested it against my fingers until the slip ran smooth.
+
+The clover tea was ready by the time I finished. I drank it at the doorsill, both hands around the warm cup, the first stars brightening. Pines black against the sky. The homestead quiet and solid around me.
+
+Tomorrow I'll set both snares ten paces apart on the same rabbit run — same track, different take-angles. Two chances. The population seems healthy; I've only taken one. There's room.
+
+The pelt looks better each time I glance at it. First tanned hide from this land. That counts.
+
