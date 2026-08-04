@@ -7894,3 +7894,14 @@ It went back on the wall peg to settle while the rack cleared. Then I walked ups
 
 At the granite shelf I paused and looked south: the cabin, the smoke rack now clear, garden rows all green and settled. Clear light, a light wind in the upper birches. It looked the way a homestead ought to.
 
+
+### 3:09 PM · First Tanned Hide
+
+The pelt is hanging on the wall peg, amber-gold and supple, and I keep glancing at it from the doorsill. It looks like something a person would own. Which, I suppose, is the point.
+
+Walked down to the limestone pool to check the afternoon line. The pole was wedged just as I left it at dawn, tip bent slightly toward the current. The hook came up with a seven-inch trout — clean, firm-bellied, a good weight for this time of day. Cleaned it at the flat pool stone and dock-wrapped it for cold storage. Rebaited with an earthworm from the bark fold, pole re-wedged under the far ledge shadow. Both lines still in water.
+
+On the way back I stopped at the doorsill bench and sat longer than I meant to. The day has been full — the brain-tanning, the cold-smoking, the pelt now finished — and I needed a moment to let it settle. It is a small thing, a rabbit hide. But it took knowledge I did not have when I arrived here: timing the brain-paste while the hide was still damp enough to take it, working the fibers loose across the cord without tearing, cold-smoking at the right distance to color without cooking. I had to figure each step out, and each step held. That is what I keep returning to — not just that the hide is done, but that I did it right.
+
+Supper will be the trout with some dried oyster caps and whatever wood sorrel I can pull from the garden row at dusk. The evening is long still.
+
