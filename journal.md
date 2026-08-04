@@ -8004,3 +8004,13 @@ Then the snares. I had both on the supply shelf, ready since last night — the 
 
 Came back to the doorsill as the light strengthened properly. The clearing smelled of dew and pine. I could hear the stream but not see it through the mist. Two snares out now, both lines in water, a trout already cold-stored. Day 43 beginning well.
 
+
+### 7:06 AM · First Fire, Morning Trout
+
+Came back inside from setting the snares with the chill still in my hands and the fire down to a low orange glow under pale ash. Fed it pine bark and two small sticks until the flame caught, then balanced the cook tin over the coals.
+
+This morning's deep-run trout — cleaned at the flat stream stone at six — fit whole in the tin. Added two of the pale cream buried-log caps from yesterday's harvest, a handful of wood sorrel from garden row five, a splash of stream water. Let it all simmer together while the light outside strengthened from pale grey to gold.
+
+Ate at the doorsill bench. The clearing still damp, dew on the grass blades and on the cord bundles hanging on the shelf. Mist sitting low over the south meadow, burning off slowly in the new sun. The snares are in the ground. Both lines are in the water. Everything that can work right now is working.
+
+A quiet breakfast with a good view. The morning feels like it belongs to me.
