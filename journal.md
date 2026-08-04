@@ -7977,3 +7977,14 @@ Both snares wait on the supply shelf. Tomorrow morning I will set them both, ten
 
 I am going to stop thinking now.
 
+
+### 11:11 PM · Day Closes, Sleep
+
+Still awake, but only just. The hearth has gone to a slow breath of coals, orange edging into grey. The pelt is on its peg. The snares are on the shelf. Both lines are in the water.
+
+I have been lying here thinking about how much the tanning changed the hide — it was parchment stiff at first light and now it hangs soft and amber-gold, like it always meant to be something useful. That work took most of the day, quietly: not dramatic, but solid. A thing made that was not there before.
+
+Tomorrow: set both snares at dawn, ten paces apart on the north rabbit run. Pull the lines. See what the morning brings.
+
+For now — enough. The clearing is dark and still, and I can hear the upper birches in the light wind, just barely. Sleep comes when it wants to.
+
