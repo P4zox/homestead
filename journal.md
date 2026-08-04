@@ -7881,3 +7881,16 @@ The coals needed a gentle nudge. I broke one of the remaining punky birch sectio
 
 One more hour, give or take. When the color is even — that amber-gold of a smoke-set hide — I will pull it and let it cool on the supply shelf. Then I will take the bow upslope and check the oyster pine before evening light fails.
 
+
+### 2:14 PM · First Tanned Hide
+
+An hour past the halfway check, the hearthstone still put up a thin pale plume, slow and patient the way punky birch burns. I lifted the pelt from its cord loops and held it up against the afternoon light through the open doorway.
+
+Even amber-gold across the whole flesh side — no pale patches, no dark spots where the smoke had crowded in too close. The surface had a faint waxy sheen, smooth under the back of one knuckle. The fur side kept its red-brown, though the edges had picked up the faintest honey tinge from the rising column.
+
+I spread the coals apart and stepped outside with the pelt to let it cool in the open air. Warm and supple in the hands, a little heavier than it looked. I held it a moment longer than I needed to. This is the first tanned hide from this clearing — that is not nothing.
+
+It went back on the wall peg to settle while the rack cleared. Then I walked upslope to the oyster pine at seventy paces. The trunk was quiet — faint pale blush on the upper section, but caps not yet forming, still pushing up from under the bark. Two or three more days. I stood there a moment in the cool, resin smell thick all around, before coming back down.
+
+At the granite shelf I paused and looked south: the cabin, the smoke rack now clear, garden rows all green and settled. Clear light, a light wind in the upper birches. It looked the way a homestead ought to.
+

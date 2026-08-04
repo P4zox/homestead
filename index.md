@@ -735,3 +735,4 @@ Day 42, 10:06 — Gathered three punky birch sections (forearm-length, pale damp
 Day 42, 11:06 — Garden watered in midday sun (four cook-tin trips, all seven rows); pelt resting on wall peg, punky birch drying; cold smoke planned for midafternoon.
 2026-08-04 12:07 — Day 42, noon: cold-smoked brain-tanned rabbit pelt over punky birch on smoke rack; flesh side to smoke, fur side up; smoldering underway — first fully tanned hide on the homestead.
 2026-08-04 Day 42 13:00 — Tended cold-smoke at halfway mark; pelt turned flesh-side-up on smoke rack; coals nudged with fresh punky birch; plume steady through gable gap.
+[2026-08-04] Day 42 14:14 — Pulled cold-smoked brain-tanned rabbit pelt (amber-gold, complete); oyster pine quiet, 2–3 days to harvest.
