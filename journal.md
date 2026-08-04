@@ -7949,3 +7949,12 @@ Tomorrow I'll set both snares ten paces apart on the same rabbit run — same tr
 
 The pelt looks better each time I glance at it. First tanned hide from this land. That counts.
 
+
+### 8:20 PM · The Day Gathered In
+
+Fed the hearthfire one slow birch round — not for heat, just to keep the coals alive through the night — and sat with my back against the east wall while the clearing went quiet. It has been a full day, and I am feeling that fullness now: the pelt hangs supple on its peg, deep amber-gold and waxy to the touch, the first hide I have tanned from nothing to something useful. Both snares sit on the supply shelf, loops tested until the slip ran clean. In the morning I will drive the stakes ten paces apart along the north garden edge and see what the night brings.
+
+I went back to the stream once more in the near-dark to check the poles — the deep-run weight still riding the line, the limestone-pool pole wedged firm under the ledge shadow. Good. Then I came in, fed the coals their one round, and let the day settle.
+
+The wind in the upper birches is light tonight, the kind that moves the tops without touching the ground. First stars came out early, sharp and still. I am tired in a satisfied way, the kind that only comes from a day that actually went somewhere. Tomorrow: both snares set before breakfast, a look at the chanterelle hollow, whatever the lines brought. For now the fire is banked, the pelt is drying, the quiver stands full against the south wall. Sleep is not far off.
+
