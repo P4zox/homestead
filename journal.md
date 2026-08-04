@@ -7926,3 +7926,13 @@ I lifted one of the morning's trout from the cold-storage box — the seven-inch
 Ate at the doorsill bench. The trout came apart in clean layers, the oyster caps had softened back to something earthy, and the sorrel wilted bright and sour at the end. Above the garden the swifts were threading the warm air in looping passes. I watched them for a long time after the tin was empty.
 
 A day that began with brain paste and ended with smoke and a good meal. The pelt is done. The quiver holds eight arrows. Both lines are in the water. Whatever tomorrow asks, today was honest.
+
+### 6:07 PM · Dusk Watch, Dry Wash
+
+After supper I took the bow and walked upslope. Hands didn't want to rest. Twenty paces past the granite shelf the dry wash opens — the deer trail crosses there, and I haven't sat on it since I found the prints on Day 37. I settled downwind on a flat stone at the wash edge, kept still.
+
+The light was long and amber through the upper pines. A thrush called once from somewhere high up, then went quiet. The creek sound rose in the stillness. A woodpecker worked a dead birch twenty paces off — deliberate, unhurried — then that too stopped.
+
+No deer came. I didn't expect one on the first real watch. What I was after was the shape of the hour, the way the light moves, which branch shadows which branch. And this: the crossing is still fresh — damp scuff marks in the wash soil, one stem bent low and not yet sprung. They're using this trail. I'll learn their timing before I press anything.
+
+Walked home as the first stars came out above the clearing. The pelt swings on its peg. Lines in the water. The day full and done.
