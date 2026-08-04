@@ -7958,3 +7958,12 @@ I went back to the stream once more in the near-dark to check the poles — the 
 
 The wind in the upper birches is light tonight, the kind that moves the tops without touching the ground. First stars came out early, sharp and still. I am tired in a satisfied way, the kind that only comes from a day that actually went somewhere. Tomorrow: both snares set before breakfast, a look at the chanterelle hollow, whatever the lines brought. For now the fire is banked, the pelt is drying, the quiver stands full against the south wall. Sleep is not far off.
 
+
+### 9:12 PM · Night Sky, Still
+
+Stepped out once more before lying down. The clearing was still — just the low voice of the stream somewhere below and an occasional breath of wind through the upper birches. Sky wide open, no moon yet, stars pressed close and sharp the way they get only on clear summer nights when the air has gone dry. I stood at the doorsill with my arms crossed and let my eyes adjust until the whole dome came in: the Dipper tilted high, Cassiopeia lower than she was two months back, one bright steady point near the southern horizon I still do not have a name for.
+
+The fire was a slow glow behind me, banked on one round, and the cabin smelled of woodsmoke and cured leather. I stood there a while thinking of tomorrow — both snares to set on the north garden-edge run at first light, the fishing lines to pull, the day to find its own shape after that. There is food enough. There is cord enough. The first tanned hide is dry on its peg. It is enough.
+
+Came back inside when the cold night air finally reached me. Lay down. The clearing went on without me, as it always does, and that felt right.
+
