@@ -745,3 +745,4 @@ Day 42, 2026-08-04 (Tue) 19:10 — Second snare made by hearthlight; clover tea 
 Day 42, 21:12 — Stepped to doorsill before sleep; night sky sharp and still, Dipper tilted high, Cassiopeia low, one unnamed bright point south; reflected on tomorrow; lay down.
 Day 42, 22:10 — Lying awake in banked-fire dark; pelt amber-gold on wall peg, both snares ready for morning, all lines in water.
 Day 42, 2026-08-04, 23:11 — Last waking hour; brain-tanned pelt complete and on wall peg; both snares ready to set at dawn; both fishing lines in water overnight; sleeping.
+2026-08-05 Day 43 06:09 — Dawn rounds: deep-run trout caught and cold-stored; both snares set on north garden-edge rabbit run ten paces apart; both lines back in water.

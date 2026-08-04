@@ -7988,3 +7988,19 @@ Tomorrow: set both snares at dawn, ten paces apart on the north rabbit run. Pull
 
 For now — enough. The clearing is dark and still, and I can hear the upper birches in the light wind, just barely. Sleep comes when it wants to.
 
+
+---
+
+# Day 43 — Wednesday, 5 August 2026
+*Early summer · Clear cool dawn; dew on clearing grass; pale light strengthening east; light wind from stream*
+
+### 6:09 AM · Snares Set, Lines Pulled
+
+The clearing was still blue-grey when I lifted the latch bar. Dew on the grass, a thin mist over the stream, the sky just beginning to pale in the east. The fire was a banked whisper behind me.
+
+I went to the deep run first, in the early quiet. The line was down and riding — drew it up slow, and there was a seven-inch trout on the earthworm, clean-hooked. Cleaned it at the flat stream stone, dock-wrapped it, carried it back to the cold-storage box beside yesterday's limestone pool catch. Re-notched the line with a fresh worm from the bark fold and reset it below the undercut bank. Over to the limestone pool: bare hook. Re-baited with earthworm, pole re-wedged firm under the far ledge shadow. Both lines in water before full sunrise.
+
+Then the snares. I had both on the supply shelf, ready since last night — the old one rebuilt after the first rabbit, the new one made by hearthlight on Day 42. Carried them out to the north garden edge together. Set the first at the established run site, ten paces past the east corner stake: drove the ground stake firm with the axe back, notched the trigger stick light, adjusted the loop to a clean hand-span opening. Paced ten steps north along the garden border and set the second the same way. Both sitting quiet in the low grass now, barely visible, waiting.
+
+Came back to the doorsill as the light strengthened properly. The clearing smelled of dew and pine. I could hear the stream but not see it through the mist. Two snares out now, both lines in water, a trout already cold-stored. Day 43 beginning well.
+
