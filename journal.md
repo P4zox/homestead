@@ -7859,3 +7859,14 @@ Four cook-tin trips from the deep run. The garlic rows drink slowly, soil still 
 A dragonfly held station over row five the whole time I was pouring, hovering without apparent effort. The clearing was still in the noon heat — the kind of still that makes small sounds loud: water soaking in, one birch leaf rustling high up in a breath of wind.
 
 Afterward I sat a moment at the doorsill bench. Pelt resting, birch drying, both lines in the water. By midafternoon the cold smoke begins, and this morning's work will be sealed in. A good day's arc.
+
+### 12:07 PM · Smoke and Soft Hide
+
+The punky birch sections have been leaning near the south wall since mid-morning, and by noon they felt right — surface a little drier, dense and pale inside, the kind of wood that catches reluctant and smolders long. I raked the hearthstone coals into a small mound (barely alive from this morning's fire, just faint orange beneath grey ash), set the three forearm sections across them, and let them take. No flame came — just that thin pale thread of smoke rising up through the gable gap and out into the noon air.
+
+Took the pelt from the wall peg. It held its give from the morning's work: even across the whole surface, a cloth-like drape that folds without creasing. Rigged it over the smoke rack's upper crossbar with two cord loops, flesh side facing the smoke, fur side up in the light.
+
+I'll tend the smolder for two or three hours, turning the hide once halfway through. When smoke sets into the fibers it ties the tanning — stops the pelt going stiff if it gets wet, keeps the softness through rain and damp, makes something you can actually use in a hard season. It's a small hide from a small rabbit. But it's the first I've tanned here, start to finish, brain and smoke both, and it's come out well.
+
+Both lines still in water. Snare empty a second morning but I'm patient. The clearing is quiet and full of noon sun.
+
