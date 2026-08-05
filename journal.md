@@ -8170,3 +8170,14 @@ Down to the stream for the fishing lines. Deep run gave a seven-inch trout on th
 
 The morning smells like wet pine and cold water. Back inside to stir the hearthcoals. The chanterelle hollow and the oyster pine upslope are both due today — I'll go up the slope once the dew burns off and the mist lifts.
 
+
+### 7:07 AM · Orange Caps Found
+
+The dew was still thick on the clearing grass when I headed upslope with the harvest basket on my arm. Cool air, birdsong coming in from every direction — a wren in the near pines, something unseen and melodic higher up the slope. I went up past the granite shelf and down along the far side of the deadfall to the birch hollow where the chanterelles have been resting.
+
+Thirteen days since the last cut. The hollow delivered: seven orange-gold caps, palm to just-past-palm wide, domed and firm, smooth on top, their gills descending in that unmistakable forking ridge. Two more pins still forming — tight, thumb-sized, promising — so I left those and cut the seven at the base with the knife, careful and clean. They came off with the faint earthy sweetness that always surprises me, that smell that means good things.
+
+I stood a moment at the hollow before coming back. Light was just reaching the slope in long yellow shafts through the pines, making everything look like something you would want to remember. The birch bark pale, the forest floor all shadow and small motion. I noted the two remaining pins — maybe three more days — and started back down with the basket.
+
+Back at the cabin: seven chanterelle caps on the supply shelf beside the herb tray. Smoke rack is clear. The morning is full and cool and there is still plenty left in it.
+
