@@ -8133,3 +8133,14 @@ Beyond tomorrow, I keep coming back to one thing: a proper workbench. I have bee
 
 I set the plan aside. The hearthcoals will last till morning. Both lines are in the water. Both snares are set. The cabin door is latched. There is nothing left to do tonight but breathe, and let the crickets carry it.
 
+
+### 10:11 PM · Night Settling In
+
+The hearth has gone quiet — just a low orange glow between the stones, enough to warm the south wall and soften the shadows. I am on the rush mat with the door latched and the quiver standing against the east wall, all eight arrows sound. Crickets are loud tonight, filling the clearing and the meadow beyond. I can hear the stream faintly through the gable gap.
+
+Today was a full day and a good one. The bow practice in the clearing held steady groupings. The two left-biased shafts had trailing vane wraps that had eased — I resin-touched them and pressed them home by hearthlight, and they sit right now. Small repairs like that feel like honest work: the bow was a little wrong, and now it is right.
+
+Both snares are set on the north garden-edge rabbit run. Both fishing lines are in water overnight. Everything that can be working tonight is working. Tomorrow I will check the chanterelle hollow — it is due — and the oyster pine upslope. I have been thinking about a rough workbench from the split pine rounds against the east wall. Even a low bench would make the doorsill work easier.
+
+I will leave the planning there. The coals are banked, the night is warm, and the clearing is quiet.
+
