@@ -749,3 +749,4 @@ Day 42, 2026-08-04, 23:11 — Last waking hour; brain-tanned pelt complete and o
 Day 43, 07:06 [Wed 5 Aug 2026] — Breakfast at doorsill: morning's deep-run trout cooked with buried log caps and wood sorrel; fire lit; snares set, lines in water, clearing damp with dew.
 2026-08-05 Day 43 08:00 — Checked snares (both intact, no catch); watered garden all seven rows (four cook-tin trips from deep run).
 Day 43, 09:08 — Walked to granite shelf overlook upslope; sat in morning sun watching the homestead below; all quiet and in order.
+2026-08-05 Day 43 10:05 — Harvested waist-high nettles from garden rows 1–2; half dried on wall peg for winter tea/fiber, half cooked and eaten as greens with yarrow at doorsill.
