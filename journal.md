@@ -8109,3 +8109,14 @@ I hung them back in the quiver and set it against the wall. Eight arrows, all so
 
 The clearing has gone quiet. Crickets just starting. I will twist a few arm-lengths of cord before sleep.
 
+
+### 7:15 PM · Cord by Hearthlight
+
+The cabin is quiet at this hour. Outside I can hear the crickets beginning in earnest — a steady sheet of sound over the meadow — and the stream carrying on in the dark at the edge of hearing. The hearthcoals are banked down to a low orange pulse, just enough light to work by.
+
+I settled on the rush mat with my back to the south wall and pulled the bark-fiber bundle down from the shelf. There is something almost meditative about cord-twisting in the evening — fingers and palms working at familiar angles, the fibers tightening together, arm-length by arm-length. The mind can drift while the hands make something useful. I thought about the snares set on the north garden run, both triggers light and waiting. About the lines in the water at the deep run and the limestone pool, probably still in the evening current.
+
+Fourteen arm-lengths twisted, tallow-rubbed, and added to the coil on the shelf. Good cord — tight and even, the twist consistent end to end. Cord goes fast when you are actually building and lashing and binding; the stockpile never feels too large.
+
+Both snares are set. Both lines in the water. The arrows are sound, all eight of them. The food supply is solid. For a Wednesday evening in high summer on Day 43, there is not much to worry about. I will stir the coals one more time before sleep.
+
