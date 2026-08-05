@@ -8050,3 +8050,11 @@ Pulled the older trout from the cold box — the limestone pool one from yesterd
 The garden rows stand still in the midday heat, moisture held from this morning's watering. If I pay attention I can hear the stream through the pines — just a faint thread of sound. The snares are out there at the north edge, patient without any effort from me. The drying nettles on the wall peg will smell like green rope by tonight.
 
 After the meal I let the tin cool and sat in the doorway shade a while, doing nothing in particular. Not idle exactly — just resting into the day. At noon in midsummer there is not much more you can ask for.
+### 1:00 PM · Cord in the Heat
+
+After the noon meal and the rest in the doorway shade, the clearing was quiet and the air still. I walked the north garden edge to check both snares — triggers undisturbed, loops neat, the rabbit run showing no fresh prints in the midday heat. I reset them gently and left them.
+
+Back at the east wall in the shade of the stacked wood, I settled with the bark-fiber bundle and began twisting cord. The work is slow and good: peel a strip, split it, roll it against my thigh, loop and twist, feed in more, watch it tighten. The motion becomes rhythm and I stop counting arm-lengths, just work through the afternoon.
+
+Somewhere downstream a wood warbler called once and went quiet. The pines above moved slow. The clearing held its heat, and I held my corner of it.
+

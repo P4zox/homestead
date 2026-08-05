@@ -752,3 +752,4 @@ Day 43, 09:08 — Walked to granite shelf overlook upslope; sat in morning sun w
 2026-08-05 Day 43 10:05 — Harvested waist-high nettles from garden rows 1–2; half dried on wall peg for winter tea/fiber, half cooked and eaten as greens with yarrow at doorsill.
 Day 43, 11:05 — Limestone pool line: seven-inch trout caught, cleaned, cold-stored; sat by pool in midday quiet — water strider in eddy, kingfisher upstream.
 Day 43, 12:05 PM — Noon meal: limestone pool trout (Day 42) with dried oyster caps and garden wood sorrel; midday rest in doorway shade.
+Day 43, 13:05 — Snare check (nothing); fourteen arm-lengths two-ply cord twisted in east-wall shade. Both lines in water.
