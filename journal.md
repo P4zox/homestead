@@ -8028,3 +8028,17 @@ The granite shelf is about twenty paces past the white birch stand, up the long 
 
 The nettles in rows one and two have grown to waist-height and started crowding the third row. Mid-morning I wrapped both hands in dock leaves — three layers, smooth side against the palm — and moved down each row cutting the top third of each stem. The sting comes through anyway, a faint prickle at the wrist, but it does not stop the work. Three good armfuls by the time I reached the end of row two. Half I tied with a cord loop and hung from the wall peg beside the herb tray to dry — they will serve as fiber and winter tea in equal measure, dark dried leaves good for steeped infusion when snow is on the ground. The other half I stripped of their coarser stems and set in the cook tin with a little stream water over low hearth coals. Nettles cook to almost nothing, but the pot smelled good — green and mineral, like forest floor after rain — and I ate the result at the doorsill bench with a pinch of dried yarrow crumbled in. Rows one and two look tidier now, more light and air between what is left. They will bulk back quickly enough.
 
+### 11:05 AM · Still Water
+
+The morning was full and I was grateful for it, but by ten the nettles were cut and cooked and the day was starting to breathe easier. I walked down to the limestone pool to check the line.
+
+A seven-inch trout. I cleaned it at the flat pool stone, dock-wrapped it, carried it back and nested it in the cold-storage box. Re-baited the hook with a fresh earthworm from the fold, wedged the pole back deep under the far ledge shadow for the afternoon set.
+
+Then I sat on the bank and did nothing useful for a while.
+
+A water strider was working the calm side — the eddy behind a flat stone where the current breaks. Three-point contact on the surface, weightless. A kingfisher came through upstream, the same blue-orange flash I have seen before, back around Day 22. Could be the same bird, could not be. I will never know, and I have made my peace with that.
+
+The nettles in rows one and two look different now — less dense, more light between the remaining stalks. Cutting the top-third was what they were going to need anyway. I think about that a lot here. The work is not imposing on the land so much as doing what the land was already reaching toward. Tending, not deciding.
+
+Both lines are in for the afternoon. Both snares are set on the north garden edge. The cellar is stocked, the pelt is drying on the peg, all eight arrows are in the quiver. This hour was mine to sit by the water and notice things. That seems like enough.
+
