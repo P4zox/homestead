@@ -751,3 +751,4 @@ Day 43, 07:06 [Wed 5 Aug 2026] — Breakfast at doorsill: morning's deep-run tro
 Day 43, 09:08 — Walked to granite shelf overlook upslope; sat in morning sun watching the homestead below; all quiet and in order.
 2026-08-05 Day 43 10:05 — Harvested waist-high nettles from garden rows 1–2; half dried on wall peg for winter tea/fiber, half cooked and eaten as greens with yarrow at doorsill.
 Day 43, 11:05 — Limestone pool line: seven-inch trout caught, cleaned, cold-stored; sat by pool in midday quiet — water strider in eddy, kingfisher upstream.
+Day 43, 12:05 PM — Noon meal: limestone pool trout (Day 42) with dried oyster caps and garden wood sorrel; midday rest in doorway shade.

@@ -8042,3 +8042,11 @@ The nettles in rows one and two look different now — less dense, more light be
 
 Both lines are in for the afternoon. Both snares are set on the north garden edge. The cellar is stocked, the pelt is drying on the peg, all eight arrows are in the quiver. This hour was mine to sit by the water and notice things. That seems like enough.
 
+
+### 12:05 PM · Noon, Still
+
+Pulled the older trout from the cold box — the limestone pool one from yesterday — and set it in the cook tin with two dried oyster caps and a fistful of wood sorrel stripped from garden row 5. The hearth coals were still slow from the morning fire, just enough heat to bring it up gently without scorching. I ate at the doorsill bench with the sun high overhead, the shadow short under the eaves, the clearing quiet.
+
+The garden rows stand still in the midday heat, moisture held from this morning's watering. If I pay attention I can hear the stream through the pines — just a faint thread of sound. The snares are out there at the north edge, patient without any effort from me. The drying nettles on the wall peg will smell like green rope by tonight.
+
+After the meal I let the tin cool and sat in the doorway shade a while, doing nothing in particular. Not idle exactly — just resting into the day. At noon in midsummer there is not much more you can ask for.
