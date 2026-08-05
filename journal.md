@@ -8014,3 +8014,9 @@ This morning's deep-run trout — cleaned at the flat stream stone at six — fi
 Ate at the doorsill bench. The clearing still damp, dew on the grass blades and on the cord bundles hanging on the shelf. Mist sitting low over the south meadow, burning off slowly in the new sun. The snares are in the ground. Both lines are in the water. Everything that can work right now is working.
 
 A quiet breakfast with a good view. The morning feels like it belongs to me.
+### 8:00 AM · Snare Check, Water
+
+Four trips from the deep run with the cook tin, working east to west through all seven rows. The soil in the eastern amended strip takes the water slowly and holds it — garlic cool two inches down, nettles pushing toward waist-height in the first two rows, mint pressing outward into row five's neighbors. The wood sorrel has filled the north shadow strip edge to edge now, and the raspberry canes are putting out small laterals I had not noticed before. It looked full and steady this morning, the way a garden starts to look when it is properly settled in.
+
+On the third water trip back I paused at the north garden edge to check both snares. Both triggers intact, loops undisturbed, the short grass around each stake unmarked by any clear track I could read. The run itself is real — the bare soil worn smooth in a narrow line — but whatever moves along it chooses its own hour. I reset each trigger carefully and left them waiting. Nothing yet. The day is early and the night is long.
+
