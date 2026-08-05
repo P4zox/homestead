@@ -756,3 +756,4 @@ Day 43, 13:05 — Snare check (nothing); fourteen arm-lengths two-ply cord twist
 Day 43 (2026-08-05, Wed) 14:05 — Bow practice in clearing; pine-bark target at twenty paces, three rounds, all eight arrows; grouping center-consistent; two shafts carry slight left bias noted for hearthlight check.
 Day 43, 15:05 — Snares checked (no catch; both reset for dusk); watercress gathered from side-seep (fistful, dock-wrapped, cold-stored for supper); sat at pool bend in afternoon quiet.
 Day 43, 16:09 — Limestone pool afternoon: seven-inch trout caught, cleaned, cold-stored; line re-baited for evening; cold box holds two trout, smoked rabbit, oyster caps, watercress for supper.
+Day 43, 17:08 — Supper at doorsill bench: trout, watercress, smoked rabbit in amber evening light; dusk snare check, both triggers reset light, run holds shape of use.

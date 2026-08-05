@@ -8086,3 +8086,15 @@ The afternoon has stretched long and easy. I walked down to the limestone pool w
 The line was tight. Seven inches — the same reliable cut of fish this pool has given me since I first rigged a birch pole and baited it with gut strip. I cleaned it at the flat pool stone, hands quick and practiced now, dock-wrapped it, and carried it back to the cold box. Re-baited the hook with the last decent earthworm from the bark fold, wedged the pole back under the far ledge shadow where the undercut keeps the light off. Both lines in water for the night.
 
 Standing at the pool a moment before I turned back, I watched the place upstream where the kingfisher usually passes — blue-orange flash, low and fast, always upstream. It didnt
+### 5:08 PM · Supper in Amber Light
+
+The sun is dropping behind the west tree line and the clearing has gone golden. I pull one of the dock-wrapped seven-inch trout from the cold-storage box — the one from the limestone pool at midday — and lay the watercress beside it on the flat hearthstone. A piece of smoked rabbit hindquarter comes out too, enough to round the meal.
+
+I build the hearthcoals back up with two birch rounds and let them catch, then set the cook tin on while I strip the watercress free of its dock wrapping and rinse it in the bark bucket. The cress goes in first with a little water to soften, then the trout once the tin hisses. The smoky smell of the rabbit fills the cabin.
+
+I eat at the doorsill bench as the last direct light leaves the clearing. The garden rows have gone shadowed; the smoke rack stands dark against the meadow. Somewhere upstream, the kingfisher makes its short two-note call and is quiet. The meal is good — the trout flaking clean, the watercress still a little sharp, the smoked rabbit rich and dark against it all.
+
+After, I walk the north garden edge one more time in the graying light. Both snares still set: triggers intact, loops hand-span open, no disturbance. Dusk is the hour. I reset each trigger a hair lighter and step back. The rabbit run is quiet, but the grass holds the shape of use — narrow, pressed, unmistakably theirs. I leave them to it and come back inside.
+
+Hearth is slow now, just a steady cook-glow. I hang the cook tin on the wall peg and settle on the rush mat. Tomorrow I will check the fletching wraps by morning light, and the chanterelle hollow and the oyster pine both deserve a look — Day 44 or 45. For now the clearing is mine, the cabin warm, the day full enough.
+
