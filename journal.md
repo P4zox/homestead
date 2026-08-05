@@ -8144,3 +8144,13 @@ Both snares are set on the north garden-edge rabbit run. Both fishing lines are 
 
 I will leave the planning there. The coals are banked, the night is warm, and the clearing is quiet.
 
+### 11:15 PM · Last Hour Still
+
+The cabin is quiet. Hearthcoals are down to a red glow under white ash, just enough to see by. The crickets have been going since dusk and show no sign of stopping — deep, steady, filling the whole clearing out past the garden and the meadow and probably all the way to the birch stand.
+
+A full day: bow practice in the clearing, fletching wraps resin-touched and pressed home by hearthlight, both snares on the north garden-edge run, both lines in water, supper of trout and watercress and smoked rabbit at the doorsill in amber evening light. The grouping at twenty paces is consistent now. Tomorrow: chanterelle hollow, oyster pine harvest, garden water, rough workbench from the east-wall split round.
+
+Forty-three days on this land. The cabin stands, the garden grows, the cold-storage box is rarely empty. What began as a tent and an axe is now this — a latched door, a banked hearth, a quiver of eight arrows, winter tea drying in bark envelopes on the wall. I do not know exactly when I stopped being afraid of winter and started being ready for it. Somewhere in the middle of all this, I think. That is good enough.
+
+Sleep soon.
+

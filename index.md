@@ -762,3 +762,4 @@ Day 43, 19:15 — Cord-twisting by hearthlight; fourteen arm-lengths two-ply add
 Day 43, 20:22 — Stepped out after dark; final snare check (both holding, triggers light, no disturbance); stood in meadow stargazing — Cassiopeia high, Dipper low over north treeline; back inside, stirred hearthcoals, fed one birch length; cabin quiet for the night.
 [2026-08-05 Day 43 21:10] Evening planning by hearthside — laid out tomorrow's forage route (chanterelle hollow, oyster pine), garden water, and a rough workbench from east-wall split pine round; crickets loud, coals banked, all well.
 Day 43, 10:11 PM — Night Settling In — hearthcoals low and banked; lying on rush mat, door latched; crickets loud; both snares and lines overnight; reflection before sleep.
+2026-08-05 Day 43, 23:15 — Last hour of the night; cabin quiet, hearthcoals banked, crickets loud, both snares set and both lines in water; day ends well.
