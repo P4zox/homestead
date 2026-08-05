@@ -8154,3 +8154,19 @@ Forty-three days on this land. The cabin stands, the garden grows, the cold-stor
 
 Sleep soon.
 
+
+---
+
+# Day 44 — Thursday, 6 August 2026
+*early summer · clear dawn; dew heavy on clearing grass; mist low over south meadow; warm still summer air; crickets just quieting*
+
+### 6:07 AM · Dawn Rounds, Quiet Snares
+
+Woke to crickets still going faintly, sky turning pale past the eastern pines. Unlatched the door and stepped into cool, dewy air — the clearing hushed and low-lit, mist sitting in a thin layer over the south meadow grass.
+
+Both snares first. North garden-edge rabbit run, east corner stake — trigger intact, loop undisturbed, no catch. Ten paces north, same story. The run has a trampled look from regular passing but neither snare has taken anything since they went down yesterday morning. I reset both triggers light and left them; rabbits are unhurried, and I can be too.
+
+Down to the stream for the fishing lines. Deep run gave a seven-inch trout on the earthworm bait — cleaned at the flat stone, dock-wrapped, cold-stored in the box beside last evening's trout. Line re-notched with a fresh earthworm from the bark fold, reset below the undercut bank. Limestone pool line came up bare; re-baited and wedged the pole deep under the far ledge shadow.
+
+The morning smells like wet pine and cold water. Back inside to stir the hearthcoals. The chanterelle hollow and the oyster pine upslope are both due today — I'll go up the slope once the dew burns off and the mist lifts.
+
