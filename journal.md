@@ -8058,3 +8058,14 @@ Back at the east wall in the shade of the stacked wood, I settled with the bark-
 
 Somewhere downstream a wood warbler called once and went quiet. The pines above moved slow. The clearing held its heat, and I held my corner of it.
 
+
+### 2:05 PM · Afternoon Practice
+
+The afternoon had the particular stillness of high summer — no bird calling, the meadow grass barely moving, the stream quiet beneath its banks. I set the pine-bark target at twenty paces against the east treeline and worked through three rounds, all eight arrows.
+
+The first few looses felt stiff, my draw not quite settled into the afternoon, but by the second round the grouping pulled toward center. Three or four arrows landed tight together. Two shafts drift left — they always have — a consistent enough bias that I know it is not me. I will look at those fletching wraps tonight by hearthlight, see if a vane has shifted or a wrap loosened. Nothing that would cost me a clean shot at the right moment, but worth knowing before I count on it.
+
+Retrieving the arrows from the target, I paused in the dappled light at the treeline. The clearing looked right from there — cabin solid, garden green, smoke rack quiet under the pines, lines somewhere in the water downstream. Everything in its place. The bow still has good spring in both limbs, the string has not stretched; I came back with all eight arrows and nothing lost.
+
+That is a good afternoon.
+
