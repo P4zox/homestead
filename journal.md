@@ -8020,3 +8020,7 @@ Four trips from the deep run with the cook tin, working east to west through all
 
 On the third water trip back I paused at the north garden edge to check both snares. Both triggers intact, loops undisturbed, the short grass around each stake unmarked by any clear track I could read. The run itself is real — the bare soil worn smooth in a narrow line — but whatever moves along it chooses its own hour. I reset each trigger carefully and left them waiting. Nothing yet. The day is early and the night is long.
 
+
+### 9:08 AM · View from the Shelf
+
+The granite shelf is about twenty paces past the white birch stand, up the long slope behind the shelter. It comes out at chest height, wide enough to sit on with legs hanging, and from there the whole clearing opens below: the cabin roof with its layered bark shingles, the smoke rack standing quiet south of the door, the garden rows running east to west on the sunny bench below. The meadow falls away beyond — grasses heavy with seed at this season, yellow-green in the morning light, and the tree line closing darkly beyond. I sat in full sun, the air still carrying the coolness of the night, and let the morning do its work on me. Day 43. When I first counted days it was to keep track of urgency — how much food, how many hours of light, what absolutely had to happen before the cold. Now the count keeps itself and I mostly dont
