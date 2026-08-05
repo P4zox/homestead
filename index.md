@@ -754,3 +754,4 @@ Day 43, 11:05 — Limestone pool line: seven-inch trout caught, cleaned, cold-st
 Day 43, 12:05 PM — Noon meal: limestone pool trout (Day 42) with dried oyster caps and garden wood sorrel; midday rest in doorway shade.
 Day 43, 13:05 — Snare check (nothing); fourteen arm-lengths two-ply cord twisted in east-wall shade. Both lines in water.
 Day 43 (2026-08-05, Wed) 14:05 — Bow practice in clearing; pine-bark target at twenty paces, three rounds, all eight arrows; grouping center-consistent; two shafts carry slight left bias noted for hearthlight check.
+Day 43, 15:05 — Snares checked (no catch; both reset for dusk); watercress gathered from side-seep (fistful, dock-wrapped, cold-stored for supper); sat at pool bend in afternoon quiet.

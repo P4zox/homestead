@@ -8069,3 +8069,12 @@ Retrieving the arrows from the target, I paused in the dappled light at the tree
 
 That is a good afternoon.
 
+
+### 3:05 PM · Watercress and Waiting
+
+The heat has gone out of the afternoon — that particular shift around three when the sun feels more gold than white and the air starts moving again in slow drafts off the treeline. I took a slow circuit north to check the snares. Both still set and waiting. No prints in the soft ground near the stakes, no tension in the loops; the rabbits are sleeping somewhere cool in the middle of the day, same as everything else with any sense. I reset the triggers lightly and left them for dusk, when things start moving again.
+
+Then down to the stream. The side-seep below the deep run is running clear and cold in the afternoon shadow, and the watercress there has come back strong all summer — you can see it thickening week by week, the leaves getting darker. I pulled a good fistful: stems crisp, leaves dark, smelling sharply of water and something almost peppery. Dock-wrapped it and cold-stored it for tonight's supper. The deep-run pole end was twitching faintly in the current when I passed; could be something on the line, could just be the pull of the water. I left it to do its work.
+
+Sat on the flat stone at the pool bend for a few minutes before heading back. Water moving over pebbles, light breaking in shifting patches on the bottom, a water strider holding still in the eddy behind the far rock. The kingfisher passed upstream without stopping, gone in a second, same as always. I find I don't need the afternoons to be eventful. They just need to move.
+
