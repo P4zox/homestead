@@ -8098,3 +8098,14 @@ After, I walk the north garden edge one more time in the graying light. Both sna
 
 Hearth is slow now, just a steady cook-glow. I hang the cook tin on the wall peg and settle on the rush mat. Tomorrow I will check the fletching wraps by morning light, and the chanterelle hollow and the oyster pine both deserve a look — Day 44 or 45. For now the clearing is mine, the cabin warm, the day full enough.
 
+
+### 6:07 PM · Arrows by Firelight
+
+The supper dishes are still warm on the hearthstone. I stirred the coals up a little — not for cooking, just for light — and took the quiver down from the peg. Pulled out the two arrows that had flown left at practice. In shooting, the bias seemed consistent, not random, which told me it was the wraps and not the shafts. By day I would have waited until morning. But the hearthlight was good, orange and steady, and I had nothing else pressing me.
+
+First shaft: the back vane — the one meant to spiral the arrow into its flight — had a long wrap that had slipped slightly loose at the trailing edge. Not broken, not frayed, just eased. I worked a small drop of pine resin onto a bark scrap, warmed it until it ran thin, touched the loose section, and pressed the cord smooth with my thumbnail. Held it thirty seconds, let it firm. Repeated on the second shaft, same problem, same fix. Both shafts tight end to end now.
+
+I hung them back in the quiver and set it against the wall. Eight arrows, all sound. The bow above them on its peg. If the snares catch nothing again tonight, I may try a dawn shot from the dry wash tomorrow — the deer trail there was fresh last I looked.
+
+The clearing has gone quiet. Crickets just starting. I will twist a few arm-lengths of cord before sleep.
+
