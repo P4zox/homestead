@@ -759,3 +759,4 @@ Day 43, 16:09 — Limestone pool afternoon: seven-inch trout caught, cleaned, co
 Day 43, 17:08 — Supper at doorsill bench: trout, watercress, smoked rabbit in amber evening light; dusk snare check, both triggers reset light, run holds shape of use.
 Day 43, 2026-08-05, 18:07 — Examined and re-wrapped two left-biased arrow fletching wraps by hearthlight; both shafts now true; all eight arrows sound in quiver.
 Day 43, 19:15 — Cord-twisting by hearthlight; fourteen arm-lengths two-ply added to coil; crickets loud in meadow; snares set, both lines in water overnight.
+Day 43, 20:22 — Stepped out after dark; final snare check (both holding, triggers light, no disturbance); stood in meadow stargazing — Cassiopeia high, Dipper low over north treeline; back inside, stirred hearthcoals, fed one birch length; cabin quiet for the night.

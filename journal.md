@@ -8120,3 +8120,7 @@ Fourteen arm-lengths twisted, tallow-rubbed, and added to the coil on the shelf.
 
 Both snares are set. Both lines in the water. The arrows are sound, all eight of them. The food supply is solid. For a Wednesday evening in high summer on Day 43, there is not much to worry about. I will stir the coals one more time before sleep.
 
+
+### 8:22 PM · Stars Above the Clearing
+
+Stepped out after dark to check the snares one last time — both still set and waiting on the garden edge, triggers light, no disturbance in the run. The meadow was loud with crickets. I stood at the east garden corner a while, eyes adjusting, and then just stayed there. The sky above the clearing was wide open and clear, more stars than I usually pause to count. Cassiopeia high and bright; the Dipper swung low over the north treeline. Summer has settled full into the evenings now — warm air, no bite, the smell of pine and damp earth rising from the garden rows. Both fishing lines out in the dark water somewhere downstream. I came back in, stirred the hearthcoals, fed them a length of birch, and sat a moment on the rush mat before they caught. The cabin is quiet and holding. Tomorrow: check the chanterelle hollow and the oyster pine upslope. Tonight, just this.
