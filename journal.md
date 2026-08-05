@@ -8078,3 +8078,11 @@ Then down to the stream. The side-seep below the deep run is running clear and c
 
 Sat on the flat stone at the pool bend for a few minutes before heading back. Water moving over pebbles, light breaking in shifting patches on the bottom, a water strider holding still in the eddy behind the far rock. The kingfisher passed upstream without stopping, gone in a second, same as always. I find I don't need the afternoons to be eventful. They just need to move.
 
+
+### 4:09 PM · Afternoon Pull
+
+The afternoon has stretched long and easy. I walked down to the limestone pool with the cook tin swaying empty at my side — more from habit than hunger, since watercress waits in the cold-storage box for supper and smoked rabbit still hangs cold on the shelf. The shadows were beginning to angle across the pool from the west bank trees, and the air there smelled of cold water and pine resin baking somewhere uphill.
+
+The line was tight. Seven inches — the same reliable cut of fish this pool has given me since I first rigged a birch pole and baited it with gut strip. I cleaned it at the flat pool stone, hands quick and practiced now, dock-wrapped it, and carried it back to the cold box. Re-baited the hook with the last decent earthworm from the bark fold, wedged the pole back under the far ledge shadow where the undercut keeps the light off. Both lines in water for the night.
+
+Standing at the pool a moment before I turned back, I watched the place upstream where the kingfisher usually passes — blue-orange flash, low and fast, always upstream. It didnt
