@@ -8227,3 +8227,12 @@ The rows look good. Garlic fanning wide after the scape harvest. Dandelion roset
 
 I stood at the north edge after the last pour and looked south down the rows in the high summer light. Everything I put in the ground in those early weeks is alive. That still catches me when I think about it.
 
+
+### 12:05 PM · Chanterelle Noon
+
+Set four of the morning's chanterelle caps on the smoke rack over a low birch-chip smolder and brought the other three inside with the cook tin. Sliced the caps thin, added one of the cold-stored seven-inch trout and a fistful of wood sorrel from row 5, let it all come up slow over low hearthcoals. Ten minutes, maybe less.
+
+Ate at the doorsill bench in the full noon sun. The wood sorrel sharpens when it warms; the chanterelles held their color — still that apricot-orange at the edges. The trout flaked clean. I ate without hurrying, then just sat for a while with the empty tin, looking out at the garden rows and the open meadow.
+
+Four caps are still on the rack, pulling through the smolder. Amber and dry in a couple of hours, then into cold storage. The shelf is lighter. The afternoon is open.
+
