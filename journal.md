@@ -8282,3 +8282,12 @@ Both lines are in for the evening. The snares on the north garden edge are still
 
 The food is good. The shelter holds. The evening is warm and the clearing is quiet in the way that means everything is in order.
 
+
+### 6:05 PM · Dusk Round
+
+The light went amber-gold before I noticed it, the way it does in summer — one minute everything is bright and clear, and then the sun is already behind the western pines and the air has that particular quality of held warmth, soft-edged, the day's heat stored in the ground and breathing back up through the soles of your feet. I walked the north garden edge in that light, the clearing grass already heavy with early dew, and checked the snares.
+
+Both triggers were standing. First snare: loop undisturbed, trigger notch engaged, ground stake firm — nothing had passed through. I reset the loop a hand-span higher off the run and adjusted the lean of the trigger stick so it would drop cleaner on a lighter touch. Second snare: same story at first glance — triggers intact, loop in shape — but there was a scatter of dark droppings nearby, no more than an hour old. Something had come close. I made no adjustments there, left it exactly as it was, and walked back quietly without any hurry.
+
+The clearing was calm in that particular evening way — swallows cutting low arcs above the south meadow, the stream audible below the bank, both poles wedged and fishing lines in the water where I'd left them. I stood at the doorsill for a moment and watched the first pale stars appear above the eastern pines. The cold-storage box is full. The day's work is solid behind me: workbench built, oysters smoked, chanterelles cured, garden watered and tidied. There is nothing urgent now. Tonight I'll sit at the hearthstone and twist cord by firelight and let the day settle the way a good day should — slowly, without effort, into the dark.
+
