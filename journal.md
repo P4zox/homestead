@@ -8192,3 +8192,18 @@ Back at the clearing, I had the smoke rack loaded and the green birch smoldering
 
 The day is still early and the air is warm and clear. Garden water is next, and I have been turning over the idea of a rough workbench — just a solid flat surface to work from without crouching on the ground every time I need to shape something. But for now the smoke rack is doing its work, and I will go check the snares before the sun gets high.
 
+
+### 9:07 AM · Bench in the Making
+
+The smoke from the rack is thin and even — just a thread of white coiling off the crossbars toward the south — and the oyster caps are browning nicely on their gill-side rest. Probably an hour yet. Good window for the bench.
+
+I have wanted a proper outdoor work surface for weeks now. The doorsill bench has served well — cord-twisting, fletching, meals, the whole run of small work — but it faces inward, toward shadow, and it sits low. Everything done at a crouch. A proper workbench: waist-height, flat, steady, set out in open ground where light comes from three sides. That is what the next season of building needs under it.
+
+I walked the east side of the shelter this morning, testing the ground with my heel. Firm, level, no root heave. Morning shade from the cabin wall until nearly noon, then full south light for the afternoon — good for knapping and leatherwork both. That is the spot.
+
+I pulled two short pine rounds from the east-wall fuel stack — thick, knotty, the ones that have sat longest because they burn poorly. Each knee-high when stood upright. I set them flat-end-down about an arm-length apart, pressed them level with my boot, rocked each until the wobble went out. They held. Then I hauled two of the dressed log offcuts — flat on one face from early adze work — and laid them across the rounds, flat-face up. Good height. Good surface. I wedged each plank end against the round below with a chert scrap to stop lateral drift.
+
+I rested my forearms on the top. Firm. No give. The plank face is rough but workable — I can dress it smoother another day. For now it does exactly what I need: a level surface in good light, at the right height, away from the doorway.
+
+The smoke still curls off the rack. The chanterelle caps wait on the supply shelf. The morning is mild and wide, and I have a bench in the right light to work from.
+
