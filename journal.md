@@ -8333,3 +8333,19 @@ There is a particular quiet that only comes at this hour when everything that ca
 ### 11:15 PM · Night, Still
 
 No waking here — only the record of what the night holds. Coals deep under ash, door at its finger-width gap. The cool draft has been moving through the shelter for hours: pine resin, the faint iron smell of the stream, something of the earth settling in summer dark. I am asleep in the sleeping bag, both snares standing on their triggers at the garden edge, both lines trailing in the current below the bank. The clearing is doing its own quiet work and I am somewhere inside it, resting. Nothing is needed from me now. The night is long and full, and it belongs to itself.
+
+---
+
+# Day 45 — Friday, 7 August 2026
+*Early summer · clear dawn, dew-bright grass, mist low over south meadow*
+
+### 6:08 AM · Second Snare Pays
+
+Pulled on my moccasins before the light was fully up and stepped out into the cool of the clearing. Dew soaking the grass to the knees. The fire was ash-banked; it could wait.
+
+Checked the deep-run line first. A seven-inch trout — hook set well behind the jaw, fish calm and gone. Cleaned it at the flat stream stone, wrapped in dock leaf, reset the line with a fresh earthworm from the bark fold and wedged the pole back under the undercut bank. Both lines back in water.
+
+Then north to the garden edge to see about the snares. The first one stood untouched, loop still open. The second — the one where I'd found fresh droppings last evening — had gone down. A small brown rabbit, caught clean in the running loop, had not struggled long. I knelt there in the wet grass, morning still pale and quiet around me, and felt what I only feel at these moments: the weight of the thing, the cleanness of it, and gratitude that it was quick.
+
+Carried the rabbit and the trout back together. Cold-storage box well-stocked; this one doesn't need to go in yet. I'll skin the rabbit at the doorsill bench when the sun is up properly — liver and heart this morning, hindquarters and saddle for the smoke rack later. A good beginning.
+
