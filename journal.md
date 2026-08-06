@@ -8311,3 +8311,14 @@ The snares are set; the lines are in water; the cold-storage box is full. There 
 
 The stream sounds different after dark. Clearer — the daytime birds gone, only water moving over stone. I listened until the last amber faded from the west and the stars had the whole sky.
 
+
+### 9:12 PM · Banking the Coals
+
+Inside now, the last amber coals settling under their bank of ash. I pulled the door nearly shut behind me but left a finger's width open — the shelter breathes better for it, and I can hear the stream if I listen past the cricket din.
+
+Today was a full one. Seven chanterelle caps, three oyster clusters smoked, the workbench squared and standing on the east side, garden watered, cord made, supper eaten warm in amber light. The list does not capture how it felt — like each thing slotted into the next without strain, the hours falling natural as rain.
+
+Both snares are set on the north garden run. Both lines in the water. The bats will work the clearing until past midnight, and somewhere upstream the kingfisher is asleep on a branch over still water. The hearthstone is warm underfoot. The sleeping bag is pulled close around my shoulders.
+
+Tomorrow I'll check the snares at first light and see what the lines gave up, and decide then what the day wants. Sleep comes easy when the work has been honest.
+
