@@ -8247,3 +8247,12 @@ The wood sorrel in the north shadow strip is full now, edge to edge. The garlic 
 
 I left the rows tidier than I found them. The mint will try again, but not today.
 
+
+### 3:05 PM · Amber from the Rack
+
+The four chanterelle caps came off the smoke rack later than I meant — closer to three hours than two, because noon stretched long and the garden walk came after. They were past pale amber when I pulled them, edges curl-dried and tight, centers press-firm and bone-dry through. Not ruined; if anything, these will hold in the cold box longer than a lighter dry. I set them on the supply shelf beside the morning oyster batch to cool, then cleared the rack.
+
+The clearing at three in the afternoon holds a particular kind of light — not evening gold yet, but the sun dropped enough that shadows are returning to the east side of things. The smoke rack stands bare, coals spread and gray. The new workbench is out there too, pale cut pine, still faintly sweet-smelling. A morning’s work showing all at once from the doorsill.
+
+Both snares are set on the rabbit run. Both lines are in the water. I will walk to check them near dusk. Until then the afternoon is mine — cord-twisting in the shade, or simply sitting.
+
