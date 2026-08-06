@@ -768,3 +768,4 @@ Day 43, 10:11 PM — Night Settling In — hearthcoals low and banked; lying on 
 2026-08-06 Day 44, 08:07 — Harvested oyster flush from upslope rotting pine (~70 paces); three clusters (pale buff caps, white gills, ~4-5 handfuls) cut at stem base; set on smoke rack over green birch smolder.
 Day 44, 09:07 — Built rough outdoor workbench on east shelter side: pine-round supports, dressed log-offcut top, chert-wedged ends; waist-height and firm; good light for knapping and leatherwork.
 Day 44 (2026-08-06) 10:05 — Oyster flush (3 clusters) pulled from smoke rack, amber-tan and firm, cold-stored in box; rack cleared.
+2026-08-06 Day 44 11:05 — Garden watered; four cook-tin trips, all seven rows east to west; nettles pushing new growth; mint crowding row 5 neighbors noted.

@@ -8216,3 +8216,14 @@ Cold-stored in the box beside the trout and the smoked rabbit. Rack cleared and 
 
 The box is full. The rack is resting. Garden water is the next thing on the list.
 
+
+### 11:05 AM · Four Trips, Green Rows
+
+Four cook-tin trips from the deep run, all seven rows east to west. Same order every time now: garlic first, then dandelion, then wood sorrel along the north shadow strip, then nettles, then the raspberries, then the two mint rows last. The repetition has become its own quiet pleasure — I know what I expect to find at each row before I get there, and noticing the small difference from yesterday is the whole game.
+
+The chanterelle caps are still bright on the supply shelf, the oyster batch cold in the box beside this morning's trout. The new workbench sits firm on the east wall; I kept glancing at it while I worked, already thinking of things I'll use it for. But the garden came first.
+
+The rows look good. Garlic fanning wide after the scape harvest. Dandelion rosettes dark and settled. Wood sorrel has filled in solid along the north shadow strip since I moved those six clumps from the upslope hollow — the edge looks complete now. Nettles are already putting out fresh tips after yesterday's cut; they never hold a grudge. Raspberry canes have new laterals. The mint is crowding row 5's neighbors more than I'd like, and that will need a decision soon — pull it back hard or find it its own space.
+
+I stood at the north edge after the last pour and looked south down the rows in the high summer light. Everything I put in the ground in those early weeks is alive. That still catches me when I think about it.
+
