@@ -8256,3 +8256,16 @@ The clearing at three in the afternoon holds a particular kind of light — not 
 
 Both snares are set on the rabbit run. Both lines are in the water. I will walk to check them near dusk. Until then the afternoon is mine — cord-twisting in the shade, or simply sitting.
 
+
+### 4:09 PM · Trout in Late Light
+
+The afternoon has settled into that long warm hush that only comes in high summer — the kind where sound carries farther than it should and the air smells of pine resin warmed all day in the sun. I walked down to the limestone pool with the light behind me and my shadow stretching out ahead. The pole was still wedged under the far ledge shadow right where I had set it at dawn, line angling down into the cool dark water below the stone. I pulled it up and felt the weight at once — a good fat trout, seven inches, sitting calm on the earthworm hook. Cleaned it at the flat pool stone in that practiced three-cut way, dock-wrapped it, tucked it into the cold-storage box beside the morning catch.
+
+Re-baited with a fresh earthworm from the fold, pressed the pole back under the ledge. Both lines in water for the evening.
+
+On the way back I stopped at the side-seep below the deep run. The watercress there is as thick as I have ever seen it — stems crisp, leaves bright even in the late shade. I pulled a full fistful, rinsed it in the current, dock-wrapped it for supper. Tonight is decided already: trout, watercress, two of the dried oyster caps from the box. A good meal at the doorsill in the amber light.
+
+The new workbench catches the full afternoon sun now on the east side of the shelter. I laid my hand across the flat face of the top planks as I passed — solid, no give, exactly right. Something I built this morning is already part of the homestead. That still lands differently when I slow down enough to notice it.
+
+The snares are set and waiting on the north garden edge. Dusk in an hour or two. I will check them then.
+
