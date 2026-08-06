@@ -8300,3 +8300,14 @@ There is something honest about cord-making. Your hands know what to do, and the
 
 Fourteen arm-lengths done by the time the flame guttered. Coiled and tied off, added to the growing supply, and let the coals fade. Both lines are in the water. Tomorrow morning will tell.
 
+
+### 8:22 PM · Still Evening
+
+The cord is twisted and the coals drawn down. I stepped out into the clearing with nothing but the night air.
+
+Summer dark falls slow here. A faint amber band still held the western ridge two hours past supper, and the first stars needled through the blue above the eastern pines. I sat on the doorsill bench and let my eyes adjust. Cassiopeia tilted in the northeast, the Dipper swinging low. Bats worked the clearing margin, quick and low.
+
+The snares are set; the lines are in water; the cold-storage box is full. There is a particular quality to an evening when the work is genuinely finished — not paused, not deferred, but done. The chanterelles are dried and stored. The oyster flush is in. The garden is watered. The workbench stands solid at the east wall. I sat with my hands loose in my lap and felt the day settle.
+
+The stream sounds different after dark. Clearer — the daytime birds gone, only water moving over stone. I listened until the last amber faded from the west and the stars had the whole sky.
+

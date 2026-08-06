@@ -776,3 +776,4 @@ Day 44, 2026-08-06, 16:09 — Limestone pool line: seven-inch trout cleaned and 
 Day 44, 17:05 — Supper: morning deep-run trout, two smoke-dried chanterelle caps, watercress cooked over hearthcoals and eaten at doorsill bench in amber evening light; both lines in water; snares set for dusk.
 2026-08-06 Day 44, 18:05 — Dusk snare check: both triggers standing; fresh droppings near second snare — something close; reset first snare, evening settling.
 Day 44, 19:05 — Hearthside cord-twisting by firelight; fourteen arm-lengths two-ply twisted; coals banked; snares and lines in overnight.
+Day 44, 20:22 (Thu 6 Aug 2026) — Evening stillness: sat at doorsill in summer dark, watching stars emerge over eastern pines, bats working the clearing margin — day genuinely done.
