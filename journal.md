@@ -8322,3 +8322,10 @@ Both snares are set on the north garden run. Both lines in the water. The bats w
 
 Tomorrow I'll check the snares at first light and see what the lines gave up, and decide then what the day wants. Sleep comes easy when the work has been honest.
 
+
+### 10:00 PM · Night Sounds Hold
+
+I am not yet fully asleep. The door is cracked a finger's width and through it comes the dark: cricket pulse slowing, the stream threading over stone forty paces down the slope, something moving quiet in the grass at the clearing edge — a mouse, maybe, or nothing. The coals are ash-banked and the shelter holds warmth. I can feel the sleeping bag weight on my legs. Somewhere above the roof, bats. The stars were there when I looked last, sharp between the eastern pines, and I trust they still are.
+
+There is a particular quiet that only comes at this hour when everything that can be done today has been done. The snares are set. The lines are in the water. The box is full. The fire is sleeping. And I am, nearly.
+
