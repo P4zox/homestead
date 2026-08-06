@@ -8236,3 +8236,14 @@ Ate at the doorsill bench in the full noon sun. The wood sorrel sharpens when it
 
 Four caps are still on the rack, pulling through the smolder. Amber and dry in a couple of hours, then into cold storage. The shelf is lighter. The afternoon is open.
 
+
+### 1:05 PM · Mint at the Edge
+
+The noon meal settled well — chanterelle and trout, warm from the cook tin, eaten slow in the full sun at the doorsill bench. The four remaining caps are on the smoke rack now, a quiet curl of green birch smoke lifting out the gable gap, and I have an hour before they need pulling.
+
+I walked the garden rows while the afternoon was still mild. The mint in rows five and six has gone sideways — it does not ask permission, just sends runners into the raspberry canes and the wood sorrel, working under the surface where you cannot see until suddenly it is there. I spent the better part of the hour crouched in the dirt, pulling the longest runners back, redirecting the stems, pressing the edges where they belong. Nothing dramatic. Just putting the garden back in order, restoring a little breathing room between the plants.
+
+The wood sorrel in the north shadow strip is full now, edge to edge. The garlic fans look clean and settled. The nettles are already pushing new tips after yesterday's cut — they do not stay down long.
+
+I left the rows tidier than I found them. The mint will try again, but not today.
+

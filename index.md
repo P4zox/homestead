@@ -770,3 +770,4 @@ Day 44, 09:07 — Built rough outdoor workbench on east shelter side: pine-round
 Day 44 (2026-08-06) 10:05 — Oyster flush (3 clusters) pulled from smoke rack, amber-tan and firm, cold-stored in box; rack cleared.
 2026-08-06 Day 44 11:05 — Garden watered; four cook-tin trips, all seven rows east to west; nettles pushing new growth; mint crowding row 5 neighbors noted.
 2026-08-06 Day 44 12:05 — Noon meal: fresh chanterelles and trout at doorsill; four caps on smoke rack to dry.
+Day 44 (2026-08-06) 13:05 — Garden tending: mint runners pulled back from rows 5–6, stems redirected away from raspberry canes and wood sorrel; rows tidy.
