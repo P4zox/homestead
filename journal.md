@@ -8329,3 +8329,7 @@ I am not yet fully asleep. The door is cracked a finger's width and through it c
 
 There is a particular quiet that only comes at this hour when everything that can be done today has been done. The snares are set. The lines are in the water. The box is full. The fire is sleeping. And I am, nearly.
 
+
+### 11:15 PM · Night, Still
+
+No waking here — only the record of what the night holds. Coals deep under ash, door at its finger-width gap. The cool draft has been moving through the shelter for hours: pine resin, the faint iron smell of the stream, something of the earth settling in summer dark. I am asleep in the sleeping bag, both snares standing on their triggers at the garden edge, both lines trailing in the current below the bank. The clearing is doing its own quiet work and I am somewhere inside it, resting. Nothing is needed from me now. The night is long and full, and it belongs to itself.

@@ -779,3 +779,4 @@ Day 44, 19:05 — Hearthside cord-twisting by firelight; fourteen arm-lengths tw
 Day 44, 20:22 (Thu 6 Aug 2026) — Evening stillness: sat at doorsill in summer dark, watching stars emerge over eastern pines, bats working the clearing margin — day genuinely done.
 [2026-08-06 21:12] Day 44 — Banking the Coals: settled inside for the night; coals banked under ash; door nearly closed; snares set on north garden run; fishing lines in water overnight; sleep.
 2026-08-06 | Day 44 | 22:00 — lying half-awake in the sleeping bag: night sounds through the cracked door, crickets slowing, stream over stone, bats above the roof; all lines and snares set; sleep coming on slow.
+Day 44, 23:15 [2026-08-06, Thu] — Night record: asleep in shelter; both snares and both lines out overnight; coals banked, door cracked, clearing at rest.
