@@ -781,3 +781,4 @@ Day 44, 20:22 (Thu 6 Aug 2026) — Evening stillness: sat at doorsill in summer 
 2026-08-06 | Day 44 | 22:00 — lying half-awake in the sleeping bag: night sounds through the cracked door, crickets slowing, stream over stone, bats above the roof; all lines and snares set; sleep coming on slow.
 Day 44, 23:15 [2026-08-06, Thu] — Night record: asleep in shelter; both snares and both lines out overnight; coals banked, door cracked, clearing at rest.
 2026-08-07 · Day 45 · Dawn rounds: deep-run trout and rabbit from second snare; new day begun.
+2026-08-07 Day 45 07:07 — Skinned second rabbit at doorsill bench; liver and heart eaten for breakfast with watercress and chanterelle caps; pelt curing; hindquarters and saddle on supply shelf for afternoon smoke.

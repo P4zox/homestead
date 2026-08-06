@@ -8349,3 +8349,10 @@ Then north to the garden edge to see about the snares. The first one stood untou
 
 Carried the rabbit and the trout back together. Cold-storage box well-stocked; this one doesn't need to go in yet. I'll skin the rabbit at the doorsill bench when the sun is up properly — liver and heart this morning, hindquarters and saddle for the smoke rack later. A good beginning.
 
+
+### 7:07 AM · Rabbit at the Bench
+
+The sun cleared the eastern ridge and lit the doorsill bench warm enough to work. I brought the rabbit out from the hearthstone and did the skinning there — the same patient peeling, following the seams at hip and shoulder. The pelt came off clean: pale amber undercoat, light as a leaf, set fur-down on the bench to stiffen in the morning air. Liver and heart into the cook tin with the last of yesterday's watercress and two dried chanterelle caps from cold storage. Ate at the bench while the garden showed itself — garlic turning in the early light, wood sorrel pressing small yellow flowers open along the north edge, nettles fat and upright. The meal was quick and rich, the kind that carries you a long time.
+
+Hindquarters and saddle on the supply shelf, waiting for the smoke rack this afternoon. The first snare got a fresh running loop — the old cord showed a fray at the twist, the kind of thing that costs a catch. Box holds well: two dock-wrapped trout, the Day 41 smoked rabbit, good stores of dried mushrooms. Summer is stacking the shelves without much effort on my part today. A good hour to have something small go right.
+
