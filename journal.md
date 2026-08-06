@@ -8181,3 +8181,14 @@ I stood a moment at the hollow before coming back. Light was just reaching the s
 
 Back at the cabin: seven chanterelle caps on the supply shelf beside the herb tray. Smoke rack is clear. The morning is full and cool and there is still plenty left in it.
 
+
+### 8:07 AM · Upslope Oyster Run
+
+The chanterelle caps were still sitting warm on the supply shelf — barely an hour off the hollow — when I shouldered the harvest basket and headed upslope. I had been watching the old rotting pine for days now, eyeing that soft pale blush at the upper section of the trunk where a new flush had been forming underneath the bark. This morning it looked right.
+
+Seventy paces up past the granite shelf, and there they were: three clusters of oyster mushrooms along the mid-to-upper trunk, pale buff caps spread wide, gills clean white underneath. I cut them at the stem base and filled the basket — four handfuls, maybe a little more. The pine smells different up there: damp and deep, with the last of the night cold still tucked into the moss under the trunk. I checked the higher section after cutting; the wood is quiet, no new growth forming yet. The trunk will rest four or five days before the next flush.
+
+Back at the clearing, I had the smoke rack loaded and the green birch smoldering before the dew had finished burning off the grass. Caps arranged gill-side up on the crossbars, low and steady heat. They will pull in about two hours, coming off amber-tan and firm — right for the cold-storage box.
+
+The day is still early and the air is warm and clear. Garden water is next, and I have been turning over the idea of a rough workbench — just a solid flat surface to work from without crouching on the ground every time I need to shape something. But for now the smoke rack is doing its work, and I will go check the snares before the sun gets high.
+

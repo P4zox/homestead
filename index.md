@@ -765,3 +765,4 @@ Day 43, 10:11 PM — Night Settling In — hearthcoals low and banked; lying on 
 2026-08-05 Day 43, 23:15 — Last hour of the night; cabin quiet, hearthcoals banked, crickets loud, both snares set and both lines in water; day ends well.
 2026-08-06 Day 44, 06:07 — Dawn rounds: deep-run gave seven-inch trout (cleaned, cold-stored; line reset); limestone pool bare (re-baited, reset); both snares on north garden-edge rabbit run empty overnight, triggers reset.
 08-06 07:07 — Day 44: chanterelle hollow checked upslope at birch deadfall — seven orange-gold caps (palm-wide, firm) harvested; two pins left to size up (~3 days); caps on supply shelf.
+2026-08-06 Day 44, 08:07 — Harvested oyster flush from upslope rotting pine (~70 paces); three clusters (pale buff caps, white gills, ~4-5 handfuls) cut at stem base; set on smoke rack over green birch smolder.
