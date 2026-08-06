@@ -8291,3 +8291,12 @@ Both triggers were standing. First snare: loop undisturbed, trigger notch engage
 
 The clearing was calm in that particular evening way — swallows cutting low arcs above the south meadow, the stream audible below the bank, both poles wedged and fishing lines in the water where I'd left them. I stood at the doorsill for a moment and watched the first pale stars appear above the eastern pines. The cold-storage box is full. The day's work is solid behind me: workbench built, oysters smoked, chanterelles cured, garden watered and tidied. There is nothing urgent now. Tonight I'll sit at the hearthstone and twist cord by firelight and let the day settle the way a good day should — slowly, without effort, into the dark.
 
+
+### 7:05 PM · Cord by Firelight
+
+The hearthfire is low now — just coals and one small yellow flame. I pulled the fiber bundle down and sat with my back against the south wall, the heat soft on my face, and began to twist.
+
+There is something honest about cord-making. Your hands know what to do, and the mind goes quiet. I was thinking, without quite meaning to, about the snares out in the dark — something came close today, left its sign beside the second trap and then turned away. I do not know if it will come back. Patience, mostly.
+
+Fourteen arm-lengths done by the time the flame guttered. Coiled and tied off, added to the growing supply, and let the coals fade. Both lines are in the water. Tomorrow morning will tell.
+
