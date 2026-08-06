@@ -8269,3 +8269,16 @@ The new workbench catches the full afternoon sun now on the east side of the she
 
 The snares are set and waiting on the north garden edge. Dusk in an hour or two. I will check them then.
 
+
+### 5:08 PM · Supper at the Doorsill
+
+The morning trout had been in cold storage since before full sunrise. I pulled it at the start of the supper hour, peeled back the dock leaf, and set it in the cook tin with two smoke-dried chanterelle caps and the watercress I'd gathered still dripping at the side-seep on the way back from the limestone pool this afternoon.
+
+The hearthcoals were at the right temperature without any tending. A day of cooking tends to leave coals like that: patient and even, needing nothing from you.
+
+I ate on the doorsill bench while the light went amber and the meadow grass turned the color of old straw. The new workbench around the east corner catches that same light — pale pine offcuts, flat chert wedges holding the surface true — and already I'm thinking about what I'll use it for next. A second pouch, maybe. The cord is deep; the hide is there.
+
+Both lines are in for the evening. The snares on the north garden edge are still set — I'll walk out at dusk to check them. Three nights without a catch, but the run is real and the loops are clean. These things take time.
+
+The food is good. The shelter holds. The evening is warm and the clearing is quiet in the way that means everything is in order.
+
