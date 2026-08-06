@@ -8207,3 +8207,12 @@ I rested my forearms on the top. Firm. No give. The plank face is rough but work
 
 The smoke still curls off the rack. The chanterelle caps wait on the supply shelf. The morning is mild and wide, and I have a bench in the right light to work from.
 
+
+### 10:05 AM · Oysters Off the Rack
+
+The birch smolder had burned down to white ash by the time I walked out — barely breathing, the rack above it still and quiet. Two hours since I set the caps. I pulled each one and turned it over: amber-tan throughout, no soft spots, the edges dried clean and curled slightly inward. Four good handfuls from the three clusters. I tapped the gills — dry, firm, the sound of something done right.
+
+Cold-stored in the box beside the trout and the smoked rabbit. Rack cleared and left bare in the morning light. Seven chanterelle caps still sit on the supply shelf from this morning's hollow visit, bright orange-gold against the pale bark. The workbench holds steady at my elbow — this morning's work already feeling like it's been there longer.
+
+The box is full. The rack is resting. Garden water is the next thing on the list.
+
