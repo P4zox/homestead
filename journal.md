@@ -8415,3 +8415,16 @@ The clearing is still at this hour. The pelt was still on the bench when I check
 
 Cold storage is genuinely full: three trout, two sets of smoked rabbit, oyster caps, mushrooms, blueberries. I don't want to take that for granted, but it's right to notice it plainly. Both lines in the water. Both snares set. Nothing pressing for the moment — that quiet is worth sitting in.
 
+
+### 1:07 PM · Pelt Scraped Clean
+
+The pelt had been lying fur-down on the doorsill bench since morning, the edges curling slightly as the moisture left them. At noon they had gone proper papery — sharp at the corners, a different sound when I tapped them. The center was still soft then, still giving a little when I pressed. I left it through the meal.
+
+By early afternoon it had settled. Not fully stiff — rabbit hide does not get stiff the way deer does, it stays somewhat supple even when set — but the membrane on the flesh side had tightened enough to hold against the knife. I moved to the outdoor workbench on the east side of the shelter: the light is good there in the early afternoon, shade enough to see without squinting.
+
+Held the pelt against the log top, fur-side down, and worked the knife flat along the flesh side in short angled passes. The caul membrane comes off in thin grey sheets when the hide is at the right stage — not wet enough to tear, not so dry it fights back. A few patches around the haunches needed extra attention where the fat had pooled. Went over the whole flesh side twice. By the end it was clean: pale gold, slightly shiny, smooth to the touch.
+
+Hung it on the wall peg beside the first pelt to finish drying. When it is fully dry I will work it with wood ash and the leftover doe brain, or simply smoke-set it as a rougher working piece for patching and straps. Either way it is past the hardest stage.
+
+Good to have two pelts moving toward something useful. The first one is already supple. Small furs will not keep you warm alone, but lined against a hat or worked into boot insoles, they will count.
+
