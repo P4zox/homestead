@@ -8461,3 +8461,14 @@ Turned it at twenty minutes. Again at forty. An hour at the rack and the flesh s
 
 Both pelts hanging on the wall pegs now, side by side. The first one from Day 41, amber-gold and broken in; this one new-set and a shade darker, still faintly fragrant with birch smoke. In winter I will be glad of both.
 
+
+### 5:07 PM · Supper, Doorsill, Amber
+
+The watercress has been sitting in the cold-storage box since mid-afternoon, stems still crisp from the side-seep. I pull one of the trout — the limestone pool fish from this morning — and carry everything to the hearth. The coals have been holding since noon; a handful of dry birch scraps to coax the heat back and the cook tin goes on.
+
+While it heats I sit on the doorsill bench and watch the smoke-rack embers cool to grey. Both pelts hang on the wall peg behind me, the newer one still faintly warm and smelling of smoke and tallow. The clearing has gone golden. Long shadows from the eastern pines reach almost to the garden now, and the mint and nettles are lit from the side — that particular quality of afternoon light that makes ordinary things look significant.
+
+The trout is done in a few minutes. I eat slowly, pulling the flesh from the bones in clean pieces, the watercress wilted soft around it. No rush. The deep-run line is in the water. Both snares are set. The cold-storage box is full. The cord coil is long. The bow is true.
+
+A few swallows working the clearing edge, dipping low over the garden rows. I watch them until the tin is empty, then rinse it at the stream and come back. The sky is still pale gold above the western ridgeline. Three or four hours of evening left.
+

@@ -791,3 +791,4 @@ Day 45, 2026-08-07, 13:07 — Second rabbit pelt fleshed at outdoor workbench; c
 2026-08-07 Day 45 14:20 — Twisted fourteen arm-lengths two-ply cord at east-wall workbench in afternoon shade; pelt still drying.
 Day 45, 15:05 — Limestone pool gave seven-inch trout (cold-stored); watercress gathered at side seep; earthworm fold spent — refill tomorrow at first light.
 [2026-08-07 16:10] Day 45 — Smoke-set second rabbit pelt over green birch smolder; flesh side amber-honey throughout, tallow-rubbed; both pelts complete on wall pegs.
+2026-08-07 Day 45, 17:07 — Supper at the doorsill: trout with watercress cooked over hearthcoals; swallows working the clearing in amber light.
