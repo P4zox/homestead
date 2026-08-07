@@ -788,3 +788,4 @@ Day 45 (2026-08-07) 10:06 — Morning bow practice in clearing: eight arrows twi
 Day 45, 2026-08-07 11:06 — Limestone pool check; seven-inch trout caught and cold-stored; grey heron on far bank; smoke rack running, pelt curing.
 Day 45, 12:07 — Smoked rabbit hindquarters and saddle pulled from rack (deep mahogany, press-firm); noon meal at doorsill; pelt curing.
 Day 45, 2026-08-07, 13:07 — Second rabbit pelt fleshed at outdoor workbench; caul membrane and fat scraped clean; hanging on wall peg to finish drying.
+2026-08-07 Day 45 14:20 — Twisted fourteen arm-lengths two-ply cord at east-wall workbench in afternoon shade; pelt still drying.

@@ -8428,3 +8428,14 @@ Hung it on the wall peg beside the first pelt to finish drying. When it is fully
 
 Good to have two pelts moving toward something useful. The first one is already supple. Small furs will not keep you warm alone, but lined against a hat or worked into boot insoles, they will count.
 
+
+### 2:20 PM · Cord in East Shadow
+
+The east wall throws a wide shadow by mid-afternoon, and I carried the lashing bundle to the new workbench and sat there through the warm part of the day. The pelt is hanging inside on its wall peg, still working toward dry. Both lines are in the water. Both snares are set. The smoke rack is cold and cleared. For a few hours, nothing needed me.
+
+I twisted cord — the old motion: draw two strands to arm-length, roll toward the knee, cross, roll again. Fourteen arm-lengths, two-ply, before the shadow crept past my knees. My hands know it without my mind now. I watched a pair of crows work the far treeline while I twisted, one calling and the other silent, the clearing still in that particular way it gets in deep summer.
+
+Forty-five days. The coil in my lap is dense and long. When I first came here I was careful with every arm-length of cord; now I can be generous with lashing and binding because there is always more coming from my own hands. That is the shape of how this place has changed — not the cabin or the garden or the cold-storage box alone, but the quiet accumulation of capacity. The cord is a kind of proof of that.
+
+The pelt should be ready for brain-tanning or smoke-setting by morning. I will decide which then.
+
