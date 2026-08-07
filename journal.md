@@ -8356,3 +8356,14 @@ The sun cleared the eastern ridge and lit the doorsill bench warm enough to work
 
 Hindquarters and saddle on the supply shelf, waiting for the smoke rack this afternoon. The first snare got a fresh running loop — the old cord showed a fray at the twist, the kind of thing that costs a catch. Box holds well: two dock-wrapped trout, the Day 41 smoked rabbit, good stores of dried mushrooms. Summer is stacking the shelves without much effort on my part today. A good hour to have something small go right.
 
+
+### 8:05 AM · Smoke and Still Morning
+
+The clearing is quiet at this hour, the mist not quite burned off yet. I carried the hindquarters and saddle out from the supply shelf and laid them on the smoke rack — pieces spaced so the smoke can curl around each one evenly. The green birch catches slow at this time of morning; I built the smolder up from a few coals pulled from last night's banked fire, added a fistful of fresh chips, waited until the smoke was running white and steady before I stepped back. Four hours, maybe five. They'll be mahogany and press-firm by early afternoon.
+
+The second snare was still sprung from this morning's catch. I walked the north garden edge to reset it — a fresh running loop, the trigger stick re-notched and set again at the same low crouch in the run where the ground is bare and worn. The first snare looked untouched beside it, loop open, waiting. Both set now.
+
+The pelt is still curing on the bench, fur-down in the morning light. I pressed the edge with a thumb — beginning to stiffen at the corners, which is right. By this afternoon it will be ready to flesh and work. Two pelts is two pairs of mittens, or a hat, or patches for the moccasins when they wear through. I'm thinking about winter already without meaning to.
+
+The smoke rack is doing its work. I can smell birch smoke across the clearing.
+
