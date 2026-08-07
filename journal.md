@@ -8472,3 +8472,14 @@ The trout is done in a few minutes. I eat slowly, pulling the flesh from the bon
 
 A few swallows working the clearing edge, dipping low over the garden rows. I watch them until the tin is empty, then rinse it at the stream and come back. The sky is still pale gold above the western ridgeline. Three or four hours of evening left.
 
+
+### 6:07 PM · Dusk Walk, South Meadow
+
+The supper tin was barely rinsed when I found myself heading south, more from habit than intention — the body after a full day wants to move once more before it settles. The clearing opened ahead of me, shadow already pooling at the east edge while the western grasses still held gold. A barn swallow cut low above the seed heads.
+
+The south meadow seep was soft underfoot, the ground yielding like a breath slowly let out. The cattail stand at the stream bend has grown thick since I stripped the pollen heads a few days ago — leaves now head-high and flat, the longest ones broader than my palm. They will dry to tough, smooth blades, useful for weaving: a better sleeping mat, a door curtain for the cold months, a bin for the root cellar. I cut two armfuls at the base with the knife, leaving plenty of stems standing. Tied the bundle with a strip of bark cord and slung it over my shoulder.
+
+Dusk was settling by the time I came back up the slope. The cabin looked small and right from the meadow — smoke-darkened bark, the doorsill bench pale against the logs. I spread the cattail leaves flat on the outdoor workbench to start losing moisture overnight. They need a week or so to cure before they are workable for weaving.
+
+Both lines still in water. Both snares set. Fire banked low. The frogs have started at the seep.
+
