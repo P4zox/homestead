@@ -8530,3 +8530,23 @@ Tomorrow I will dig earthworms from the north garden edge at first light, refill
 
 The frogs have not stopped. I can hear them through the gable wattle, low and steady, the sound the dark fills itself with. The hearthcoals are cold now. The sleeping bag is warm. Outside: the cattail leaves lie flat on the workbench, the snares wait on the north run, the lines hang in the deep run and the limestone pool — everything set, everything patient, everything waiting on morning. I have done what I could today. Two pelts complete. The larder full. The garden watered. Another fourteen arm-lengths of cord on the coil. It is enough. I let the night have the rest, and I am glad to.
 
+
+---
+
+# Day 46 — Saturday, 8 August 2026
+*midsummer · heavy dew, mist at stream bend, birdsong in pines*
+
+### 6:07 AM · Dawn Lines, Fresh Bait
+
+The sleeping bag was still warm when I woke — hearthcoals cold to the touch, frogs calling at the bend, the last of the night sounds. First light came grey and slow through the gable gap, dew so heavy on the clearing grass it soaked through my moccasins in the first ten paces.
+
+Both snares were untouched. I checked them first, as I always do now — trigger sticks in place, loops open and patient. Good. On to the stream.
+
+The deep-run line was bent and lively when I pulled the pole from under the bank. Seven-inch trout, olive-gold in the thin morning light. Cleaned it at the flat stream stone with the knife, dock-wrapped, into the cold-storage box before the sun had cleared the ridge. Line re-notched with the last worm from the old bait fold — barely alive but it served — and reset under the bank.
+
+Then I turned my attention to the north garden edge and dug earthworms with the digging stick. The soil there stays damp from the root cellar drainage and the creek shadow; the worms came up pale and fat without much coaxing. Counted out near two dozen into a fresh damp bark fold, pinched it shut, set it in the cold-storage box. The bait supply is good again.
+
+Limestone pool line was bare at dawn. Re-baited with one of the new worms, pole re-wedged deep under the far ledge shadow. The pool was clear and still, a kingfisher streaking upstream before I had the line fully settled — that sharp orange flash, low over the water, gone.
+
+Both lines in water now. Both snares set. Bait restocked. The day has barely started and nothing has been asked of me yet.
+

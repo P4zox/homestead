@@ -798,3 +798,4 @@ Day 45 · 2026-08-07 · 7:05 PM — Cord-twisting by hearthlight; fourteen arm-l
 2026-08-07 21:30 Day 45 — Before Sleep, Still: lay still by cooling hearth; thought forward to cattail weaving (seat pad for doorsill bench), Day 47 checks (buried log, chanterelle hollow); frogs at stream bend; settled toward sleep.
 2026-08-07 22:14 — Day 45 — Frogs, Darkness, Rest — lying in sleeping bag, frogs at stream bend, door latched, near sleep; earthworms and Day 47 checks on the mind.
 Day 45, 23:15 — Night holds; pelts finished, larder full, snares and lines set — fell asleep.
+2026-08-08 Day 46, 06:07 — Dawn rounds: deep-run trout caught and stored; earthworm bait restocked from north garden edge; limestone pool line bare at dawn, re-baited. Both lines in water, both snares set. Midsummer Saturday.
