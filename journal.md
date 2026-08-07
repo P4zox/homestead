@@ -8507,3 +8507,14 @@ Forty-five days since I woke in this clearing. The shelter is solid. The garden 
 
 I pulled the door to, dropped the latch bar. Coals banked. Ready to sleep.
 
+
+### 9:30 PM · Before Sleep, Still
+
+The coals are low. The door is latched. Through the gap above the hearth, the night air comes in cool and faintly damp — the last warmth leaving the stones.
+
+I have been lying here thinking about the cattail leaves on the workbench. A week until they are workable. A sleeping mat for the root cellar floor, or harvest baskets, or — and this feels right — a seat pad for the doorsill bench. The bench is sound; the sitting is harder after long days. Something to hold in mind for next week.
+
+Two pelts hanging. Two snares set. Box full. The bow draws true. Forty-five days in and the place feels less provisional than it did — the hearth, the latch, the daily rhythms settling into something real. Tomorrow: earthworms from the garden edge before the lines. Day 47: buried log and chanterelle hollow both due for a check.
+
+Frogs still at the stream bend. I will probably not notice when I stop hearing them.
+
