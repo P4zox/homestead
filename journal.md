@@ -8404,3 +8404,14 @@ On the far bank, a grey heron was standing absolutely still in the shallows, wat
 
 The smoke rack still running, the pelt still on the bench, both snares quiet on the garden border. The morning has spent itself in the right way — plenty done, nothing hurried.
 
+
+### 12:07 PM · Rabbit Off the Rack
+
+The smoke rack has been running since just after eight, and by noon the rabbit hindquarters and saddle are done — press-firm throughout, deep mahogany crust, the faint sweet undertone of green birch smolder in the meat. I pulled them off and set them on the supply shelf to cool, then spread the coals and damped the fire down.
+
+Made a simple noon meal from cold storage — one of this morning's trout, two dried chanterelle caps, a fistful of wood sorrel from garden row five. Quick in the cook tin over the last of the hearth coals. Ate at the doorsill bench in full overhead sun.
+
+The clearing is still at this hour. The pelt was still on the bench when I checked after eating — edges and far corners firm and papery now, center just yielding under the thumb. Another hour or two and it'll be ready to flesh. Good amber color spreading inward from the edges.
+
+Cold storage is genuinely full: three trout, two sets of smoked rabbit, oyster caps, mushrooms, blueberries. I don't want to take that for granted, but it's right to notice it plainly. Both lines in the water. Both snares set. Nothing pressing for the moment — that quiet is worth sitting in.
+
