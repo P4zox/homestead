@@ -8391,3 +8391,16 @@ I worked through all eight arrows twice, then gathered them from the bark and ch
 
 I hung the bow back on its peg. The rabbit still has hours yet on the rack. The pelt still has hours on the bench. Everything is tending itself for the moment, and the morning was worth standing in.
 
+
+### 11:06 AM · Limestone Pool, Heron
+
+The smoke rack had been running three hours by then — white birch smoke curling past the east eave in a slow, steady column. I pressed the rabbit pelt at the center and it still gave a little under the thumb. Needs another hour or two before it will be ready to scrape. The afternoon will be pelt work.
+
+With nothing pressing in the meantime, I walked the stream down to the limestone pool. The water was low and clear in the midday light, the channel narrowing between the two boulders and quickening into a bright ripple before settling in the pool's deep shadow. The birch pole was still wedged where I had set it at first light.
+
+Lifted it — resistance immediately, then the familiar live pull. A seven-inch trout, bright silver. Cleaned it at the flat pool stone, dock-wrapped, and carried it back to the cold-storage box. Both lines re-baited and back in the water before I left.
+
+On the far bank, a grey heron was standing absolutely still in the shallows, watching. I stayed quiet and watched it back. It did not move. Neither did I for a while. Eventually I left it there and walked back uphill through the birches.
+
+The smoke rack still running, the pelt still on the bench, both snares quiet on the garden border. The morning has spent itself in the right way — plenty done, nothing hurried.
+

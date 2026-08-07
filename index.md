@@ -785,3 +785,4 @@ Day 44, 23:15 [2026-08-06, Thu] — Night record: asleep in shelter; both snares
 Day 45, 08:05 — Rabbit hindquarters and saddle on smoke rack over green birch smolder; second snare reset on north garden-edge rabbit run; pelt curing fur-down on bench.
 Day 45 (2026-08-07) 09:00 — Watered garden (four cook-tin trips, all seven rows); mint runners pinched back; smoke rack smoldering; rabbit pelt curing on bench.
 Day 45 (2026-08-07) 10:06 — Morning bow practice in clearing: eight arrows twice at bark target twenty paces; form correcting; all eight arrows and fletching sound. Smoke rack running; rabbit pelt curing.
+Day 45, 2026-08-07 11:06 — Limestone pool check; seven-inch trout caught and cold-stored; grey heron on far bank; smoke rack running, pelt curing.
