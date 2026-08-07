@@ -8452,3 +8452,12 @@ Re-baited the hook with the last earthworm from the bark fold — that fold is s
 
 Came back to find the second rabbit pelt still on its wall peg. The edges are paper-firm now and the center is yielding down toward leather-dry. It should be ready to smoke-set by this evening or by morning at the latest.
 
+
+### 4:10 PM · Pelt to the Smoke
+
+The pelt was ready by four. I pressed the center with my thumb and it gave only slightly — that last bit of suppleness before the fiber closes for good. If I waited until morning it would stiffen on the peg and need wetting down again, so I opened the coals, laid a few green birch branches on the low embers, and coaxed a cold clean smolder. Draped a sheet of birch bark over the smoke rack to hold the smoke against the hide. The pelt went flesh-side-down across the lowest crossbar.
+
+Turned it at twenty minutes. Again at forty. An hour at the rack and the flesh side had gone that amber-honey color — warm and even, not blotchy — which means the smoke took all the way through. The grain felt tight and settled under my fingers when I lifted it off. I rubbed both pelts briefly with tallow at the hearthstone after, pressing the fat into the fiber while the hide was still warm from the rack. They came up soft.
+
+Both pelts hanging on the wall pegs now, side by side. The first one from Day 41, amber-gold and broken in; this one new-set and a shade darker, still faintly fragrant with birch smoke. In winter I will be glad of both.
+
