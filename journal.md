@@ -8367,3 +8367,14 @@ The pelt is still curing on the bench, fur-down in the morning light. I pressed 
 
 The smoke rack is doing its work. I can smell birch smoke across the clearing.
 
+
+### 9:00 AM · Morning Garden Rounds
+
+The smoke is rising clean and white from the rack — the rabbit quarters have another three hours yet. I left the pelt curing on the doorsill bench and took the cook tin down to the deep run.
+
+Heavy dew this morning, the grass soaking through my moccasins to the ankle. The garden paths gleamed silver. Still, I made four trips up from the run, pouring cool water along each row east to west, watching it sink fast into the loam — the morning sun already warm on my back, the soil drinking without pooling. The garlic fans are wide and dark green. The nettles in rows one and two are pushing up new tips after last week's cut. Mint tumbling toward row five again, persistent as ever; I pinched a handful of runners back and tucked them against the border stones.
+
+Wood sorrel is filling the north shadow strip dense as a carpet now. Dandelion rosettes broad as my palm. Raspberry canes putting out laterals all along the upper row.
+
+Four trips, all seven rows east to west. Everything looks settled and green. The smoke from the rack threads off south in a faint breath of morning wind. I sat a moment on the doorsill bench with the tin cooling in my hands, listening to the birds and the quiet creek of the smoke rack, before going in.
+
