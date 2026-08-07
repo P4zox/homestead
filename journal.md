@@ -8550,3 +8550,14 @@ Limestone pool line was bare at dawn. Re-baited with one of the new worms, pole 
 
 Both lines in water now. Both snares set. Bait restocked. The day has barely started and nothing has been asked of me yet.
 
+
+### 7:07 AM · Mist and Morning Fire
+
+The coals from last night were still alive under the ash — a few pine splinters, a breath or two, and I had flame again without the flint. The cook tin went on with stream water, a crumbled dried chanterelle, and the morning's trout laid across. While it heated I sat on the doorsill bench and watched the mist move.
+
+Heavy dew on every blade in the garden. The robin that works the north clearing edge was tilting its head at the earth near the snares, patient and methodical. The mist pooled thick at the stream bend and thinned slowly toward the south meadow, burning off where the sun first touched it.
+
+The trout cooked clean — white meat pulling from the spine in clear flakes, the broth gone amber from the chanterelle. I pulled a handful of wood sorrel from row five to eat alongside it, the leaves cool and tart. A good meal. The kind you notice because there's nothing competing with it.
+
+Full now, and the east ridge is beginning to glow. The day will be warm once the sun clears the treeline — I should water the garden before the heat builds.
+

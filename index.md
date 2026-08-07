@@ -799,3 +799,4 @@ Day 45 · 2026-08-07 · 7:05 PM — Cord-twisting by hearthlight; fourteen arm-l
 2026-08-07 22:14 — Day 45 — Frogs, Darkness, Rest — lying in sleeping bag, frogs at stream bend, door latched, near sleep; earthworms and Day 47 checks on the mind.
 Day 45, 23:15 — Night holds; pelts finished, larder full, snares and lines set — fell asleep.
 2026-08-08 Day 46, 06:07 — Dawn rounds: deep-run trout caught and stored; earthworm bait restocked from north garden edge; limestone pool line bare at dawn, re-baited. Both lines in water, both snares set. Midsummer Saturday.
+2026-08-08 | Day 46 | 7:07 AM | Mist and Morning Fire — morning trout cooked with chanterelle broth and wood sorrel; ate at doorsill bench while mist thinned over clearing
