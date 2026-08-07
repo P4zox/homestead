@@ -8518,3 +8518,10 @@ Two pelts hanging. Two snares set. Box full. The bow draws true. Forty-five days
 
 Frogs still at the stream bend. I will probably not notice when I stop hearing them.
 
+
+### 10:14 PM · Frogs, Darkness, Rest
+
+The hearthcoals are nearly cold now — just a faint warmth still rising from the clay pad, and the smell of woodsmoke sitting in the timber overhead. I am in the sleeping bag with the door latched, the clearing outside quiet except for the frogs at the stream bend. They have been loud all evening. I can hear them through the gaps in the gable wattle, a low insistent chorus that fills the dark between the trees. The cattail leaves on the outdoor workbench will be catching dew by now — long flat blades going limp as they cure. Both snares set. Both lines in water. I have said that so many times today it has become a kind of prayer before sleep.
+
+Tomorrow I will dig earthworms from the north garden edge at first light, refill the bait bark fold before either line comes up bare. Day 47 is the next check for the buried log — four tight white pins when I last lifted the lid — and the chanterelle hollow, two more buttons still swelling under bark. The cold-storage box is full enough that if neither line caught anything for three days, I would still eat well. That thought settles me more than most. I let my breathing slow. The frogs do not stop. The stream keeps on below them. I close my eyes and let the night do what it wants.
+

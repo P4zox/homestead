@@ -796,3 +796,4 @@ Day 45, 18:07 — Walked south meadow at dusk; cut two armfuls of cattail leaves
 Day 45 · 2026-08-07 · 7:05 PM — Cord-twisting by hearthlight; fourteen arm-lengths two-ply added to coil. Snares and lines set overnight. Settling toward sleep.
 2026-08-07 Day 45 20:05 — Night at the Doorsill: snares checked and reset, evening round complete; frogs, bats, stars; hearthcoals banked, door latched.
 2026-08-07 21:30 Day 45 — Before Sleep, Still: lay still by cooling hearth; thought forward to cattail weaving (seat pad for doorsill bench), Day 47 checks (buried log, chanterelle hollow); frogs at stream bend; settled toward sleep.
+2026-08-07 22:14 — Day 45 — Frogs, Darkness, Rest — lying in sleeping bag, frogs at stream bend, door latched, near sleep; earthworms and Day 47 checks on the mind.
