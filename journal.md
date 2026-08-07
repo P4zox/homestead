@@ -8525,3 +8525,8 @@ The hearthcoals are nearly cold now — just a faint warmth still rising from th
 
 Tomorrow I will dig earthworms from the north garden edge at first light, refill the bait bark fold before either line comes up bare. Day 47 is the next check for the buried log — four tight white pins when I last lifted the lid — and the chanterelle hollow, two more buttons still swelling under bark. The cold-storage box is full enough that if neither line caught anything for three days, I would still eat well. That thought settles me more than most. I let my breathing slow. The frogs do not stop. The stream keeps on below them. I close my eyes and let the night do what it wants.
 
+
+### 11:15 PM · Night Takes Hold
+
+The frogs have not stopped. I can hear them through the gable wattle, low and steady, the sound the dark fills itself with. The hearthcoals are cold now. The sleeping bag is warm. Outside: the cattail leaves lie flat on the workbench, the snares wait on the north run, the lines hang in the deep run and the limestone pool — everything set, everything patient, everything waiting on morning. I have done what I could today. Two pelts complete. The larder full. The garden watered. Another fourteen arm-lengths of cord on the coil. It is enough. I let the night have the rest, and I am glad to.
+
