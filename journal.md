@@ -8378,3 +8378,16 @@ Wood sorrel is filling the north shadow strip dense as a carpet now. Dandelion r
 
 Four trips, all seven rows east to west. Everything looks settled and green. The smoke from the rack threads off south in a faint breath of morning wind. I sat a moment on the doorsill bench with the tin cooling in my hands, listening to the birds and the quiet creek of the smoke rack, before going in.
 
+
+### 10:06 AM · Morning at the Mark
+
+The smoke rack was still threading white above the rabbit pieces when I unhooked the bow from its peg and carried it out into the sun. Eight arrows in the quiver, pine-bark target propped at twenty paces against the south shelter wall. I have not practiced seriously in days — too much building and processing and garden-tending, which are all good reasons but not sufficient ones.
+
+The first few arrows flew wide. My right elbow was drifting inward; I could feel the looseness before I even looked at where they fell. So I stopped, breathed, reset my anchor — string to the same corner of my jaw each time, left arm firm, fingers releasing without snatching. By the fifth arrow I had found the groove again. Three in a row landed within a palm's width of each other near center.
+
+Not hunting-ready at twenty paces, not consistently. But the bow is not the problem. The bow is as true as the day it was strung. The fault is in the archer, and the archer can be improved.
+
+I worked through all eight arrows twice, then gathered them from the bark and checked each one — vanes tight against the shafts, fine cord wraps holding firm, no wobble in any head. The morning had warmed while I stood there. Swallows were working the clearing edge in long low arcs, and the smoke from the rack drifted southeast in a straight column, which meant calm air and steady heat — good for curing.
+
+I hung the bow back on its peg. The rabbit still has hours yet on the rack. The pelt still has hours on the bench. Everything is tending itself for the moment, and the morning was worth standing in.
+
