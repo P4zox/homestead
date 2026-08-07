@@ -8439,3 +8439,16 @@ Forty-five days. The coil in my lap is dense and long. When I first came here I 
 
 The pelt should be ready for brain-tanning or smoke-setting by morning. I will decide which then.
 
+
+### 3:05 PM · Amber at the Pool
+
+Walked down to the limestone pool in the full weight of mid-afternoon. The sun had crossed its peak and was angling in from the west through the pines, turning the water a greenish gold where the light hit the shallows.
+
+The line was still set beneath the far ledge shadow. I crossed at the ford and crouched beside the pole — there was pull on the cork, not heavy but steady. Lifted it slow. A seven-inch trout, clean on the hook, bronze-green in the underwater light. Cleaned it at the flat pool stone as always, dock-wrapped it for the cold-storage box.
+
+Stopped at the side seep on the way back. The watercress there is filling in well — three or four good handfuls would be easy to cut. Took one small bunch, enough to go alongside supper, and left the rest to keep spreading. The ostrich fern behind it is waist-high now and getting fuller every week.
+
+Re-baited the hook with the last earthworm from the bark fold — that fold is spent now; I will dig more from the north garden edge at first light tomorrow. Re-wedged the pole back under the far ledge shadow, then stood for a moment in the dappled light at the pool edge. The heron from this morning was gone. A dragonfly worked the shallows in long arcing passes, nearly motionless in the air between each beat of its wings.
+
+Came back to find the second rabbit pelt still on its wall peg. The edges are paper-firm now and the center is yielding down toward leather-dry. It should be ready to smoke-set by this evening or by morning at the latest.
+
