@@ -8483,3 +8483,14 @@ Dusk was settling by the time I came back up the slope. The cabin looked small a
 
 Both lines still in water. Both snares set. Fire banked low. The frogs have started at the seep.
 
+
+### 7:05 PM · Fourteen Arm-lengths
+
+By the time the dusk finished I had already done more than I planned. The pelts are on the wall peg, both of them — smoke-amber, supple, finished. The cattail leaves lie flat on the outdoor workbench, cut and waiting, a week from being anything useful. It is a strange kind of satisfaction, looking at the things that will become things.
+
+I pulled the cord coil into my lap and started the familiar rhythm. The hearth gives enough light to work by in the evening — not much, but enough. Left thumb holds the fold, right wrist twists. It is a motion I do not think about anymore, which is how I know I have done it enough times. The shelter makes its own sounds at this hour: a coal shifting, the ridgepole creak, a moth at the bark wall. Fourteen arm-lengths by the time my hands slowed and I stopped wanting to keep going.
+
+Looped the coil and set it on the shelf. Both lines are in the stream. Both snares are set. Tomorrow I will dig more earthworms at first light — the bait fold ran dry today. The cattail leaves can sit. The buried log can sit. Everything waiting is already taken care of.
+
+I am glad for the day. I will sleep well tonight.
+
