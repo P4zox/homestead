@@ -794,3 +794,4 @@ Day 45, 15:05 — Limestone pool gave seven-inch trout (cold-stored); watercress
 2026-08-07 Day 45, 17:07 — Supper at the doorsill: trout with watercress cooked over hearthcoals; swallows working the clearing in amber light.
 Day 45, 18:07 — Walked south meadow at dusk; cut two armfuls of cattail leaves from stream-bend stand; spread on outdoor workbench to cure overnight (~1 week to workability).
 Day 45 · 2026-08-07 · 7:05 PM — Cord-twisting by hearthlight; fourteen arm-lengths two-ply added to coil. Snares and lines set overnight. Settling toward sleep.
+2026-08-07 Day 45 20:05 — Night at the Doorsill: snares checked and reset, evening round complete; frogs, bats, stars; hearthcoals banked, door latched.

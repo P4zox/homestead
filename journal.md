@@ -8494,3 +8494,16 @@ Looped the coil and set it on the shelf. Both lines are in the stream. Both snar
 
 I am glad for the day. I will sleep well tonight.
 
+
+### 8:05 PM · Night at the Doorsill
+
+The hearthcoals are down to a steady orange glow, and I sat on the doorsill bench after the cord-twisting with the door open behind me. The night air came in cool and damp from the direction of the stream, carrying pine and something green and muddy from the south meadow.
+
+The frogs are loud tonight — the ones at the stream bend and a few more from the seep side, going up and down in overlapping waves I can't quite track individually. Two bats over the clearing, the same quick angle-change flight every other night. I went out once to check the snares: both still set, both undisturbed, nothing caught yet. The trigger stick on the second snare had slipped an inch — I reset it before coming back in.
+
+The moon is past half and well west already; it rose early and will be down before midnight. Stars clear: Cassiopeia sitting up high, the Dipper swung around to the northeast. I stood in the clearing a minute looking up — the pines black against the blue-black sky — and then came back to the bench.
+
+Forty-five days since I woke in this clearing. The shelter is solid. The garden grows. The cold box is full. I'm not counting days the way I did at the beginning — there's less to count toward and more to simply tend. The cattail leaves spread pale on the outdoor workbench in the moonlight when I passed; they'll need a few more days before they'll weave. Both pelts hanging dry on the wall peg. Everything in order.
+
+I pulled the door to, dropped the latch bar. Coals banked. Ready to sleep.
+
