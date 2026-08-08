@@ -8581,3 +8581,14 @@ This bow took weeks of careful work: tiller passes, nock grooves, the long tallo
 
 The sun was warm across my arms when I brought the arrows in and hung the bow back on its peg. Midsummer morning, quiet, eight arrows in hand, and the feeling of being a little more ready than I was yesterday.
 
+
+### 10:05 AM · Stream Time, Sun Building
+
+Carried the cook tin down to the side seep first, fingers in the cold water among the cress stems. The watercress is thick now — bright green, crisp, smelling of cold stone and minerals. Pulled a good fistful, shook it off, wrapped it in dock leaf. Then moved up to the limestone pool.
+
+The pole was still set firm under the far ledge shadow. I eased it out and the line came up with a seven-inch trout — clean hook-set, still alive in the cold water. Cleaned it at the flat pool stone, dock-wrapped, and set the line again with a fresh earthworm from the bark fold. Pole re-wedged under the ledge.
+
+Sat at the pool edge for a few minutes after. The water is perfectly clear where it deepens into shade, and you can see the sand shifting on the bottom where the current crosses a shallow bar. A grey wagtail was working the near bank — quick, precise little movements, then gone upstream. I've seen this bird before, or one like it. It doesn't seem bothered by me anymore.
+
+Cold-storage box now holds four seven-inch trout. Both lines in water; snares undisturbed when I passed the garden.
+
