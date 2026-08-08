@@ -815,3 +815,4 @@ Day 46, 19:07 — Hearthfire kindled after dusk watch; yarrow tea at doorsill; d
 Day 46, 20:14 — Cord-twisting by hearthlight; fourteen arm-lengths two-ply added to coil; clearing quiet; fire low.
 2026-08-08 21:07 — Day 46 — Stepped outside under the midsummer stars (Dipper, Cassiopeia); fire banked to coals; latch bar down; heading toward sleep.
 Day 46, 2026-08-08 22:08 — Still Before Sleep: lying in sleeping bag by hearthcoals, stream audible through bark roof, doe-and-fawns crossing held in mind before sleep.
+2026-08-08 — Day 46, 23:07 — Settled to sleep; doe and two fawns at dry wash still in mind as the coals go quiet.

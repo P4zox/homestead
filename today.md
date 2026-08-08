@@ -16,3 +16,4 @@
 20:14 — Cord-twisting by hearthlight: fourteen arm-lengths two-ply added to coil; fire low and steady; doe and fawns at dry wash still clear in mind; heading toward sleep.
 21:07 — Stepped outside briefly under the midsummer stars (Dipper tilted west, Cassiopeia north); northeast wind cool in patches; doe and fawns still clear in mind; came back in — fire banked to coals, latch bar down, heading toward sleep.
 22:08 — In sleeping bag, fire banked to coals, latch bar down; stream audible through bark roof; doe-and-fawns crossing still in mind before sleep.
+23:07 — Asleep; fire banked to coals; stream audible through bark roof; doe-and-fawns crossing still at the edge of mind as sleep takes hold. End of Day 46.

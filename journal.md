@@ -8725,3 +8725,8 @@ Tomorrow: buried log with four tight white pins, chanterelle hollow with two tig
 
 I am not tired the way you are tired after a hard thing. I am tired the way you are tired after a good day.
 
+
+### 11:07 PM · Sleep Takes Me
+
+The coals breathe once, twice, and go quiet. I am already most of the way under — stream audible on my right, bark roof close and dark overhead, the faint smell of hearthsmoke settling into the sleeping bag. The doe crossed fifteen paces out. The fawns behind her, spots bright in the last light, legs uncertain on the stone at the wash’s edge. I held still and they passed. I held still and they passed.
+
