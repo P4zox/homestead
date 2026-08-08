@@ -8639,3 +8639,14 @@ By the time the bench shadow shifted, the crown was joined and the shape was cle
 
 At dusk I will take the bow down to the dry wash crossing. Fresh prints this morning, wind from the northeast, fifteen paces — everything is set. But that is the evening's work. This was the afternoon's, and I am glad I did it.
 
+
+### 3:08 PM · Flaps Before Dusk
+
+I sat with the doe hide offcut in the east-wall shadow and measured the ear flaps against my own ear, using the knife tip to score before I committed to the cut. Matching tabs: each one a palm's length, rounded at the bottom edge, squared at the top to meet the crown seam.
+
+The hide cut clean. Three awl holes down each long edge, cord through twice at the lower corners, running stitch up. The stitch line pulling both flaps snug against the crown seam junction — I took two extra wraps there so the join bears some weight without loosening.
+
+When I tried it on in the doorway, the whole cap settled level. Crown round, flaps resting easy. The wind came up the slope at that moment and I stood with it moving past my ears, which the cap covered, and thought: this is ready.
+
+Back on the supply peg, folded. The dusk watch is in three hours. I'll eat something light before I leave and be at the dry wash by 18:00 — in position before any deer comes down to cross.
+
