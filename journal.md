@@ -8697,3 +8697,9 @@ The doe was fifteen paces. She stepped into the wash without hurry — something
 
 Yarrow tea now, from the tin. The bow on its peg by the door. The approach path, the root mass, the fifteen-pace angle: I know it all. When I choose to go, I will be ready. Tonight I am content to have only watched.
 
+### 8:14 PM · By Hearthlight
+
+The fire is low and orange, just the right kind of light for cord-twisting. I pulled the bark-stripped inner fibers from the bundle near the hearth and set to work — two strands at a time, rolling against my thigh, then folding them back on each other while they try to unwind. Fourteen arm-lengths by the time I stopped counting. The coil grows.
+
+The doe and her fawns are still with me — the way they moved through the dry wash, unhurried and real. Tomorrow I will check the buried log and the chanterelle hollow. Tonight is just this: fire, cord, the clearing quiet outside. Both lines in water. The cap on its peg. The bow on its peg. Everything where it should be.
+
