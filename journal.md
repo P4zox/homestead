@@ -8615,3 +8615,14 @@ Three trout still in the box. Snares quiet all morning. Both lines in water. The
 
 I sat at the bench long after eating. There is something about midsummer noon — the world going white and still, everything stopped by the heat — that makes it easy to simply be here.
 
+
+### 1:08 PM · Dry Wash Scout
+
+Took the bow off its peg after the noon meal, settled the quiver on my shoulder, and walked upslope into the heat-quiet forest. The pines hold the afternoon differently than the mornings — air heavier, shadows harder-edged, the birdsong mostly gone until the day cools. Past the granite shelf overlook I stopped and looked back: the cabin roof, the smoke rack ribs, the garden rows vivid green below. It never looks small from up here, what I have built. It looks like something.
+
+Another twenty paces and the pines opened onto the dry wash I had marked eight days ago. The deer trail crossed it there at a narrow neck between two root masses — the kind of gap deer always find. I crouched beside the crossing and read what the ground was saying. Prints within a day, maybe less: a doe by the size and the dew-soft edge of the track, and behind her, slightly overlapping, two sets of smaller hooves. A doe and two young deer, most likely, working down from the northeast stands toward the tall birch on the south face of the wash where shade and browse would be thickest in this heat.
+
+I sat with my back against a pine and watched the crossing for a while. Nothing moved but a red squirrel crossing the far root mass, indifferent to me. The wash itself was dry — bare streambed gravel, a few flat stones warm from the sun. I noted where I would stand at dusk if I came to hunt: behind the north root mass, wind from the northeast, a clean angle on the crossing at ten to fifteen paces. The approach from the cabin is quiet all the way — no deadfall to snap, soft ground through the lower pines.
+
+I walked back slow, stopping at the granite shelf again to sit in the full light. The clearing spread out below, ordinary and mine. The snares were likely untouched; the lines were in the water; the garden was watered. A good afternoon to have gone somewhere, learned something, and come back with nothing but the knowledge of it.
+
