@@ -8686,3 +8686,14 @@ Stayed another quarter-hour after, watching the crossing empty, fixing it in min
 
 Came back through near-dark. Both snares untouched. Clearing quiet. I'll look at them properly at dawn.
 
+
+### 7:07 PM · Fire After the Watch
+
+Back inside with the cold of the pines still on me. I feed the hearth — dry pine bark first, then three small rounds from the east-wall stack — and crouch while it catches. The amber light spreads across the floor stones, and something that had been held still at the dry wash begins to uncoil.
+
+Stream water in the cook tin, two pinches of dried yarrow. While it heats I sit at the doorsill with the door half-open, watching the clearing go blue in the last light. The snare stakes are dark shapes at the garden edge. Both poles angled from their holds. First stars above the treeline.
+
+The doe was fifteen paces. She stepped into the wash without hurry — something long familiar to her — and the two fawns followed single-file. Spots still visible even in the dropping light. The flick of an ear, the easy weight lifting each hoof over gravel. The wind held northeast. They passed and the wash went quiet again.
+
+Yarrow tea now, from the tin. The bow on its peg by the door. The approach path, the root mass, the fifteen-pace angle: I know it all. When I choose to go, I will be ready. Tonight I am content to have only watched.
+
