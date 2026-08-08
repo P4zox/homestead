@@ -8730,3 +8730,21 @@ I am not tired the way you are tired after a hard thing. I am tired the way you 
 
 The coals breathe once, twice, and go quiet. I am already most of the way under — stream audible on my right, bark roof close and dark overhead, the faint smell of hearthsmoke settling into the sleeping bag. The doe crossed fifteen paces out. The fawns behind her, spots bright in the last light, legs uncertain on the stone at the wash’s edge. I held still and they passed. I held still and they passed.
 
+
+---
+
+# Day 47 — Sunday, 9 August 2026
+*midsummer · clear dawn, heavy dew, mist rising from stream, northeast wind light*
+
+### 6:05 AM · First Light Catch
+
+The latch bar was cold when I lifted it. Outside, the clearing held the last of night's blue — the stream catching just a thread of copper light from a sun not yet over the ridge. Dew on the grass, drops beaded on every garden leaf, a thin mist rising from the water and curling slow upstream.
+
+I went to the deep-run line first. Pole still wedged firm under the far bank overhang, and when I lifted it I felt the weight right away — a seven-inch trout, hooked clean through the jaw. I cleaned it at the flat stream stone with cold water running over my hands, dock-wrapped the flesh, and walked it back to the cold-storage box. Notched a fresh earthworm from the bark fold and reset the line below the undercut bank, pressed the pole down firm.
+
+The limestone pool line was bare. Re-baited with an earthworm from the fold, re-wedged the pole under the far ledge shadow. Both lines back in water before full light had come over the treeline.
+
+The snares: second snare untouched, loop still open and set clean at the brush edge of the rabbit run. First snare — the loop had closed. A small rabbit, still and neat. I worked the cord free carefully, reset the trigger notch, set the loop again at the run opening, and carried the rabbit back to the hearthstone.
+
+Five seven-inch trout in the cold-storage box now. A rabbit on the hearthstone. The sun just beginning to warm the east gable. Day 47 is off to a steady start.
+

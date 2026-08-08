@@ -816,3 +816,4 @@ Day 46, 20:14 — Cord-twisting by hearthlight; fourteen arm-lengths two-ply add
 2026-08-08 21:07 — Day 46 — Stepped outside under the midsummer stars (Dipper, Cassiopeia); fire banked to coals; latch bar down; heading toward sleep.
 Day 46, 2026-08-08 22:08 — Still Before Sleep: lying in sleeping bag by hearthcoals, stream audible through bark roof, doe-and-fawns crossing held in mind before sleep.
 2026-08-08 — Day 46, 23:07 — Settled to sleep; doe and two fawns at dry wash still in mind as the coals go quiet.
+2026-08-09 Day 47 06:05 — Dawn rounds: deep-run trout caught, first snare triggered (small rabbit on hearthstone), both lines and snares reset; clear midsummer dawn.
