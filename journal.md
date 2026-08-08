@@ -8712,3 +8712,16 @@ I was not out long. Just long enough to let the day land. The doe and fawns at t
 
 Came back inside. Fire banked to coals, the way I wanted it. Winter cap on the supply peg. Latch bar down. Tomorrow, buried log and chanterelle hollow; the cattail leaves curing on the bench.
 
+
+### 10:08 PM · Still Before Sleep
+
+The fire is coals now, and the shelter has gone warm and dark around me. I am in the sleeping bag with my back to the west wall, listening. Through the bark-smoke smell of the roof and the lingering yarrow from the tea tin, I can hear the stream. It never fully stops — just drops in pitch when the wind picks up and comes back cleaner when the wind settles again. The northeast wind is light now, the way it gets late.
+
+The doe and the two spotted fawns at the dry wash crossing are still in my mind — fifteen paces out, east to west, moving the exact way deer move when they think they are alone. The fawns stepping where the doe stepped. That will stay with me a while.
+
+Winter cap on the supply peg. Eight arrows in the quiver. Four trout in the cold-storage box, both lines in water. Both snares set on the north garden edge. The clearing is doing what clearings do while you sleep — going on quietly without you.
+
+Tomorrow: buried log with four tight white pins, chanterelle hollow with two tight pins, cattail leaves still curing on the outdoor workbench. One day at a time.
+
+I am not tired the way you are tired after a hard thing. I am tired the way you are tired after a good day.
+

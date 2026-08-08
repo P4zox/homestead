@@ -814,3 +814,4 @@ Day 46, 18:00 — Dusk watch at dry wash deer crossing; doe and two spotted fawn
 Day 46, 19:07 — Hearthfire kindled after dusk watch; yarrow tea at doorsill; doe and two fawns vivid in mind; bow on peg, ready.
 Day 46, 20:14 — Cord-twisting by hearthlight; fourteen arm-lengths two-ply added to coil; clearing quiet; fire low.
 2026-08-08 21:07 — Day 46 — Stepped outside under the midsummer stars (Dipper, Cassiopeia); fire banked to coals; latch bar down; heading toward sleep.
+Day 46, 2026-08-08 22:08 — Still Before Sleep: lying in sleeping bag by hearthcoals, stream audible through bark roof, doe-and-fawns crossing held in mind before sleep.
