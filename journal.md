@@ -8592,3 +8592,14 @@ Sat at the pool edge for a few minutes after. The water is perfectly clear where
 
 Cold-storage box now holds four seven-inch trout. Both lines in water; snares undisturbed when I passed the garden.
 
+
+### 11:05 AM · Thread and Shadow
+
+The outdoor workbench caught most of the morning sun; now, past eleven, the shelter wall is starting to throw a thin stripe of shade across its surface. I pulled a length of stripped inner bark from the bundle on the shelf, sat on the doorsill bench with the cord supply coil in my lap, and began twisting.
+
+There is no better midday task. The rhythm is almost mindless — pull, roll, ply, advance — and the hands stay busy while the mind goes quiet. The mist burned off hours ago and the clearing is in full sun, the garden rows throwing crisp shadows, the smoke rack standing idle.
+
+I thought about the two rabbit pelts hanging beside the herb tray. Soft, supple, amber-gold on the flesh side. At some point I will join them — maybe a small panel for extra warmth over the sleeping bag, or a pouch large enough for something useful. For now they cure and wait, and I keep adding cord to the coil.
+
+Fourteen arm-lengths done by the time the shade stripe reached the workbench edge. I set down the cord, drank from the bark vessel, and sat a moment in the doorway looking at the clearing. It was ordinary in the best way. Nothing threatening, nothing wanting. Just the day.
+
