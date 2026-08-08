@@ -8650,3 +8650,14 @@ When I tried it on in the doorway, the whole cap settled level. Crown round, fla
 
 Back on the supply peg, folded. The dusk watch is in three hours. I'll eat something light before I leave and be at the dry wash by 18:00 — in position before any deer comes down to cross.
 
+
+### 4:08 PM · Before the Watch
+
+The afternoon heat is sitting full and windless in the clearing — the kind of midsummer hour where everything slows. Birdsong has mostly dropped away to cicada drone. I walked out to check both lines before this evening's dusk watch.
+
+The deep-run gave nothing — hook clean in the current, bait gone. I pulled it, re-baited from the bark fold (half the worms still cool and lively), and set it back below the undercut bank for the overnight. The limestone pool was more generous: a bright seven-inch trout, silver in the afternoon glare. I cleaned it at the flat pool stone, dock-wrapped it with dock leaves, and brought it back to cold storage alongside the others. Line reset with a fresh earthworm under the far ledge shadow, pole wedged firm.
+
+I stood at the pool a little longer than necessary. The light was hitting the shallows at a low angle, turning everything amber and slow. The wind came off the northeast, steady and quiet — the same direction I need for the deer crossing this evening. No sound from the dry wash side of the ridge. Good.
+
+The cap is on the supply peg. The bow is on the wall. I'll eat light at 17:00 and be at the root mass before the light goes gold. Two hours to go.
+
