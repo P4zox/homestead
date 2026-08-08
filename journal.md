@@ -8626,3 +8626,16 @@ I sat with my back against a pine and watched the crossing for a while. Nothing 
 
 I walked back slow, stopping at the granite shelf again to sit in the full light. The clearing spread out below, ordinary and mine. The snares were likely untouched; the lines were in the water; the garden was watered. A good afternoon to have gone somewhere, learned something, and come back with nothing but the knowledge of it.
 
+
+### 2:08 PM · Two Pelts, One Crown
+
+The midsummer heat is at its full height now — white sun straight overhead, no shade until the pines' eastern shadows begin to lean in another hour. I lifted both rabbit pelts off the wall pegs and carried them to the outdoor workbench. Side by side on the dressed log surface, they looked like what they are: two small smoke-amber squares, each about the size of two palms laid flat. Individually, not much. Together, just enough.
+
+I have been turning the idea over since I finished the second pelt yesterday. A winter cap — two pieces stitched crown-to-crown, flesh sides in, fur turned out. Nothing elaborate. Even here in midsummer, thinking toward winter is not strange; it is just how time works on a homestead.
+
+I scored the center line on each pelt with the knife tip and matched the edges carefully, fur-side together. Then knife tip as awl — punching holes every two finger-widths along the crown seam, drawing fine two-ply cord through each in a tight running stitch. The cord pulled the hides together snug; the seam closed clean. The work is slow but not difficult. Birds moved through the pines, the garden stood quiet in the heat, and the stream carried on below.
+
+By the time the bench shadow shifted, the crown was joined and the shape was clear — round, fur-out, light in the hand. It needs ear flaps to be truly useful in hard cold; those will want a third piece, perhaps a scrap of doe hide cut from the remaining offcut on the supply shelf. For now the cap is folded over a peg to hold its shape until I can finish it.
+
+At dusk I will take the bow down to the dry wash crossing. Fresh prints this morning, wind from the northeast, fifteen paces — everything is set. But that is the evening's work. This was the afternoon's, and I am glad I did it.
+

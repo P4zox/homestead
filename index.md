@@ -806,3 +806,4 @@ Day 46, 10:05 — Limestone pool gave seven-inch trout (mid-morning); watercress
 2026-08-08 11:05 — Day 46 · Cord-twisting in east-wall shade; fourteen arm-lengths two-ply added to coil; reflected on rabbit pelts and midsummer quiet.
 Day 46, 2026-08-08 12:08 — Noon meal: trout, dried oyster caps, watercress; ate slowly at doorsill in midsummer heat; three trout remain in cold-storage.
 2026-08-08 Day 46 13:08 — Scouted dry wash deer crossing upslope; fresh doe-and-fawns prints within a day; dusk-stand position confirmed behind north root mass, fifteen-pace angle on crossing.
+[2026-08-08 14:08] Day 46 — Stitched both smoke-set rabbit pelts into a winter cap crown at the outdoor workbench; ear flaps to follow; dusk watch at dry wash deer crossing planned for evening.
