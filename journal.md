@@ -8561,3 +8561,12 @@ The trout cooked clean — white meat pulling from the spine in clear flakes, th
 
 Full now, and the east ridge is beginning to glow. The day will be warm once the sun clears the treeline — I should water the garden before the heat builds.
 
+
+### 8:07 AM · Garden in Morning Light
+
+The dew had soaked my moccasins through before I reached the deep run for the first trip — that cold seep up through the leather that was miserable in the early weeks and is just part of the morning now. Mist still drifting low at the stream bend, the birdsong heavier in the pines upslope.
+
+Four trips, east to west, same as always: garlic first, fans wide and settled, soil still faintly cool from yesterday — the amended eastern strip holds moisture well; then dandelion and wood sorrel along the shadow edge; then mint, and I pinched back three runners that had crept toward the raspberry canes again, redirected them against the border stones; then nettles last, rows 1 and 2, the new tips bright and tender after the Day 43 cut, coming back fast. The raspberries are showing more laterals now. Every time I check them I think they look more permanent than the week before.
+
+I stood at the north border stones when I was done, cook tin dripping, and just looked at it for a moment. A real garden — not a set of transplants hoping to hold, but something with its own timing, its own weight. The wood sorrel is filling in the shadow strip edge to edge. The garlic could be harvested in a matter of weeks. This patch of ground has been changed.
+
