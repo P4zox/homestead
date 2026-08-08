@@ -8748,3 +8748,14 @@ The snares: second snare untouched, loop still open and set clean at the brush e
 
 Five seven-inch trout in the cold-storage box now. A rabbit on the hearthstone. The sun just beginning to warm the east gable. Day 47 is off to a steady start.
 
+
+### 7:05 AM · The Third Pelt
+
+The sun has cleared the ridge — that first copper light gone fully gold. The rabbit waited patient on the hearthstone while I finished the morning rounds. I carried it out to the doorsill bench and worked through it the same way I have twice before: knife careful across the back legs, fingers easing the pelt down from the haunch, slow and deliberate around the shoulders and forelegs. The fur came away in one piece, pale smooth underskin, soft brown coat — a third pelt now curing fur-down on the bench beside me.
+
+Liver and heart went into the cook tin with two dried chanterelle caps and a splash of water, set low on the hearthcoals to draw slow. The hindquarters and saddle I loaded onto the smoke rack over a small greenwood bed — enough smoke to cure them through to midday, same as the last two rabbits. The bones I put aside. They will make a broth around noon, with whatever comes from the garden rows.
+
+Three rabbits in six days. The snares are doing quiet, patient work while I sleep. I have not had to think much about meat this past week, which is its own kind of wealth.
+
+I will check the buried log and the chanterelle hollow this morning — both were due today, four tight pins in the log and two in the hollow. After the smoke is settled and breakfast is done. There is no hurry. The smoke rack is doing its work and the day is clear and long.
+
