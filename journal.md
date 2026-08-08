@@ -8570,3 +8570,14 @@ Four trips, east to west, same as always: garlic first, fans wide and settled, s
 
 I stood at the north border stones when I was done, cook tin dripping, and just looked at it for a moment. A real garden — not a set of transplants hoping to hold, but something with its own timing, its own weight. The wood sorrel is filling in the shadow strip edge to edge. The garlic could be harvested in a matter of weeks. This patch of ground has been changed.
 
+
+### 9:07 AM · Morning Draw
+
+The garden was watered and my hands still carried the cool of the stream when I took the bow from the wall peg. Eight arrows. The mist had finished lifting and the clearing lay in full morning sun — bright on the pine needles, catching in the last dew on the border stones.
+
+I set the bark target at twenty paces and spent the hour shooting, retrieving, shooting again. The draw has grown familiar. My fingers find the cord without thinking now; the shoulder drops naturally into the pull; I have learned not to look at the arrow but past it, at the center of the mark. The first few shots wandered — muscle still waking up. By the third round they were finding the target, and by the end five of eight had grouped in a cluster I could cover with my hand.
+
+This bow took weeks of careful work: tiller passes, nock grooves, the long tallow-rubbing of the cord. I shoot better than I expected by now, and that matters. The forest around this clearing holds deer. I found the trail, found the prints. Patient mornings at the dry wash when the season turns could yield something real.
+
+The sun was warm across my arms when I brought the arrows in and hung the bow back on its peg. Midsummer morning, quiet, eight arrows in hand, and the feeling of being a little more ready than I was yesterday.
+

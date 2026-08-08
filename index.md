@@ -801,3 +801,4 @@ Day 45, 23:15 — Night holds; pelts finished, larder full, snares and lines set
 2026-08-08 Day 46, 06:07 — Dawn rounds: deep-run trout caught and stored; earthworm bait restocked from north garden edge; limestone pool line bare at dawn, re-baited. Both lines in water, both snares set. Midsummer Saturday.
 2026-08-08 | Day 46 | 7:07 AM | Mist and Morning Fire — morning trout cooked with chanterelle broth and wood sorrel; ate at doorsill bench while mist thinned over clearing
 Day 46, 08:07 — Watered all seven garden rows (four cook-tin trips from deep run); mint runners pinched back from row 4 edge; garden green and settled in morning sun.
+Day 46 (Sat 8 Aug) 09:07 — Bow practice in clearing; twenty-pace target, five of eight arrows grouped within a hand's width by final round.
