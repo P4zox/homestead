@@ -8661,3 +8661,14 @@ I stood at the pool a little longer than necessary. The light was hitting the sh
 
 The cap is on the supply peg. The bow is on the wall. I'll eat light at 17:00 and be at the root mass before the light goes gold. Two hours to go.
 
+
+### 5:08 PM · Before the Watch
+
+The afternoon has settled into that particular stillness that comes before dusk, when the light goes gold and slanted and the birds go quiet one by one. I ate light at the doorsill bench — a piece of smoked rabbit, a few sprigs of fresh wood sorrel from row 5, cold water from the bark vessel. No fire. The clearing feels held.
+
+My bow is on the peg. The quiver hangs beside it. I will not bring them tonight — you cannot loose an arrow from behind a root mass without ruining the whole sit, and the deer will either come within range of a still hand or they will not come at all. Tonight is about learning: the angle of approach, how long the doe lingers, whether the fawns follow close. The dry wash crossing has given itself up slowly — first the trail Day 38, then fresh prints this morning — and I do not want to push it faster than it wants to go.
+
+The watercress from the side-seep is cool and sharp, the way clean water tastes when it is also food. I finished it last and sat another minute with the tin empty in my hands, watching a yellow-billed wagtail work the garden border stones.
+
+Wind northeast and steady. Conditions are good. I will leave in fifty minutes, take the long way through the pines to come in from upslope, settle behind the north root mass before the light drops. I know that approach now well enough to walk it without thought, which means the deer will not hear me thinking.
+

@@ -809,3 +809,4 @@ Day 46, 2026-08-08 12:08 — Noon meal: trout, dried oyster caps, watercress; at
 [2026-08-08 14:08] Day 46 — Stitched both smoke-set rabbit pelts into a winter cap crown at the outdoor workbench; ear flaps to follow; dusk watch at dry wash deer crossing planned for evening.
 Day 46, 15:08 — Ear flaps cut from doe hide offcut and stitched to winter cap crown; cap complete and on supply peg; dusk watch at dry wash planned for 18:00.
 2026-08-08 16:08 Day 46 — Checked both fishing lines mid-afternoon before dusk watch; limestone pool gave seven-inch trout (cold-stored); deep-run reset for overnight; four trout in cold storage.
+Day 46, 17:08 — Ate light at doorsill (smoked rabbit, wood sorrel, cold water) before 18:00 dusk watch at dry wash deer crossing; conditions good, wind northeast.
