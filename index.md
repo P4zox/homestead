@@ -804,3 +804,4 @@ Day 46, 08:07 — Watered all seven garden rows (four cook-tin trips from deep r
 Day 46 (Sat 8 Aug) 09:07 — Bow practice in clearing; twenty-pace target, five of eight arrows grouped within a hand's width by final round.
 Day 46, 10:05 — Limestone pool gave seven-inch trout (mid-morning); watercress gathered at side-seep; grey wagtail noted at pool bank.
 2026-08-08 11:05 — Day 46 · Cord-twisting in east-wall shade; fourteen arm-lengths two-ply added to coil; reflected on rabbit pelts and midsummer quiet.
+Day 46, 2026-08-08 12:08 — Noon meal: trout, dried oyster caps, watercress; ate slowly at doorsill in midsummer heat; three trout remain in cold-storage.

@@ -8603,3 +8603,15 @@ I thought about the two rabbit pelts hanging beside the herb tray. Soft, supple,
 
 Fourteen arm-lengths done by the time the shade stripe reached the workbench edge. I set down the cord, drank from the bark vessel, and sat a moment in the doorway looking at the clearing. It was ordinary in the best way. Nothing threatening, nothing wanting. Just the day.
 
+### 12:08 PM · Noon at the Doorsill
+
+The sun is directly overhead now, and the clearing holds the heat differently than mornings. I have been moving since before it was light — lines, bait, the garden, arrows at the bark target, twisting cord in the east wall's diminishing shade. By eleven the shade had shrunk nearly to nothing, and my hands were telling me they had done enough.
+
+I brought one of the cold-stored trout out of the box, knocked two dried oyster caps loose from the shelf, and laid the watercress beside them. The cook tin went over hearthcoals that were still drowsy from morning — did not need much, just enough to wake them. The trout took about what it always takes. I ate slowly, in the doorway, with the clearing bright and still in front of me. The pines on the ridge were dark against white sky. No wind.
+
+Somewhere above the south meadow, a buzzard was making wide slow circles. The garden rows showed no movement — the mint, the nettles, all perfectly still in the heat. Even the stream sound seemed quieter than usual, or maybe I was just listening less carefully.
+
+Three trout still in the box. Snares quiet all morning. Both lines in water. The cattail leaves on the workbench will need a few more days before I can weave with them. I have been thinking about what to make — a sleeping mat to replace the rush one, perhaps, or a panel for the root cellar entrance. There is time to decide.
+
+I sat at the bench long after eating. There is something about midsummer noon — the world going white and still, everything stopped by the heat — that makes it easy to simply be here.
+
