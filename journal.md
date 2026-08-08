@@ -8672,3 +8672,17 @@ The watercress from the side-seep is cool and sharp, the way clean water tastes 
 
 Wind northeast and steady. Conditions are good. I will leave in fifty minutes, take the long way through the pines to come in from upslope, settle behind the north root mass before the light drops. I know that approach now well enough to walk it without thought, which means the deer will not hear me thinking.
 
+### 6:00 PM · Dusk Watch, Dry Wash
+
+The approach held quiet all the way from the granite shelf — long arc through the upper pines, feet careful on dry needles, wind in my face from the crossing side. Settled behind the old windfall's north root mass before the light dropped below the trees. Fifteen paces from where the prints were.
+
+Waited. The jays went first, then the smaller birds, then even the insects pulled back to something lower. The woods held what felt like a pause.
+
+They came from the east. The doe first — stopped at the dry wash edge, head high, ears turning. Two fawns with spots still showing, bunched at her flank. She stood there long enough that I stopped counting my breaths. Then across, quick and light, the fawns tight behind her, and into the west treeline.
+
+I didn't move until the light was gone.
+
+Stayed another quarter-hour after, watching the crossing empty, fixing it in mind. Fifteen paces. Northeast wind correct. Root mass gives full cover. Entry from the upper trail keeps scent off the approach. I know this place now — not as a mark on a route but as somewhere I've sat and waited and seen what I was waiting for.
+
+Came back through near-dark. Both snares untouched. Clearing quiet. I'll look at them properly at dawn.
+
