@@ -8703,3 +8703,12 @@ The fire is low and orange, just the right kind of light for cord-twisting. I pu
 
 The doe and her fawns are still with me — the way they moved through the dry wash, unhurried and real. Tomorrow I will check the buried log and the chanterelle hollow. Tonight is just this: fire, cord, the clearing quiet outside. Both lines in water. The cap on its peg. The bow on its peg. Everything where it should be.
 
+
+### 9:07 PM · Stars Before Sleep
+
+Stepped outside for a few minutes after banking the fire — just to let the night settle around me. The air was still warm, the way midsummer holds its heat long after dark, but the northeast wind had something cool running through it now and then. No moon. Stars thick overhead: the Dipper tilted west, Cassiopeia lifting toward the north — the same ones I watched from the granite shelf weeks back. The pines on the slope were shapes only, no colour. The deep run audible, steady and low.
+
+I was not out long. Just long enough to let the day land. The doe and fawns at the dry wash kept coming back — that fifteen-pace crossing, the spotted flanks, the easy pace of them. I will take that shot when the time is right. The snares are set, the lines are in, the cold-storage box is full. No hurry.
+
+Came back inside. Fire banked to coals, the way I wanted it. Winter cap on the supply peg. Latch bar down. Tomorrow, buried log and chanterelle hollow; the cattail leaves curing on the bench.
+
