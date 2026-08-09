@@ -830,3 +830,4 @@ Day 47, 3:05 PM — Third rabbit pelt pulled from smoke rack, cured and cold-sto
 Day 47, 17:07 · Dusk watch at dry wash — doe and two spotted fawns crossed fifteen paces out again; held still, did not draw; fawns still young; hunting window opens late summer; trout supper at doorsill in near-dark.
 Day 47 18:07 — Cord by Hearthlight: fourteen arm-lengths two-ply twisted by hearthfire; cattail leaf weaving planned for dawn Day 48; both lines in water, both snares set.
 Day 47, 2026-08-09, 19:07 — Evening at the doorsill: first stars over the clearing, Dipper over the north treeline, fireflies at the south meadow edge; planning tomorrow's cattail weaving (sleeping mat for hearth corner).
+Day 47, 20:07 — Yarrow tea by hearthfire; season's tally: box full, three pelts, cap done, bow ready, doe window ~3 weeks out; cattail weaving at dawn.

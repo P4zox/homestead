@@ -8875,3 +8875,13 @@ Both lines in water. Both snares set. Hearthfire steady. A full cold-storage box
 ### 7:07 PM · Evening at the Doorsill
 
 The hearthfire is burning low, two pine rounds holding steady, and I have come out to sit at the doorsill and let the evening be what it is. Both lines are in, both snares set, the days
+### 8:07 PM · Season's Tally
+
+Brewed yarrow tea from the narrow-fold envelope — three pinches steeped in the cook tin over the embers, liquid going gold in the low firelight. Sat on the rush mat with the tin between my palms and let the evening settle around me.
+
+I went through it in my mind: what I have, what still needs doing before the cold arrives in earnest. The cold-storage box is as full as it has ever been — seven trout, three sets of smoked rabbit, dried mushrooms, oyster caps, blueberries, pollen. Three rabbit pelts now, smoke-set and supple, waiting for the next fur piece. The winter cap is done on its peg. The bow is tuned, all eight arrows sound. The garden green and producing. Cord coiled on the shelf in good supply.
+
+What the winter still wants: more pelts. More smoked meat — the doe is the real prize, and that window is coming when the fawns wean, maybe three or four weeks out. Mittens from the three pelts already in hand, probably. And the cattail weaving starts at dawn tomorrow — sleeping mat for the hearth corner, a warmer arrangement as nights lengthen.
+
+There is enough. More than there was last month, more than the month before. The season has been generous with me. I drank the tea slow, fed the fire one last pine round, and watched the embers redden. This is a good evening to end a good day.
+
