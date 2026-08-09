@@ -8906,3 +8906,10 @@ Three smoke-set rabbit pelts. Seven trout in the cold-storage box. The doe and h
 
 Both lines in water. Both snares set. Bow strung and hanging. Everything I started today is where it should be. I let the day go and close my eyes in the dark.
 
+
+### 11:07 PM · Night Deepens
+
+The fire is down to its core — a red pulse under the ash that needs no tending. I can feel the night coming through the gable gap in slow cool drafts, and the stars framed there are bright and still. I am warm in the sleeping bag, heavy through the arms and shoulders after a full day. The creek sounds come through the walls low and constant, the same note it always holds. For a moment I think I hear one of the snare wires shift, but it is nothing — just the forest settling on its joints the way it does when the last of the warmth leaves the ground.
+
+Tomorrow: the cattail leaves, the sleeping mat, the first pass of the weave. But those are tomorrow's hands. Tonight there is only this — the ember-smell in the dark, the forest breathing quietly around the walls, the wakefulness thinning out like smoke rising into the vent gap and gone. The day was full. The cold-storage box is full. The lines are in the water and the snares are set. There is nothing left to hold onto. Sleep comes.
+
