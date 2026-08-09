@@ -826,3 +826,4 @@ Day 47, 10:05 AM — Watered garden (four trips, all seven rows east to west); m
 2026-08-09 13:05 Day 47 — Cord-twisting in east-wall afternoon shade; fourteen arm-lengths two-ply twisted and tallow-rubbed.
 Day 47, 2:05 PM — Smoke-set third rabbit pelt on lowest rack crossbar over low green birch smolder; sat in bench-shade while smoke rose; pelt ready ~15:30.
 Day 47, 3:05 PM — Third rabbit pelt pulled from smoke rack, cured and cold-stored; rack cleared; afternoon quiet.
+2026-08-09 · Day 47, 4:08 PM — Limestone pool seven-inch trout; sat by the pool in amber afternoon light; seven trout in cold storage.

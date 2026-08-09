@@ -8835,3 +8835,16 @@ Three rabbit pelts now. The first two are the winter cap — ears and all, alrea
 
 I laid it in the box beneath the oyster caps and closed the bark lid. Then I spread and damped the smoke rack coals, walked both snares — untouched, reset — and confirmed both fishing lines in the water. The afternoon was wide and quiet around me, amber light off the pine trunks, warm and still, the clearing settled into its last slow hours before evening. I came back to the doorsill bench with nothing urgent in hand. The day has been full already. I let that sit.
 
+
+### 4:08 PM · Amber Pool, Still Moment
+
+The afternoon had settled into itself by the time I went downstream to the limestone pool — the air still warm but without the weight of midday, the light coming in at a slant now and going gold across everything it touched. I set my bark vessel on the bank and checked the pole first: wedged firm under the far ledge, tip barely nodding. Then I drew the line up slow.
+
+A seven-inch trout. Same as always from this pool — firm, good shape, as if the pool keeps them to a particular size by some agreement I am not party to. I cleaned it on the flat stone, dock-wrapped it, and set it in the vessel with the others.
+
+Then, instead of immediately heading back, I sat down on the bank with my back against a birch root and let the pool just be a pool for a while. The water moved slowly in the deep center, barely a wrinkle above the current. A dragonfly worked the near margin — hovered, tipped sideways, disappeared over the bank. The shadow from the far ledge reached almost to my feet.
+
+I thought about the cold-storage box: seven trout now, three smoked rabbits, two rabbit pelts (three with today's new pelt), cord in heavy coils on the shelf, herb envelopes, pollen. The garden watered, the snares set, the fishing lines in. What a different picture from the first days — the tent, the axe, the knife, a few days of food. I did not try to articulate why the difference mattered; I just let it sit with me, the way the afternoon light sits on the pool.
+
+Re-baited with earthworm from the bark fold, re-wedged the pole under the far ledge shadow, left the line set for evening.
+
