@@ -8768,3 +8768,13 @@ After breakfast I went upslope. The buried log first, twenty paces north — fla
 Then the chanterelle hollow in the birch deadfall — forty paces upslope and east. Two pins from Day 44 had opened overnight into orange-gold caps, palm-wide, firm and heavy with moisture. Cut them at the base. They smell of apricot and old wood and something else I do not have a name for.
 
 Both harvests cold-stored beside the trout and smoked rabbit. Smoke rack still going; hindquarters and saddle have until midday. A useful morning.
+### 9:00 AM · Pool in Morning Light
+
+The smoke rack is ticking through its green birch smolder — I have until midday before I need to pull the rabbit haunches. I took the quiet window to walk the stream south to the limestone pool.
+
+The mist had mostly lifted from the meadow by then, thin wisps still caught in the crowns above the far bank, the water calm and cool-looking in full morning light. The pole was still wedged under the ledge shadow where I had set it at dawn. When I lifted it there was weight — a seven-inch trout, steady and ordinary, the pool giving the same gift it gives most mornings. Cleaned it at the flat stone beside the water, dock-wrapped, and carried it home in the bark vessel. Line re-baited with earthworm from the bark fold, pole back under the far ledge shadow.
+
+Coming up the stream margin I checked the cattail leaves on the outdoor workbench — the long blades have cured at their edges, still limber at the midrib. I turned them gently so both sides get even air. Another day, maybe less, and they will be at weaving workability. The mat I have in mind — wider than the rush one — wants them supple but not limp, and they are nearly there.
+
+The morning holds clear. The smoke rack runs. The cellar fills slowly, which is the right pace for August.
+
