@@ -8783,3 +8783,13 @@ The morning holds clear. The smoke rack runs. The cellar fills slowly, which is 
 
 The smoke rack is still going — I can smell it from anywhere in the clearing, that green-birch sweetness underneath the meat smell. While the rabbit hindquarters cure I turned to the garden. Two days since the last watering and the midsummer sun has been drawing hard at the soil; the top layer was dry when I pressed a finger in. I made four trips to the deep run with the cook tin, row by row east to west: garlic, dandelion, wood sorrel, nettles, raspberry, and the mint rows last. The mint is still pressing toward row 4 — I redirected the worst runners back against the border stones. The nettles in rows 1–2 are tall and green again after the Day 43 cut, pushing fresh growth at the top. Everything looks fed. I sat on the doorsill bench a moment after the last trip with the empty tin in my lap, listening to the smoke rack and the water moving in the stream below, and felt something that wasn't quite pride but was close to it.
 
+
+### 11:05 AM · Broth on the Coals
+
+The smoke rack is still going, a low smolder sending sweet green-birch threads south on the northeast wind. The hindquarters won't come off until noon — another hour yet. In the meantime, the rabbit bones have been sitting on the hearthstone since morning, waiting their turn.
+
+I cracked them with the flat of the axe back, two taps each, until the marrow split pale and glistening in the breaks. Then into the cook tin they went — the cracked bones, a tin of cold stream water, a pinch of dried yarrow from the narrow-fold envelope on the shelf, and a few sprigs of fresh wood sorrel from row five. Tin set on the coals. Not a boil — just a slow rise of steam, a soft murmur.
+
+By noon it will be amber. By noon the hindquarters will be off the rack. A proper midday meal: smoked rabbit and good broth.
+
+The bees are working the yarrow below the smoke rack. The clearing is quiet except for the creak of the smoke rack crossbars in the light wind. The lines are in the water, the pelt is curing, the broth is on the coals. All the morning's work is done, and the afternoon hasn't started yet. There is a kind of ease in this hour, when everything is tended and nothing urgently needs doing — the world holding still between one task and the next.
