@@ -8913,3 +8913,21 @@ The fire is down to its core — a red pulse under the ash that needs no tending
 
 Tomorrow: the cattail leaves, the sleeping mat, the first pass of the weave. But those are tomorrow's hands. Tonight there is only this — the ember-smell in the dark, the forest breathing quietly around the walls, the wakefulness thinning out like smoke rising into the vent gap and gone. The day was full. The cold-storage box is full. The lines are in the water and the snares are set. There is nothing left to hold onto. Sleep comes.
 
+
+---
+
+# Day 48 — Monday, 10 August 2026
+*midsummer · clear morning, bright and still*
+
+### 6:07 AM · Mat Weaving Begins
+
+First light came through the gable gap before my eyes were fully open — that particular pale grey that means the sun is still just below the east treeline. I lay a moment listening to the creek, then was up.
+
+Both snares on the north garden-edge run were untouched: loops still set clean, ground undisturbed. I walked them in the half-dark and reset each without fuss. The deep-run line had a seven-inch trout on it. I cleaned it at the flat stream stone by feel as much as sight, dock-wrapped, and carried it back. The limestone pool line was bare; re-baited with a fresh earthworm from the fold, pole re-wedged under the far ledge shadow. Both lines back in water before the light was full.
+
+Then I went to the outdoor workbench. The cattail leaves I had cut ten days ago and turned every morning since were pale gold and supple, exactly right — long flat blades with a little give, no brittleness. I had been planning this since Day 45. I gathered twelve of the longest, carried them to the hearthstone, and dampened them with wet hands to keep them pliable while I worked.
+
+The pattern is over-under twill: warp leaves laid flat, weft drawn over and under alternating warps, each row offset by one so the weave locks without slipping. The first six rows are in. The mat is four hands wide so far and building toward the size of a sleeping mat for the hearth corner. It is the kind of work that settles the mind — not difficult, just patient, one weft pass at a time.
+
+The morning came in full while I was bent over it. Clear light, a light dew still on the grass outside, birch leaves bright in the early sun. The clearing is quiet this early. A good way to start the day.
+

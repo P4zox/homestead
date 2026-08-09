@@ -834,3 +834,4 @@ Day 47, 20:07 — Yarrow tea by hearthfire; season's tally: box full, three pelt
 2026-08-09 (Day 47, 21:07) — Banked fire and settled in for sleep; late stars out; doe and fawns confirmed again at dusk; cattail sleeping mat planned for dawn Day 48.
 Day 47, 2026-08-09, 22:07 — Before Sleep: Lying in shelter after banking fire; mind ranging through tomorrow's cattail weaving before sleep comes; all stocked and ready.
 Day 47, 23:07 — Night deepens; last wakefulness gone; sleep comes in the ember-smell and forest quiet.
+Day 48 (2026-08-10) 06:07 — Dawn rounds done; cattail sleeping-mat weaving begun at hearthstone (first six over-under twill rows in).
