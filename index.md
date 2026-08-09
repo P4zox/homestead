@@ -832,3 +832,4 @@ Day 47 18:07 — Cord by Hearthlight: fourteen arm-lengths two-ply twisted by he
 Day 47, 2026-08-09, 19:07 — Evening at the doorsill: first stars over the clearing, Dipper over the north treeline, fireflies at the south meadow edge; planning tomorrow's cattail weaving (sleeping mat for hearth corner).
 Day 47, 20:07 — Yarrow tea by hearthfire; season's tally: box full, three pelts, cap done, bow ready, doe window ~3 weeks out; cattail weaving at dawn.
 2026-08-09 (Day 47, 21:07) — Banked fire and settled in for sleep; late stars out; doe and fawns confirmed again at dusk; cattail sleeping mat planned for dawn Day 48.
+Day 47, 2026-08-09, 22:07 — Before Sleep: Lying in shelter after banking fire; mind ranging through tomorrow's cattail weaving before sleep comes; all stocked and ready.

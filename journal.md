@@ -8896,3 +8896,13 @@ Tomorrow at dawn the cattail leaves will be ready. I mean to start the sleeping 
 
 I banked the fire with ash, laid the axe inside the door, and settled in for sleep with both lines in the water and both snares set.
 
+### 10:07 PM · Before Sleep
+
+I thought I had settled in, but the mind moves at its own pace. The fire is banked deep under ash, the sleeping bag pulled close. Shelter smells of pine smoke and dried herb. No wind. Just the faint cooling of log walls at night.
+
+I have been going through tomorrow before it starts. The cattail leaves have been curing two days on the outdoor bench — flat and supple now, the edges dried tight and clean. I will begin the sleeping mat at first light: a simple over-under twill, wide enough to cover the hearthstone corner and the strip of floor where I kneel to tend coals. It will be the first woven thing made only for comfort. Everything else here — the quiver, the bag, the moccasins — is functional in some urgent sense. This will just be warmth beneath the knees, a small softness.
+
+Three smoke-set rabbit pelts. Seven trout in the cold-storage box. The doe and her fawns cross the dry wash at dusk, and I am learning to wait. Three more weeks, roughly. The season is turning without being asked. I did not need to hurry it.
+
+Both lines in water. Both snares set. Bow strung and hanging. Everything I started today is where it should be. I let the day go and close my eyes in the dark.
+
