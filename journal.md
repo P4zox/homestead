@@ -8759,3 +8759,12 @@ Three rabbits in six days. The snares are doing quiet, patient work while I slee
 
 I will check the buried log and the chanterelle hollow this morning — both were due today, four tight pins in the log and two in the hollow. After the smoke is settled and breakfast is done. There is no hurry. The smoke rack is doing its work and the day is clear and long.
 
+### 8:05 AM · Two Good Harvests
+
+The rabbit liver and heart had finished on the coals by the time I cleaned my hands at the stream. Sat at the doorsill bench with the cook tin and ate — both chanterelle caps had gone soft and brown beside the liver, everything fragrant in the cooling morning air. The third pelt still cures fur-side-up behind me; smoke rack holding steady to the south.
+
+After breakfast I went upslope. The buried log first, twenty paces north — flat stone lifted, lid folded back. Four tight white pins from the Day 42 harvest had opened: pale cream caps, inch-and-a-half across, ivory-domed, gills clean and white. Cut all four at the stem base, cold-stored them in the box. Log face quiet and bare now; I will leave it a week.
+
+Then the chanterelle hollow in the birch deadfall — forty paces upslope and east. Two pins from Day 44 had opened overnight into orange-gold caps, palm-wide, firm and heavy with moisture. Cut them at the base. They smell of apricot and old wood and something else I do not have a name for.
+
+Both harvests cold-stored beside the trout and smoked rabbit. Smoke rack still going; hindquarters and saddle have until midday. A useful morning.

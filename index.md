@@ -818,3 +818,4 @@ Day 46, 2026-08-08 22:08 — Still Before Sleep: lying in sleeping bag by hearth
 2026-08-08 — Day 46, 23:07 — Settled to sleep; doe and two fawns at dry wash still in mind as the coals go quiet.
 2026-08-09 Day 47 06:05 — Dawn rounds: deep-run trout caught, first snare triggered (small rabbit on hearthstone), both lines and snares reset; clear midsummer dawn.
 Day 47, 07:05 — Processed third rabbit from morning snare: pelt curing fur-down on bench, liver/heart cooking on hearth, hindquarters and saddle on smoke rack over green birch smolder.
+2026-08-09 Day 47, 08:05 — Ate rabbit-liver breakfast at doorsill; checked buried log (four pale cream caps, cold-stored) and chanterelle hollow (two orange-gold caps, cold-stored); smoke rack still running until midday.
