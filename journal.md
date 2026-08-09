@@ -8793,3 +8793,16 @@ I cracked them with the flat of the axe back, two taps each, until the marrow sp
 By noon it will be amber. By noon the hindquarters will be off the rack. A proper midday meal: smoked rabbit and good broth.
 
 The bees are working the yarrow below the smoke rack. The clearing is quiet except for the creak of the smoke rack crossbars in the light wind. The lines are in the water, the pelt is curing, the broth is on the coals. All the morning's work is done, and the afternoon hasn't started yet. There is a kind of ease in this hour, when everything is tended and nothing urgently needs doing — the world holding still between one task and the next.
+
+### 12:05 PM · Smoke-Pull Noon
+
+The tin came off the coals first — dark broth, rich with bone and yarrow and the green bite of wood sorrel from row five. I poured it slow into the bark vessel and set it on the doorsill bench to cool while I went to the rack.
+
+The rabbit hindquarters and saddle had been over low green birch smolder since early morning — five hours at steady low heat. I pressed with my thumb: firm throughout, deep mahogany crust, the joints pulling clean. That is done meat. I lifted the pieces onto the supply shelf to cool, raked the rack coals flat, and let everything settle.
+
+Then I sat on the bench with the broth and drank it slow. Bone marrow had come out into the liquid — richer, almost fatty, a depth the trout broth never quite reaches. The yarrow and sorrel ran through without dominating. Filling in the way that stays with you into the afternoon.
+
+The third pelt is still beside me on the bench, fur-down, curing in the open air. Another day before it is workable. The cold-storage box holds three rabbit cures now — Day 41, Day 45, Day 47 — alongside six trout, the morning wild caps, and the usual stores. For Day 47 of midsummer, this is a well-stocked afternoon.
+
+Both lines still in the water. The clearing is warm and quiet.
+

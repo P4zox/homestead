@@ -822,3 +822,4 @@ Day 47, 07:05 — Processed third rabbit from morning snare: pelt curing fur-dow
 2026-08-09 Day 47, 09:00 — Limestone pool gave seven-inch trout; cattail leaves turned on workbench for even curing.
 Day 47, 10:05 AM — Watered garden (four trips, all seven rows east to west); mint at row 4 redirected; smoke rack running rabbit pieces; garden damp and settled.
 2026-08-09 Day 47 11:05 — Set rabbit bone broth on hearthcoals to simmer; smoke rack running, hindquarters pull at noon.
+[2026-08-09] Day 47, 12:05 — Noon: smoke-rack rabbit pulled (press-firm, mahogany crust, cold-stored); bone broth with yarrow and wood sorrel consumed at doorsill; third pelt curing; box holds three rabbit cures and six trout.
