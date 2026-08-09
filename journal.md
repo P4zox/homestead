@@ -8885,3 +8885,14 @@ What the winter still wants: more pelts. More smoked meat — the doe is the rea
 
 There is enough. More than there was last month, more than the month before. The season has been generous with me. I drank the tea slow, fed the fire one last pine round, and watched the embers redden. This is a good evening to end a good day.
 
+
+### 9:07 PM · Banked Fire, Late Stars
+
+The hearthfire is down to embers now, and I have laid the last pine round across the coals to hold heat through the early hours of night. Outside, the clearing is dark except for the stars — the Dipper tilted past its summer high, Cassiopeia rising on the north side. No wind. The crickets have taken over from the evening birds.
+
+I sat on the rush mat a little while, just being still. The day was full: trout at first light, a rabbit processed and smoked, cord twisted in east-wall shade, three pelts now smoke-set and stored, a dusk watch where the doe and her fawns moved through just as they did yesterday. Everything made today will still be here tomorrow morning when I step outside. That is the quiet satisfaction of this life — the work stays.
+
+Tomorrow at dawn the cattail leaves will be ready. I mean to start the sleeping mat for the hearth corner. A small thing after so many structural days, but a comfortable one.
+
+I banked the fire with ash, laid the axe inside the door, and settled in for sleep with both lines in the water and both snares set.
+
