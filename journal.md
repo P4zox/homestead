@@ -8778,3 +8778,8 @@ Coming up the stream margin I checked the cattail leaves on the outdoor workbenc
 
 The morning holds clear. The smoke rack runs. The cellar fills slowly, which is the right pace for August.
 
+
+### 10:05 AM · Watering the Rows
+
+The smoke rack is still going — I can smell it from anywhere in the clearing, that green-birch sweetness underneath the meat smell. While the rabbit hindquarters cure I turned to the garden. Two days since the last watering and the midsummer sun has been drawing hard at the soil; the top layer was dry when I pressed a finger in. I made four trips to the deep run with the cook tin, row by row east to west: garlic, dandelion, wood sorrel, nettles, raspberry, and the mint rows last. The mint is still pressing toward row 4 — I redirected the worst runners back against the border stones. The nettles in rows 1–2 are tall and green again after the Day 43 cut, pushing fresh growth at the top. Everything looks fed. I sat on the doorsill bench a moment after the last trip with the empty tin in my lap, listening to the smoke rack and the water moving in the stream below, and felt something that wasn't quite pride but was close to it.
+
