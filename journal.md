@@ -8931,3 +8931,11 @@ The pattern is over-under twill: warp leaves laid flat, weft drawn over and unde
 
 The morning came in full while I was bent over it. Clear light, a light dew still on the grass outside, birch leaves bright in the early sun. The clearing is quiet this early. A good way to start the day.
 
+### 7:09 AM · Trout at the Doorsill
+
+The trout from dawn is in cold storage, firm and clean. I pull it out before the hearth has fully woken, crumble two dried chanterelle caps into the cook tin with a handful of wood sorrel from row five, and set the whole thing over a few coals drawn forward from last night's banked fire. The birch leaves outside are bright now, catching the early light the way they do in midsummer when the sun comes in at an angle just low enough to edge each leaf separately.
+
+I eat at the doorsill bench, back against the lintel, feet on the threshold stone. The sorrel goes soft around the fish and the chanterelle gives everything a depth that dried things hold in a way fresh cannot. The clearing is very still — no wind, just the distant trickle of the stream and one wren moving through the undergrowth somewhere past the east treeline.
+
+Six rows of cattail mat waiting on the hearthstone behind me. The rest of the morning is for weaving.
+
