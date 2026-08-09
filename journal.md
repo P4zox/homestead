@@ -8817,3 +8817,12 @@ Cord does not ask much of you. You pull, you twist, you loop, you go on. My hand
 
 By the time the east-wall shadow had lengthened another hand-span, I had fourteen arm-lengths of two-ply cord, tallow-rubbed and coiled beside me. A good quiet hour.
 
+
+### 2:05 PM · Third Pelt, Rising Smoke
+
+The third pelt has been lying fur-down on the doorsill bench since morning — first rabbit of the day, taken clean in the loop snare before sunrise. By afternoon it has dried to the board, the flesh side pale and stretched. I scraped the last wet membrane from the edges with the knife spine, then set a low green birch fire under the smoke rack and draped the pelt flesh-side down across the lowest crossbar, far enough from the flame that the smoke curls up slowly.
+
+Pale blue smoke, almost sweet in the still air. The pelt will hang there an hour and a half — long enough to set the fiber, drive out any last moisture, give it that amber-tan cast the other two carry. Then cold storage for now, a fourth piece toward whatever winter gear comes next. The moccasins and cap are already made. Maybe mitts before the cold. Maybe an insulating liner for the sleeping bag. Time still to decide; the pelts will keep.
+
+I sat on the bench in the shade while the smoke did its work. The clearing held its August heft — heat-weight in the upper air, cooler along the stream. A jay cut a line across the open ground and banked south without landing. Both fishing lines in water, both snares set, the garden watered this morning. Everything running. It felt, briefly, like having enough.
+

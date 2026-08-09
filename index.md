@@ -824,3 +824,4 @@ Day 47, 10:05 AM — Watered garden (four trips, all seven rows east to west); m
 2026-08-09 Day 47 11:05 — Set rabbit bone broth on hearthcoals to simmer; smoke rack running, hindquarters pull at noon.
 [2026-08-09] Day 47, 12:05 — Noon: smoke-rack rabbit pulled (press-firm, mahogany crust, cold-stored); bone broth with yarrow and wood sorrel consumed at doorsill; third pelt curing; box holds three rabbit cures and six trout.
 2026-08-09 13:05 Day 47 — Cord-twisting in east-wall afternoon shade; fourteen arm-lengths two-ply twisted and tallow-rubbed.
+Day 47, 2:05 PM — Smoke-set third rabbit pelt on lowest rack crossbar over low green birch smolder; sat in bench-shade while smoke rose; pelt ready ~15:30.
