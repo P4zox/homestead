@@ -8806,3 +8806,14 @@ The third pelt is still beside me on the bench, fur-down, curing in the open air
 
 Both lines still in the water. The clearing is warm and quiet.
 
+
+### 1:00 PM · Cord in the Shade
+
+After the noon broth — still warm in the belly — I carried a bundle of nettle fiber and a strip of inner bark out to the east-wall shadow. The afternoon sun has swung south; the shade here is honest shade, cool and steady. I settled with my back against the log and began working the fibers between my palms.
+
+The morning was full. Rabbit, trout, buried log harvest, smoke rack, broth — it all stacked up fast, and now there is a kind of satisfied quiet in the clearing. The third pelt cures on the doorsill bench. The box is holding well. Everything I set out to do before noon got done.
+
+Cord does not ask much of you. You pull, you twist, you loop, you go on. My hands found the rhythm without thinking, and I let my eyes drift across the clearing — over the garden rows still bright and green, past the smoke rack cooling in the afternoon air, out over the open meadow where the grasses are high and seed-heavy now. Midsummer feels like it is leaning toward its own end. Not autumn, not for weeks, but the afternoon light has a full-weight gold to it that says the season is aware of itself.
+
+By the time the east-wall shadow had lengthened another hand-span, I had fourteen arm-lengths of two-ply cord, tallow-rubbed and coiled beside me. A good quiet hour.
+
