@@ -829,3 +829,4 @@ Day 47, 3:05 PM — Third rabbit pelt pulled from smoke rack, cured and cold-sto
 2026-08-09 · Day 47, 4:08 PM — Limestone pool seven-inch trout; sat by the pool in amber afternoon light; seven trout in cold storage.
 Day 47, 17:07 · Dusk watch at dry wash — doe and two spotted fawns crossed fifteen paces out again; held still, did not draw; fawns still young; hunting window opens late summer; trout supper at doorsill in near-dark.
 Day 47 18:07 — Cord by Hearthlight: fourteen arm-lengths two-ply twisted by hearthfire; cattail leaf weaving planned for dawn Day 48; both lines in water, both snares set.
+Day 47, 2026-08-09, 19:07 — Evening at the doorsill: first stars over the clearing, Dipper over the north treeline, fireflies at the south meadow edge; planning tomorrow's cattail weaving (sleeping mat for hearth corner).

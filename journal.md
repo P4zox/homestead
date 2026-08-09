@@ -8871,3 +8871,7 @@ The doe and fawns keep turning over in the back of my mind. That crossing fiftee
 
 Both lines in water. Both snares set. Hearthfire steady. A full cold-storage box.
 
+
+### 7:07 PM · Evening at the Doorsill
+
+The hearthfire is burning low, two pine rounds holding steady, and I have come out to sit at the doorsill and let the evening be what it is. Both lines are in, both snares set, the days
