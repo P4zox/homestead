@@ -827,3 +827,4 @@ Day 47, 10:05 AM — Watered garden (four trips, all seven rows east to west); m
 Day 47, 2:05 PM — Smoke-set third rabbit pelt on lowest rack crossbar over low green birch smolder; sat in bench-shade while smoke rose; pelt ready ~15:30.
 Day 47, 3:05 PM — Third rabbit pelt pulled from smoke rack, cured and cold-stored; rack cleared; afternoon quiet.
 2026-08-09 · Day 47, 4:08 PM — Limestone pool seven-inch trout; sat by the pool in amber afternoon light; seven trout in cold storage.
+Day 47, 17:07 · Dusk watch at dry wash — doe and two spotted fawns crossed fifteen paces out again; held still, did not draw; fawns still young; hunting window opens late summer; trout supper at doorsill in near-dark.

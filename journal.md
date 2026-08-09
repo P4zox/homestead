@@ -8848,3 +8848,15 @@ I thought about the cold-storage box: seven trout now, three smoked rabbits, two
 
 Re-baited with earthworm from the bark fold, re-wedged the pole under the far ledge shadow, left the line set for evening.
 
+
+### 5:07 PM · Dusk Watch, Dry Wash
+
+The clearing was still warm when I took the bow and quiver from their pegs and headed upslope. Past the granite shelf, east along the deer trail to the dry wash. Pine needles soft underfoot; the light already angling low and golden through the canopy.
+
+I settled behind the north root mass well before the sun dropped another hand's width. A jay scolded something far off. Spruce shadows stretched slowly across the wash floor. Nothing moved for a long time.
+
+Then — a few minutes past the deepest quiet — two fawns picked their way through the far brush, spots still showing on their hides. The doe followed behind them, head up, testing the air. Same line as last evening, fifteen paces out. She looked directly at me twice before moving on into the pines.
+
+I did not draw. The fawns are still young and the doe carrying them through the summer is not the right hunt. Late summer, when they are weaned and ranging on their own — that will be the time. I know where they walk now.
+
+Home in the last light. One trout from cold storage, wood sorrel from row five, two dried oyster caps — cooked in the cook tin over hearthcoals and eaten at the doorsill bench in near-dark, the clearing settling quiet around the fire.
