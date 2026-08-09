@@ -8860,3 +8860,14 @@ Then — a few minutes past the deepest quiet — two fawns picked their way thr
 I did not draw. The fawns are still young and the doe carrying them through the summer is not the right hunt. Late summer, when they are weaned and ranging on their own — that will be the time. I know where they walk now.
 
 Home in the last light. One trout from cold storage, wood sorrel from row five, two dried oyster caps — cooked in the cook tin over hearthcoals and eaten at the doorsill bench in near-dark, the clearing settling quiet around the fire.
+
+### 6:07 PM · Cord by Hearthlight
+
+After supper at the doorsill I came inside while the last amber faded from the clearing. Fed the hearth two pine rounds — enough to hold the warmth through the evening — and settled on the rush mat with the tray of stripped bark and nettle fiber.
+
+Cord-making is good evening work. Hands occupied, mind loose. Fourteen arm-lengths tonight, two-ply, tallow-rubbed and coiled on the shelf beside the morning batch. Tomorrow the cattail leaves should be workable — I turned them this morning and they felt close, the blades beginning to soften just right. A sleeping mat, probably. Something woven and flat to line the floor on the cold side of the hearth before the nights start running long.
+
+The doe and fawns keep turning over in the back of my mind. That crossing fifteen paces out, the fawns still spotted, still small. August will ripen. I will keep watching and waiting for the right moment.
+
+Both lines in water. Both snares set. Hearthfire steady. A full cold-storage box.
+
