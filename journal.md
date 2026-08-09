@@ -8826,3 +8826,12 @@ Pale blue smoke, almost sweet in the still air. The pelt will hang there an hour
 
 I sat on the bench in the shade while the smoke did its work. The clearing held its August heft — heat-weight in the upper air, cooler along the stream. A jay cut a line across the open ground and banked south without landing. Both fishing lines in water, both snares set, the garden watered this morning. Everything running. It felt, briefly, like having enough.
 
+
+### 3:05 PM · Third Pelt Cured
+
+The birch smolder had done its work by half-three. I crouched at the rack and lifted the pelt's edge — the flesh side had gone pale amber, dry and set clear through to the membrane. I folded it over my forearm and carried it in, fur out, the way a pelt asks to be held.
+
+Three rabbit pelts now. The first two are the winter cap — ears and all, already on the supply peg. This third one I have no plan for yet. Moccasin lining, maybe. A trim on the cap's ear flaps. Some cold night will make it obvious.
+
+I laid it in the box beneath the oyster caps and closed the bark lid. Then I spread and damped the smoke rack coals, walked both snares — untouched, reset — and confirmed both fishing lines in the water. The afternoon was wide and quiet around me, amber light off the pine trunks, warm and still, the clearing settled into its last slow hours before evening. I came back to the doorsill bench with nothing urgent in hand. The day has been full already. I let that sit.
+
