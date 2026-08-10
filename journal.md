@@ -9013,3 +9013,12 @@ Stopped at the side-seep on the walk back. The watercress there grows thick and 
 
 Both cold-stored now. The box is full and solid — seven trout, three lots of smoked rabbit, oyster caps, the pollen vessel, blueberries. The mat is still drying against the south wall; I pressed one corner on the way in — slightly damp still, but it will be ready by dark. Tonight will be the first night on it.
 
+
+### 4:09 PM · Orange Gold Again
+
+Walked upslope to the chanterelle hollow in the birch deadfall this afternoon, drawn by the knowledge that the Day 44 harvest had left two tight pins behind. Four days in midsummer is long enough — they tend to double overnight. I was right to go. The hollow had three palm-wide caps waiting: orange-gold and firm, gills clean and ridged in the way that says they're ready. I cut them at the base with the knife, tucked them into dock leaves in the shoulder bag, and left the two smaller ones — still button-sized, edges not yet spread — to have the hollow to themselves another day or two.
+
+The walk itself was good. The clearing laid out below the granite shelf in full afternoon sun: garden rows dark green and ordered, smoke rack standing easy, cabin door open to let the day's warmth out. Everything in its place. Coming back down through the ferns I thought about how different this hillside looks from the first week, when I was still learning which way the stream ran and where the ground softened. Now I know the slope the way I know my own hands.
+
+Cold-stored the three caps in the box alongside the trout. Supper will be light tonight — watercress and a trout from cold storage, with one fresh chanterelle on top.
+
