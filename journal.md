@@ -9104,3 +9104,19 @@ Now: the weight of the mat beneath me, the cooling air moving through the gap, t
 
 Sleep comes.
 
+
+---
+
+# Day 49 — Tuesday, 11 August 2026
+*midsummer · clear dawn, mist in the low places along the stream, warming quickly*
+
+### 6:07 AM · First Morning on the Mat
+
+The cattail mat held well. I woke with my cheek turned toward the south wall and the hearthfire down to cool ash and a thread of warmth. Outside: pale sky, mist hanging low along the stream, birdsong already moving through the pines. Day forty-nine.
+
+Both snares on the north garden-edge rabbit run were empty — loops intact, no disturbance in the soil. Reset them and moved to the lines. The deep run gave another seven-inch trout, clean on the earthworm bait. Cleaned it at the flat stream stone, dock-wrapped, cold-stored. Line re-notched with a fresh worm and reset below the undercut bank.
+
+The bait fold was nearly spent, so I dug a fresh dozen worms from the north garden edge before crossing to the pool — loose dark soil, earthworms easy, new damp bark fold stored cold. The limestone pool line was bare overnight. Re-baited and wedged the pole back under the far ledge shadow. Both lines in water by the time the mist had lifted.
+
+The third rabbit pelt is ready on the wall peg, the doe-hide offcut on the shelf. The mitten shapes settled in my mind last night by firelight. This morning is for cutting and stitching.
+
