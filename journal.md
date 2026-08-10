@@ -8993,3 +8993,12 @@ The noon trout is eaten and both lines are back in the water. The mat dries slow
 
 Fourteen arm-lengths of sound two-ply by the time the light shifted and a jay came to look me over from the corner post. Hands found the rhythm and stayed there — roll forward on the thigh, twist back at the join, press and advance. The clearing was quiet except for that jay and the occasional creak of a bough upslope. The work does not demand thought, and on afternoons like this one that is exactly right. The cord coil is heavier for the hour.
 
+
+### 2:00 PM · Third Pelt, Afternoon
+
+After cord-twisting through the warmest part of the day, I pulled the third rabbit pelt from cold storage. Smoke-set since yesterday, the flesh side had gone a pale amber — firm, a little stiff at the edges. I carried it to the doorsill bench where the angle of afternoon light is good and the east eave gives shade.
+
+The work is simple and slow: fold, pull, fold again. I draped the pelt over my knee and worked the flesh side in small circles with the heel of my hand, pressing into the grain, breaking it down. Where it resisted, I stretched it between thumb and fingers until I felt the fibers give — a small release, almost audible. An hour of this and the stiffness was mostly gone. Near the center, where the hide had been thickest, it went almost buttery. By the edges, thinner, the pelt was already past supple.
+
+I do not yet know what it will become. Two pelts are already in the winter cap. This one might join them, or it might go toward something for the hands or feet — rough mittens, or a simple liner for the moccasins against the cold months. For now it hangs on the wall peg beside the cap, softened and waiting. The afternoon is still warm. The clearing is quiet. That is enough.
+
