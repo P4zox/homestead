@@ -853,3 +853,4 @@ Day 48, 21:00 — Yarrow tea at dying hearthcoals; held the rabbit pelt and plan
 Day 48, 22:14 — Settled onto the new cattail mat for the first time; hearthfire at coals, stars bright, snares set, both lines in water; reflected on forty-eight days of careful building before sleep.
 Day 48, 23:00 (2026-08-10) — Lay on the new cattail mat by dying hearthcoals, reflected on forty-eight days built from almost nothing, and let sleep come at last.
 2026-08-11 | Day 49 | 06:07 | Dawn rounds: snares empty, deep-run seven-inch trout caught, bait fold replenished, both lines reset. First morning on cattail mat.
+Day 49, 07:05 — Right mitten complete (rabbit-fur back, doe-hide palm, thumb gusset, fur-side in); left mitten pieces cut and punched, ready to stitch — Tue 11 Aug 2026

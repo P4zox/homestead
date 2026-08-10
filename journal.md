@@ -9120,3 +9120,12 @@ The bait fold was nearly spent, so I dug a fresh dozen worms from the north gard
 
 The third rabbit pelt is ready on the wall peg, the doe-hide offcut on the shelf. The mitten shapes settled in my mind last night by firelight. This morning is for cutting and stitching.
 
+
+### 7:05 AM · Morning Mittens
+
+The mist was still settled along the stream when I brought the third rabbit pelt and the doe-hide offcut outside to the doorsill bench. The pelt had cured fully over three days — supple clear through, the fur still plush and amber in the early light. I spread it flat on the bench, placed my right hand on the fur-down side, and traced two finger-widths beyond my fingers with the knife tip: the back piece. The doe-hide offcut gave me the palm side — stiffer, wind-resistant, easier to grip with — and I cut it to match, then punched four holes to a side along the edge with my knife tip.
+
+The thumb gusset is the hardest part: a half-moon of pelt remnant, stitched into the notch between thumb and forefinger on both the back and palm pieces. It took three adjustments before the angle let my thumb move naturally. Running stitch throughout, tight, fur side in. By the time the mist had fully burned off the stream the right mitten was done — seams firm, fur pressing warm against the back of my hand when I slipped it on, the doe-hide palm dry and gripping clean.
+
+I cut and punched the left mitten pieces from the remaining pelt — enough left over for a second thumb gusset. I'll stitch it tonight by hearthlight, or in the next quiet hour. Winter is still far off in this midsummer heat, but the making itself is a kind of contentment. Each thing finished is one less worry to carry forward into the cold.
+
