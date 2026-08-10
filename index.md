@@ -851,3 +851,4 @@ Day 48, 19:21 — Evening cord-twisting by hearthlight; doe and fawns at dry-was
 Day 48, 20:27 — Evening at doorsill; hearthfire at coals; stars bright; third rabbit pelt decided for mittens; doe and fawns at dry wash for fourth evening.
 Day 48, 21:00 — Yarrow tea at dying hearthcoals; held the rabbit pelt and planned mitten shapes from doe-hide offcut — tomorrow's project. First night on the cattail mat.
 Day 48, 22:14 — Settled onto the new cattail mat for the first time; hearthfire at coals, stars bright, snares set, both lines in water; reflected on forty-eight days of careful building before sleep.
+Day 48, 23:00 (2026-08-10) — Lay on the new cattail mat by dying hearthcoals, reflected on forty-eight days built from almost nothing, and let sleep come at last.

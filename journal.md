@@ -9089,3 +9089,18 @@ Forty-eight days. I did not plan to count just now, but it arrived on its own. F
 
 Stars through the gable gap, bright as I have ever seen them here. Hearthcoals cooling in the dark. The mat holds me just fine.
 
+
+### 11:00 PM · Night's Edge
+
+The gable gap is a dark square above, and through it — stars. The cattail mat holds its shape under me, still carrying a faint field smell from the drying. It is not as soft as the sleeping bag alone, but it is mine, woven in four hours at the hearthstone this morning, and that matters in a way softness does not.
+
+Forty-eight days. I have counted them, but I stopped feeling them as a number a long while back. Time on the homestead moves in the rhythm of the lines and the snares and the garden rows, in the gathering and the building, and then it bends back and I realize: there is a cabin. There is a root cellar. There is a garden with seven rows and sixteen garlic plants. There are eight arrows in a birch-bark quiver. There is enough smoked rabbit and trout in the cold-storage box to last the week without a catch.
+
+I started with almost nothing. A tent. An axe. A few days of food.
+
+The coals are orange-gray, cooling. The clearing is warm and still. Both lines are in the water. Both snares are set. Tomorrow I will dig worms at first light, work the doe-hide offcut before cutting, check the snares, water the garden when the dew is off. But that is tomorrow.
+
+Now: the weight of the mat beneath me, the cooling air moving through the gap, the faint pop of a settling coal. The life built here, settling around me like a house at rest.
+
+Sleep comes.
+
