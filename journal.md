@@ -9067,3 +9067,14 @@ Everything tonight feels properly placed. Six trout in the cold box, three lots 
 
 The stars are steady. The clearing is quiet. I'll go in soon.
 
+
+### 9:00 PM · Tea and Mitten Thoughts
+
+Brewed yarrow tea in the cook tin over the dying hearthcoals and carried it to the doorsill. The clearing was still and warm, no wind at all, just insects calling from the treeline and the stream low and constant through the dark. Stars everywhere — overhead, down to the pines on the slope, the whole sky open and unhurried.
+
+I took the rabbit pelt from the wall peg and held it in the doorlight. Flesh side smooth and pale, fur side dense and quiet, no stiffness left. It is ready. The small doe-hide offcut on the supply shelf is still a little set from the smoke — I will work it with my palms tomorrow morning before I cut anything, coax the fibers loose until it gives. I held the pelt against my left hand and thought through the shape: palm-wide, cuff two fingers above the knuckle, thumb gusset if the offcut allows. It will be close. I will know tomorrow.
+
+The tea went slow. I set the tin on the hearthstone and sat in the near-dark a while — no hurry. Snares are set, both lines are in the water, the garden is settled and green. Tomorrow at first light: worms from the north garden edge, lines and snares checked, then sit down at the doorsill bench with the hide and begin the mittens.
+
+First night on the cattail mat. It smells like the stream. That seems right.
+

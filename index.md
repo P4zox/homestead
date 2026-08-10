@@ -849,3 +849,4 @@ Day 48 (Mon 10 Aug 2026, 17:09) — Supper at doorsill: trout, fresh chanterelle
 Day 48, 18:10 (Mon 2026-08-10) — Dusk watch at dry wash: doe and twin fawns crossed at forty paces, same time and route as Day 47. Twins more confident. Three weeks to the hunting window.
 Day 48, 19:21 — Evening cord-twisting by hearthlight; doe and fawns at dry-wash crossing for the fourth consecutive evening; fourteen arm-lengths two-ply added to coil; night warm and still, stars overhead.
 Day 48, 20:27 — Evening at doorsill; hearthfire at coals; stars bright; third rabbit pelt decided for mittens; doe and fawns at dry wash for fourth evening.
+Day 48, 21:00 — Yarrow tea at dying hearthcoals; held the rabbit pelt and planned mitten shapes from doe-hide offcut — tomorrow's project. First night on the cattail mat.
