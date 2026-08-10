@@ -8939,3 +8939,12 @@ I eat at the doorsill bench, back against the lintel, feet on the threshold ston
 
 Six rows of cattail mat waiting on the hearthstone behind me. The rest of the morning is for weaving.
 
+
+### 8:10 AM · Weaving in Morning Light
+
+Settled back at the hearthstone after breakfast, twelve dampened cattail leaves spread flat around me on the floor. The mat is over-under twill — each blade over two, under two, offset by one from the row before — and once your hands learn the pattern they stop needing to count.
+
+Six rows in from the early start. I added four more this hour, pressing each row tight against the last with a flat stick and squaring the edges. The leaves are still pliable, giving a little as I tuck each one. When they dry they will stiffen into something that holds its shape, and that stiffening is what makes the mat worth having — it needs to last under a sleeping body through months of winter cold, laid on the root cellar floor or against the shelter wall.
+
+Ten rows done now. I can see the mat taking shape, the pattern locking in. A few more hours of this work, and I will have something solid underfoot.
+
