@@ -8986,3 +8986,10 @@ Back at the hearth I cooked it simple — trout with two dried oyster caps and a
 
 There is a whole afternoon ahead. The box is full. The sky is clear. I am not in a hurry.
 
+
+### 1:05 PM · Cord at the Bench
+
+The noon trout is eaten and both lines are back in the water. The mat dries slow under the sleeping bag against the south wall — I can hear nothing wrong with it, which means it is settling right. The afternoon is at its warmest now, sun off the ridge and flooding the clearing from the south. I carried the cord-making bundle out to the outdoor workbench on the east side of the shelter where the eave throws a thin strip of shade, and set to work there: inner bark strips split fine, tallow tin, the growing coil laid in a loose ring on the bench surface.
+
+Fourteen arm-lengths of sound two-ply by the time the light shifted and a jay came to look me over from the corner post. Hands found the rhythm and stayed there — roll forward on the thigh, twist back at the join, press and advance. The clearing was quiet except for that jay and the occasional creak of a bough upslope. The work does not demand thought, and on afternoons like this one that is exactly right. The cord coil is heavier for the hour.
+
