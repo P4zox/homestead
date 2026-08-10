@@ -9031,3 +9031,17 @@ The clearing in this light looks almost painted. The new sleeping mat is drying 
 
 I ate slowly, the way I try to when the light is like this.
 
+
+### 6:10 PM · Watch at the Dry Wash
+
+The amber light has gone deep orange by the time I set out — supper settled, the tin rinsed and set on the bench, the hearth coaled down to a steady glow. I take the bow on its sling, more out of habit than intent, and follow the deer trail upslope past the granite shelf to the dry wash where it cuts east.
+
+I find a sitting spot on a flat stone at the wash's edge, downwind, and go still. Birdsong has thinned to a few late thrushes. The sky above the pines holds color a long time.
+
+They come at twenty past the hour — the doe first, stepping out of the alders on the far bank, ears working. Then the twins behind her, still spotted but carrying themselves with more certainty than last week. The doe drinks at the seep below the crossing, forty paces, and the fawns press close. She lifts her head once in my direction, then lets it go. Three minutes, maybe four, and they're into the aspens on the eastern slope.
+
+Same time, same crossing, same direction. They're settled into a route.
+
+Three weeks, give or take. When the fawns are weaned and ranging their own, the doe will be ranging wider — and I'll know where she crosses.
+
+I walk home in near-dark, the clearing lit faintly below the last of the sky. The new sleeping mat is waiting, flat and dry against the south wall. Tonight is its first night.
