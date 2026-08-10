@@ -848,3 +848,4 @@ Day 48, 16:09 — Chanterelle hollow (birch deadfall upslope) checked: three pal
 Day 48 (Mon 10 Aug 2026, 17:09) — Supper at doorsill: trout, fresh chanterelles, watercress in amber evening light; six trout remain in box; first night on the cattail sleeping mat ahead.
 Day 48, 18:10 (Mon 2026-08-10) — Dusk watch at dry wash: doe and twin fawns crossed at forty paces, same time and route as Day 47. Twins more confident. Three weeks to the hunting window.
 Day 48, 19:21 — Evening cord-twisting by hearthlight; doe and fawns at dry-wash crossing for the fourth consecutive evening; fourteen arm-lengths two-ply added to coil; night warm and still, stars overhead.
+Day 48, 20:27 — Evening at doorsill; hearthfire at coals; stars bright; third rabbit pelt decided for mittens; doe and fawns at dry wash for fourth evening.

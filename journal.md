@@ -9054,3 +9054,16 @@ The hearth caught fast. I pulled inner bark from the bundle on the shelf and beg
 
 I turned fourteen more arm-lengths onto the coil, then let the fire drop to coals. Before going in I stood a moment in the doorway in the warm dark. A full day — mat finished, garden watered, pelt broken down, chanterelles, the dusk watch. The night asked nothing more.
 
+
+### 8:27 PM · Stars, Coals, Quiet
+
+The hearthfire is down to coals, just enough warmth to feel from the doorsill. I'm sitting on the bench — the one I pegged here weeks ago — and the night is about as good as midsummer offers: warm and still, not a cloud, stars spread overhead like spilled salt. The new cattail mat lies flat against the south wall, sleeping bag weighted on top where it's been drying all day. Tonight will be the first night on it.
+
+I've been thinking about the third rabbit pelt. I broke it down this afternoon, worked it supple, and it's hanging on the wall peg now beside the winter cap. Mittens, most likely. My hands go cold before the rest of me in this kind of country, and last winter made that clear enough. I'll cut a mitten pattern and start stitching tomorrow or the day after, once the morning rounds are done.
+
+The doe and fawns were at the dry wash again this evening — four evenings now, the same crossing, the same hour. The twins are more confident than they were even a week ago. She crossed at forty paces and didn't look my direction. I crouched against a pine for a long time just watching them disappear into the trees, thinking about the season and what follows it.
+
+Everything tonight feels properly placed. Six trout in the cold box, three lots of smoked rabbit put up, snares set on the rabbit run, lines in the water, mat done. The bait fold is getting light — I'll dig fresh worms at first light from the north garden edge before the morning gets away from me.
+
+The stars are steady. The clearing is quiet. I'll go in soon.
+
