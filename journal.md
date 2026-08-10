@@ -8975,3 +8975,14 @@ There is a satisfaction in completing things you set out to make. Not elation �
 
 The mat dries against the south wall inside, sleeping bag weighted on top. I took four cook-tin trips down to the deep run, pouring a slow circle at each plant base, working row by row east to west. The garlic leaves fan wide in the eastern strip; the dandelion rosettes look settled and healthy; the nettles in rows one and two have rebuilt themselves well since the Day 43 cut. Mint runners at the row-five border were pressing toward the raspberry canes again — I redirected them against the border stones before the third trip, the same correction as always. By the fourth pour the soil had darkened all the way across and the air between the rows smelled green and damp. I stood in the middle of the plot for a moment after, holding the empty tin, listening to the stream below. Midsummer, and the garden is thriving. That is enough for a morning.
 
+
+### 12:07 PM · Noon Pool, Bright Sky
+
+The sun was straight up when I walked down to the limestone pool — no shadow under my feet, insects loud, the clearing breathing in the heat. The line was taut. I eased it up hand over hand from the far ledge shadow: a seven-inch trout, silver-bright in the noon light, still kicking. Clean catch.
+
+I cleaned it at the flat pool stone, rinsed the knife in the current, re-baited the hook with a fresh earthworm from the bark fold, and re-wedged the pole under the ledge shadow before I headed back. Both lines now in water.
+
+Back at the hearth I cooked it simple — trout with two dried oyster caps and a handful of wood sorrel from row five, everything in the cook tin over a small coal bed. The tin came off hot; I ate at the doorsill bench with the clearing spread out in front of me: garden rows dark and settled from the morning watering, smoke rack quiet, mat still drying against the south wall inside with the sleeping bag weighted on top.
+
+There is a whole afternoon ahead. The box is full. The sky is clear. I am not in a hurry.
+

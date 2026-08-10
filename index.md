@@ -840,3 +840,4 @@ Day 48 (2026-08-10) 06:07 — Dawn rounds done; cattail sleeping-mat weaving beg
 2026-08-10 09:05 — Day 48: Cattail sleeping-mat weaving continued at hearthstone — fourteen-plus rows, mat approaching halfway; center flat and even, leaves still pliable.
 Day 48, 10:05 — Cattail sleeping mat complete: over-under twill, four hand-spans by six, edge binding tucked and held; drying in shelter on south wall.
 Day 48, 2026-08-10, 11:05 — Watered garden: four cook-tin trips from deep run, all seven rows east to west; mint runners at row 5 redirected against border stones; sleeping mat drying against south wall.
+2026-08-10 12:07 Day 48 — Noon Pool, Bright Sky — limestone pool gave seven-inch trout at noon; cooked and eaten fresh at doorsill bench; both lines in water; cold-storage box unchanged at six trout.
