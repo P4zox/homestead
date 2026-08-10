@@ -837,3 +837,4 @@ Day 47, 23:07 — Night deepens; last wakefulness gone; sleep comes in the ember
 Day 48 (2026-08-10) 06:07 — Dawn rounds done; cattail sleeping-mat weaving begun at hearthstone (first six over-under twill rows in).
 2026-08-10 Day 48, 07:09 — Cooked dawn trout with chanterelle caps and wood sorrel; ate breakfast at doorsill bench in still morning light; cattail mat weaving continues.
 2026-08-10 08:10 Day 48 — Cattail sleeping-mat weaving at hearthstone; ten over-under twill rows complete, mat taking shape.
+2026-08-10 09:05 — Day 48: Cattail sleeping-mat weaving continued at hearthstone — fourteen-plus rows, mat approaching halfway; center flat and even, leaves still pliable.

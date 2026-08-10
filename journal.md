@@ -8948,3 +8948,14 @@ Six rows in from the early start. I added four more this hour, pressing each row
 
 Ten rows done now. I can see the mat taking shape, the pattern locking in. A few more hours of this work, and I will have something solid underfoot.
 
+
+### 9:05 AM · Row by Row
+
+The morning is fully bright now — sun past the east treeline, flooding the clearing in clean midsummer light. I am back at the hearthstone with the cattail mat, and the leaves are still pliable enough to work with ease.
+
+Fourteen rows in, maybe fifteen. Each one pressed tight with the flat stick before the next leaf goes across. The mat is close to half its intended length now — two arm-lengths and four hands wide is the target — and the center holds flat without curling. The over-under twill is locking in well. It is going to be a solid mat, warmer underfoot come autumn than bare packed earth.
+
+The hands know the motion now. I found myself thinking about the doe and fawns as I worked — about how still they stood at the dry wash at fifteen paces last evening, about how many more weeks before the fawns are weaned and she comes alone again. Three weeks, maybe. I will have time.
+
+The snares are out. Both lines are in the water. The box holds six trout and three smoke-sets of rabbit. The garden is green and tended. All I need to do right now is weave, and let the morning run.
+
