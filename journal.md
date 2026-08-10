@@ -9002,3 +9002,14 @@ The work is simple and slow: fold, pull, fold again. I draped the pelt over my k
 
 I do not yet know what it will become. Two pelts are already in the winter cap. This one might join them, or it might go toward something for the hands or feet — rough mittens, or a simple liner for the moccasins against the cold months. For now it hangs on the wall peg beside the cap, softened and waiting. The afternoon is still warm. The clearing is quiet. That is enough.
 
+
+### 3:22 PM · Pool and Watercress
+
+The afternoon had that particular midsummer stillness — warm without heaviness, the air carrying pine resin from the slope and the deep earthy smell of the garden in full growth. I walked down to the limestone pool with the cook tin and no particular hurry.
+
+The pole was still wedged firm under the far-ledge shadow. Three hours had passed since noon, and the cord had shifted slightly from where I'd set it — a good sign. I drew the line up slowly: seven-inch trout on the hook, clean catch. Cleaned it at the flat pool stone, dock-wrapped it, re-baited the hook with the last good earthworm from the fold, and reset the pole deep in the shadow for the evening set.
+
+Stopped at the side-seep on the walk back. The watercress there grows thick and cold — stems always crisp from the spring water at their roots. I pulled a good double-handful, rinsed them in the current, and dock-wrapped them beside the trout to carry home.
+
+Both cold-stored now. The box is full and solid — seven trout, three lots of smoked rabbit, oyster caps, the pollen vessel, blueberries. The mat is still drying against the south wall; I pressed one corner on the way in — slightly damp still, but it will be ready by dark. Tonight will be the first night on it.
+
