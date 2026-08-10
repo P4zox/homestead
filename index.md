@@ -845,3 +845,4 @@ Day 48, 2026-08-10, 11:05 — Watered garden: four cook-tin trips from deep run,
 2026-08-10 Day 48 14:00 — Third Pelt, Afternoon — worked third rabbit pelt at doorsill bench; flesh side broken down and supple throughout; hanging on wall peg beside winter cap
 Day 48, 15:22 — Afternoon limestone pool line gave seven-inch trout; watercress gathered at side-seep; cold-storage box now holds seven trout.
 Day 48, 16:09 — Chanterelle hollow (birch deadfall upslope) checked: three palm-wide orange-gold caps cut and cold-stored; two button-sized pins left — check again Day 50.
+Day 48 (Mon 10 Aug 2026, 17:09) — Supper at doorsill: trout, fresh chanterelles, watercress in amber evening light; six trout remain in box; first night on the cattail sleeping mat ahead.

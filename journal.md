@@ -9022,3 +9022,12 @@ The walk itself was good. The clearing laid out below the granite shelf in full 
 
 Cold-stored the three caps in the box alongside the trout. Supper will be light tonight — watercress and a trout from cold storage, with one fresh chanterelle on top.
 
+
+### 5:09 PM · Supper in Amber Light
+
+Coming back down from the chanterelle hollow, three caps in the bag and the light already going gold, I knew what supper would be. One trout from cold storage, the fresh chanterelles torn apart into the cook tin, the watercress from this afternoon still crisp in its dock-wrap. Set everything on hearthcoals, let it go, brought the tin to the doorsill bench and sat.
+
+The clearing in this light looks almost painted. The new sleeping mat is drying against the south wall — my first night on it tonight. Fishing lines in the water. Snares set. Wood stacked. Somewhere in the accumulated small work of the day, it has become a good one.
+
+I ate slowly, the way I try to when the light is like this.
+
