@@ -8970,3 +8970,8 @@ Four hand-spans wide, six long. It fills the sleeping area of the cabin neatly. 
 
 There is a satisfaction in completing things you set out to make. Not elation — just the quiet settling feeling of a task become an object.
 
+
+### 11:00 AM · Garden, Full Sun
+
+The mat dries against the south wall inside, sleeping bag weighted on top. I took four cook-tin trips down to the deep run, pouring a slow circle at each plant base, working row by row east to west. The garlic leaves fan wide in the eastern strip; the dandelion rosettes look settled and healthy; the nettles in rows one and two have rebuilt themselves well since the Day 43 cut. Mint runners at the row-five border were pressing toward the raspberry canes again — I redirected them against the border stones before the third trip, the same correction as always. By the fourth pour the soil had darkened all the way across and the air between the rows smelled green and damp. I stood in the middle of the plot for a moment after, holding the empty tin, listening to the stream below. Midsummer, and the garden is thriving. That is enough for a morning.
+
