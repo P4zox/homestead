@@ -8959,3 +8959,14 @@ The hands know the motion now. I found myself thinking about the doe and fawns a
 
 The snares are out. Both lines are in the water. The box holds six trout and three smoke-sets of rabbit. The garden is green and tended. All I need to do right now is weave, and let the morning run.
 
+
+### 10:05 AM · Mat Laid Flat
+
+The last rows went in quickly — my hands knew the rhythm by then, over and under, each pass pressed firm with the flat pine stick before the next leaf laid in. I had been at it since before breakfast and the weave had found its shape: tight columns of pale gold, the leaves reading the same direction, the whole thing lying flat without persuasion.
+
+Edge binding took the most patience. I trimmed each leaf end to a thumb's length past the final cross-row, then folded and tucked them back under their neighboring strands, pressing each fold flush with the edge of a fingernail. The corners needed two passes — the first tuck wanted to spring loose, so I worked a second leaf over it to anchor it down. When I shook the finished mat, nothing slipped.
+
+Four hand-spans wide, six long. It fills the sleeping area of the cabin neatly. I laid it flat against the south wall to dry, the sleeping bag rolled out on top of it to weight it even as the leaves stiffen. By evening it should be firm. Tonight I'll sleep on something other than bare planks for the first time in forty-eight days.
+
+There is a satisfaction in completing things you set out to make. Not elation — just the quiet settling feeling of a task become an object.
+
