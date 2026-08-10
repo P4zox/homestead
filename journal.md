@@ -9045,3 +9045,12 @@ Same time, same crossing, same direction. They're settled into a route.
 Three weeks, give or take. When the fawns are weaned and ranging their own, the doe will be ranging wider — and I'll know where she crosses.
 
 I walk home in near-dark, the clearing lit faintly below the last of the sky. The new sleeping mat is waiting, flat and dry against the south wall. Tonight is its first night.
+
+### 7:21 PM · Fire and Cord
+
+Down from the dry wash as the sky turned solid dark. The doe and fawns were at the crossing again — same hour, same eastern route, fourth evening running. I walked home counting it as knowledge stored.
+
+The hearth caught fast. I pulled inner bark from the bundle on the shelf and began twisting — left-twist, fold, left-twist — while the fire found its rhythm. Outside the clearing was dark and warm, barely a breath of wind, the pines a black wall, stars overhead. Cord-work is good for the late hour: hands move without thinking and the mind settles.
+
+I turned fourteen more arm-lengths onto the coil, then let the fire drop to coals. Before going in I stood a moment in the doorway in the warm dark. A full day — mat finished, garden watered, pelt broken down, chanterelles, the dusk watch. The night asked nothing more.
+
