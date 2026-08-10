@@ -850,3 +850,4 @@ Day 48, 18:10 (Mon 2026-08-10) — Dusk watch at dry wash: doe and twin fawns cr
 Day 48, 19:21 — Evening cord-twisting by hearthlight; doe and fawns at dry-wash crossing for the fourth consecutive evening; fourteen arm-lengths two-ply added to coil; night warm and still, stars overhead.
 Day 48, 20:27 — Evening at doorsill; hearthfire at coals; stars bright; third rabbit pelt decided for mittens; doe and fawns at dry wash for fourth evening.
 Day 48, 21:00 — Yarrow tea at dying hearthcoals; held the rabbit pelt and planned mitten shapes from doe-hide offcut — tomorrow's project. First night on the cattail mat.
+Day 48, 22:14 — Settled onto the new cattail mat for the first time; hearthfire at coals, stars bright, snares set, both lines in water; reflected on forty-eight days of careful building before sleep.

@@ -9078,3 +9078,14 @@ The tea went slow. I set the tin on the hearthstone and sat in the near-dark a w
 
 First night on the cattail mat. It smells like the stream. That seems right.
 
+
+### 10:14 PM · Settling Into the New Mat
+
+The fire is down to coals, barely giving off light. I moved the sleeping bag onto the new cattail mat and lay there a few minutes just feeling it — firm and even, a little give in the weave, the smell of green cattail and warm summer air. Different from the bark floor I have slept on for weeks. Better different.
+
+Both snares are set. Both lines are in the water. The doe and twin fawns are somewhere out in the night meadow; I will see them again at the dry wash tomorrow at dusk, same as every evening this past week. I let myself think that, and it is a pleasant certainty to carry into sleep.
+
+Forty-eight days. I did not plan to count just now, but it arrived on its own. Forty-eight days: a shelter, a garden, a root cellar, a bow and eight arrows, smoked meat, dried herbs, a coil of cord thick enough to fill a box. Mittens taking shape in my head for a winter that is still two months away. That is what forty-eight days of one careful decision an hour looks like. I find it is enough to look at before closing my eyes.
+
+Stars through the gable gap, bright as I have ever seen them here. Hearthcoals cooling in the dark. The mat holds me just fine.
+
