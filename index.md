@@ -864,3 +864,4 @@ Day 49, 14:10 — Limestone pool line: seven-inch trout (cold-stored). South mea
 Day 49 (2026-08-11) 15:16 — Returned to south meadow; stripped foxtail and brome seed heads (palm-and-a-half mixed grain, bark-folded on supply shelf); cut rush stems for half-tin seed-cotton tinder.
 2026-08-11 16:10 [Day 49] Limestone pool line: seven-inch trout at four — cleaned, cold-stored; line re-baited and reset for evening.
 Day 49, 17:08 — Supper at doorsill in amber light: limestone pool trout, dried oyster cap, wood sorrel from row 5; coals banked for evening.
+Day 49, 18:09 — Dusk watch at dry wash: doe and twin fawns at crossing (fifth evening running); fawns' spots fading toward adult coat; bow undrawn — stores sufficient.

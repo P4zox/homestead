@@ -9252,3 +9252,16 @@ The meadow was in that late light — the kind midsummer saves for five o'clock,
 
 The trout cooked fast and I ate it slow at the bench, watching a single swallow cut arcs above the garden. The wood sorrel gave it that clean bite. After I set the tin down I sat another few minutes just listening — the stream, a wood thrush somewhere in the pine slope, the sound the breeze makes moving through ripe grass. Then I banked the coals, checked the lines in my head (both in water, earthworm bait, set for overnight), and came inside.
 
+
+### 6:09 PM · The Doe at the Crossing
+
+I took the bow and climbed to the dry wash position just after supper, same as the last four evenings. The sun was still well above the treeline but tilted — that particular midsummer angle where light goes flat and golden all at once, like the sky deciding to rest.
+
+She came at roughly the same hour as before. Same crossing, same unhurried pace, the two fawns trailing a few lengths behind. Their spots are fading now, the coat shifting from dappled cream toward a more uniform reddish-brown. Another few weeks and they'll look nearly like adults, small as they still are.
+
+I did not draw. There is meat enough in the box — smoked rabbit, smoked doe quarters, trout, mushrooms — and the bow would carry a long shot from the dry wash ledge but I have not confirmed it at that distance. More honestly: I was not sure I wanted to disturb the crossing. Four evenings of watching builds something. A small ceremony I have let develop without quite naming it.
+
+The fawns moved through together. The doe paused at the edge of the far trees, turned back toward the clearing — held still for a count of eight or ten, then stepped through. Every time she does that I hold my breath. Then she is gone, and the dry wash goes quiet again, and I walk back in the long dusk light with the bow still undrawn.
+
+Winter will ask harder questions. For now, this was enough.
+
