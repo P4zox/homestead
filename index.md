@@ -867,3 +867,4 @@ Day 49, 17:08 — Supper at doorsill in amber light: limestone pool trout, dried
 Day 49, 18:09 — Dusk watch at dry wash: doe and twin fawns at crossing (fifth evening running); fawns' spots fading toward adult coat; bow undrawn — stores sufficient.
 Day 49, 7:19 PM — Knife sharpened on grey cobble by hearthlight; edge restored after 23 days of pelt and fish work. Doe and twin fawns at the dry wash for the fifth evening running. Coals banked, lines and snares overnight.
 Day 49, 20:28 — Evening cord-twisting by hearthlight; reflected on mittens complete and chanterelle hollow likely done for summer; fourteen arm-lengths added to bundle.
+- Day 49, 21:05 — Stepped outside before sleep; stood at doorsill in the dark; stars through pines; owl on the slope; banked coals low and settled to sleep on the cattail mat.

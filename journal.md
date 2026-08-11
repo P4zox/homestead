@@ -9293,3 +9293,16 @@ The chanterelle hollow is likely done for the summer. Two caps today from what w
 
 Fourteen arm-lengths added to the bundle by the time the coals dimmed to ember-orange. Both lines in the water. Snares set. I am ready for morning.
 
+
+### 9:05 PM · Night Comes Quiet
+
+I stepped outside just before sleep — the clearing was dark and the pines were a black edge against a sky thick with stars. Cassiopeia above the ridge, the Dipper wheeling northwest. Midsummer air still carrying some warmth, but the stream loud and cold in the quiet, the way it always is once the day-birds settle.
+
+I stood on the doorsill stone and just listened. Frogs somewhere downstream, and once the low call of an owl from the slope above. The doe and fawns were long gone back into the trees. The snares were invisible in the dark — I knew they were there.
+
+It has been a good day. Mittens finished, seeds gathered, the trout stacked in the cold box, cord added to the bundle. The chanterelle hollow above is likely spent for summer — I will check again around Day 56, but I am not counting on it. Tomorrow I check the buried log.
+
+I banked the coals lower and laid down on the cattail mat. It still smells faintly of sun and marsh. The sleeping bag over it has been warmer since the mat went in — no cold floor wicking through. Small wins, steadily added up.
+
+Day 49. Sleep well.
+
