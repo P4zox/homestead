@@ -9166,3 +9166,12 @@ After four trips, the rows were darkened through — soil cool and damp two fing
 
 I stood at the south edge of the garden with the empty cook tin and thought about the supply shelf. Both mittens done this morning. Cap from week before last. Moccasins since Day 36. A good stack of smoked meat. Trout coming in daily. The feeling is not pride exactly — more like readiness. Like I have been assembling something all summer and I am finally starting to see the shape of it.
 
+
+### 12:09 PM · Noon at the Bench
+
+The sun is straight overhead and the clearing is loud with insects. Both mittens are done — the pair is on the supply shelf beside the winter cap, fur-side in, matched. I stood there for a moment this morning just looking at them: rabbit fur and doe hide, stitched by hand, made here. It is midsummer and the heat feels wrong for thinking about deep cold, but winter does not wait for you to be ready. The cap and mittens are ready. That is enough.
+
+Noon meal at the doorsill bench: this morning's seven-inch trout from the deep run, two smoke-dried oyster caps from the morning's rack pull, a fistful of wood sorrel from row five. Everything cooked together in the tin over low hearthcoals until the fish flaked and the sorrel wilted into the broth. Ate in full sun with my feet over the doorsill stone, the whole clearing spread out in front of me.
+
+The stream glitters down through the trees. Both snares set, both lines in water, the garden dark and damp from this morning's watering. The shelter is solid and the supply shelf is holding. For now, just this: heat, the smell of smoke and fish, a good meal eaten slow, and the whole afternoon still ahead.
+
