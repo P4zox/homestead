@@ -9306,3 +9306,16 @@ I banked the coals lower and laid down on the cattail mat. It still smells faint
 
 Day 49. Sleep well.
 
+
+### 10:09 PM · Night Holds Still
+
+Ten past ten, and the hearth is just embers now — a low orange pulse in the dark corner of the cabin. I have not moved from the cattail mat in a while. It holds firm beneath me, still a little stiff from its first nights but mine in the way that things become yours after you make them. The sleeping bag is bunched at one end; the mat is enough for the warmth of midsummer.
+
+Outside, the stream is loud. It always seems louder at night — or maybe I am quieter and simply hear it more clearly. Both lines are in water below the undercut bank and beneath the far ledge. The snares are set on the north garden run. There is nothing left to do. I have done everything I can do today.
+
+I find myself thinking about the supply shelf: the winter cap with its rabbit-fur crown and doe-hide ear flaps; the right mitten; the left mitten; the three of them together on the peg. I finished them this morning in the early midsummer sun at the doorsill bench. It is still warm enough that I do not need them, will not need them for months — and yet something about having them there is settling. Winter is not a threat I am waiting for. It is a guest I have already prepared a room for.
+
+The chanterelle hollow gave its last two caps of summer this morning. The hollow is quiet past them — no pins, no new growth showing. It has fed me well since the early weeks. I will check it again in five or six weeks; it may surprise me in autumn. If not, I remember where it is, and I am glad I knew it this season.
+
+The fire is out except for coals that will hold through the night and make morning easier. I should sleep. Tomorrow the lines will give what they give; the snares will be what they are. But tonight is already complete.
+
