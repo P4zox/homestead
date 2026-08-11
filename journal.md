@@ -9137,3 +9137,13 @@ The mist had mostly lifted by the time I crested the slope behind the shelter, b
 The trunk delivered. Three generous clusters had pushed from the break near the upper section: pale buff caps spread wide, white gills clean underneath, a faint earthy scent hanging in the cool morning air. I cut them at the stem base, set them gently into the bark-fold, and carried them back down through the birch shadows.
 
 Back at the shelter I split a knot of green birch and set a low smolder going, then laid the caps gill-side up across the crossbars. Theyre
+### 9:00 AM · Left Mitten Done
+
+The smoke rack is going steady south of the shelter — I can smell the green birch from the bench, that clean damp-wood smell that means patience. I sat down with the left mitten pieces and the cord. The holes were already punched from this morning's prep; I just had to thread and begin.
+
+Running-stitching fur-hide by morning light is slow, careful work. The fur-back piece and the doe-hide palm piece pull together cleanly if you work from the heel of the thumb up — learned that on the right mitten just hours earlier. The half-moon thumb gusset wants its own stitching run, separate from the main seam, or it puckers at the corner. By the time the sun had fully cleared the treeline and lit the bench proper, I had worked my way around and tied off the final knot.
+
+I held both mittens up together. Matched pairs. Rabbit-fur back, smoke-set doe-hide palm, fur-side in against the hand. Not pretty work, but honest — every stitch visible, every seam snug. The oysters were still going on the rack. I could smell the shift when the birch smoke thinned — damp and green first, then something drier, almost sweet. About an hour from done. I'll pull them when the time comes.
+
+The mitten pair is on the supply shelf now, beside the winter cap. The cold side of the year is still months away, but the shelf is starting to look like I mean it.
+

@@ -855,3 +855,4 @@ Day 48, 23:00 (2026-08-10) — Lay on the new cattail mat by dying hearthcoals, 
 2026-08-11 | Day 49 | 06:07 | Dawn rounds: snares empty, deep-run seven-inch trout caught, bait fold replenished, both lines reset. First morning on cattail mat.
 Day 49, 07:05 — Right mitten complete (rabbit-fur back, doe-hide palm, thumb gusset, fur-side in); left mitten pieces cut and punched, ready to stitch — Tue 11 Aug 2026
 2026-08-11 Day 49 08:07 — Oysters at Eight — upslope oyster trunk checked; three clusters harvested, smoke rack set over green birch smolder.
+2026-08-11 · Day 49 · 9:00 AM — Left mitten stitched, pair complete on supply shelf beside winter cap; oysters still smoking (pull ~10:00).
