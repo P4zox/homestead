@@ -9330,3 +9330,21 @@ A full day. My hands are a little sore from the mitten stitching but I am glad t
 
 The owl again, farther up the slope. Sleep coming now.
 
+
+---
+
+# Day 50 — Wednesday, 12 August 2026
+*midsummer · clear dawn; light mist in low places along the stream; warming toward full sun*
+
+### 6:08 AM · Fifty Days, First Light
+
+Day fifty. I woke on the cattail mat as the first birdsong came through the log walls, hearthcoals cold, shelter still holding some warmth. A landmark of sorts — fifty mornings on this land. I let the number settle and then pulled on my moccasins and went out into the mist.
+
+Snares first: both empty on the north garden-edge run, loops undisturbed. I reset them and moved to the stream.
+
+Deep-run line came up with a seven-inch trout — hook clean, earthworm taken overnight. I cleaned it at the flat stream stone in the first slant light, dock-wrapped it, cold-stored it in the box. Line re-notched with fresh earthworm from the bait fold, reset below the undercut bank. Limestone pool line was bare; re-baited and reset.
+
+Then the buried log. Today was the noted check date, eight days since the last harvest. I lifted the bark lid and the flat stone and found the log face dense with six pale cream caps, ivory-domed, edges just beginning to curl, clean white gills — a good flush. Cut all six at the stem base and cold-stored them beside the trout. Two smaller pins left inside; cover replaced and stone re-weighted.
+
+Fifty days, and the buried log still giving. I stood at the stream a moment before coming back in. Mist burning off the low places, the light going gold in the pines. It has all added up to something real.
+
