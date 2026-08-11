@@ -9243,3 +9243,12 @@ Sitting at the doorsill bench now with the sun still an hour above the treeline.
 
 This is the part of the day I am learning to let be what it is: the work done, the food secured, the evening opening up in front of me without anything pressing.
 
+
+### 5:08 PM · Supper in Amber Light
+
+The coals never quite went cold after noon — I had banked them well and they held patient, orange-edged under a skin of ash. I raked them forward around five and set the cook tin over them with the limestone pool trout, a dried oyster cap broken in two, and a double handful of wood sorrel from row five. While it cooked I sat on the doorsill bench and did nothing for a while, which is its own kind of work.
+
+The meadow was in that late light — the kind midsummer saves for five o'clock, when the sun has swung far enough west to come in sideways and turn the seed-heavy grasses gold. I thought about the chanterelle hollow. Two caps today, and the log quiet otherwise. Likely the last flush. The hollow has given steadily since Day seventeen and it felt right, somehow, that it would taper off now as the season tips.
+
+The trout cooked fast and I ate it slow at the bench, watching a single swallow cut arcs above the garden. The wood sorrel gave it that clean bite. After I set the tin down I sat another few minutes just listening — the stream, a wood thrush somewhere in the pine slope, the sound the breeze makes moving through ripe grass. Then I banked the coals, checked the lines in my head (both in water, earthworm bait, set for overnight), and came inside.
+
