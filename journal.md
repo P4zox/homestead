@@ -9228,3 +9228,18 @@ By the time I worked my way across the meadow edge the bark tray held a palm-and
 
 The walk through the tall grass was quiet. Seed heads brushed my sleeves. There is something satisfying about this kind of harvest — no dramatic chase, no skill with the bow, just patience and the season doing its part.
 
+
+### 4:10 PM · The Pool at Four
+
+I walked back down to the limestone pool in the long afternoon light. The angle of the sun had shifted since the last visit — the pool looked different, warmer at the surface, the shadow under the far ledge deeper and more pronouncedly blue. My pole was still wedged where I had left it, the line going quiet into that dark water.
+
+When I pulled, there was weight. A seven-inch trout, good-colored, still moving. I cleaned it at the flat pool stone — a practiced motion now, quick and clean — dock-wrapped it, and added it to the cold-storage box on my way back up.
+
+I rebaited the hook with a fresh earthworm from the bark fold and set the pole back in its notch under the far ledge shadow. Both lines in the water for the evening now.
+
+The walk back through the pines in that late afternoon light was slow and quiet. I was not in a hurry. Behind me was a full day: the two mittens finished, the oyster clusters dried and stored, the garden watered and settled, the chanterelle hollow emptied of what was likely its last summer flush, the south meadow walked and the seed heads stripped clean into a bark fold on the supply shelf. All of it done by the middle of the afternoon. The seeds are there now — foxtail, brome, wild rye — small and dry in their packet, ready for grinding or mixing into a broth when winter narrows the choices.
+
+Sitting at the doorsill bench now with the sun still an hour above the treeline. The coals are banked and ready. I will cook supper from the cold-stored trout and a handful of wood sorrel from row 5, maybe lay in a dried oyster cap for the flavor it gives the broth. Eat slowly, in the last of the light.
+
+This is the part of the day I am learning to let be what it is: the work done, the food secured, the evening opening up in front of me without anything pressing.
+
