@@ -9280,3 +9280,16 @@ These little maintenances matter. A dull knife is more work and less safe; it tu
 
 Cook tin of water set near the coals for morning. Everything else in order. The clearing is soft and warm in the late-summer dark, and I am content with what today made.
 
+
+### 8:28 PM · Hearthlight Cord
+
+The coals are banked low, the cook tin set aside for morning, the knife freshly sharp on its peg. I pulled the inner-bark bundle from the shelf and settled cross-legged on the rush mat by the hearth.
+
+Cord-twisting in the evening has become its own kind of rest. The fingers learn the motion and stop needing the mind — roll, fold, roll — and the strands coil back into themselves, building arm-length by arm-length in the dim firelight. I let the rest of me go quiet while the hands worked.
+
+The mittens are finished. Both of them, matched, sitting on the supply shelf beside the winter cap. I held the right one up in the hearthglow and looked at it — rough thumb seam, a little uneven at the gusset, but the fur turned in and the hide will hold. The pair is real now. Whatever January brings, my hands will be inside something I made.
+
+The chanterelle hollow is likely done for the summer. Two caps today from what was probably the last flush, orange-gold and firm. I know how that log works now — its rhythms, what the caps look like an hour before they are too open, how many days between flushes. A small knowledge, accumulated quietly over seven weeks. I will check again around Day 56, but I expect it to be quiet until autumn.
+
+Fourteen arm-lengths added to the bundle by the time the coals dimmed to ember-orange. Both lines in the water. Snares set. I am ready for morning.
+
