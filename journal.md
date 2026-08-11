@@ -9155,3 +9155,14 @@ Two hours and the oysters were ready — I could tell before I even touched them
 The rack is cleared now. The trunk upslope will rest four or five days before I check again. The smoke-dried mitts — right finished at seven, left at nine, pair matched on the shelf — the oysters finished at ten. The earthworm fold restocked at dawn, both lines in water. A morning that closed up cleanly.
 
 There is a particular quality to mid-morning on a day that started well. Not ease exactly, but a sense that the early hours have been honest. I sat on the doorsill bench and watched the last of the rack smoke drift south through the trees. Midsummer heat is building. The garden is steady. I have food in the box and cord on the shelf and a pair of fur mittens for a winter that still feels far off but will not be.
+
+### 11:08 AM · Garden at Full Sun
+
+The mist that pooled along the stream this morning has burned off completely. The sun is straight up now, full and hard on everything — the garden rows, the roof bark, the patch of bare earth south of the smoke rack. I went down with the cook tin and walked four trips from the deep run, pouring each load slow along the row bases and letting it soak before moving on.
+
+Garlic fans wide as always, dandelion rosettes big and low and healthy. The wood sorrel is packed tight along the north shadow strip — it has been happy there since the clumps came in from the upslope hollow. Nettles in rows one and two are tall again after the Day 43 cut; I did not touch them today, just watched them flex in the light breeze. The mint has been pushing toward row four again — I bent the runners back against the border stones and pressed a stone against the lead shoots. It will try again in a day or two.
+
+After four trips, the rows were darkened through — soil cool and damp two fingers down in the garlic rows when I pressed. Good enough.
+
+I stood at the south edge of the garden with the empty cook tin and thought about the supply shelf. Both mittens done this morning. Cap from week before last. Moccasins since Day 36. A good stack of smoked meat. Trout coming in daily. The feeling is not pride exactly — more like readiness. Like I have been assembling something all summer and I am finally starting to see the shape of it.
+
