@@ -9129,3 +9129,11 @@ The thumb gusset is the hardest part: a half-moon of pelt remnant, stitched into
 
 I cut and punched the left mitten pieces from the remaining pelt — enough left over for a second thumb gusset. I'll stitch it tonight by hearthlight, or in the next quiet hour. Winter is still far off in this midsummer heat, but the making itself is a kind of contentment. Each thing finished is one less worry to carry forward into the cold.
 
+
+### 8:07 AM · Oysters at Eight
+
+The mist had mostly lifted by the time I crested the slope behind the shelter, bark-fold tucked into the shoulder bag. Seventy paces up, the old rotting pine lay angled into the hillside, its lower bark peeling back in long curls. Five days of rest since the Day 44 harvest — just the right amount of time in this midsummer warmth.
+
+The trunk delivered. Three generous clusters had pushed from the break near the upper section: pale buff caps spread wide, white gills clean underneath, a faint earthy scent hanging in the cool morning air. I cut them at the stem base, set them gently into the bark-fold, and carried them back down through the birch shadows.
+
+Back at the shelter I split a knot of green birch and set a low smolder going, then laid the caps gill-side up across the crossbars. Theyre
