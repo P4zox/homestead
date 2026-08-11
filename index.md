@@ -860,3 +860,4 @@ Day 49, 07:05 — Right mitten complete (rabbit-fur back, doe-hide palm, thumb g
 Day 49, 2026-08-11, 11:08 AM — Watered garden in full midsummer sun; four trips from deep run, all seven rows east to west; mint redirected; both mittens now complete on supply shelf.
 Day 49, 2026-08-11, 12:09 — Noon meal at doorsill bench: morning trout, smoke-dried oyster caps, wood sorrel from row 5 — eaten in full midsummer sun; both mittens complete on supply shelf.
 2026-08-11 Day 49 13:10 — Went upslope to chanterelle hollow; two overdue caps (palm-wide, orange-gold, firm) harvested and cold-stored; hollow going quiet — last summer flush likely; reflected from granite shelf overlooking settled homestead.
+Day 49, 14:10 — Limestone pool line: seven-inch trout (cold-stored). South meadow walk — grasses at peak seed, daisies fluffed, clover browning, seep rushes past height and papery-headed. First clear sense of summer releasing.

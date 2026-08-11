@@ -9194,3 +9194,24 @@ On the way down I stopped at the granite shelf and sat for a moment. Looking sou
 
 I came back down with the two caps in the shoulder bag and set them on the supply shelf beside the dried oysters. A quiet afternoon. A good one.
 
+
+### 2:10 PM · Season Turning Quietly
+
+After the morning — mittens finished, oysters smoked, the chanterelle hollow checked and found going quiet — I sat for a while on the doorsill bench and felt the afternoon open up wide.
+
+The granite shelf had shown me the whole clearing when I came down from the hollow earlier: the cabin standing solid, the garden rows dark green in midsummer sun, the smoke rack quiet, the meadow grass heavy with seed. Everything looked settled. Established. I noticed that.
+
+I walked south through the garden and down to the limestone pool. The line had been soaking since dawn. I pulled it up slowly and found a seven-inch trout waiting at the end, still moving. Cleaned it at the flat pool stone, dock-wrapped, set it in cold storage. Re-baited the hook with a fresh earthworm from the bark fold, wedged the pole back under the ledge shadow. Both lines still in water.
+
+Then I did not come straight back. The meadow grasses were at their tallest — almost hip-high in places, heavy with ripe seed heads: foxtail, brome, something with flat paddle-shaped seeds I have no name for yet. The daisies from early summer have gone to fluff. The clover in the lower quarter is drying off, heads browning at the edges. A few late-season flowers still open: tall yellow composites I had not noticed before, one slender stalk of something pale blue near the seep margin.
+
+I stopped at the far seep and watched the rushes. They have grown since spring — tallest ones well past chest height now, some leaning with their own weight. The pollen heads from earlier summer are going brown and papery. I pulled three stems at random and pressed the seed heads in my palm. The seeds are black, tiny, shaking free easily.
+
+It was cool there at the seep margin, the ground soft underfoot. A dragonfly worked slow circles over the water. I stood a long time without deciding to.
+
+The hollow telling me it is done for the season. The meadow seeding itself. The clover browning. None of it sudden — everything has been moving this way for weeks without my noticing. Now I notice. Summer is full and beginning to release.
+
+I came back the long way, through the long grass, letting the seed heads brush my hands. By the time I reached the garden the afternoon light had angled lower and warmer. Checked the snares — both empty, both still set on the north garden-edge run.
+
+There is still time. But not as much as there was a month ago.
+
