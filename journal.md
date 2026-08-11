@@ -9215,3 +9215,16 @@ I came back the long way, through the long grass, letting the seed heads brush m
 
 There is still time. But not as much as there was a month ago.
 
+
+### 3:16 PM · Peak Seed
+
+The meadow was still warm from the afternoon, the grasses leaning in the same slow way they had been when I passed through an hour ago. I came back with the cook tin and a broad piece of bark — makeshift tray for catching grain.
+
+The foxtail came first: I worked the seed heads between my palms over the bark, the chaff lifting away in a pale cloud, the small dark grains dropping down in a light patter. Not much per head, but there are hundreds of heads and the tally adds up fast. I moved along the near edge of the brome stand and did the same — the grains a little larger, heavier, more satisfying to feel in the hand.
+
+The rushes at the seep margin were already releasing on their own, brown heads splitting and sending pale seed-fluff sideways in the faint breeze. I cut a dozen stems at the base and bundled the heads into the cook tin — mostly for tinder, though I kept a small bark fold of the firmest ones aside in case I want to test them as food later. The cotton pressed down compactly; a good half-tin of dry fluff to add to the supply shelf.
+
+By the time I worked my way across the meadow edge the bark tray held a palm-and-a-half of mixed grain — foxtail, brome, what might be wild rye in among it. Enough to try a flatbread or a thin porridge on some quiet evening. I folded the bark around the grain, tied it with a short length of cord, and carried everything back.
+
+The walk through the tall grass was quiet. Seed heads brushed my sleeves. There is something satisfying about this kind of harvest — no dramatic chase, no skill with the bow, just patience and the season doing its part.
+
