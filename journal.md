@@ -9147,3 +9147,11 @@ I held both mittens up together. Matched pairs. Rabbit-fur back, smoke-set doe-h
 
 The mitten pair is on the supply shelf now, beside the winter cap. The cold side of the year is still months away, but the shelf is starting to look like I mean it.
 
+
+### 10:06 AM · Smoke and Amber
+
+Two hours and the oysters were ready — I could tell before I even touched them. The smolder had settled to pale ash and the smell coming off the rack was that deep wood-and-mushroom note that says done. I lifted each cluster by touch: firm, no give in the center, edges curled and dry. Amber-tan all the way through, the gills gone to pale gold. I set them on the outdoor bench briefly in the open air, then stacked them flat in the cold-storage box over the existing supply.
+
+The rack is cleared now. The trunk upslope will rest four or five days before I check again. The smoke-dried mitts — right finished at seven, left at nine, pair matched on the shelf — the oysters finished at ten. The earthworm fold restocked at dawn, both lines in water. A morning that closed up cleanly.
+
+There is a particular quality to mid-morning on a day that started well. Not ease exactly, but a sense that the early hours have been honest. I sat on the doorsill bench and watched the last of the rack smoke drift south through the trees. Midsummer heat is building. The garden is steady. I have food in the box and cord on the shelf and a pair of fur mittens for a winter that still feels far off but will not be.

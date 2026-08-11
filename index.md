@@ -856,3 +856,4 @@ Day 48, 23:00 (2026-08-10) — Lay on the new cattail mat by dying hearthcoals, 
 Day 49, 07:05 — Right mitten complete (rabbit-fur back, doe-hide palm, thumb gusset, fur-side in); left mitten pieces cut and punched, ready to stitch — Tue 11 Aug 2026
 2026-08-11 Day 49 08:07 — Oysters at Eight — upslope oyster trunk checked; three clusters harvested, smoke rack set over green birch smolder.
 2026-08-11 · Day 49 · 9:00 AM — Left mitten stitched, pair complete on supply shelf beside winter cap; oysters still smoking (pull ~10:00).
+2026-08-11 (Day 49, 10:06) — Pulled oysters from smoke rack (amber-tan, firm, three clusters), cold-stored in box; rack cleared; trunk resting 4-5 days.
