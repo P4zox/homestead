@@ -9175,3 +9175,22 @@ Noon meal at the doorsill bench: this morning's seven-inch trout from the deep r
 
 The stream glitters down through the trees. Both snares set, both lines in water, the garden dark and damp from this morning's watering. The shelter is solid and the supply shelf is holding. For now, just this: heat, the smell of smoke and fish, a good meal eaten slow, and the whole afternoon still ahead.
 
+
+### 1:10 PM · Last Caps in the Hollow
+
+After the noon meal I sat at the doorsill a while and let the sun work on me. The midsummer light came straight in past the latch bar and lay gold on the hearthstone. I was full, and the mittens are done, and the fishing lines are in the water — there was nothing pressing. But I kept thinking about the chanterelle hollow.
+
+I had meant to check those two pins on Day 47. Then the sleeping mat needed finishing, then the mittens, then the fish to clean. It slipped. Now it has been five days past when I said I would go, and a chanterelle cap does not wait forever.
+
+I went up after the meal. Past the garden rows, past the smoke rack still settling from this morning, through the birch stand where the ground cools fast even in August. The granite shelf caught the afternoon sun full in the face and threw it back warm. Past it, another thirty paces into the older pines, and there is the birch deadfall — longer than a man is tall, bark gone brown and lifting at the edges, the hollow open at the near end.
+
+I crouched and looked in.
+
+Two caps. Both had opened out past palm-wide — deep orange-gold, the kind that almost glows when the light catches it right. The gills were clean pale yellow beneath. A few days past ideal, perhaps; the edges had gone the faintest bit wavy, the way they do when they have been open long. But the flesh pressed firm under my thumb and the color was true. I cut both at the base.
+
+The far end of the hollow is quiet. No new pins. The wood is drying — you can tell by the color, which has gone gray where it was dark before — and this flush feels like the last one this summer from this log. I will come back in a week, but I am not expecting much. The hollow has given well all season. I am grateful for it.
+
+On the way down I stopped at the granite shelf and sat for a moment. Looking south: the cabin roof, the garden rows in a tidy rectangle below it, the smoke rack, the open meadow beyond. It looked like something. Not just a camp. Something settled and deliberate, built piece by piece over seven weeks.
+
+I came back down with the two caps in the shoulder bag and set them on the supply shelf beside the dried oysters. A quiet afternoon. A good one.
+
