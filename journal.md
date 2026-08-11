@@ -9265,3 +9265,18 @@ The fawns moved through together. The doe paused at the edge of the far trees, t
 
 Winter will ask harder questions. For now, this was enough.
 
+
+### 7:19 PM · Knife to Stone
+
+The fire is low and even, the hearthstones still radiating a gentle warmth from the evening cook. I came back from the dry wash in the last slow light — the doe and her fawns crossing as they have each dusk this week, steady and unhurried, the spots on the fawns gone more tonight than yesterday. I did not draw. The cold-storage box is full; there was no reason. I just watched.
+
+Now I am at the hearthstone with the grey cobble on my knee and the knife laid flat across it. It has been twenty-three days since I last ran edge to stone, and the blade shows it — it still cuts, but it has to be pushed into the work instead of pulled through. After the mitten sewing this morning and all the pelt work before it, the edge needs setting right.
+
+The cobble angle is instinct by now. I work the knife in slow circles on the near face, feel the burr forming at the spine side, then flip and do the other. The fire gives enough light for this. The ash is orange and steady. A frog calling from somewhere below the cold seep, and beyond it the stream sound, steady as it always is.
+
+Thumbnail test: the edge catches and holds. A few more passes. Test again. There it is — the quiet bite of a sharp edge, the small resistance that means it is working correctly again.
+
+These little maintenances matter. A dull knife is more work and less safe; it turns every task heavier than it needs to be. I have been keeping up with most things — lines reset each morning, snares set, garden watered, cord twisted in quiet hours — but the knife had been waiting. Now it is right.
+
+Cook tin of water set near the coals for morning. Everything else in order. The clearing is soft and warm in the late-summer dark, and I am content with what today made.
+
