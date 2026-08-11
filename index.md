@@ -871,3 +871,4 @@ Day 49, 20:28 — Evening cord-twisting by hearthlight; reflected on mittens com
 Day 49, 2026-08-11, 22:09 — Settled on cattail mat for the night; hearthcoals low, lines in water, snares set; reflected on winter gear complete and chanterelle hollow done for summer.
 Day 49, 23:13 — Last waking hour; cattail mat, embers fading, stream and owl in the dark, winter gear shelved and day complete.
 Day 50, 2026-08-12 (Wed) 06:08 — Fifty Days, First Light: dawn rounds; seven-inch deep-run trout; buried log sixth harvest (six pale cream caps, two pins remain — check ~Day 55-56); both lines reset.
+Day 50, 2026-08-12, 07:07 — Breakfast at doorsill bench: morning trout, two buried-log caps, wood sorrel from row 5. Fifty days on the homestead.

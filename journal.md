@@ -9348,3 +9348,14 @@ Then the buried log. Today was the noted check date, eight days since the last h
 
 Fifty days, and the buried log still giving. I stood at the stream a moment before coming back in. Mist burning off the low places, the light going gold in the pines. It has all added up to something real.
 
+
+### 7:07 AM · Fifty Days Fed
+
+The morning is already warm by the time I come back inside. Six ivory caps from the buried log, two-inch crowns just curling at the edges, sit in the cold box beside the trout. The fire is easy to bring back from last night's banking — a few dry pine rounds and the coals catch in minutes.
+
+Two of the smaller caps I slice thin and lay in the cook tin with the seven-inch trout and a fistful of wood sorrel from row five. The sorrel wilts first. Everything else softens and gives up its water, and in a few minutes there is a proper hot breakfast steaming at the doorsill bench.
+
+Fifty days. I did not mark it when the number turned, but sitting here with the tin warm in my hands and the mist still threading through the low places along the stream, it lands quietly anyway. Eleven pines felled. A cabin that holds rain and wind. A cellar, a garden, a quiver of eight arrows, a winter cap and two mittens on the shelf, two fishing lines in the water, and this bench I planed and pegged myself. I came here with a tent and an axe. This is something different now.
+
+The trout is good. The mushrooms thicken the mouthful with something earthy and dense. The sorrel goes bright against it all. I eat slowly and watch the stream catch the early light between the pines.
+
