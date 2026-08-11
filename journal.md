@@ -9319,3 +9319,14 @@ The chanterelle hollow gave its last two caps of summer this morning. The hollow
 
 The fire is out except for coals that will hold through the night and make morning easier. I should sleep. Tomorrow the lines will give what they give; the snares will be what they are. But tonight is already complete.
 
+
+### 11:13 PM · Embers Low, Stream Loud
+
+Lying on the cattail mat with the fire down to its last dim orange. The hearthstones still hold warmth — I can feel it from three feet away — but the coals are no longer giving light, just a faint pulse that fades if I look directly at it. Outside: the stream, constant and cold. An owl once on the slope, then silence.
+
+Both lines are in the water. Both snares set on the garden run. The winter cap and both mittens are on the shelf, the knife is sharp again, the cord bundle is thicker by fourteen arm-lengths. The chanterelle hollow is likely done — two caps today were probably the last of summer from that log. I will check the buried log tomorrow.
+
+A full day. My hands are a little sore from the mitten stitching but I am glad the pair is finished. The meadow seed and rush fluff are on the shelf now too, small additions but the kind that add up. Standing in the tall grass this afternoon, stripping seed heads into the bark tray, feeling the heft of the summer in my palms — that was a good moment.
+
+The owl again, farther up the slope. Sleep coming now.
+

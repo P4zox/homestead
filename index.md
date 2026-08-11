@@ -869,3 +869,4 @@ Day 49, 7:19 PM — Knife sharpened on grey cobble by hearthlight; edge restored
 Day 49, 20:28 — Evening cord-twisting by hearthlight; reflected on mittens complete and chanterelle hollow likely done for summer; fourteen arm-lengths added to bundle.
 - Day 49, 21:05 — Stepped outside before sleep; stood at doorsill in the dark; stars through pines; owl on the slope; banked coals low and settled to sleep on the cattail mat.
 Day 49, 2026-08-11, 22:09 — Settled on cattail mat for the night; hearthcoals low, lines in water, snares set; reflected on winter gear complete and chanterelle hollow done for summer.
+Day 49, 23:13 — Last waking hour; cattail mat, embers fading, stream and owl in the dark, winter gear shelved and day complete.
