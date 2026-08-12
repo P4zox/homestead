@@ -9497,3 +9497,12 @@ The forest outside is all crickets now, a wall of sound from treeline to treelin
 
 Sleep comes clean after a full day.
 
+
+### 10:10 PM · Lying in the dark
+
+The hearthcoals are slow red, gable flap down. I have been on the mat maybe an hour, not quite asleep. The crickets do not stop — wall to wall from the treeline south to the stream bend, and I have stopped noticing them the way I stop noticing my own heartbeat. Just underneath, something else: a single frog near the stream bend working its low note, the small creak of east-wall timber as the cooling night pulls it tight. The doe and twins were at the clearing edge at dusk. Both lines in water. Both snares set.
+
+Day 50. Fifty days on this ground. I came here with an axe, a tent, and a real fear I would starve, and tonight I am on a mat I wove myself behind a door I latched myself with a bar I cut from birch heartwood. Root cellar full enough. Garden green. A bow on the wall, mittens on a peg, a cap ready for cold. I keep waiting to feel astonished and instead I just feel quiet. Maybe that is what astonishment is, after it has settled in for good.
+
+The fire will carry through the night. Tomorrow: soil bank to sill height on the north wall, one more pine felled upslope. Sleep now.
+
