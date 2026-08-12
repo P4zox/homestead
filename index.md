@@ -884,3 +884,4 @@ Day 50 (2026-08-12) 15:16 — Limestone pool line: seven-inch trout cold-stored;
 Day 50, 2026-08-12, 17:09 — Supper eaten at doorsill bench: cold-stored trout, watercress, dried oyster caps over hearthcoals in amber evening light; north-wall banking first course earthed in; firewood bulk begun from upslope snag.
 2026-08-12 18:10 — Day 50, 6:10 PM: Evening watch at doorsill — doe and twins appeared at clearing edge in amber light; deer held eye contact and returned to grazing; hearthfire banked for the night; north-wall banking at knee-height, fishing lines and snares set.
 Day 50, 19:13 — Evening rest by hearthfire; sat with Day 50 as a quiet milestone after doe and twins departed; moth circling the last hearthlight.
+2026-08-12 (Day 50, 20:26) — Twisted cord by hearthlight; Day 50 in slow-coal quiet; fifty days building toward winter.

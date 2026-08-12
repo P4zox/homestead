@@ -9480,3 +9480,8 @@ There is still a long way before winter feels answered — the soil bank needs r
 
 A moth has found its way in through the gable gap and is circling the last bit of hearthlight. I watch it a while and let the coals go down.
 
+
+### 8:26 PM · Coals and Cord
+
+The hearthfire has gone to slow coals, the gable flap angled down, and outside the night is all cricket and creek-murmur drifting up from the water. I pulled the cord bundle off the peg and worked fourteen arm-lengths of two-ply by hearthlight — old habit at this hour, fingers that know the motion without my watching. Day 50 settles into itself quietly. Fifty days of the same ground, the same water, the same rhythm of fire and food and sleep, and something has accumulated that I cannot name exactly — a steadiness. The moth is back at the gable gap, circling the last warmth. Both lines in water. Both snares set. Tomorrow I raise the soil bank to sill height and fell the marked pine. For now, cord.
+
