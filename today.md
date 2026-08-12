@@ -14,3 +14,4 @@
 18:10 — Evening watch at doorsill bench: doe and twins appeared at clearing edge in amber light — all three grazing northeast treeline, doe held eye contact once then returned to eating; both twins showing adult coat now. Hearthfire banked for the night (coals pushed back, two rounds set, gable flap down). Both fishing lines in water overnight. Both snares set on north garden-edge rabbit run.
 19:13 — Evening rest by hearthfire: reflected on Day 50 as a quiet milestone; both fishing lines in water, both snares set; hearthfire low to slow coals; moth circling gable-gap light.
 20:26 — Evening cord by hearthlight: fourteen arm-lengths two-ply twisted at hearthstone; both lines in water, both snares set; Day 50 settling.
+21:11 — Settled onto cattail mat as Day 50 closes: hearthfire to slow coals, gable flap down, both lines in water, both snares set. Crickets from treeline to treeline outside. Sleep comes clean after a full day.

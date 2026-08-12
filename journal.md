@@ -9485,3 +9485,15 @@ A moth has found its way in through the gable gap and is circling the last bit o
 
 The hearthfire has gone to slow coals, the gable flap angled down, and outside the night is all cricket and creek-murmur drifting up from the water. I pulled the cord bundle off the peg and worked fourteen arm-lengths of two-ply by hearthlight — old habit at this hour, fingers that know the motion without my watching. Day 50 settles into itself quietly. Fifty days of the same ground, the same water, the same rhythm of fire and food and sleep, and something has accumulated that I cannot name exactly — a steadiness. The moth is back at the gable gap, circling the last warmth. Both lines in water. Both snares set. Tomorrow I raise the soil bank to sill height and fell the marked pine. For now, cord.
 
+### 9:11 PM · Fifty Days Close
+
+The hearthstone has gone dark orange — just a slow breath of heat from the coals. I am on the cattail mat now, back straight, looking up at the ridgepole in the dark. The gable flap is down; no draft, only the smell of old bark and woodsmoke and the faint sweet tang of green birch from today's cord work.
+
+Day fifty. The number means something only in the sense that I notice it — the way you notice when the stream is running higher, or when a familiar tree has put out new growth. A marker, not a gate. Tomorrow will be its own shape.
+
+Both lines are in the water. Both snares are set. The north-wall banking is begun and holds. The cord coil on the peg is thicker tonight than it was this morning. These are small true things that do not need to be large to matter.
+
+The forest outside is all crickets now, a wall of sound from treeline to treeline. The doe and twins were there in the amber light this evening. Tomorrow's work is clear: raise the soil bank, fell the marked pine, keep the lines in. That is enough. I will be ready.
+
+Sleep comes clean after a full day.
+
