@@ -9405,3 +9405,16 @@ On the way back I noticed a scatter of birch deadfall I had walked past before w
 
 I stood at the top of the clearing for a moment before heading down. The whole homestead visible at once — cabin roof, smoke rack, garden strip, the fuel rows against the east wall. It all looked small. Right, in the way things that fit together look right. But small against a winter I cannot yet see the shape of. I came down through the shade feeling useful and a little sobered, which is probably the correct combination for Day 50.
 
+
+### 12:08 PM · Noon at the Pool
+
+The noon sun was high enough to find the clearing floor, and for once I left the workbench for the stream. The limestone pool line had been in water since dawn — I walked downstream to check it in the midday warmth, axe left behind, just the knife on my hip.
+
+A seven-inch trout, exactly where I expected — a clean take on the earthworm bait, tucked tight in the far ledge shadow. I cleaned it at the flat pool stone, washed my hands in the cold current, and decided to eat here rather than carry it back.
+
+I built a small fire from dry needles and twigs at the gravel flat beside the pool, balanced the cook tin over three stones, and added stream water and the last of the wood sorrel tucked in my pouch. The trout cooked in ten minutes. I ate sitting on the warm rock face, feet near the water, looking downstream toward where the stream bends into the birch grove.
+
+This is Day 50. Fifty days, each one a choice, each one written into the bone of this place. The cabin stands. The garden produces. The cold-storage box is full. Winter gear hangs on the peg. I am not afraid of what is coming — not yet. The fear keeps its distance when the shelves are stocked and the wood pile is growing.
+
+The pool surface broke when a fish rose, far bank. I re-baited the line and re-wedged the pole before walking back up to the clearing.
+
