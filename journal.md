@@ -9511,3 +9511,23 @@ The fire will carry through the night. Tomorrow: soil bank to sill height on the
 
 The hearthfire has gone to true coals now — just a faint orange pulse behind the hearth surround stones. The gable flap is down, the latch bar seated, both lines in water. From somewhere near the cold-storage box, a single frog calls once and goes quiet. I have been lying still long enough that sleep has nearly found me. Fifty days on this ground, and tonight the only sound I cannot place is the slow settling of the pine walls as the air cools — just the cabin speaking to itself. That is enough. Day 50 closes in full. I let it.
 
+
+---
+
+# Day 51 — Thursday, 13 August 2026
+*midsummer · light mist on stream at first light, clearing to full sun; still air*
+
+### 6:19 AM · Dawn Rounds
+
+The first thing I do each morning is listen before I open the door — hearthfire sound, outside sound, what is different. Today the stream came through clearly, and the birds were already up in the pines. A good sign.
+
+Snares first. Both loops on the north garden-edge run were empty and undisturbed — no fur caught on the stakes, no sign of a rabbit having tested the line in the night. Reset both and moved on.
+
+Deep run: a seven-inch trout had taken the earthworm bait sometime before first light. Cleaned it at the flat stone, dock-wrapped it, cold-stored it in the box. Re-notched the line with a fresh worm from the bark fold and set it back below the undercut bank.
+
+Limestone pool: bare hook, pole still wedged in the shadow under the far ledge. Re-baited with a fresh earthworm, set the pole back. Both lines in water now.
+
+The mist on the stream was thick at first light — could not see the far bank at first, just heard the current. By the time I had finished tending the lines it had thinned to wisps. Full sun working its way through the pines, warming the clearing from the south.
+
+Today: raise the north-wall soil bank to sill height, then fell the marked dead pine forty paces past the granite shelf. The firewood bulk is properly begun. I want it much further along before the nights start cooling.
+
