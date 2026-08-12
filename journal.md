@@ -9438,3 +9438,9 @@ By the end of the hour the row has changed character. It is no longer stones lai
 
 The cabin wall above it is still uninsulated — the soil bank is only knee-high, not yet packed to sill height. But the first course is properly set, and the approach is proven. Tomorrow I will bring more soil and raise it.
 
+
+### 3:16 PM · Poolside in Afternoon
+
+The limestone pool line was ready when I arrived — a seven-inch trout hung still below the ledge shadow in cold, green water. I cleaned it at the flat stone, dock-wrapped it, and carried it back to the cold-storage box beside the morning's deep-run catch and the buried-log caps still waiting there. The hook went back on with the last good earthworm from the bark fold; pole wedged deep under the ledge again, both lines in water for the overnight set.
+
+At the side-seep below the deep run I found the watercress thick and dark — pulled a good fistful, stems crisp and cool against my palm. Dock-wrapped and cold-stored for supper. Walking back through the pines in warm afternoon light, with two trout in the box and greens for the tin, felt about as settled as any afternoon I can remember here. The north-wall banking stones sat neat and fresh from this morning's tamping. Another good thing done.

@@ -879,3 +879,4 @@ Day 50, 11:07 — Walked upslope past granite shelf; two dead pine snag candidat
 Day 50, 12:08 — Limestone pool line checked at noon; seven-inch trout cooked and eaten at poolside (first meal away from doorsill bench). Line re-baited and reset. Quiet midday reflection on Day 50 milestone.
 2026-08-12 | Day 50, 1:10 PM | Began north-wall banking: stone row (knee-high, three deep, corner to corner) placed along north base of cabin.
 2026-08-12 14:20 Day 50 — North-wall stone row earthed in; dark soil packed and tamped behind and between courses — row embedded firm.
+Day 50 (2026-08-12) 15:16 — Limestone pool line: seven-inch trout cold-stored; watercress gathered at side-seep for supper; both lines in water for overnight set.
