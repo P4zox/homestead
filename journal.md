@@ -9359,3 +9359,16 @@ Fifty days. I did not mark it when the number turned, but sitting here with the 
 
 The trout is good. The mushrooms thicken the mouthful with something earthy and dense. The sorrel goes bright against it all. I eat slowly and watch the stream catch the early light between the pines.
 
+
+### 8:09 AM · Fifty Days
+
+After breakfast I carried the cook tin down to the deep run and back four times — the garden wanted water and the morning was still cool enough to make the work pleasant. Seven rows east to west, same as always: the water darkens the soil and you can feel the ground soften underfoot as you work down the line. The nettles in rows one and two are chest-high now; I had to lean in under the leaf canopy to tip the tin close to the root zone.
+
+The mint was pressing again, same as it always is. Runners from row five had crept under the nettle bases in row four while I was looking elsewhere. I spent a few minutes redirecting them back against the border stones, pressing the stems flat and working them toward the edge. It comes back every time, but it comes back slower if you keep at it, and I think that is probably a reasonable metaphor for something.
+
+Fifty days. I stood at the corner stake at the north end of the garden and let that settle. The tent came down around Day Four. The hearth was done around Day Ten. By Day Twenty there was a roof and a door. Somewhere between then and now the work shifted — from getting through each week to tending something that actually grows. It is a different kind of attention, less urgent and somehow harder to sustain.
+
+What I am missing is bulk. The firewood stacks need walking through before the first cold week comes. The smoked deer and rabbit are good, the lines are reliable, the garden is full — but winter always needs more than you thought it would. I should check the east-wall stacks and think about banking earth against the north cabin face before the ground hardens. That is a good problem to have. It means the other problems are handled.
+
+Both lines still in water. The limestone pool hook will need checking midmorning. Garden is watered; mint redirected. Day 50 and the clearing looks like a homestead.
+
