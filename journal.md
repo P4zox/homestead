@@ -9394,3 +9394,14 @@ By the time I was through, the east wall stack had grown by another arm-length o
 
 Midsummer and I am already thinking of January. That is not anxiety — it is something that feels like care laid out in advance. Thirty-two split pieces from sixteen rounds, and more dead wood upslope if I look for it. The winter will find this east wall a little more ready than it found the clearing.
 
+
+### 11:07 AM · Upslope Scout
+
+The pine halves are stacked, bark-up, and the east-wall row is longer than it was this morning. But from here at the bench I can see it is not enough — not yet. So I walked back upslope, past the granite shelf and past the fresh stump where this morning's snag stood, to see what else might be ready.
+
+The hillside is cooler under the canopy. Forty paces beyond the stump I found the first likely candidate: a standing dead pine, maybe six inches at the base, clean bark mostly gone, the wood light-grey and dry when I rapped it with a knuckle. That's tomorrow's work. Another twenty paces further and slightly left there's a larger one — ten inches, maybe more — but it leans toward a pair of young birch and I would need to clear a falling path first. Worth remembering.
+
+On the way back I noticed a scatter of birch deadfall I had walked past before without looking closely: three trunks, half-fallen, already resting on their neighbors. Dry enough to split. Another day's wood, already on the ground.
+
+I stood at the top of the clearing for a moment before heading down. The whole homestead visible at once — cabin roof, smoke rack, garden strip, the fuel rows against the east wall. It all looked small. Right, in the way things that fit together look right. But small against a winter I cannot yet see the shape of. I came down through the shade feeling useful and a little sobered, which is probably the correct combination for Day 50.
+
