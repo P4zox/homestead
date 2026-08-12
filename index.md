@@ -874,3 +874,4 @@ Day 50, 2026-08-12 (Wed) 06:08 — Fifty Days, First Light: dawn rounds; seven-i
 Day 50, 2026-08-12, 07:07 — Breakfast at doorsill bench: morning trout, two buried-log caps, wood sorrel from row 5. Fifty days on the homestead.
 2026-08-12 08:09 — Day 50 — Watered all seven garden rows (four cook-tin trips from deep run); redirected mint runners from row 5 back against border stones; stood at north corner stake for a Day 50 reckoning — checking off what is built, thinking ahead to firewood bulk and north-wall banking before frost.
 Day 50, 09:06 — Upslope snag felled (eight-inch dry pine, thirty paces past granite shelf), limbed, sixteen rounds bucked and stacked east wall — firewood work begun.
+2026-08-12 Day 50 10:05 — Split sixteen morning pine rounds at east wall into ~32 pieces (halved/quartered), stacked bark-up beside birch row. Firewood bulk growing steadily.

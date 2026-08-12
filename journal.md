@@ -9385,3 +9385,12 @@ I limbed it on the slope, left the slash behind, and bucked the trunk into round
 
 Only a beginning for a winter supply. But the right work for a morning like this, on a day like this one.
 
+
+### 10:05 AM · Splitting Morning Rounds
+
+I came back to the sixteen new pine rounds after breakfast settled. The axe head found its rhythm quickly — dead pine splits clean, heart grain dry through the center, the halves folding away from each stroke with a satisfying crack. I worked through them methodically: halve, quarter, the thinner rounds into sixths, the stout ones into eighths. The pieces came out pale and tight-grained, still faintly sweet with resin.
+
+By the time I was through, the east wall stack had grown by another arm-length of solid split wood. I stacked bark-up as I always do, the pieces interlocked along their longest faces so air can move through. The birch row on one side, the old windthrow splits, and now the new pine row growing in beside them.
+
+Midsummer and I am already thinking of January. That is not anxiety — it is something that feels like care laid out in advance. Thirty-two split pieces from sixteen rounds, and more dead wood upslope if I look for it. The winter will find this east wall a little more ready than it found the clearing.
+
