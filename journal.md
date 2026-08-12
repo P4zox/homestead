@@ -9458,3 +9458,14 @@ I did not get here through any single effort. I got here through enough unremark
 
 The doe and her twins have not appeared yet this evening. I will watch for them as the light drops.
 
+
+### 6:10 PM · The Doe Comes Back
+
+The supper dishes were cooling and the hearthfire down to a low orange glow when I heard them — not exactly heard, more sensed the quality of silence at the clearing edge shift. The doe came first, the same wide-necked female, and behind her the twins in single file, their spots almost gone now, coats deepening toward the red-brown of adults. They moved in from the northeast treeline the way they always do, unhurried, the lead doe working her nose into the still air before each step.
+
+I stayed on the doorsill bench and did not move. The light at this hour lays itself sideways across the clearing, gold gone amber, and the three of them stood in it like they were part of it. The twins are growing fast — each visit they seem less gawky, more deliberate in how they place their feet. The doe let them graze the clearing edge while she watched. Once she looked directly at me, held it a few seconds, and went back to eating. Fifty days in, and she has decided I am part of the landscape here.
+
+I banked the hearthfire before full dark — pushed the live coals to the back of the hearth pad, set two short rounds against them, laid the bark flap over the gable gap to cut the draft. The shelter held warmth. Both fishing lines are in the water. Both snares are set. The firewood stack is taller than it was this morning and the north-wall banking sits solid at its knee-height foundation course. Tomorrow I will raise it to the sill.
+
+Day 50. It keeps feeling like something worth marking, though the land does not care about round numbers. What I know is this: I came here with nearly nothing and tonight I have a cabin, a hearth, a garden, a winter-food store, two working lines in the stream, and the deer have stopped fearing me. That is footing. The rest is building.
+
