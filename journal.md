@@ -9427,3 +9427,14 @@ Spent the hour pulling flat stones from the streambed — palm-wide to foot-wide
 
 The shape is good. Tomorrow I will dig dark soil from the north slope and pack it behind the row — loose forest earth, it will tamp firm — to fill the gaps and press everything snug against the lower log course. Stone and earth together will hold better than either alone. The cabin will feel it the first hard night, and so will I.
 
+
+### 2:20 PM · Earthing the North Wall
+
+The stone row has been sitting along the north base since early afternoon — placed clean, three deep, corner to corner. But stones stacked on flat ground move in frost. What holds them is earth behind them.
+
+I spent this hour on the north slope, digging with the birch digging stick at the foot of the bank where the soil is dark and compacted — leaf mold layered over years, mixed with stream-clay from old floods. Heavy stuff. I hauled it in the birch-bark bucket and the bark vessel, load after load, packing it behind the stone row and pressing it into the gaps between courses with a flat pine offcut saved from the bench work. After every third load I tamped the whole row: boot-heel along the top, palm-press at the joints.
+
+By the end of the hour the row has changed character. It is no longer stones laid on the ground — it is a banked foundation, stones embedded in soil, the earth holding them from behind and filling every void between them. I pressed my hand flat against the middle of the row and felt no give. That is the test.
+
+The cabin wall above it is still uninsulated — the soil bank is only knee-high, not yet packed to sill height. But the first course is properly set, and the approach is proven. Tomorrow I will bring more soil and raise it.
+
