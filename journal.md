@@ -9448,3 +9448,13 @@ At the side-seep below the deep run I found the watercress thick and dark — pu
 ### 4:09 PM · Cord Before Supper
 
 The afternoon gentled a little after four — the sun still full but the angle stretching, shadows tilting east. I sat at the doorsill bench with a length of inner bark and worked it down to cord: splitting, rolling the strands on my thigh, folding them over each other in a steady reverse-twist. Fourteen arm-lengths of two-ply coiled on the bench. It takes long enough to be satisfying and not so long that the mind drifts. This was a full day — the snag felled and split this morning, garden watered, north-wall banking earthed in solid, two trout from the limestone pool. The cord is for all of it, eventually: lashing, snares, stitching, things I have not needed yet. The watercress waits in cold storage for supper. I will cook when the light turns amber. Fifty days. The wood row against the east wall is growing. A good sign.
+### 5:09 PM · Ember Light Supper
+
+The watercress was still cold and crisp when I pulled it from the box — stems barely wilted, leaves a sharp bright green. I set a cold-stored trout in the cook tin, pressed the watercress in around it, added two dried oyster caps from the shelf, and moved it onto the low orange coals. The fire had spent itself well past its active stage; this was the patient ember hour, even and steady.
+
+I ate at the doorsill bench in the amber afternoon light. The sun had dropped low over the west treeline and was catching the garden at a slant — garlic fans almost gold, mint pooled in shadow, wood sorrel leaves trembling in some breath I could not feel on my face. Day fifty. The number sits quietly in my chest. Not triumphant exactly, but solid. The north wall banking started today — the first stone course earthed in, no give in the row. Firewood bulk begun from the dead snag upslope, sixteen rounds split and stacked. Smoked meat in the box, both lines in the water, snares reset on the north run, winter gear complete on the shelf above.
+
+I did not get here through any single effort. I got here through enough unremarkable hours, each one added to the last. That is how it works, I think. It is a thing I keep having to learn.
+
+The doe and her twins have not appeared yet this evening. I will watch for them as the light drops.
+
