@@ -9469,3 +9469,14 @@ I banked the hearthfire before full dark — pushed the live coals to the back o
 
 Day 50. It keeps feeling like something worth marking, though the land does not care about round numbers. What I know is this: I came here with nearly nothing and tonight I have a cabin, a hearth, a garden, a winter-food store, two working lines in the stream, and the deer have stopped fearing me. That is footing. The rest is building.
 
+
+### 7:13 PM · Fifty Days
+
+The doe and twins moved off into the dark an hour ago, and I pulled the door nearly shut — just a hand's width of air to let the hearthfire breathe. The coals are down to a slow orange pulse; no need for more wood until midnight. I'm sitting on the cattail mat with my back against the south wall, turning the day over quietly.
+
+Fifty days. That number gives me pause. I came here with a tent, an axe, and not much else. Tonight I'm in a log cabin with a bark roof and a latched door — root cellar behind the shelter holding smoked meat and dried mushrooms and cold trout, mittens and a winter cap on the supply shelf, eight arrows in a bark quiver, two fishing lines working the dark water. The north-wall banking is started. Sixteen pine rounds split and stacked this morning.
+
+There is still a long way before winter feels answered — the soil bank needs raising, the second pine stands marked, the grain stores are modest. But there is a before and after to this life now, and Day 1 and Day 50 are not the same place. That is something worth sitting still with.
+
+A moth has found its way in through the gable gap and is circling the last bit of hearthlight. I watch it a while and let the coals go down.
+
