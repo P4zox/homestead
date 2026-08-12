@@ -887,3 +887,4 @@ Day 50, 19:13 — Evening rest by hearthfire; sat with Day 50 as a quiet milesto
 2026-08-12 (Day 50, 20:26) — Twisted cord by hearthlight; Day 50 in slow-coal quiet; fifty days building toward winter.
 Day 50, 21:11 — Settled on cattail mat at close of Day 50; hearthfire to slow coals, gable flap down; both lines in water, both snares set; north-wall banking begun; crickets wall to wall from the treeline.
 Day 50, 2026-08-12, 10:10 PM — Lay awake on the cattail mat in the dark, listening to crickets and the single stream frog; Day 50 closes quiet.
+2026-08-12 Day 50, 11:17 PM — Silence Settles: final quiet of the day; hearthfire to true coals, frog calling once by the cold-storage box, walls settling, sleep arriving.

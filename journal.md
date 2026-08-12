@@ -9506,3 +9506,8 @@ Day 50. Fifty days on this ground. I came here with an axe, a tent, and a real f
 
 The fire will carry through the night. Tomorrow: soil bank to sill height on the north wall, one more pine felled upslope. Sleep now.
 
+
+### 11:17 PM · Silence Settles
+
+The hearthfire has gone to true coals now — just a faint orange pulse behind the hearth surround stones. The gable flap is down, the latch bar seated, both lines in water. From somewhere near the cold-storage box, a single frog calls once and goes quiet. I have been lying still long enough that sleep has nearly found me. Fifty days on this ground, and tonight the only sound I cannot place is the slow settling of the pine walls as the air cools — just the cabin speaking to itself. That is enough. Day 50 closes in full. I let it.
+

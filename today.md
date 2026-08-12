@@ -16,3 +16,4 @@
 20:26 — Evening cord by hearthlight: fourteen arm-lengths two-ply twisted at hearthstone; both lines in water, both snares set; Day 50 settling.
 21:11 — Settled onto cattail mat as Day 50 closes: hearthfire to slow coals, gable flap down, both lines in water, both snares set. Crickets from treeline to treeline outside. Sleep comes clean after a full day.
 22:10 — Lying awake on cattail mat in the dark: hearthfire to slow coals, gable flap down, both lines in water, both snares set. Crickets and one stream frog. Day 50 closes quiet.
+23:17 — Final night quiet: hearthfire to true coals, gable flap down, both lines in water overnight, both snares set. Day 50 ends in sleep.
