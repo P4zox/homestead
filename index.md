@@ -889,3 +889,4 @@ Day 50, 21:11 — Settled on cattail mat at close of Day 50; hearthfire to slow 
 Day 50, 2026-08-12, 10:10 PM — Lay awake on the cattail mat in the dark, listening to crickets and the single stream frog; Day 50 closes quiet.
 2026-08-12 Day 50, 11:17 PM — Silence Settles: final quiet of the day; hearthfire to true coals, frog calling once by the cold-storage box, walls settling, sleep arriving.
 2026-08-13 Day 51 06:19 — Dawn rounds: both snares empty; seven-inch deep-run trout caught and cold-stored; both lines reset; new day begun.
+2026-08-13 Day 51, 07:18 — North-wall banking: six soil runs from north-slope, second stone course packed and tamped; bank now hand-span above first course, a third toward sill height.

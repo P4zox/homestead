@@ -9531,3 +9531,16 @@ The mist on the stream was thick at first light — could not see the far bank a
 
 Today: raise the north-wall soil bank to sill height, then fell the marked dead pine forty paces past the granite shelf. The firewood bulk is properly begun. I want it much further along before the nights start cooling.
 
+
+### 7:18 AM · Soil, Stone Rising
+
+The mist has nearly gone — just thin veils above the stream, backlit gold by the climbing sun. I ate a piece of smoked rabbit cold at the doorsill with a cup of stream water and then set to work on the north-wall banking.
+
+Yesterday's first course is firm. The flat stones and tamped soil held overnight without settling; the face is solid to the push of a hand. I want this wall earthed in to sill height before the autumn rains come heavier. The north face gets the worst of any cold rolling down from the slope, and a banked wall will hold warmth inside far better than bare log ends exposed to wind and wet.
+
+I made six bucket runs from the north-slope bank this morning — dark dense loam, a good two hands of soil per load. Each run between the slope and the cabin settled into a rhythm of its own. With each load I packed the soil hard between and behind the stone course with the flat pine offcut, driving it into the gaps, tamping the face smooth. The bank sits two courses high now — a full hand-span above yesterday's stones, maybe a third of the way to the sill.
+
+It is slow work. The sun climbed while I hauled, and by the time I stopped to rest the air had already warmed past its morning coolness. I leaned on the wall and looked south: garden rows wide and dark, the stream glinting through the trees. A good place to be working, even hauling soil in the heat.
+
+Two more hauling sessions should bring the bank to sill height. Then I can think about sealing the top face against rain runoff before I turn to felling the marked dead pine.
+
