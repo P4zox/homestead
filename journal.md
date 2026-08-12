@@ -9418,3 +9418,12 @@ This is Day 50. Fifty days, each one a choice, each one written into the bone of
 
 The pool surface broke when a fish rose, far bank. I re-baited the line and re-wedged the pole before walking back up to the clearing.
 
+
+### 1:10 PM · Stone Row, North Wall
+
+After eating at the stream, I came back up through the warm afternoon and stood against the north face of the cabin for a moment. Good solid wall — but bare at its base. The first log course meets bare earth with nothing between, and that is exactly where the cold works its way in come winter: up through the ground, under the sill logs, into the floor. I have thought about banking it since at least Day 40. Today I started.
+
+Spent the hour pulling flat stones from the streambed — palm-wide to foot-wide, the kind that settle edge-to-edge without wobbling — and carrying them up in loads of four in the bark vessel and bucket. Set them along the full length of the north wall: a knee-high row, three stones deep, corner to corner. Not yet mortared or earthed in, just placed to read the shape of things, to see how the line sits against the logs.
+
+The shape is good. Tomorrow I will dig dark soil from the north slope and pack it behind the row — loose forest earth, it will tamp firm — to fill the gaps and press everything snug against the lower log course. Stone and earth together will hold better than either alone. The cabin will feel it the first hard night, and so will I.
+

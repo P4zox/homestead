@@ -877,3 +877,4 @@ Day 50, 09:06 — Upslope snag felled (eight-inch dry pine, thirty paces past gr
 2026-08-12 Day 50 10:05 — Split sixteen morning pine rounds at east wall into ~32 pieces (halved/quartered), stacked bark-up beside birch row. Firewood bulk growing steadily.
 Day 50, 11:07 — Walked upslope past granite shelf; two dead pine snag candidates found (smaller marked for tomorrow, larger noted for later); birch deadfall stand identified; firewood plan taking shape.
 Day 50, 12:08 — Limestone pool line checked at noon; seven-inch trout cooked and eaten at poolside (first meal away from doorsill bench). Line re-baited and reset. Quiet midday reflection on Day 50 milestone.
+2026-08-12 | Day 50, 1:10 PM | Began north-wall banking: stone row (knee-high, three deep, corner to corner) placed along north base of cabin.
