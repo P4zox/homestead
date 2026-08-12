@@ -9372,3 +9372,16 @@ What I am missing is bulk. The firewood stacks need walking through before the f
 
 Both lines still in water. The limestone pool hook will need checking midmorning. Garden is watered; mint redirected. Day 50 and the clearing looks like a homestead.
 
+
+### 9:06 AM · Looking Ahead at Fifty
+
+After the pause at the north corner stake this morning, I shouldered the axe and walked upslope. The mist had mostly lifted from the low places along the stream, but up in the pines it was still cool, the light coming in long slanted columns through the canopy. I was looking for snags — dry standing dead pines, the kind that fall clean and split true for fuel.
+
+I found one about thirty paces past the granite shelf: eight inches at the base, bark loose and lifting in strips, not a live branch anywhere on it. I pressed my thumb into the wood at knee height — firm and dry all the way through, nothing punky. A good one.
+
+I set my feet, chose the line of fall into the small opening to the east, and began the notch. The axe rang out sharp in the cool upslope air. A dozen full strokes to open the face, then I moved to the back and drove in level. The tree cracked once, leaned, and came down where I wanted it. A clean fall.
+
+I limbed it on the slope, left the slash behind, and bucked the trunk into rounds from the butt up. Sixteen rounds, knee-height, dense and pale inside. I carried them down in trips — four or five at a time, rolling a few down where the ground was clear. By the time the sun cleared the ridge and hit the cabin roof full on, all sixteen rounds were stacked against the east wall beside the older birch row.
+
+Only a beginning for a winter supply. But the right work for a morning like this, on a day like this one.
+

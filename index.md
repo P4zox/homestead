@@ -873,3 +873,4 @@ Day 49, 23:13 — Last waking hour; cattail mat, embers fading, stream and owl i
 Day 50, 2026-08-12 (Wed) 06:08 — Fifty Days, First Light: dawn rounds; seven-inch deep-run trout; buried log sixth harvest (six pale cream caps, two pins remain — check ~Day 55-56); both lines reset.
 Day 50, 2026-08-12, 07:07 — Breakfast at doorsill bench: morning trout, two buried-log caps, wood sorrel from row 5. Fifty days on the homestead.
 2026-08-12 08:09 — Day 50 — Watered all seven garden rows (four cook-tin trips from deep run); redirected mint runners from row 5 back against border stones; stood at north corner stake for a Day 50 reckoning — checking off what is built, thinking ahead to firewood bulk and north-wall banking before frost.
+Day 50, 09:06 — Upslope snag felled (eight-inch dry pine, thirty paces past granite shelf), limbed, sixteen rounds bucked and stacked east wall — firewood work begun.
