@@ -893,3 +893,4 @@ Day 50, 2026-08-12, 10:10 PM — Lay awake on the cattail mat in the dark, liste
 2026-08-13 08:20 Day 51 — Third Course Rising: north-wall banking third course complete, bank halfway to sill height
 - Day 51, 09:19 — North-wall banking complete to sill height; cabin more settled and anchored.
 Day 51, 2026-08-13, 10:18 — Dead pine snag (~6 in, forty paces past granite shelf) felled and limbed; fifteen rounds bucked and staged at east wall for splitting.
+2026-08-13 Day 51 11:18 — Split fifteen rounds of dry dead pine; forty-two lengths stacked bark-up at east wall beside earlier firewood rows.

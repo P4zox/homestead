@@ -9568,3 +9568,14 @@ Limbing went quick — dead wood does not cut so much as snap, each branch givin
 
 A hawk worked slow circles overhead while I limbed, riding the thermals above the treeline. The clearing smelled of cut pine resin and warm earth. From forty paces away, the garden rows look tall and green in the full midsummer light.
 
+
+### 11:18 AM · Dry Pine, East Wall
+
+The sun was straight overhead by the time I got to the splitting — full midsummer heat, no shade on the east side of the cabin until late afternoon. The fifteen rounds from the second snag were staged along the base of the east wall, pale end-grain up, smaller than yesterday's batch but no less welcome.
+
+Standing dead splits differently than green. The grain is open and dry, no spring in the wood, and the axe goes in near the center and the halves fall away clean — a sharp crack each time, not a thud of resistance. Most rounds needed four blows. A few knotted ones made me turn the piece, reset my stance, drive deeper before they gave. The axe is sharp enough that even the knots do not hold long.
+
+By the time I wiped the blade and set the axe inside, the east wall had two more arm-lengths of split wood stacked bark-up beside the earlier rows. Forty-two split lengths total from the fifteen rounds. You can stand at the doorsill now and see the bulk of the pile growing — a real stack, not just a beginning.
+
+I stood there a moment and looked at it. The wood is the color of old bone in the sun. Every piece of it is winter, already here.
+
