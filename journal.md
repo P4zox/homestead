@@ -9654,3 +9654,16 @@ What's left before the cold? More firewood — always more firewood. Some bark a
 
 The clearing is fully dark now. Crickets loud in the garden-side birches. Both lines are in the water, both snares are set. I have done what I can for today.
 
+
+### 8:26 PM · Tea at the Threshold
+
+The fire had settled to a good bed of coals — no need to feed it yet. I took the yarrow envelope from the bark tray on its peg and pinched a small fold of dried herb into the cook tin, then set the bail-stick across the rim and let it hang low over the coals. Added a pinch of dried plantain. While it steeped I sat at the doorsill bench and watched the clearing.
+
+No moon yet. The dark was complete beyond the faint orange flicker at the threshold. The stream sounds came clean through the still air — both lines are out there in the current, twitching with the flow. Both snares set and waiting on the garden run.
+
+The day had been a full one: banking finished to the sill, another pine split and stacked, chanterelles picked, oyster clusters harvested from the upslope trunk, garden watered, lines checked twice, cord twisted, supper eaten in amber light. The food box is heavy with trout and mushroom and smoked meat. The firewood rows are growing in proper stacks.
+
+What remains before cold: bark chinkling along the north and east walls, more firewood. Two things, and the cabin should hold warmth through whatever comes. I had not expected to feel this ready this early in the season. The work did not feel fast while I was doing it — each bucket of soil, each split round, each arrow shaft was just the hour I was in. But looking back from this doorsill, warm cup in hand and fire at my back, a great deal has been quietly built.
+
+I drank the tea slow. Yarrow is bitter in a clean way. The plantain smoothed it. I watched the dark clearing until the tin was empty, then went back inside.
+

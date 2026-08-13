@@ -901,3 +901,4 @@ Day 51, 15:26 — Cord twisted at doorsill bench (14 arm-lengths two-ply) after 
 Day 51, 2026-08-13 (Thu) 16:30 — Upslope oyster mushrooms (three clusters) harvested from rotting pine at seventy paces; watercress gathered at side-seep; north-wall banking complete; firewood stack growing at east wall.
 2026-08-13 17:18 Day 51 — Ate supper at doorsill bench: fresh oyster caps, trout, watercress from side-seep, cook tin over dying hearthcoals. Evening settling, both lines in water, day's work done.
 Day 51 (2026-08-13) 19:00 — Fire and Quiet: dusk snare check (both set, no catch), hearthfire, nine arm-lengths cord twisted, winter-readiness reckoning by firelight.
+2026-08-13 Day 51, 20:26 — Tea at the Threshold: dried yarrow and plantain steeped and drunk at doorsill in evening dark; quiet reflection on winter readiness.
