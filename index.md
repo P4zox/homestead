@@ -905,3 +905,4 @@ Day 51 (2026-08-13) 19:00 — Fire and Quiet: dusk snare check (both set, no cat
 2026-08-13 Day 51, 21:23 — Hearthside reflection: west gable chinkling noted as next task; fire tamped; settling toward sleep.
 Day 51, 10:32 PM — Threshold watch; stars clear overhead; west gable chinkling planned for morning.
 2026-08-13 Day 51, 23:00 — Final threshold watch; latch bar settled; sleeping to stream-sound under stars. West gable chinkling first task tomorrow.
+2026-08-14 | Day 52 | 06:00 | Chinkling the Gable — west gable wattle-rafter gap packed with dry moss and four resin-sealed bark strips; draft eliminated; shelter fully sealed.

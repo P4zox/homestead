@@ -9698,3 +9698,19 @@ I pulled the door shut and heard the latch bar settle into its keeper. My boots 
 
 Fifty-one days on this clearing. The north wall banked to the sill, firewood stacked two-deep at the east wall, stores good, gear whole. The stream still running. Good enough to sleep on.
 
+
+---
+
+# Day 52 — Friday, 14 August 2026
+*midsummer · clear and warm; no mist at first light; light west breeze*
+
+### 6:00 AM · Chinkling the Gable
+
+The west gable has been on my mind since last night — I could feel the draft when I set the latch bar, a thin cold thread through the dark. It is not cold yet, but it speaks of what is coming.
+
+First light was already clean and bright, no mist on the stream, when I started. A fistful of dry moss from the shaded bank behind the shelter — the kind that peels up in flat mats, dense and dry through — pulled in both hands and pressed into the gap between the gable wattle and the rafter tails. Two hand-spans of open space, once you looked: enough for wind to thread its fingers through in November. I tamped the moss tight with a stick end, working from one side to the other, feeling it compress against the wicker and the wood.
+
+Then the resin, warmed on the hearthstone until just pliable. Four bark strips from the supply shelf, each pressed resin-face-in over the moss, edges seated tight against wattle and rafter. I smoothed each joint with a thumb. When I ran my hand back and forth before the sealed gap, there was nothing — no pull at all. The outside air will have to find another way.
+
+I stood there a moment in the morning quiet. The north banking is done. The firewood stack grows. The gable is plugged. Each closure is a small argument with the coming cold, and for now, I am winning every one.
+
