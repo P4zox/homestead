@@ -9612,3 +9612,14 @@ There's a kind of ease that comes after a full morning — not laziness, but the
 
 Both lines reset for the evening. The cold-storage box is well-stocked tonight.
 
+
+### 3:26 PM · Cord and Stillness
+
+The afternoon has settled into that heavy, still quality midsummer gets when the sun has stopped climbing but hasn't tipped yet toward descent. I brought the lashing-cord coil out to the doorsill bench and sat in the warm shade of the south overhang.
+
+After the morning — the banking done course by course, the pine snag felled and limbed and bucked, the forty-two split lengths stacked at the east wall — my hands knew what to do without being asked. Strip bark, split it thin, roll two strands between palm and thigh, let the twist come. Fourteen arm-lengths of two-ply cord. The stream made its usual sound. A wren called once from the garden-side birches and did not call again.
+
+The north wall is banked to its sill now, solid and earthed in. The firewood rows are growing real. Today felt like a winter-preparation day, several threads of it at once, and this cord is another strand of the same work — more lashing for whatever gets built before the cold comes. I find something steadying about that. The same motion each time, the same slow accumulation.
+
+The sun is still high enough to warm the bench. I will sit here a while longer before checking the lines at dusk.
+
