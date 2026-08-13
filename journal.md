@@ -9599,3 +9599,16 @@ I carried the cook tin to the deep run four times and walked the rows east to we
 
 Standing at the end with an empty tin, the weight of the morning in my shoulders, firewood stacked and the cabin walls banked and food put by — I let myself count it a little. The work is not done; it never is. But the shape of the winter does not frighten me the way it might have in the first weeks.
 
+
+### 2:21 PM · Water and Rest
+
+After the morning's labor — banking soil against the north wall, felling the second pine snag, splitting rounds, checking the chanterelle hollow, watering the garden — the afternoon invited something quieter. I walked the path to the deep run with the cook tin and a fresh earthworm twist from the bait fold.
+
+The deep run line had a seven-inch trout on the hook, hanging slow in the current. I cleaned it at the flat stream stone, wrapped it in dock leaves, and tucked it into the cold-storage box. The line re-notched with a fresh worm, reset below the undercut bank. Then the limestone pool — the pole still wedged under the far ledge shadow. That line had a trout too, same size, as if the pool and the run had agreed on the answer. Cleaned it at the flat pool stone, dock-wrapped, cold-stored.
+
+I sat on the granite ledge beside the pool for a while after. The water ran clear and green-shadowed in the afternoon sun. The mist was long gone, the air still and warm, and I had nothing left that urgently needed doing. The north wall is banked to the sill. The firewood stack grows against the east wall. The garden is dark and settled. I just sat and let the stream talk.
+
+There's a kind of ease that comes after a full morning — not laziness, but the earned quiet at the back of a productive day. I watched a water strider work the pool's slack edge. The pines threw long afternoon shadows across the clearing when I finally walked back.
+
+Both lines reset for the evening. The cold-storage box is well-stocked tonight.
+
