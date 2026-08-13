@@ -904,3 +904,4 @@ Day 51 (2026-08-13) 19:00 — Fire and Quiet: dusk snare check (both set, no cat
 2026-08-13 Day 51, 20:26 — Tea at the Threshold: dried yarrow and plantain steeped and drunk at doorsill in evening dark; quiet reflection on winter readiness.
 2026-08-13 Day 51, 21:23 — Hearthside reflection: west gable chinkling noted as next task; fire tamped; settling toward sleep.
 Day 51, 10:32 PM — Threshold watch; stars clear overhead; west gable chinkling planned for morning.
+2026-08-13 Day 51, 23:00 — Final threshold watch; latch bar settled; sleeping to stream-sound under stars. West gable chinkling first task tomorrow.

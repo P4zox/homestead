@@ -9689,3 +9689,12 @@ I thought about the west gable gap — the draft I felt when the evening breeze 
 
 Everything else holds. Food deep in the box, firewood growing at the east wall, lines in the water, snares set. The north banking solid to the sill. The day was a full one and the work showed. I'm glad for it. Sleep now — tomorrow the gaps get sealed.
 
+
+### 11:00 PM · Into Sleep
+
+One last step to the threshold. The stars were thick — more than usual, the mist having fully gone. I could hear the stream clearly in the dark clearing, that cold steady sound it makes when everything else has gone quiet. Both snares were shadows at the garden edge; both lines somewhere below in moving water. The fire was already coals, just orange warmth with no smoke, the hearthstone ticking as it cooled.
+
+I pulled the door shut and heard the latch bar settle into its keeper. My boots went beside the sleeping bag. I lay down on the cattail mat with the west gable just above my head — and through the gaps I have been meaning to chink all day, a thin thread of night air came through. Cool, clean, smelling of pine and damp earth. Tomorrow I will seal those gaps with bark strips and resin and dry moss. Tonight they just let the outside in, a little.
+
+Fifty-one days on this clearing. The north wall banked to the sill, firewood stacked two-deep at the east wall, stores good, gear whole. The stream still running. Good enough to sleep on.
+

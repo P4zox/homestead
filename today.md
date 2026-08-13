@@ -15,3 +15,4 @@
 20:26 — Evening herb tea at doorsill bench: yarrow and plantain steeped in cook tin over hearthcoals; drunk slow at threshold watching dark clearing. Both lines in water, both snares set. Fire tended; settling toward sleep.
 21:23 — Hearthside by dying coals; west gable chinkling noted as next priority task (bark gaps, draft felt, needs pine bark strips and resin before cold snap); fire tamped; both lines in water, both snares set; settling toward sleep.
 22:32 — Threshold watch at dying coals: stars thick overhead, stream audible in dark clearing, snares and lines all set and quiet. Thought through west gable chinkling — bark strips, resin, dry moss in gaps; to seal tomorrow morning. To sleep.
+23:00 — Final threshold watch: stars thick, stream audible in dark, both snares and lines set quiet. Latch bar settled; sleeping.
