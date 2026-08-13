@@ -9632,3 +9632,12 @@ Coming back down through the pines I stopped at the side-seep below the deep run
 
 The stone banking along the north wall is solid now — I walked the full length of it on the way out, pressing a palm flat against the packed earth. Firm. Dense. The firewood rows at the east wall catch the late south light, bark-up in tight rows. Still months until hard frost, but today the homestead looks readier than it did yesterday, and that is the best feeling this clearing offers.
 
+
+### 5:18 PM · Supper, Long Light
+
+The light has gone amber through the pines and I brought supper in from the hearthstone — two trout and a handful of the fresh oyster caps from this afternoon's upslope check, the watercress pressed on top, all cooked together in the cook tin over low coals. I ate at the doorsill bench with the south view opening out, garden rows dark and settled, stream line glinting in the last direct light.
+
+The day feels more than earned. North-wall banking finished this morning — four courses of stone and dark loam packed to the sill, solid throughout, no give. Two pine snags down and split, the east-wall firewood rows growing visible now in the slant light. Garden watered, lines set, cord twisted in the afternoon shade. The cold-storage box is well stocked — trout, oysters, smoked rabbit, buried log caps, chanterelles.
+
+Wrens have gone quiet. The stream is audible if I turn my ear toward it. Both lines are in the water and I'll leave them till tomorrow's first light. There's a long hour or two of dusk still ahead, and I don't plan to fill them with anything. Some evenings are just for sitting at the threshold and letting the light go.
+
