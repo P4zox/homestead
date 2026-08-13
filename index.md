@@ -906,3 +906,4 @@ Day 51 (2026-08-13) 19:00 — Fire and Quiet: dusk snare check (both set, no cat
 Day 51, 10:32 PM — Threshold watch; stars clear overhead; west gable chinkling planned for morning.
 2026-08-13 Day 51, 23:00 — Final threshold watch; latch bar settled; sleeping to stream-sound under stars. West gable chinkling first task tomorrow.
 2026-08-14 | Day 52 | 06:00 | Chinkling the Gable — west gable wattle-rafter gap packed with dry moss and four resin-sealed bark strips; draft eliminated; shelter fully sealed.
+Day 52, 07:25 — Checked overnight lines and snares: deep-run gave seven-inch trout (cold-stored), limestone pool bare (re-baited and reset), both snares empty and reset; garden rows noted thriving.

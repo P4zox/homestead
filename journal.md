@@ -9714,3 +9714,18 @@ Then the resin, warmed on the hearthstone until just pliable. Four bark strips f
 
 I stood there a moment in the morning quiet. The north banking is done. The firewood stack grows. The gable is plugged. Each closure is a small argument with the coming cold, and for now, I am winning every one.
 
+
+### 7:25 AM · Lines in Early Light
+
+The gable work left resin on my palms and pine smell in the shelter, which felt right. I stepped out into a morning already warming — no mist at all, just clear air and the stream's sound carrying up the slope.
+
+Deep-run pole first. It was angled low in the water, which usually means something — I pulled it up: seven inches, silver and still pulling. Cleaned it at the flat stone, dock-wrapped it for the cold-storage box. Reset the line with a fresh earthworm from the bait fold and wedged the pole back under the undercut bank.
+
+The limestone pool line came up bare. Re-baited with an earthworm and reset the pole under the far ledge shadow. Both lines back in the water by the time the sun cleared the treeline.
+
+Snares on the north garden-edge rabbit run: both untouched. I reset them, checked loop heights, pressed the trigger notches clean. Snares are patient. They work without me.
+
+On the way back I stopped at the garden rows. The nettles in rows 1-2 are tall again since the last cutting. Mint still pressing from row 5, but the border stones are holding it. Garlic standing wide. Wood sorrel filling the shadow strip edge to edge. Everything in motion, quietly.
+
+Back at the doorsill bench in full morning light now. The shelter is sealed. The lines are running. The day is clear and still young.
+
