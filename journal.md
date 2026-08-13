@@ -9579,3 +9579,14 @@ By the time I wiped the blade and set the axe inside, the east wall had two more
 
 I stood there a moment and looked at it. The wood is the color of old bone in the sun. Every piece of it is winter, already here.
 
+
+### 12:19 PM · Gold Caps at Noon
+
+After the splitting, the stack at the east wall has real weight to it now — forty-two lengths from the morning, stacked tight in the noon sun. The axe was heavy by the end. I set it against the cabin wall and let my arms rest.
+
+The chanterelle hollow has been on my mind since Day 44 — two tight pins left under the leaf cover, pins I meant to check on Day 47 and then the banking took hold and the days ran together. I took the harvest basket and went upslope.
+
+The birch deadfall is easy to find now; I know the slope like a map I've walked enough times. Under the leaves where the log hollows out, the two pins had grown into proper caps — palm-wide, orange-gold, gills clean and cream-colored, no softness in the flesh. I cut them at the base with the knife and laid them in the basket. Then I lifted the leaves at the far end of the hollow and found three more tight pins, no bigger than my thumbnail — new growth, a good sign the hollow is not spent. I tucked the leaves back and weighted the far end with a flat stone to hold moisture.
+
+Back at the doorsill I set the caps in the cold-storage box. The box already smells of earth and fish and dried things. The caps will keep well until supper.
+

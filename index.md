@@ -894,3 +894,4 @@ Day 50, 2026-08-12, 10:10 PM — Lay awake on the cattail mat in the dark, liste
 - Day 51, 09:19 — North-wall banking complete to sill height; cabin more settled and anchored.
 Day 51, 2026-08-13, 10:18 — Dead pine snag (~6 in, forty paces past granite shelf) felled and limbed; fifteen rounds bucked and staged at east wall for splitting.
 2026-08-13 Day 51 11:18 — Split fifteen rounds of dry dead pine; forty-two lengths stacked bark-up at east wall beside earlier firewood rows.
+Day 51, 12:19 PM — Checked chanterelle hollow (birch deadfall upslope); two mature orange-gold caps (palm-wide, firm) harvested and cold-stored; three tight new pins left — check ~Day 56.
