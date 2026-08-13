@@ -9557,3 +9557,14 @@ Stepping back, the cabin reads differently. The banking is dark loam against gre
 
 I ran a hand along the top of the bank. Solid throughout. No give anywhere. The cabin is more settled than it was yesterday — a little more ready.
 
+
+### 10:18 AM · Dead Pine Falls
+
+The banking is done — I pressed a palm against the earthed north wall this morning and felt nothing give. Solid throughout, cool from the banked soil. A season ago that north face was bare log meeting open air; now it is armored in stone and earth, cold already seeping through the mass of it. The first winter task is finished.
+
+Took the axe and walked forty paces past the granite shelf to the marked dead pine — six inches at the base, maybe less. Bone-dry all through, the bark loose and flaking under my hand. The notch came in fast: six strokes, the chips pale and almost dustless. Five to the back-cut, a single tap with the axe poll, and it swept down across the slope in that slow arc that always takes longer than expected, settling with a crack of dry branches.
+
+Limbing went quick — dead wood does not cut so much as snap, each branch giving with a hollow pop and a burst of bark dust. Then I bucked it into rounds along the slope, fifteen in all, knee-height each. Carried them down in armloads and lined them beside yesterday's splits against the east wall. The stack grows visibly now — the beginning of something that will matter when February comes.
+
+A hawk worked slow circles overhead while I limbed, riding the thermals above the treeline. The clearing smelled of cut pine resin and warm earth. From forty paces away, the garden rows look tall and green in the full midsummer light.
+
