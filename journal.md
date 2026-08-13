@@ -9641,3 +9641,16 @@ The day feels more than earned. North-wall banking finished this morning — fou
 
 Wrens have gone quiet. The stream is audible if I turn my ear toward it. Both lines are in the water and I'll leave them till tomorrow's first light. There's a long hour or two of dusk still ahead, and I don't plan to fill them with anything. Some evenings are just for sitting at the threshold and letting the light go.
 
+
+### 7:25 PM · Fire and Quiet
+
+I checked the snares at dusk — both still set, nothing caught — and stood a moment at the north cabin face before coming inside. Four courses of river stone and dark hauled earth, packed flush with the sill logs. I pressed my hand to it: still warm from the afternoon sun, not a give anywhere. It will hold.
+
+Inside I fed the fire and sat with it. Not tired enough to sleep yet, too satisfied to want to do much. Habit moved my hands and I twisted another nine arm-lengths of cord before I set them down — just the rhythm of evening, the hands finding their own work.
+
+I found myself thinking through what's done and what remains. Food stores are strong — fish coming daily, mushrooms flushing every few days, smoked meat in the box, dried herbs on the shelf. Firewood is growing: two snags felled and split this week, more standing dead upslope waiting. The winter gear is made. The garden is in.
+
+What's left before the cold? More firewood — always more firewood. Some bark and moss for any gaps the wind finds in the wall logs. Perhaps another hide if the hunting goes well. The cellar could hold more dried food. None of it is urgent yet; all of it is possible.
+
+The clearing is fully dark now. Crickets loud in the garden-side birches. Both lines are in the water, both snares are set. I have done what I can for today.
+
