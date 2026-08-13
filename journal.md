@@ -9548,3 +9548,12 @@ Two more hauling sessions should bring the bank to sill height. Then I can think
 ### 8:20 AM · Third Course Rising
 
 The route between slope and cabin is automatic now — north bank, fill the birch bucket and bark vessel, haul back, pour and pack. Six more runs this morning, the soil dark and cool where yesterday's shade held it, tamping each load into the stone course with the flat pine offcut until the earth gives back solid resistance. Three courses now; the stones are nearly swallowed by the earthwork and sill height is close enough to gauge by eye. One more session should close it. Midsummer stretched long and warm around the work: stream light catching through the tree gaps, garden rows deep green below, the air still and almost drowsy. My shoulders knew every step without being told. This is the quietest kind of building — no new timber framed, no roof raised, nothing that shows at a glance — but the north wall will sit properly grounded when the cold comes, and I know I put it there course by course on mornings like this one.
+
+### 9:19 AM · Banking to the Sill
+
+Six more runs from the north-slope bank — the last hauling session. By the time the final bucket was poured and tamped, the bank stood flush with the sill logs, corner to corner along the full north face. The pine offcut I have been using for tamping is worn nearly smooth from these hours of work.
+
+Stepping back, the cabin reads differently. The banking is dark loam against grey log, and it makes the north wall look lower and heavier — more anchored. That is the point. A good insulating bank slows heat loss from the base and keeps cold air from curling under the sill. This winter, that work will matter.
+
+I ran a hand along the top of the bank. Solid throughout. No give anywhere. The cabin is more settled than it was yesterday — a little more ready.
+
