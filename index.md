@@ -898,3 +898,4 @@ Day 51, 12:19 PM — Checked chanterelle hollow (birch deadfall upslope); two ma
 Day 51, 13:19 — Garden watered: four cook-tin trips east to west, mint runners redirected, soil darkened and settled throughout; quiet afternoon count of a winter-ready life.
 Day 51, 14:21 — Afternoon lines: two seven-inch trout caught (deep run + limestone pool), cold-stored; both lines reset for evening; rest at granite ledge poolside.
 Day 51, 15:26 — Cord twisted at doorsill bench (14 arm-lengths two-ply) after full morning of north-wall banking, pine snag felling and splitting; wren called once from garden-side birches.
+Day 51, 2026-08-13 (Thu) 16:30 — Upslope oyster mushrooms (three clusters) harvested from rotting pine at seventy paces; watercress gathered at side-seep; north-wall banking complete; firewood stack growing at east wall.

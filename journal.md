@@ -9623,3 +9623,12 @@ The north wall is banked to its sill now, solid and earthed in. The firewood row
 
 The sun is still high enough to warm the bench. I will sit here a while longer before checking the lines at dusk.
 
+
+### 4:30 PM · The Pine at Seventy Paces
+
+I went upslope in the warm afternoon, the pines throwing long gold light through the canopy by the time I reached the old rotting log at seventy paces. Seven days since the last cut. The bark had that particular soft-damp look that often comes just before a new flush, and sure enough — three good clusters had pushed out at the upper trunk end, pale buff caps spread wide, gills clean white underneath. I cut them at the stem base and laid them in the harvest basket. Enough for two smoke-rack sessions or one good cook.
+
+Coming back down through the pines I stopped at the side-seep below the deep run and pulled a fistful of watercress — stems crisp, dark green, tinged with late-summer red at the leaf margins. Dock-wrapped and carried back. The cook tin is already warming on the hearthstone; tonight's supper settling into shape before the light has even reached the treeline.
+
+The stone banking along the north wall is solid now — I walked the full length of it on the way out, pressing a palm flat against the packed earth. Firm. Dense. The firewood rows at the east wall catch the late south light, bark-up in tight rows. Still months until hard frost, but today the homestead looks readier than it did yesterday, and that is the best feeling this clearing offers.
+
