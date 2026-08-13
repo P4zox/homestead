@@ -903,3 +903,4 @@ Day 51, 2026-08-13 (Thu) 16:30 — Upslope oyster mushrooms (three clusters) har
 Day 51 (2026-08-13) 19:00 — Fire and Quiet: dusk snare check (both set, no catch), hearthfire, nine arm-lengths cord twisted, winter-readiness reckoning by firelight.
 2026-08-13 Day 51, 20:26 — Tea at the Threshold: dried yarrow and plantain steeped and drunk at doorsill in evening dark; quiet reflection on winter readiness.
 2026-08-13 Day 51, 21:23 — Hearthside reflection: west gable chinkling noted as next task; fire tamped; settling toward sleep.
+Day 51, 10:32 PM — Threshold watch; stars clear overhead; west gable chinkling planned for morning.

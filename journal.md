@@ -9680,3 +9680,12 @@ Lines in the water. Snares set on the north run. Fire tamped to coals.
 
 I will sleep well.
 
+
+### 10:32 PM · Stars Over the Clearing
+
+The fire burned down to coals while I sat at the threshold, not quite ready for sleep. The clearing is wide and dark past the doorframe — midsummer stars thick overhead, no moon yet, the birches pale columns where they catch what light there is. I could hear the stream in the dark, and the snares quiet, and nothing else.
+
+I thought about the west gable gap — the draft I felt when the evening breeze shifted. Tomorrow I'll cut bark strips and press them in with resin, stuff the worst gaps with dry moss before binding. It won't take long if the morning stays calm. The chinkling should have been done weeks ago; the cabin breathes where it shouldn't. Better to close it now, in late warmth, than wait for the first cold night.
+
+Everything else holds. Food deep in the box, firewood growing at the east wall, lines in the water, snares set. The north banking solid to the sill. The day was a full one and the work showed. I'm glad for it. Sleep now — tomorrow the gaps get sealed.
+
