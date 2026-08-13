@@ -9590,3 +9590,12 @@ The birch deadfall is easy to find now; I know the slope like a map I've walked 
 
 Back at the doorsill I set the caps in the cold-storage box. The box already smells of earth and fish and dried things. The caps will keep well until supper.
 
+
+### 1:19 PM · Rows in Still Heat
+
+The morning spent itself well — the banking done, the firewood stack doubled, the chanterelles in the box. Now the clearing sits in white afternoon stillness, no breeze off the pines, the light sitting flat and hot across the open ground.
+
+I carried the cook tin to the deep run four times and walked the rows east to west: garlic fans dark and wide, dandelion rosettes flat across the amended strip, wood sorrel pressing the shadow edge clean, then nettles thick in the first two rows, mint pressing again toward row four — I bent those runners back before the last trip. The soil took the water darkly, each pour soaking in fast. Two fingers down it is cool; summer is still doing its work.
+
+Standing at the end with an empty tin, the weight of the morning in my shoulders, firewood stacked and the cabin walls banked and food put by — I let myself count it a little. The work is not done; it never is. But the shape of the winter does not frighten me the way it might have in the first weeks.
+
