@@ -9667,3 +9667,16 @@ What remains before cold: bark chinkling along the north and east walls, more fi
 
 I drank the tea slow. Yarrow is bitter in a clean way. The plantain smoothed it. I watched the dark clearing until the tin was empty, then went back inside.
 
+
+### 9:23 PM · Still Water
+
+Sitting with the fire now, coals pulled back to a steady red. The shelter holds warmth well tonight — months of work in those walls, and I feel the proof of it in the still air around me. Outside the clearing is fully dark; I can hear the stream below the slope but not see it.
+
+The day was heavy and good. North-wall banking finished corner to corner, the firewood stack grown real and visible against the east wall, the cold box full. There is a kind of quiet satisfaction in a completed thing — not pride exactly, more like setting down a weight carried a long way. I feel that in my hands and shoulders.
+
+I keep thinking about the west gable chinkling. There are gaps in a few bark seams I have been noting for a week now — nothing serious yet, but that changes when the temperature drops. I want to close those before the first cold snap. That is the work waiting for a still morning: harvest pine bark if I can find dry slabs, press the strips tight into the gaps, seal with resin. After that, more splitting. The east stack is strong, but winter is long.
+
+Lines in the water. Snares set on the north run. Fire tamped to coals.
+
+I will sleep well.
+
