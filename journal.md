@@ -9796,3 +9796,12 @@ The cool in that draw is the thing. Even at mid-afternoon with the sun flat and 
 
 The rounds are stacked now at the east wall beside the firewood rows. Tomorrow, early, before the heat builds: fitting the base stones, notching the corners, laying the walls.
 
+
+### 3:34 PM · Stones for the East Box
+
+Walked back to the east draw in the full afternoon warmth, birch bucket in hand. The draw runs cool under the canopy even now — the air pooling in the bottom noticeably colder than the clearing above. I worked upstream from where I cut the alder rounds this morning, kneeling at the seep edge to pull flat stones from the streambed. The draw gives good ones: palm-wide to foot-wide, smooth-faced, sitting under a thumb of water and easy to lift clean. I filled two hauls, carrying bucket and bark vessel, and stacked the stones in a flat row beside the alder rounds at the east wall. Base material for the cache box is ready now.
+
+Tomorrow I will carry everything down at first light — flat-stone base first, then the alder rounds for the walls, then lash a bark lid over birch crosspieces and weight it with a flat river stone, same as the first box. Two cold sites working will make a real difference as summer peaks and the harvest builds. The east draw stays naturally chill well into afternoon; whatever goes in that box will keep.
+
+Came back up the slope with the light going amber behind the pines. Evening settling in. Both lines still in water; both snares set on the north garden edge.
+
