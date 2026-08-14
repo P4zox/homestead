@@ -6,3 +6,4 @@
 10:20 — East slope scouted: south-facing bench (~12x10 paces) eighty paces east; thin grass, late wild strawberries at edge; narrow draw below with seep/seasonal stream; cool air pooling in draw at mid-morning. Terrain mapped. Both lines in water; snares set.
 11:20 — Gathered late wild strawberries from east slope bench (palm-plus harvest, small and deep red, cold-stored in bark vessel in box).
 12:26 — Noon meal at doorsill: morning seven-inch trout cooked with two dried chanterelle caps and wood sorrel (row 5) over hearthcoals; late east-slope strawberries (full bark vessel handful) eaten after. Resting at doorsill bench in full noon warmth. Afternoon plan: cord twisting in shade.
+13:29 — Cord twisted at doorsill bench in afternoon shade: fourteen arm-lengths two-ply bark cord, tallow-rubbed and coiled. Thinking through east seep cache box — second cold-storage site in cool draw eighty paces east, to be built tomorrow morning.

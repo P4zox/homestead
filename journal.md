@@ -9778,3 +9778,13 @@ After, I brought out the bark vessel of strawberries from this morning and ate t
 
 The afternoon is mine. I will twist cord at the bench, in the shade. The east seep will wait for a cooler morning. Nothing is urgent. That itself is a kind of plenty.
 
+### 1:29 PM · Afternoon Cord Work
+
+After noon the sun holds the clearing fully — no shadow anywhere on open ground. I moved to the doorsill bench, back to the door frame, shoulder just inside the eave's shade. The lashing bundle came down from the shelf. I split strips lengthwise into ribbons, dampened them against my palm, and set in.
+
+The double-ply twist goes fast in the afternoon heat. Bark softens easily; fibers catch and roll without resistance. Arm-length after arm-length. The hands know this motion by now and the mind drifts free.
+
+I kept thinking about the east seep draw I scouted this morning — that cool air pooling in the narrow hollow, the late strawberries just inside the shadow line. A second cold-storage box there would let me cache fish or forage closer to where I gather them, and the draw's cool would rival the cold seep upstream. The walls would be easy: a few slender rounds cut short and fitted against the bank. I'll try it tomorrow morning before the heat builds.
+
+A woodpecker steady in the pines upslope. Light west breeze. Both lines in the water; snares set on the rabbit run. Fourteen arm-lengths of two-ply cord, tallow-rubbed and coiled, beside me on the bench.
+
