@@ -9816,3 +9816,12 @@ On the way back I stopped at the side-seep below the deep run. The watercress is
 
 The shelter is sealed from this morning. The garden green and settled. The east draw ready. Tomorrow the second cache box goes in. I feel the day beginning to tip toward evening, and it's a comfortable feeling — work done, supper in hand, the forest going quiet around me.
 
+
+### 5:31 PM · Supper at the Threshold
+
+The evening is settling over the clearing in that particular midsummer way — light going long and golden, the birches casting stretched shadows east across the grass, the air just beginning to cool at the edges. I built up the coals on the hearthstone and set the cook tin on: one trout from cold storage, the watercress fistful from the side-seep, and two dried oyster caps from the box. The fat off the mushrooms mixed with the greens and the fish into something close to a proper meal. I ate it at the doorsill bench, watching the light work its way down the pines.
+
+Everything for tomorrow is already staged: eight alder rounds and the flat stones from the east draw sit in a row by the east wall, waiting for first light. The east seep cache box should go up fast — the base stones are chosen, the rounds stripped, the site already walked. A second cold-store in the east draw will double my reach come autumn, let me cache closer to that slope territory without hauling back to the cabin every time. A good problem to have.
+
+Both lines are set in the water. Snares waiting on the rabbit run. The shelter is fully sealed now — no draft through the west gable gap, the moss packed firm under the bark strips. I sat at the bench and felt the cabin behind me the way you feel a solid wall at your back. The clearing quieted, the stream ran on, and the day folded shut clean.
+
