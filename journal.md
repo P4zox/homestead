@@ -9862,3 +9862,10 @@ I keep thinking toward the east seep. The alder rounds are staged at the east wa
 
 The fire breathes. Stars broad and clear above the gap in the treeline. I close my eyes and the day settles: gable sealed at dawn, nettles harvested, garden watered, trout in the box, late strawberries found and eaten in full noon light. East draw scouted, alder and stone staged. A full and quiet day, and now the clearing holds its breath for the one that follows.
 
+
+### 9:49 PM · Stars Over the Clearing
+
+Stepped outside just before ten — the cooling air was worth it. The gap in the treeline above the clearing holds a proper sky tonight: thick stars, the Milky Way drifting south to north in a faint wash, nothing to interrupt it. Crickets steady in the grass. Once, far off past the birch ridge, an owl called once and went quiet again. I stood in the clearing dooryard and let the night settle. The east wall looks right in the dark — the alder rounds bundled, the flat cache-box stones stacked pale against the woodpile. Both lines somewhere below in the stream, holding still in the current. Both snares set and waiting.
+
+I came back in. The hearthcoals are low orange through the banked logs. The cattail mat holds the floor warmth. Tomorrow starts early — east seep cache box at first light. Tonight that can wait. I pulled the sleeping bag across my shoulders and let the day go.
+
