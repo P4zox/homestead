@@ -9741,3 +9741,11 @@ Two armfuls of nettle tops came in. Half went into the cook tin with stream wate
 The other half I cord-tied into a loose bundle and hung from the wall peg beside the dried nettle bundle already there — it will dry in a few days, adding to the winter tea and fiber supply.
 
 Rows 1-2 look tidier now, more air and light reaching the base stems. They'll push new growth by the end of the week.
+### 9:24 AM · All Seven Rows
+
+The nettles were hung and the tin rinsed by half past eight. I came out from under the doorway into the full midsummer morning — the sun already well up, the light hard-edged and bright off the birch bark. I walked the garden rows, pressing two fingers into the soil between the garlic fans. Dry an inch down. Expected, after a warm night. Midsummer takes the moisture back fast.
+
+Four trips from the deep run, each tin full. I worked east to west the way I always do — start at the garlic and dandelion, where the soil is lean, and end at the nettles and mint, where the ground already holds more. The sorrel at the north edge looks dense and settled. The mint has pushed to the border stones but held there. The nettle rows, freshly cut to mid-stem this morning, have clear space now, and the sun goes all the way to the bases.
+
+By the time the last tin was poured the garden was dark-soiled and quiet. A west breeze moved through. I stood at the end of the plot for a minute and just watched it — one of those pauses where the work is done and the doing of it feels right.
+

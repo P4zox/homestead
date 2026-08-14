@@ -908,3 +908,4 @@ Day 51, 10:32 PM — Threshold watch; stars clear overhead; west gable chinkling
 2026-08-14 | Day 52 | 06:00 | Chinkling the Gable — west gable wattle-rafter gap packed with dry moss and four resin-sealed bark strips; draft eliminated; shelter fully sealed.
 Day 52, 07:25 — Checked overnight lines and snares: deep-run gave seven-inch trout (cold-stored), limestone pool bare (re-baited and reset), both snares empty and reset; garden rows noted thriving.
 Day 52, 08:29 — Harvested nettle tops from garden rows 1-2; half simmered with dried chanterelle for breakfast at doorsill; half cord-tied and hung to dry for winter tea and fiber supply.
+Day 52, 09:24 — Garden watered (four cook-tin trips, all seven rows east to west); mint held at border stones; sorrel full; nettle rows open after morning harvest.
