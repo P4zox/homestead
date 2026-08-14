@@ -9756,3 +9756,14 @@ After the garden settled and the morning work wound down, I walked east — not 
 
 Nothing dramatic. No game, no new mushroom flush, nothing I need to act on this week. But I filed it all: the bench, the draw, the angle of the ridge above it. A second garden row might go there one season, or a cache box set far enough from the cabin to stay out of range of whatever visits the clearing at night. For now it is just a map in my head — and the map got a little larger.
 
+
+### 11:20 AM · Strawberries on the East Bench
+
+I went back for them. Eighty paces east at a good clip, basket over one arm, the west breeze at my back the whole way. The slope was warmer than the clearing — stones holding last night's cool still, sun already past the treeline. The late strawberries were where I'd seen them: along the upper edge of that south-facing bench, tucked low in the thin grass, small and deep red, darker than the June berries ever get. I took my time. No hurry in the late morning.
+
+I worked east to west along the bench edge, crouching row by row, fingers light. The berries are smaller than the main-clearing patch at peak, but sweeter for it — concentrated by the lean soil and the extra sun this slope catches. Pulled a little over a palm's worth into the basket. Some crushed lightly as I picked; I ate those at the edge, tart-sweet, standing in the full midsummer sun with my eyes half-closed.
+
+The draw below held its cool air even in late morning. The seep line is consistent — I can hear it trickling somewhere under the moss at the base. That will matter when I come back to place a cache box here. But today I just picked berries and listened and went home.
+
+Back at the doorsill bench by midday. Berries in the bark vessel, cold-stored in the box beside the fish. A small thing, but a good one.
+
