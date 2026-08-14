@@ -9838,3 +9838,16 @@ Tomorrow: the east seep cache box. A second cold site, eighty paces from the cab
 
 I came inside when the first bat crossed the gap of sky above the clearing. The hearth coals are low and steady.
 
+
+### 7:00 PM · Last Light, Still
+
+The evening has settled over the clearing in the way it does when the day's work has been honest — the light moving soft and amber through the pines, the heat still held in the ground but the air beginning to give it up. I put a small handful of dried yarrow in the cook tin with stream water and hung it over the last of the hearthcoals, and while it steeped I sat at the doorsill bench and did nothing at all.
+
+That felt like enough.
+
+The garden holds quiet down the slope. The cord is coiled on the shelf. Eight alder rounds wait beside the east wall, patient as only cut wood can be. Tomorrow the east seep cache box — an afternoon's work if the stones seat right — and this clearing will have another place to keep the cold in.
+
+The tea came out bitter-bright, the way yarrow does, and I drank it slow at the threshold, watching the last blue drain from the sky above the treeline. First stars. The bat again, the same one or another, threading the dark between the birches. Hearthcoals banked with three pine lengths to hold through the night; embers should be alive at first light.
+
+Fifty-two days. The shelter holds. The food is steady. The work is starting to look like a life.
+

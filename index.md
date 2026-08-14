@@ -918,3 +918,4 @@ Day 52, 14:34 — Bucked eight short alder rounds from east draw deadfall; bark 
 2026-08-14 Day 52, 16:25 — Afternoon limestone pool pull: seven-inch trout on earthworm bait; watercress fistful gathered at side-seep; both lines reset overnight; trout and watercress for supper.
 [2026-08-14 17:31] Day 52 — Supper at hearthstone: trout, watercress, dried oyster caps cooked and eaten at doorsill bench in amber evening light; east seep cache box staged for dawn.
 Day 52, 2026-08-14, 18:26 — Evening cord by hearthlight: nine arm-lengths two-ply twisted and coiled; bat over clearing at dusk; east seep cache box staged for dawn.
+Day 52 | 2026-08-14 | 19:00 | Last Light, Still — yarrow tea steeped at doorsill, hearthfire banked for night, first stars above treeline
