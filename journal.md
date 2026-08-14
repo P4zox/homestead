@@ -9887,3 +9887,19 @@ The shelter is so quiet I can hear myself breathing. Coals have gone from orange
 
 I do not need to do anything more tonight. That is a feeling worth staying with for a moment — the day already complete, the work set in order, the shelter sealed and still. East seep cache box at first light. Sleep now.
 
+
+---
+
+# Day 53 — Saturday, 15 August 2026
+*Midsummer · clear and bright at first light; no mist; light westerly; full sun expected*
+
+### 6:20 AM · East Seep Cache Box
+
+First light touched the ridge-tops while I was still lacing my moccasins. The east seep cache box has been on my mind since I scouted the draw two days ago — that cool air pooling in the hollow, the seep keeping the soil dark and cold. A second cold-storage site there means I am not hauling everything eighty paces each way on a warm afternoon; it means I have redundancy if the main box ever floods or smells wrong.
+
+Loaded the alder rounds and flat stones into bundles this morning and made two trips to the draw. Set the base first — six palm-wide flat pieces bedded level in the dark seep soil beside the running water, pressed down until they stopped moving. Then the four alder walls, notched at corners, two courses high. The rounds are forearm-thick and green-seasoned, dense enough to hold their shape against the bank. Bark lid cut from the sheet I carried out — four strips lashed shingle-fashion over two birch crosspieces, weighted with the flattest stone I could find in the seep bed.
+
+Lifted the lid and pressed my hand inside: noticeably cool. Same principle as the main box upstream — the seep pulls warmth from the air faster than the open shade does. I can store overflow trout there, or use it as a staging point on gathering days east of the clearing.
+
+Both overnight lines were still in water when I checked the main stream on the way back. The garden looked good from twenty paces — all rows green and settled. The shelter stands solid and sealed, west gable holding. Day 53, and the homestead is quietly expanding outward.
+
