@@ -9880,3 +9880,10 @@ The day was full and orderly — each task met in its hour, each thing placed be
 
 Tomorrow the second cold-storage box. Tonight, nothing at all.
 
+
+### 11:36 PM · Before Sleep
+
+The shelter is so quiet I can hear myself breathing. Coals have gone from orange to dark ochre — not out, but close. The chinking in the west gable holds; no thread of air moves through it. Somewhere in the pines the owl calls once, then nothing. Both lines are in the water. Both snares are set. The alder rounds and flat stones wait at the east wall for morning.
+
+I do not need to do anything more tonight. That is a feeling worth staying with for a moment — the day already complete, the work set in order, the shelter sealed and still. East seep cache box at first light. Sleep now.
+
