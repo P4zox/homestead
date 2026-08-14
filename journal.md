@@ -9903,3 +9903,12 @@ Lifted the lid and pressed my hand inside: noticeably cool. Same principle as th
 
 Both overnight lines were still in water when I checked the main stream on the way back. The garden looked good from twenty paces — all rows green and settled. The shelter stands solid and sealed, west gable holding. Day 53, and the homestead is quietly expanding outward.
 
+
+### 7:18 AM · Snares and Stream
+
+The clearing held the quiet of a summer morning still warming — a light west breeze, the pines on the slope barely moving, the sky already full blue past the treeline. I walked the garden border first, checking the snares. Both loops intact, triggers undisturbed. No rabbit this morning. I reset them clean and moved on.
+
+Down at the deep run, the pole was bent. A seven-inch trout, dark-backed, firm — the hook seated clean in the lip. I cleaned it at the flat stream stone, wrapped it in dock leaf, and tucked it into the main cold-storage box. The limestone pool line was bare; re-baited it with an earthworm from the bark fold, pole re-wedged deep under the far ledge shadow, both lines back in the water before the sun had reached the stream.
+
+I walked home through the garden. The nettles in rows one and two are pushing fresh tips after yesterday's harvest — sturdy and bright. The mint is holding at its border stones. Wood sorrel edge to edge in the shadow strip. I stood at the doorsill for a moment with nothing needing immediate doing, which is its own kind of satisfaction after the cache box work at first light. Two cold-storage sites now, and a morning's catch already in the box. The day is still young.
+

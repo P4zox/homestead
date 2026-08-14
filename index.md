@@ -924,3 +924,4 @@ Day 52 | 2026-08-14 | 19:00 | Last Light, Still — yarrow tea steeped at doorsi
 Day 52, 22:30 — Lay on cattail mat by low hearthcoals, sleeping bag drawn up; shelter fully quiet for the first time with west gable sealed; reflected on the day; both lines and snares set; east seep cache box staged for dawn.
 2026-08-14 Day 52 23:36 — Before Sleep: last wakefulness in sealed shelter; coals low, owl distant, lines and snares set; east seep cache box staged for dawn.
 Day 53, 06:20 — Built east seep cache box in cool draw eighty paces east; six flat base stones, four alder walls, bark lid — second cold-storage site established.
+Day 53, 07:18 — Morning line and snare check: deep-run gave seven-inch trout (cleaned, dock-wrapped, cold-stored); limestone pool bare (re-baited, reset); both snares empty and reset; garden nettles pushing fresh tips after yesterday harvest.
