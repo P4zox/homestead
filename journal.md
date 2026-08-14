@@ -9869,3 +9869,14 @@ Stepped outside just before ten — the cooling air was worth it. The gap in the
 
 I came back in. The hearthcoals are low orange through the banked logs. The cattail mat holds the floor warmth. Tomorrow starts early — east seep cache box at first light. Tonight that can wait. I pulled the sleeping bag across my shoulders and let the day go.
 
+
+### 10:30 PM · Embers and Rest
+
+The hearthfire is down to low orange coals — the kind that breathe without crackling, that shift once every few minutes in the quiet and then go still again. I am on the cattail mat with the sleeping bag drawn up to my shoulders. The shelter is entirely still. No draft. The west gable chinking held all day and into the night; this is the first evening this place has felt completely closed around me, no whisper of outside air anywhere along the walls.
+
+Both fishing lines are in overnight water. Both snares are set on the north garden-edge rabbit run. The alder rounds and flat stones for the east seep cache box are staged at the east wall, waiting for first light. Every preparation made. There is nothing left to do today.
+
+The day was full and orderly — each task met in its hour, each thing placed before the next was begun. I can feel that in my hands now: the particular tired that is also satisfied, that does not press back against sleep. My eyes are already heavy. The owl I heard at 21:49 has gone quiet somewhere in the pines. The forest is settling with me.
+
+Tomorrow the second cold-storage box. Tonight, nothing at all.
+
