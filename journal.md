@@ -9767,3 +9767,14 @@ The draw below held its cool air even in late morning. The seep line is consiste
 
 Back at the doorsill bench by midday. Berries in the bark vessel, cold-stored in the box beside the fish. A small thing, but a good one.
 
+
+### 12:26 PM · Noon, At the Doorsill
+
+The fire from this morning has died to orange coals, just enough heat left. I set the cook tin over them with the morning trout, two dried chanterelle caps, a handful of wood sorrel from row five. By the time I had washed my hands at the stream-bend, the smell was already finding me.
+
+Sat at the doorsill bench and ate slow. The midsummer noon presses down warm and absolute — no mist, no cloud, the west breeze gone still. The clearing holds the heat differently than the forest; out there a shadow is cool, but here the air itself is thick and golden. I did not hurry. The bench boards are warm through the cloth. The forest edge is quiet.
+
+After, I brought out the bark vessel of strawberries from this morning and ate them one by one. Small and deep red, not the big flush of June but sweeter for it — concentrated by the August sun on that east-slope bench. A different taste than any I have had here: faintly wine-dark, more seed than flesh, the kind of berry that has been trying all summer. I ate every one.
+
+The afternoon is mine. I will twist cord at the bench, in the shade. The east seep will wait for a cooler morning. Nothing is urgent. That itself is a kind of plenty.
+

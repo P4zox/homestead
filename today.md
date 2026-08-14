@@ -5,3 +5,4 @@
 09:24 — Garden watered (Day 52): soil dry one inch down in garlic rows after warm midsummer night; four cook-tin trips from deep run, all seven rows east to west; nettle rows open after morning cut, mint runners at border stones; wood sorrel full; garden darkened and settled.
 10:20 — East slope scouted: south-facing bench (~12x10 paces) eighty paces east; thin grass, late wild strawberries at edge; narrow draw below with seep/seasonal stream; cool air pooling in draw at mid-morning. Terrain mapped. Both lines in water; snares set.
 11:20 — Gathered late wild strawberries from east slope bench (palm-plus harvest, small and deep red, cold-stored in bark vessel in box).
+12:26 — Noon meal at doorsill: morning seven-inch trout cooked with two dried chanterelle caps and wood sorrel (row 5) over hearthcoals; late east-slope strawberries (full bark vessel handful) eaten after. Resting at doorsill bench in full noon warmth. Afternoon plan: cord twisting in shade.
