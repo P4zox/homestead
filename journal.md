@@ -9729,3 +9729,15 @@ On the way back I stopped at the garden rows. The nettles in rows 1-2 are tall a
 
 Back at the doorsill bench in full morning light now. The shelter is sealed. The lines are running. The day is clear and still young.
 
+
+### 8:29 AM · Morning Nettle Work
+
+The day came in bright and warm, no mist, a west breeze still carrying the smell of pine resin from this morning's chinkling. The cabin sits sealed now, gable gap filled, no cold draft leaking from the west — and it felt good to walk out into the open after finishing that job.
+
+I pulled on dock-leaf wraps and went to the garden. Rows 1 and 2 were deep in nettles — stems chest-high, newer tips tender and dark green. I worked through both rows from the north edge inward, pinching the top third off each plant. The sting gets through dock leaf even so, a faint heat across the knuckles. You learn to work fast and loose, not grip-firm.
+
+Two armfuls of nettle tops came in. Half went into the cook tin with stream water and a small handful of dried chanterelle — simmered over hearthcoals until the leaves went silk-dark and the broth turned deep green. I ate it at the doorsill bench in full morning sun, the cup warm between my palms. The sting leaves a plant the moment heat hits it; the bitterness stays, in the best way.
+
+The other half I cord-tied into a loose bundle and hung from the wall peg beside the dried nettle bundle already there — it will dry in a few days, adding to the winter tea and fiber supply.
+
+Rows 1-2 look tidier now, more air and light reaching the base stems. They'll push new growth by the end of the week.
