@@ -9805,3 +9805,14 @@ Tomorrow I will carry everything down at first light — flat-stone base first, 
 
 Came back up the slope with the light going amber behind the pines. Evening settling in. Both lines still in water; both snares set on the north garden edge.
 
+
+### 4:25 PM · Late Trout
+
+The afternoon has been full — stones staged, alder rounds bundled, tomorrow's cache box ready down to the last lashing. When the sun hit the treeline angle that means four o'clock, I walked back down to the limestone pool.
+
+The line was taut. A seven-inch trout, clean on the earthworm bait, taken sometime in the warm afternoon hours. Cleaned it at the flat pool stone, dock-wrapped, tucked it in the cold-storage box. Re-baited with a fresh earthworm from the bark fold, wedged the pole back under the far ledge shadow. Both lines in the water now for overnight.
+
+On the way back I stopped at the side-seep below the deep run. The watercress is dense there this time of year — stems thick and dark, spreading into the shallow margin. Pulled a good fistful, rinsed in the current, dock-wrapped and carried home. Trout and watercress tonight, with two dried oyster caps in the cook tin. Simple supper after a day that rounded well.
+
+The shelter is sealed from this morning. The garden green and settled. The east draw ready. Tomorrow the second cache box goes in. I feel the day beginning to tip toward evening, and it's a comfortable feeling — work done, supper in hand, the forest going quiet around me.
+
