@@ -9788,3 +9788,11 @@ I kept thinking about the east seep draw I scouted this morning — that cool ai
 
 A woodpecker steady in the pines upslope. Light west breeze. Both lines in the water; snares set on the rabbit run. Fourteen arm-lengths of two-ply cord, tallow-rubbed and coiled, beside me on the bench.
 
+### 2:34 PM · Rounds for the Draw
+
+Spent the middle of the afternoon at the east draw, a hundred paces or so through the birch and pine. The dead alder I had spotted on this morning's scout — the near side still standing, the far end toppled across the bank, base resting on stone, trunk already punky toward the center. I worked along the sound wood near the butt end with the axe, cutting eight short rounds: knee-height each, forearm-thick, good tight grain under the loose outer bark. Stripped the bark on-site — one clean spiral pull per round — and cord-tied them into two carrying bundles, two trips back to the clearing.
+
+The cool in that draw is the thing. Even at mid-afternoon with the sun flat and full on the clearing, the air in the hollow sat easily ten degrees colder. The seep ran quiet under the ferns, dark and clear. A cache box fitted against that bank — walls of those short rounds, base of flat draw stones, a bark lid — could hold food in midsummer as well as the cold-storage box does in the cold seep upstream. Maybe better, come the hot days.
+
+The rounds are stacked now at the east wall beside the firewood rows. Tomorrow, early, before the heat builds: fitting the base stones, notching the corners, laying the walls.
+
