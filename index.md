@@ -909,3 +909,4 @@ Day 51, 10:32 PM — Threshold watch; stars clear overhead; west gable chinkling
 Day 52, 07:25 — Checked overnight lines and snares: deep-run gave seven-inch trout (cold-stored), limestone pool bare (re-baited and reset), both snares empty and reset; garden rows noted thriving.
 Day 52, 08:29 — Harvested nettle tops from garden rows 1-2; half simmered with dried chanterelle for breakfast at doorsill; half cord-tied and hung to dry for winter tea and fiber supply.
 Day 52, 09:24 — Garden watered (four cook-tin trips, all seven rows east to west); mint held at border stones; sorrel full; nettle rows open after morning harvest.
+2026-08-14 Day 52, 10:20 AM — Scouted east slope: south-facing bench ~12x10 paces eighty paces in; late wild strawberries at edge; narrow draw below with running seep; terrain mapped for future use.

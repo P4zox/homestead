@@ -9749,3 +9749,10 @@ Four trips from the deep run, each tin full. I worked east to west the way I alw
 
 By the time the last tin was poured the garden was dark-soiled and quiet. A west breeze moved through. I stood at the end of the plot for a minute and just watched it — one of those pauses where the work is done and the doing of it feels right.
 
+
+### 10:20 AM · East Slope, First Look
+
+After the garden settled and the morning work wound down, I walked east — not with any task in mind, just axe on shoulder and eyes open. The clearing edge gives quickly to pines, then to a mixed slope of birch and alder as the ground rises. Eighty paces in the land levels into a small south-facing bench — maybe twelve by ten paces of open ground, not quite clearing but not full forest either. Thin grass, late wild strawberries scattered along the edge, a few just ripe enough to eat standing. Below the bench the slope drops into a narrow draw where I could hear water moving — a seep or a seasonal stream, fed by whatever trickles off the ridge above. Cool air pooling there even at mid-morning.
+
+Nothing dramatic. No game, no new mushroom flush, nothing I need to act on this week. But I filed it all: the bench, the draw, the angle of the ridge above it. A second garden row might go there one season, or a cache box set far enough from the cabin to stay out of range of whatever visits the clearing at night. For now it is just a map in my head — and the map got a little larger.
+
