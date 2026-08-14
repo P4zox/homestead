@@ -9825,3 +9825,16 @@ Everything for tomorrow is already staged: eight alder rounds and the flat stone
 
 Both lines are set in the water. Snares waiting on the rabbit run. The shelter is fully sealed now — no draft through the west gable gap, the moss packed firm under the bark strips. I sat at the bench and felt the cabin behind me the way you feel a solid wall at your back. The clearing quieted, the stream ran on, and the day folded shut clean.
 
+
+### 6:26 PM · Cord by Firelight
+
+The day wound down gently. Supper done, lines in the water, snares set at the garden edge — there is a particular ease that comes in the evening when everything that needs doing for the day is done and tomorrow's work is already staged. The alder rounds sit in two cord-tied bundles against the east wall beside the flat stones hauled from the draw. All that is needed in the morning is light and steady hands.
+
+I settled at the doorsill bench as the sun dropped lower behind the pines, the light going amber and long across the clearing, and worked another length of bark cord. The strips dried enough over the day to twist well — nine arm-lengths two-ply, tallow-rubbed, coiled on the supply shelf.
+
+The air cooled steadily. There is a quality to late midsummer evenings different from spring — fuller, softer, the birch leaves barely moving, the forest behind the shelter darker and quieter than a month ago. The stream sounds carry farther when the wind drops.
+
+Tomorrow: the east seep cache box. A second cold site, eighty paces from the cabin and close enough to carry things to in fair weather, far enough from the hearth to hold cool through the hottest midsummer afternoons. One more piece of the homestead finding its place.
+
+I came inside when the first bat crossed the gap of sky above the clearing. The hearth coals are low and steady.
+
