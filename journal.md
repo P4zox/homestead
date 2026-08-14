@@ -9851,3 +9851,14 @@ The tea came out bitter-bright, the way yarrow does, and I drank it slow at the 
 
 Fifty-two days. The shelter holds. The food is steady. The work is starting to look like a life.
 
+
+### 9:00 PM · Embers and Stillness
+
+Past nine now. The hearthfire has settled into a deep orange pulse behind the banked logs — three pine lengths tamped in at dusk, enough to hold embers through the cool of the night. I dragged the cattail mat close to the south wall, sleeping bag unrolled on top of it, not yet in, just sitting with warmth at my back and the door cracked two fingers to let the night air in.
+
+The clearing is quiet. An owl somewhere past the treeline. The garden rows are dark below, garlic fans catching enough moonlight to show as faint pale shapes. Both snares are set; both lines are in the water. Everything I can do tonight, I have done.
+
+I keep thinking toward the east seep. The alder rounds are staged at the east wall, flat stones beside them, all ready. First light tomorrow I will carry it down to the draw in two hauls and cut the seep bank while the morning is still cool. A second cold-storage box deeper in the land — tucked in that shaded draw where the air already pools cold at mid-morning. The food has two chances then, even if midsummer turns sharp.
+
+The fire breathes. Stars broad and clear above the gap in the treeline. I close my eyes and the day settles: gable sealed at dawn, nettles harvested, garden watered, trout in the box, late strawberries found and eaten in full noon light. East draw scouted, alder and stone staged. A full and quiet day, and now the clearing holds its breath for the one that follows.
+
