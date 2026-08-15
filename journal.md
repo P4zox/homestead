@@ -9986,3 +9986,14 @@ The second row I left fully undisturbed. I watered both rows at the base with on
 
 Eight garlic bulbs drying on the workbench. The first food pulled from the ground that was mine to plant.
 
+
+### 3:19 PM · Cattail Work, Warm Afternoon
+
+The afternoon has been full — cache box at dawn, lines checked, garden watered, blueberries packed into the east seep, a snag felled and split, garlic pulled and set to cure in the afternoon light. At three the heat settles into the clearing like something permanent.
+
+I checked the cattail leaves I cut eight days ago from the south stream-bend stand — two armfuls, spread flat on the outdoor workbench to dry. I ran one through between my thumb and forefinger and felt what I was looking for: pale gold, supple, bending clean without the snap of a fresh blade. Ready.
+
+I started a storage basket at the bench, sitting on the rough pine crosspiece in the east-wall shade while the clearing baked. Base stakes down first — a dozen long blades quartered and overlapping at the center — then the weavers came in, over-under, drawing the circle outward slowly. The work is quiet. My hands know the motion now from the sleeping mat I wove last month. By the time I looked up the sun had moved a full hand-span west and the basket base was dinner-plate wide, walls already turning up three or four rows. Enough to hold the curing garlic when the stems knot. Enough for blueberries, for dried herbs, for whatever the clearing gives next.
+
+Both lines still in water. Both snares quiet on the north run. Two trout in the main box, ready for supper. I will cook in a little while and eat at the doorsill while the light goes amber.
+

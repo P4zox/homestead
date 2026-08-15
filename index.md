@@ -932,3 +932,4 @@ Day 53, 09:20 — Foraged late blueberry flush from north slope; birch basket th
 Day 53, 12:20 — Afternoon snag fell north of granite shelf; twelve rounds bucked and staged at east wall for splitting.
 Day 53, 2026-08-15, 13:18 — Split twelve pine rounds from morning snag; stacked bark-up at east wall alongside older rows — staging area clear.
 Day 53, 14:19 — First Garlic Pull — eight mature bulbs test-pulled from eastern garden strip first row; curing stem-end up on outdoor workbench in south afternoon light.
+2026-08-15 (Day 53, 15:19) — Cattail storage basket started in afternoon shade; eight-day-cured leaves supple and working; base plate-wide, walls three to four rows up.
