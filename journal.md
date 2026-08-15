@@ -9912,3 +9912,12 @@ Down at the deep run, the pole was bent. A seven-inch trout, dark-backed, firm �
 
 I walked home through the garden. The nettles in rows one and two are pushing fresh tips after yesterday's harvest — sturdy and bright. The mint is holding at its border stones. Wood sorrel edge to edge in the shadow strip. I stood at the doorsill for a moment with nothing needing immediate doing, which is its own kind of satisfaction after the cache box work at first light. Two cold-storage sites now, and a morning's catch already in the box. The day is still young.
 
+
+### 8:19 AM · Gardens in Full Morning
+
+The sun had cleared the treeline when I picked up the cook tin and walked the bench path down to the garden. The air still held a trace of coolness — a midsummer morning window that closes fast. I worked east to west, four trips from the deep run, pouring slow at the root line of each row.
+
+Nettles in rows 1 and 2 had pushed a good hand-span of fresh tips since yesterday's harvest. I left them this pass — a day or two more and the cut will be worth it. Mint at row 5 held tight at the border stones; raspberry laterals in rows 3 and 4 showed fresh leaf; wood sorrel in the shadow strip full and dark green, edge to edge. Garlic fans wide as ever, no yellowing at the tips. The whole plot darkened as I finished, soil drinking deep.
+
+I stood at the north edge for a moment and looked east through the trees. The new cache box at the seep was just visible at eighty paces, lid weighted with the flat stone. Two cold-storage sites now. Two fishing lines in water. Two snares on the garden run. The homestead has started to feel like a system of small, reliable things — none of them remarkable on their own, but together they hold. That thought sat with me as I walked back up to the doorsill.
+
