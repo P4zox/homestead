@@ -9921,3 +9921,12 @@ Nettles in rows 1 and 2 had pushed a good hand-span of fresh tips since yesterda
 
 I stood at the north edge for a moment and looked east through the trees. The new cache box at the seep was just visible at eighty paces, lid weighted with the flat stone. Two cold-storage sites now. Two fishing lines in water. Two snares on the garden run. The homestead has started to feel like a system of small, reliable things — none of them remarkable on their own, but together they hold. That thought sat with me as I walked back up to the doorsill.
 
+
+### 9:20 AM · North Slope, Berries
+
+I hung the birch basket on my shoulder before the sun had climbed high and walked up to the north-facing slope where the blueberry patch runs along the shade-edge of the pines. I had not been back since Day twenty-two — more than a month of game days — and I was not certain what I would find. The late-facing clusters, the ones pressed against the treeline that never see direct afternoon light, sometimes hold a second flush well into midsummer.
+
+They had. The dark-blue berries came back heavy on those shaded branches, the ones that were only beginning to color when I last visited. I worked through the patch slowly, stripping the ripest ones into the basket — taking only the near-black globes and leaving anything still flushed with red to finish on the branch. The basket came back three-quarters full, the berries cool against my palm, bloom still on the skins. I ate a small handful at the patch edge, standing there in the filtered morning light, which felt like the right way to mark a return.
+
+On the walk back I stopped at the east seep and settled the basket load into the new cache box. The air in the draw was noticeably cooler than the clearing — the box sitting on those flat stones in the dark soil, lid weighted. A good use for it, this first load. The berries will keep several days cold-stored there, and I can draw on them as I need. The east seep is starting to earn its place.
+

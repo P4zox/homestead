@@ -926,3 +926,4 @@ Day 52, 22:30 — Lay on cattail mat by low hearthcoals, sleeping bag drawn up; 
 Day 53, 06:20 — Built east seep cache box in cool draw eighty paces east; six flat base stones, four alder walls, bark lid — second cold-storage site established.
 Day 53, 07:18 — Morning line and snare check: deep-run gave seven-inch trout (cleaned, dock-wrapped, cold-stored); limestone pool bare (re-baited, reset); both snares empty and reset; garden nettles pushing fresh tips after yesterday harvest.
 2026-08-15 Day 53 08:19 — Garden watered (four trips, all seven rows); nettles pushing fresh tips; east seep cache box proving out; system of small reliable things.
+Day 53, 09:20 — Foraged late blueberry flush from north slope; birch basket three-quarters full; cold-stored in east seep box — first load in new cache site.
