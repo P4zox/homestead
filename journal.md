@@ -10079,3 +10079,14 @@ That is the thing about this life: the next day starts before you sleep. The hoo
 
 The hearthstone is cooling slowly. The frogs go on.
 
+
+### 11:18 PM · Night Claims
+
+The hearthstone is still warm through the sleeping bag. The frogs at the south bend have quieted some — not gone, just lower, settling like I am. The owl called twice up the ridge and then went still. I drift in and out, not quite asleep, not quite awake.
+
+The basket dries by the coals. The garlic cures on the outdoor bench in the warm dark. Out on the water, the lines wait. Everything is where it should be.
+
+Day 53 was long and full: east seep cache box built at first light, a new cold-storage site standing eighty paces out; blueberries cold-stored; two trout; a dead snag felled and split; garlic first row pulled and set to cure; the cattail storage basket finished — forearm-and-a-half tall, dense weave, no gaps. Root cellar organized and tidy. Every hour had something in it.
+
+Sleep takes me easy tonight.
+
