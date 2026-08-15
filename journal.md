@@ -10090,3 +10090,21 @@ Day 53 was long and full: east seep cache box built at first light, a new cold-s
 
 Sleep takes me easy tonight.
 
+
+---
+
+# Day 54 — Sunday, 16 August 2026
+*midsummer · low overnight mist lifting by sunrise; west breeze freshening; full sun by mid-morning; warm and settled*
+
+### 6:18 AM · Lines at First Light
+
+Woke before the mist had cleared from the streambed. The hearthstone was still faintly warm at my back, and the cabin smelled of dried cattail and wood ash. Before anything else I lifted the door latch and stepped out — the cattail basket, dry now after its night by the coals, I moved to the supply shelf on the way.
+
+The morning was that particular softness you only get in late summer, when the warmth of the day before lingers in the air and the light comes through at a low, golden angle. Mist still lay in the hollow by the stream, shin-high, breaking apart as I walked through it. Both snares on the north garden edge were empty — the loops undisturbed, trigger sticks in place. I reset each one and moved on.
+
+At the deep run the line had weight to it before I even lifted the notch stick. Seven inches, heavy-flanked, taken clean on the earthworm bait below the undercut bank. I cleaned it at the flat stream stone, dock-wrapped it, and cold-stored it in the main box. Re-notched the line with a fresh worm from the bark fold, reset the stick below the bank lip. The limestone pool was bare — hook clean, worm gone sometime in the night. Re-baited it, wedged the pole back deep under the far ledge shadow. Both lines in water now, quiet.
+
+Back at the doorsill in full early light. The garlic is curing on the outdoor workbench — eight bulbs, stem-end up, a good second day of four. The basket sits on the supply shelf where it should be. The garden is dark and settled from yesterday's watering. Somewhere north of the ridge, a jay is going at something, but the clearing itself is still.
+
+It is enough to stand here for a moment and just look at it.
+
