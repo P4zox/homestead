@@ -10031,3 +10031,14 @@ Both lines are still in the water. Both snares are set. Blueberries are cool in 
 
 Everything that needed doing today got done.
 
+
+### 7:18 PM · Cord at the Hearthside
+
+The basket sits by the fire, drying slowly in the hearthlight — weave tight, rim folded true. It is a good thing to look at after a long day.
+
+I pulled the soaking bark strips from the bucket, ran them through my fingers to test the moisture, and started twisting cord. The rhythm comes easy now: hold the near end against my thigh, roll both strands forward with the heel of my palm, cross them back on themselves, move up an inch. Fourteen arm-lengths before my wrists told me to stop. The coil went onto the supply shelf beside the others.
+
+The snares are set along the north garden edge. Both lines are in the deep run and the limestone pool, hooks baited and wedged under the far shadow. The garlic is curing stem-end up on the outdoor bench — I can just make out the pale rows in the last of the daylight through the open door.
+
+Inside the cabin the fire is low and good. The west gable holds no draft. The east seep cache box is a full day old now and already proved worth the building — blueberries cold in a site I never had before. I think about what to build next and let the thought rest. The cord is done. The evening is enough.
+

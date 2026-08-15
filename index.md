@@ -936,3 +936,4 @@ Day 53, 14:19 — First Garlic Pull — eight mature bulbs test-pulled from east
 Day 53, 16:19 — Cattail basket walls woven to wrist height (eight to nine rows); shape settling true, tension holding.
 2026-08-15 Day 53 17:18 — Basket walls woven near-complete (elbow-high, twenty-plus rows); supper: trout, oyster caps, wood sorrel at doorsill.
 2026-08-15 (Day 53, 18:18) — Completed cattail storage basket: rim folded and tucked, stakes bent over and threaded, trim done — vessel forearm-and-a-half tall, dense weave, no give; set near hearth to dry overnight.
+2026-08-15 19:18 — Day 53 — Cord at the Hearthside: fourteen arm-lengths two-ply twisted by hearthfire; basket drying; garlic curing on bench; both lines in water; both snares set.
