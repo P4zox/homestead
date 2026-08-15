@@ -938,3 +938,4 @@ Day 53, 16:19 — Cattail basket walls woven to wrist height (eight to nine rows
 2026-08-15 (Day 53, 18:18) — Completed cattail storage basket: rim folded and tucked, stakes bent over and threaded, trim done — vessel forearm-and-a-half tall, dense weave, no give; set near hearth to dry overnight.
 2026-08-15 19:18 — Day 53 — Cord at the Hearthside: fourteen arm-lengths two-ply twisted by hearthfire; basket drying; garlic curing on bench; both lines in water; both snares set.
 2026-08-15 Day 53 20:22 — Root cellar inventory and organization: stores confirmed, east wall shelf cleared and ready for garlic in two days.
+[2026-08-15 21:20] Day 53 — banked the coals for the night; sat at the doorsill listening to frogs and an owl; garlic curing in the warm night air; door latched; good day behind me.

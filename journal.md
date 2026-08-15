@@ -10053,3 +10053,16 @@ I shifted things around so the east wall has a clear low shelf for the garlic: e
 
 Standing back in the low space with the last daylight coming in at an angle, I felt something I don't always stop to feel — a kind of rightness. Not plenty exactly, but enough. More than enough for now, and the tally is honest. Summer still has days left, and autumn hasn't reached us yet.
 
+
+### 9:20 PM · Hearthside, Quiet
+
+The fire has gone to coals. I banked them with ash from the edges — a low dome to keep the heat through the dark hours — and set the cook tin aside where it will not collect dew. The cattail basket is still drying near the hearthstone, pale weave tightening as the shelter cools. Outside, the night is warm and still, the kind of midsummer evening that holds the day's heat long past dark.
+
+I sat at the doorsill for a while with the door open a hand-width, listening. Frogs at the south bend of the stream. An owl somewhere up the ridge, unhurried. The snares are set on the garden-edge rabbit run. Both lines are in the water. The garlic bulbs are curing stem-end up on the outdoor workbench — I left them there; the night is dry and the air is moving gently, and they will do better with a little breeze than shut in the shelter. The blueberries are cool in the east seep cache.
+
+It has been a long, full day. Cache box built at dawn. Lines and snares checked. Garden watered. Blueberries picked. A dead snag dropped and bucked and split before noon. Garlic pulled from the first row. A cattail storage basket woven start to finish and set to dry. Cord twisted by hearthlight. Root cellar organized at last. I could list it all out, but the feeling of the day is simpler than a list — the sense of having worked through something, item by item, and arrived at the end of it in good order.
+
+Tomorrow I will check what the lines brought and see about the second garlic row. The basket should be firm enough to move to the shelf. The garlic will need two or three more days of sun before it can go into the cellar.
+
+For now: the door is latched. The latch bar drops into its keeper with a clean click I still find satisfying. The hearth glows low and steady. The night outside is gentle.
+
