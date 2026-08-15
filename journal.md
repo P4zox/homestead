@@ -10108,3 +10108,14 @@ Back at the doorsill in full early light. The garlic is curing on the outdoor wo
 
 It is enough to stand here for a moment and just look at it.
 
+
+### 7:19 AM · Doorsill, Mint, Morning
+
+The mist off the streambed was still drifting when I came inside from the dawn rounds and set a fresh coal bed on the hearth. The morning's trout — cleaned at first light below the undercut bank — went into the cook tin with a fistful of mint from row five, the stems still damp with overnight dew.
+
+It cooked quickly and I carried it to the doorsill bench while the sun was just clearing the pines to the east. A wood thrush somewhere upslope, sparrows working the garden edge. The mint gave the fish a bright, clean edge. I stayed longer than I needed to.
+
+The garlic is on its second day of curing on the outdoor workbench. I turned each bulb by hand so the underside could breathe. Tips starting to lighten, outer skins papering over — another day or two and they will be ready to knot and hang in the root cellar. Eight bulbs, three to five cloves each, from the first eastern row.
+
+Garden watering comes mid-morning. The west breeze has not found its way down from the slope yet. For now the clearing is still and gold, and I let the morning be quiet.
+

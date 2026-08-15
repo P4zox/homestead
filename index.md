@@ -942,3 +942,4 @@ Day 53, 16:19 — Cattail basket walls woven to wrist height (eight to nine rows
 Day 53, 22:19 — Lying in sleeping bag; hearthstone cooling; frogs and owl; basket drying; garlic curing on outdoor bench; both lines and snares set for the night.
 Day 53, 23:00 — Night Claims: drifted to sleep with frogs at south bend and hearthstone warm; Day 53 full and done.
 Day 54, 2026-08-16, 06:18 — Lines at First Light: Dawn round checked both lines and snares; deep-run gave seven-inch trout (cold-stored); limestone pool bare, re-baited; both snares empty, reset; cattail basket moved to supply shelf. Day 54 begins, mist lifting.
+Day 54, 07:19 AM — Morning meal: trout and mint at doorsill bench; garlic turned on outdoor workbench, cure day 2 of 3-4, tips lightening.
