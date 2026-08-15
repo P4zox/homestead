@@ -9930,3 +9930,13 @@ They had. The dark-blue berries came back heavy on those shaded branches, the on
 
 On the walk back I stopped at the east seep and settled the basket load into the new cache box. The air in the draw was noticeably cooler than the clearing — the box sitting on those flat stones in the dark soil, lid weighted. A good use for it, this first load. The berries will keep several days cold-stored there, and I can draw on them as I need. The east seep is starting to earn its place.
 
+### 10:19 AM · Limestone pool, late morning
+
+The morning has been full — four rounds of work before nine. The east seep box established, lines and snares checked, garden watered, blueberries packed away in the new cache. By the time I start down toward the limestone pool it is already warming toward real heat, that thick midsummer kind that smells of pine resin and dried grass.
+
+The pole is still wedged where I left it, the line angled under the far ledge shadow. I crouch at the bank and feel it — no resistance at first, then that familiar slow weight. A trout, not fighting hard, just holding its shape in the current as I draw it to the surface. Seven inches, clean and bright, the way they always are from this pool.
+
+I clean it at the flat stone, working by the sound of the water. The pool feels different in the late morning than it does at dawn — warmer air, shorter shadows, the water itself somehow more ordinary and more perfect at once. I wrap the fish in a dock leaf and stand up slowly.
+
+There is a kind of satisfaction in the morning being this full before noon. Four tasks done and now a fifth in hand, the sun still climbing. I will cold-store this one and let the afternoon come slow. Line re-baited with an earthworm from the bark fold. Pole re-wedged under the far ledge shadow.
+
