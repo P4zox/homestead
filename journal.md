@@ -9973,3 +9973,16 @@ Pine splits clean when it has been standing dead a full season — the grain str
 
 Finished with warm shoulders and a clean staging area. The new row lies bark-up beside the older rows along the east wall — a fair afternoon's addition. Both lines still in water; both snares set on the north garden-edge rabbit run. Blueberries cold in the east seep cache; main box has two dock-wrapped trout waiting for supper. Tomorrow the east wall is clear for another snag if I find one.
 
+
+### 2:19 PM · First Garlic Pull
+
+After the morning's run — the dead snag felled and limbed, twelve rounds bucked and split into the stack alongside the birch and older pine rows — the afternoon heat settled in fully. The clearing stood still. I carried the digging stick to the eastern garden strip and knelt beside the first garlic row.
+
+The fans are broad and dark green, standing upright along the border stones. I'd left them alone all season, watering and watching. Now I worked the stick under the base of one plant and levered gently upward. The soil parted. A small bulb came free — three cloves pressed together, papery-white skin, firm throughout. I tried another. Bigger — thumb-sized, five cloves spreading away from a tight center. I worked down the first row, testing each, pulling the bulbs that felt dense and had dry-papering at the tips, pressing the soft younger ones back.
+
+Eight bulbs from the first row, ranging from three fingers wide to thumb-sized. I carried them to the outdoor workbench and laid them stem-end up across the log surface. The south afternoon light falls clean there. Three or four days of drying and the skins will set tight; then I'll knot them by their stems and hang them above the root cellar floor, where the chill air will keep them through winter.
+
+The second row I left fully undisturbed. I watered both rows at the base with one cook-tin from the deep run — settling the soil back after I'd turned it — and pressed the border stones back true. The garlic smell rose sharp from my hands as I walked back to the bench to watch the bulbs in the afternoon light.
+
+Eight garlic bulbs drying on the workbench. The first food pulled from the ground that was mine to plant.
+

@@ -931,3 +931,4 @@ Day 53, 09:20 — Foraged late blueberry flush from north slope; birch basket th
 2026-08-15 11:18 — Day 53, noon meal: deep-run trout with dried oyster caps and wood sorrel eaten at doorsill bench in full midsummer sun.
 Day 53, 12:20 — Afternoon snag fell north of granite shelf; twelve rounds bucked and staged at east wall for splitting.
 Day 53, 2026-08-15, 13:18 — Split twelve pine rounds from morning snag; stacked bark-up at east wall alongside older rows — staging area clear.
+Day 53, 14:19 — First Garlic Pull — eight mature bulbs test-pulled from eastern garden strip first row; curing stem-end up on outdoor workbench in south afternoon light.
