@@ -9964,3 +9964,12 @@ The axe went in clean. Dry pine chips fly white when you hit the right wood; the
 
 I was back at the doorsill with an hour of sun still clearing the ridge. Both lines are in the water; both snares are set. There is more wood now than there was this morning. That feels like enough.
 
+
+### 1:18 PM · Afternoon Splitting
+
+Twelve rounds staged at the east wall from this morning's snag, dense dry heartwood. No sense letting them sit when I had the momentum and the afternoon ahead. I set the first round upright on the flat anvil stone at the east wall base and began.
+
+Pine splits clean when it has been standing dead a full season — the grain straight, the fibers brittle and willing. Each strike gave that hollow crack that echoes off the cabin logs, the sound that only comes from good dry wood. I worked through all twelve in two sustained passes of attention, halving most, quartering the sturdier ones, the stack behind me growing with each round.
+
+Finished with warm shoulders and a clean staging area. The new row lies bark-up beside the older rows along the east wall — a fair afternoon's addition. Both lines still in water; both snares set on the north garden-edge rabbit run. Blueberries cold in the east seep cache; main box has two dock-wrapped trout waiting for supper. Tomorrow the east wall is clear for another snag if I find one.
+
