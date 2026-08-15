@@ -9997,3 +9997,14 @@ I started a storage basket at the bench, sitting on the rough pine crosspiece in
 
 Both lines still in water. Both snares quiet on the north run. Two trout in the main box, ready for supper. I will cook in a little while and eat at the doorsill while the light goes amber.
 
+
+### 4:19 PM · Basket Walls Rise
+
+The afternoon has settled into that particular midsummer stillness where the west breeze drops and the only movement is shadow shifting on the ground. I have been at the outdoor workbench since the hour before, hands moving over the basket, and the rhythm of it has become its own quiet thing.
+
+The cattail leaves are doing exactly what I hoped. Eight days curing on the workbench made them supple without making them soft; they bend around the stakes without splitting and hold tension the moment they settle. I worked the walls up another four rows beyond where I left off — eight or nine now, wrist-high on the outside — and the shape is settling true. The base is holding flat. Each new row cinches the one below, so the walls are solid and not wandering outward the way a basket can if you let the tension go slack.
+
+I paused once to stretch and noticed I had been at this happily for a full hour. The trout are cold-stored. Both lines are in. The blueberries are cool in the east seep cache. Nothing is asking for my attention right now, and that means I can give the basket all of it — the kind of work that does not strain the mind but asks for steady hands and does reward them.
+
+A few more sessions should close it.
+
