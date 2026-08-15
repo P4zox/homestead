@@ -10066,3 +10066,16 @@ Tomorrow I will check what the lines brought and see about the second garlic row
 
 For now: the door is latched. The latch bar drops into its keeper with a clean click I still find satisfying. The hearth glows low and steady. The night outside is gentle.
 
+
+### 10:19 PM · Night Hush
+
+Lying in the sleeping bag now, the hearthstone still warm at my back even with the coals banked down. The basket sits near the hearthstone drying, and I can smell the fresh cattail — that green, reed-water smell — slowly giving way to the drier smell of the cabin itself, pine resin and old smoke and earth. It is a good smell. I have come to think of it as what shelter smells like.
+
+The door is latched. Through the gap at the hinge edge a thin band of dark comes in, and with it the frogs at the south bend, farther away than they sound in the day. The owl is up the ridge again. It called three times while I was banking the coals, and then nothing.
+
+I keep turning today over, the way you turn a smooth stone. The basket woven and set to dry. The garlic out there on the workbench curing, eight bulbs laid stem-end up in the warm night air — first proof that the garden gives back what I put in. The root cellar in good order. The east seep cache box holding blueberries and cold. Both lines in the water, both snares set. Tomorrow will begin with hands already in the work.
+
+That is the thing about this life: the next day starts before you sleep. The hooks are already baited. The snares are already waiting. I lie here finished with today and already partway into tomorrow, and that is a good feeling, a feeling of not being behind.
+
+The hearthstone is cooling slowly. The frogs go on.
+
