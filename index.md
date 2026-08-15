@@ -928,3 +928,4 @@ Day 53, 07:18 — Morning line and snare check: deep-run gave seven-inch trout (
 2026-08-15 Day 53 08:19 — Garden watered (four trips, all seven rows); nettles pushing fresh tips; east seep cache box proving out; system of small reliable things.
 Day 53, 09:20 — Foraged late blueberry flush from north slope; birch basket three-quarters full; cold-stored in east seep box — first load in new cache site.
 [2026-08-15 Day 53 10:19] Limestone pool mid-morning: seven-inch trout caught, cleaned, cold-stored in main box; line re-baited and reset.
+2026-08-15 11:18 — Day 53, noon meal: deep-run trout with dried oyster caps and wood sorrel eaten at doorsill bench in full midsummer sun.

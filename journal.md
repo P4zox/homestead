@@ -9940,3 +9940,14 @@ I clean it at the flat stone, working by the sound of the water. The pool feels 
 
 There is a kind of satisfaction in the morning being this full before noon. Four tasks done and now a fifth in hand, the sun still climbing. I will cold-store this one and let the afternoon come slow. Line re-baited with an earthworm from the bark fold. Pole re-wedged under the far ledge shadow.
 
+
+### 11:18 AM · Noon at the Doorsill
+
+The sun is fully overhead now, pressing warm into the clearing. I pulled the morning deep-run trout from cold storage — still cool from the box, dock-wrapped and fresh — and added two dried oyster caps from the shelf and a few sprigs of wood sorrel pinched from row five on my way past the garden.
+
+In the cook tin over low hearthcoals it came together quickly: sorrel wilted and bright, the caps soft and earthy, the trout flaking clean off the backbone. I carried the tin out to the doorsill bench and sat in the full noon light.
+
+This hour the clearing goes quiet. The birds still themselves in the heat; the breeze drops off; you can hear the stream if you listen. I ate slowly and watched the garden settle under the sun. Garlic fans wide, wood sorrel full edge to edge in the north shadow strip, raspberry laterals green and reaching. The blueberries are cold in the east seep cache now, waiting. The two trout in the main box will carry me through supper without worry.
+
+A productive morning. The east seep box is in; the lines are in the water; the snares are set. I should look for another dead standing tree to fell this afternoon — the firewood rows are good but summer is the time to build them high. For now though: just this bench, this meal, this light.
+
