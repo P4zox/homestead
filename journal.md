@@ -9951,3 +9951,16 @@ This hour the clearing goes quiet. The birds still themselves in the heat; the b
 
 A productive morning. The east seep box is in; the lines are in the water; the snares are set. I should look for another dead standing tree to fell this afternoon — the firewood rows are good but summer is the time to build them high. For now though: just this bench, this meal, this light.
 
+
+### 12:20 PM · Snag in the Afternoon
+
+Midday meal sat warm in my chest. I took the axe off the wall peg and walked east into the trees while the sun was still high enough to see by in the shade. I wanted a snag — something already standing dead, bark gone or going, wood dry clear through.
+
+Past the granite shelf, where I have taken the last two, the slope opens again into a corridor of birch and scrub pine. I walked north along the treeline, tapping trunks as I went. Most gave back a live thud. One pine a little further along — twenty paces north of where I last dropped a snag — gave a hollow knock. I walked around it. Pale gray bark, no needles, base free of rot at ground level, trunk straight to about fifteen feet before a fork. Good candidate. It would stand another season, or I could take it now.
+
+I took it now.
+
+The axe went in clean. Dry pine chips fly white when you hit the right wood; these flew white. It came down in twelve strokes, fell east away from the slope, and I limbed it on the ground in the shade. Twelve rounds bucked — knee-height, dense, no sap smell, the gray outer rings giving way to clean pale heartwood inside. I moved them in two carries to just inside the east wall staging area and stacked them bark-up. Tomorrow I will split them.
+
+I was back at the doorsill with an hour of sun still clearing the ridge. Both lines are in the water; both snares are set. There is more wood now than there was this morning. That feels like enough.
+

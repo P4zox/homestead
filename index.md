@@ -929,3 +929,4 @@ Day 53, 07:18 — Morning line and snare check: deep-run gave seven-inch trout (
 Day 53, 09:20 — Foraged late blueberry flush from north slope; birch basket three-quarters full; cold-stored in east seep box — first load in new cache site.
 [2026-08-15 Day 53 10:19] Limestone pool mid-morning: seven-inch trout caught, cleaned, cold-stored in main box; line re-baited and reset.
 2026-08-15 11:18 — Day 53, noon meal: deep-run trout with dried oyster caps and wood sorrel eaten at doorsill bench in full midsummer sun.
+Day 53, 12:20 — Afternoon snag fell north of granite shelf; twelve rounds bucked and staged at east wall for splitting.
