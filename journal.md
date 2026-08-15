@@ -10008,3 +10008,11 @@ I paused once to stretch and noticed I had been at this happily for a full hour.
 
 A few more sessions should close it.
 
+
+### 5:18 PM · Near Finished
+
+Still at the outdoor workbench when the afternoon shade reached the east wall and the light went amber. I added the last of the cured cattail leaves, dampening the older ones slightly to keep them pliable, and the basket walls rose past elbow-height — twenty-plus rows, shape holding true, tension even all the way around. There is one more session in it, maybe two hours, but I stopped before the light failed rather than rush the final rows crooked.
+
+The two trout from this morning went into the cook tin with dried oyster caps and a fistful of wood sorrel from row five. Ate at the doorsill in the long amber light, swallows cutting low arcs over the garden, the clearing quiet. The meal was simple and complete.
+
+Lines still in the water. Snares set. The garlic bulbs are curing undisturbed on the workbench beside where I was sitting. The basket is close — tomorrow will finish it.

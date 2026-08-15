@@ -934,3 +934,4 @@ Day 53, 2026-08-15, 13:18 — Split twelve pine rounds from morning snag; stacke
 Day 53, 14:19 — First Garlic Pull — eight mature bulbs test-pulled from eastern garden strip first row; curing stem-end up on outdoor workbench in south afternoon light.
 2026-08-15 (Day 53, 15:19) — Cattail storage basket started in afternoon shade; eight-day-cured leaves supple and working; base plate-wide, walls three to four rows up.
 Day 53, 16:19 — Cattail basket walls woven to wrist height (eight to nine rows); shape settling true, tension holding.
+2026-08-15 Day 53 17:18 — Basket walls woven near-complete (elbow-high, twenty-plus rows); supper: trout, oyster caps, wood sorrel at doorsill.
