@@ -10016,3 +10016,18 @@ Still at the outdoor workbench when the afternoon shade reached the east wall an
 The two trout from this morning went into the cook tin with dried oyster caps and a fistful of wood sorrel from row five. Ate at the doorsill in the long amber light, swallows cutting low arcs over the garden, the clearing quiet. The meal was simple and complete.
 
 Lines still in the water. Snares set. The garlic bulbs are curing undisturbed on the workbench beside where I was sitting. The basket is close — tomorrow will finish it.
+
+### 6:18 PM · Basket Finished
+
+The last of the cured cattail leaves had been sitting on the outdoor workbench all day, waiting. I wetted them down and settled in at the east wall bench as the shadow finally pulled off the wall and the evening light went long and amber across the clearing.
+
+The basket was elbow-high and mostly right. It needed a proper rim — I folded the last weavers back on themselves, tucked the ends inside where they could not slip free, then bent each upright stake over the top edge and threaded the tips down through the nearest weave below. Three passes around the rim this way, pressing each fold firm, and the top held without any give at all. I trimmed the extra with my knife and ran a thumb around the inside to check for any stake end that might catch on stored goods. Nothing caught.
+
+When I set it on the bench and stepped back, it looked like what it is: a proper storage vessel, forearm-and-a-half tall, wide enough to carry with two arms around it. Dense weave throughout — no gaps a mouse might work into. I tipped it once, pressed the sides, tapped the base. Everything held.
+
+I carried it inside and set it near the hearth to dry fully overnight. In the morning it will go on the supply shelf or the root cellar floor, whichever the garlic does not claim. The garlic needs two more days on the workbench before it can hang in the root cellar; the basket can wait that long.
+
+Both lines are still in the water. Both snares are set. Blueberries are cool in the east seep cache. Garlic is curing. The fire has burned down to coals that will hold through the night.
+
+Everything that needed doing today got done.
+
