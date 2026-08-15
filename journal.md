@@ -10042,3 +10042,14 @@ The snares are set along the north garden edge. Both lines are in the deep run a
 
 Inside the cabin the fire is low and good. The west gable holds no draft. The east seep cache box is a full day old now and already proved worth the building — blueberries cold in a site I never had before. I think about what to build next and let the thought rest. The cord is done. The evening is enough.
 
+
+### 8:22 PM · The Root Cellar Count
+
+The light was still good enough at the open doorway to work by. I pulled the lid off the root cellar and went through everything — not urgently, just by way of knowing where I stand.
+
+The smoked meat fills the east shelf well: both hindquarter pairs and both saddles from the two rabbits, dark and firm. The doe quarters are further back — all four, still press-firm when I test them with a thumb, deep mahogany through to center. The dried oyster caps and chanterelles are dry, sweet-smelling; a good pile of them. Two dock-wrapped trout from today's lines waiting for tomorrow's meal. The blueberries from this morning sit cooler in the east seep cache rather than here.
+
+I shifted things around so the east wall has a clear low shelf for the garlic: eight bulbs still curing stem-end up on the outdoor workbench, two more rows waiting in the ground, a proper hanging braid once they dry and I knot the stems. Two days of curing left, then in they go.
+
+Standing back in the low space with the last daylight coming in at an angle, I felt something I don't always stop to feel — a kind of rightness. Not plenty exactly, but enough. More than enough for now, and the tally is honest. Summer still has days left, and autumn hasn't reached us yet.
+
