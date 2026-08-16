@@ -946,3 +946,4 @@ Day 54, 07:19 AM — Morning meal: trout and mint at doorsill bench; garlic turn
 Day 54, 08:19 — Watered garden (four cook-tin trips, all seven rows east to west); nettles sending fresh tips left for another two days; garlic cure day 2 progressing on outdoor workbench.
 Day 54, 09:19 — Morning archery practice in clearing; eight arrows, three rounds at twenty paces; grouping steady by third round; bow and all eight shafts sound.
 2026-08-16 Day 54, 10:19 — Scouted upslope oyster pine (thumbnail button caps forming — harvest Day 55) and chanterelle hollow (pins fattening, orange crowns opening — one to two more days).
+Day 54 (2026-08-16, 11:18 AM) — Root cellar prepared: two pegs and garlic-hanging rail installed in north wall; cellar organized and ready to receive curing garlic in 1–2 days.

@@ -10151,3 +10151,14 @@ Checked the chanterelle hollow on the way back. The three tight pins I left on D
 
 Came back to the clearing with the sun fully up and nothing to carry. Good knowledge, though. The flushes are coming. I know when.
 
+
+### 11:18 AM · Root Cellar, Ready
+
+The root cellar was dim and cool when I opened the lid — earth and cedar and something faintly mushroomy rising up to meet the sun. I have been meaning to get down there with purpose, and the curing garlic gave me the reason. Eight bulbs are lying stem-end up on the outdoor workbench; in a day or two they will be ready to knot and hang.
+
+I cleared the supplies toward the back wall, checked the south-wall peg — solid, no give — but one peg will not hold the garlic knots at a height where they stay dry. I split a thin birch-heartwood strip at the flat hearthstone, scored shoulder-notches near each end, and drove two new pegs into the north wall at chest height, arm-length apart. A length of lashing cord strung between them, hitched through the notches and drawn taut — a simple garlic rail, holding firm with no sag.
+
+The cellar is in order now: rail waiting, supplies organized back from the hanging zone, floor stones swept clean. The garlic will go up in a day, maybe two, and stay there through autumn into the hard months.
+
+Outside, the midsummer heat was bright and full after the root cellar cool. I stood in the cabin doorway a moment and blinked.
+
