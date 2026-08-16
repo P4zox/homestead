@@ -10127,3 +10127,16 @@ The nettles in rows 1 and 2 are sending up fresh tips again; I left them — ano
 
 The stream sound carried up from below the slope, sun warm at my back, and the whole garden looked exactly right. An ordinary morning's work, in the best sense.
 
+
+### 9:19 AM · Morning Arrows
+
+The bow has hung on its wall peg for weeks — hands always busy with garden or fish or cord or building, never quite getting back to the clearing with arrows. This morning, with the mist already gone from the stream and the west breeze soft and steady, I took it down.
+
+I propped a pine-bark slab against the far edge of the clearing at twenty paces — the same mark I used the first time I loosed arrows back on Day 32, when the fletching was still fresh and I wasn't sure how well I'd tillered the bow. The handle settled into my palm the way a familiar tool does. The bark-cord string seated clean in both nock grooves.
+
+Eight arrows in the quiver. I drew the first to anchor — chin just touching the index knuckle, right shoulder working against the draw weight — and released. It struck the bark a hand-span left of center. The second caught the mark square. I worked through all eight, pulled them from the slab, and began again.
+
+By the third round I was grouping steadier: three or four shafts into a palm-wide cluster, the outliers from the first slow draw of each set when I'm still settling into the rhythm. The bow is honest. When the draw is right — anchor firm, back shoulder committed, elbow level — the arrow goes where I mean it to go. When I rush the release or let my attention slip ahead of the shot, it tells me without argument.
+
+Good to know the skill is still there, and good to know what needs tending. I hung the bow back on its peg with the string eased a hair — not unstrung, just resting — and wiped each shaft with a folded dock leaf. Sound throughout. No cracks, no fletching lifted, tips sharp. Eight arrows still in the quiver, still good.
+
