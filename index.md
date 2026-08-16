@@ -956,3 +956,4 @@ Day 54, 17:18 — Supper at the Doorsill: two seven-inch trout with watercress a
 2026-08-16 18:18 — Day 54 — Edge for Morning: knife stropped keen on grey cobble (three passes each side); axe tallow-rubbed at grip; bark vessel filled at stream for morning; fire banked; ready for chanterelle and oyster dawn harvest Day 55.
 Day 54, 19:19 — walked streambed gravel bar by last amber light; found four chert cobbles (three pale grey, one larger oval) for future knapping; set on supply shelf beside anvil stone.
 2026-08-16 20:22 — Day 54 · Evening hearthfire knap-test: new pale grey chert produces clean conchoidal flakes, grain fine and tight — material confirmed good.
+Day 54, 9:21 PM — Evening cord twist by hearthlight; nine arm-lengths two-ply; fire to coals; ready for dawn garlic hang and double harvest.

@@ -10252,3 +10252,13 @@ Sat at the hearthstone with the flat oval anvil across my knee and struck a sing
 
 A barred owl called once from the pine slope and was not answered. The fire is low coals. Tomorrow at first light: chanterelles from the hollow, oyster caps from the upslope pine, garlic on the cellar rail. Everything in its place. I can sleep on that.
 
+### 9:21 PM · Before Sleep
+
+The fire is down to coals now, the color of old embers — red-orange with a grey ash skin forming at the edges. I sat with it a while after the knap-test, not doing anything in particular, just listening to the shelter settle. The owl called again, twice this time, somewhere deeper in the pines. The frogs are still going at the south bend.
+
+I twisted a short cord length by the last of the hearthlight — nine arm-lengths, two-ply, tallow-rubbed — more from habit than necessity. The cord supply is generous, but the spinning feels good in the hands at day's end. Something to do while the mind slows.
+
+Tomorrow will be a full morning: garlic to the cellar rail, oyster flush from the pine, chanterelles if the rim caps are open wide enough. I have green birch staged for the smoke rack, the knife is keen, and both lines are in the water. The east bench is staked, the cellar organized, the cattail basket firm on the shelf. Everything is where it should be.
+
+I'll sleep well.
+
