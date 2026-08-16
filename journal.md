@@ -10183,3 +10183,14 @@ Tomorrow promises to be full: the oyster pine is ready, the chanterelle hollow h
 
 Fourteen arm-lengths twisted and tallow-rubbed before the light began to slant. The coil is growing. I do not think much about winter while I am doing this — the work is its own end, and the afternoon has a nice weight to it — but I know the coil will be there when I need it.
 
+
+### 3:18 PM · East Bench Study
+
+Mid-afternoon and the clearing held its breath — lines in water, cord coiled on the shelf, smoke rack staged with green birch fuel for tomorrow. I walked east with the axe, past the cache box in the draw, out to the south-facing bench I first scouted two weeks ago.
+
+Eighty paces from the clearing edge. Not so remote that a morning trip feels like an expedition; close enough to work it on ordinary days. The soil there is different from the main garden — darker, with a looser grain where the seep-draw moisture creeps up through the slope. I crouched and turned a handful: earthworms came up almost immediately. The bench faces south and runs at least twelve by ten paces, maybe more; it catches midsummer sun from mid-morning through late afternoon, and the old dock growing at the far east edge tells you there is moisture without saturation. The north edge is shaded by young alder that thins toward open grass — a shelterbreak more than a canopy.
+
+I walked it slowly, thinking plainly. The main garden is full and serving well. A second plot is spring work, not summer — the firewood stacking, the root-cellar filling, the last of the cold-weather gear still come first. But I can do one thing now: mark the corners so the site holds in my mind across the turning of seasons. Four birch stakes driven at the bench corners with the axe back; perimeter stepped and walked again. The stakes will weather through autumn, and when the ground opens in spring I will know exactly where to start.
+
+Walked home through long afternoon shadows. The bench looks good from the clearing edge — a patch of darker earth between the alder and the open slope, waiting quietly for its time.
+

@@ -950,3 +950,4 @@ Day 54 (2026-08-16, 11:18 AM) — Root cellar prepared: two pegs and garlic-hang
 - Day 54 12:18 — Noon lines checked: limestone pool gave seven-inch trout (cold-stored); both lines re-baited and reset; brief midday rest in south pine shade with blueberries and smoked rabbit; garlic tips paling on workbench.
 Day 54, 13:18 — Smoke rack checked and cleared; three green birch lengths staged under south overhang for tomorrow's Day 55 oyster harvest smoke.
 Day 54, 14:05 — Afternoon cord work at doorsill bench; fourteen arm-lengths two-ply twisted and tallow-rubbed; cord coil growing.
+2026-08-16 15:18 Day 54 — Walked east bench (eighty paces, south-facing, ~12x10 paces); soil tested good (earthworms, dark loam, free-draining); four birch corner stakes driven — second garden plot marked for spring.
