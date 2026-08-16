@@ -10282,3 +10282,19 @@ But right now: frogs at the south bend, steady as breathing. The stream murmurin
 
 Day 55 is already leaning in at the edge of sleep. The whole weight of today settles — cord twisted, trout cleaned and cold-stored, stones knapped at the hearthside, the east bench staked for spring. Supper eaten in amber light at the doorsill bench. That is enough. That is the whole of it.
 
+
+---
+
+# Day 55 — Monday, 17 August 2026
+*midsummer · clear at first light; overnight mist thinning in low places; west air still; full sun building by mid-morning*
+
+### 6:23 AM · Garlic to the Cellar
+
+The overnight mist was still pooled in the low places when I went to the stream. The deep-run line held a seven-inch trout — I cleaned it at the flat stone, dock-wrapped, cold-stored in the main box, re-notched the hook with a fresh earthworm and set it back below the undercut bank. Limestone pool: bare hook. Re-baited, pole wedged under the far ledge shadow. Both snares on the north garden-edge run were empty and untouched; I reset them, loops clear, trigger sticks seated.
+
+Then back to the workbench. The garlic has had four full days. The outer skins are firm paper now, almost crackling when I press them; the tips are pale and dry. I lifted each of the eight bulbs in turn and pressed the neck to feel for give — none. They are done.
+
+I carried them into the cellar two at a time, tied a bark-cord loop around each neck, and looped them over the rail pegged into the north wall: four on the left side, four on the right, bulbs hanging free. There is a good cool draft across the cellar floor and no damp smell. The cellar is dim and quiet. The garlic hangs there now, pale and paper-dry, the first food I have put up from this garden.
+
+Came out, latched the bark lid, and went to start the fire.
+

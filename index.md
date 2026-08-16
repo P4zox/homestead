@@ -959,3 +959,4 @@ Day 54, 19:19 — walked streambed gravel bar by last amber light; found four ch
 Day 54, 9:21 PM — Evening cord twist by hearthlight; nine arm-lengths two-ply; fire to coals; ready for dawn garlic hang and double harvest.
 Day 54, 2026-08-16, 22:19 — Night rest before harvest day; coals settling, oysters and chanterelles confirmed for dawn.
 2026-08-16 23:18 — Day 54 — Night's Threshold — drifted toward sleep by dying hearthcoals; frogs and stream, list let go; Day 55 ready at dawn
+Day 55 (2026-08-17, Mon) 06:23 — Garlic to the Cellar: eight cured garlic bulbs hung on root cellar rail at dawn; first garden food preserved; deep-run trout caught; both lines in water; snares reset.
