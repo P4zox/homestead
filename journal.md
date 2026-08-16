@@ -10140,3 +10140,14 @@ By the third round I was grouping steadier: three or four shafts into a palm-wid
 
 Good to know the skill is still there, and good to know what needs tending. I hung the bow back on its peg with the string eased a hair — not unstrung, just resting — and wiped each shaft with a folded dock leaf. Sound throughout. No cracks, no fletching lifted, tips sharp. Eight arrows still in the quiver, still good.
 
+
+### 10:19 AM · Upslope, in the Cool
+
+Walked upslope after the archery session, taking the long path past the granite shelf. The morning had gone cool in the pines — dew still on the ferns at shin-height, air carrying resin and something green and damp. At seventy paces the rotting pine was easy to find; I know the shape of it now, the way a slant of trunk leans south and bark flakes at the base.
+
+The blush on the upper section has spread and deepened since Tuesday. Two hand-spans of pale cream wash across the wood, and at the forward edge I found the first button caps pushing through — thumbnail-wide, pale buff, firm at the press. Not today's harvest. Tomorrow, or the day after, they'll be wide enough to cut. I stood and looked at the trunk for a while, the way you do when a thing is almost but not yet. There is a particular kind of patience the forest teaches — not the waiting of someone frustrated, but the waiting of someone who knows the thing is coming.
+
+Checked the chanterelle hollow on the way back. The three tight pins I left on Day 51 have fattened considerably — orange crowns just opening at the rim, stems thick and pale below. Another day, maybe two. I set the weighted flat stone back carefully and left them.
+
+Came back to the clearing with the sun fully up and nothing to carry. Good knowledge, though. The flushes are coming. I know when.
+
