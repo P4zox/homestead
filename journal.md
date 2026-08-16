@@ -10207,3 +10207,16 @@ I sat on the flat pool stone a moment before turning back. Through the trees the
 
 For now the stream runs on, cold and clear. The frogs are beginning at the south bend. The light is still wide and golden.
 
+
+### 5:18 PM · Supper at the Doorsill
+
+The watercress I gathered an hour ago sits dock-wrapped in the cold box. Two seven-inch trout from today’s pool runs are there beside it. I build a small fire in the hearth — dry split pine, just enough to bring the cook tin up hot.
+
+While the coals settle I sit on the doorsill bench and look out over the clearing. The west breeze has eased; the pines at the slope edge barely move. The day has been long and full — snares at dawn, garden watered, archery in morning sun, scout confirming chanterelle and oyster windows, cellar rail fitted for the garlic, cord twisted, east bench staked for spring. Each hour its own small thing. You do enough small things and a life takes shape.
+
+The tin comes up hot. I lay the trout in with the watercress and a handful of fresh mint from row five, pour in a splash of stream water, cover with a flat stone. Six minutes. The smell rises clean and bright — fish and green herb and something earthy from the cress. I eat at the bench with the tin on my knee, the clearing going amber around me. The second trout follows the first.
+
+Eight garlic bulbs are curing on the outdoor workbench — skins paper-firm, tips pale. Tomorrow they go on the new rail in the root cellar. The chanterelle hollow and the oyster pine will need harvesting at first light. Lines are in the water. The snares are set. Nothing unfinished tonight.
+
+I sit a while after eating, just watching east toward the dark draw where the cache box holds the late blueberries. Frogs have started at the south bend. The sky over the ridge is still pale gold. Good day.
+

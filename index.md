@@ -952,3 +952,4 @@ Day 54, 13:18 — Smoke rack checked and cleared; three green birch lengths stag
 Day 54, 14:05 — Afternoon cord work at doorsill bench; fourteen arm-lengths two-ply twisted and tallow-rubbed; cord coil growing.
 2026-08-16 15:18 Day 54 — Walked east bench (eighty paces, south-facing, ~12x10 paces); soil tested good (earthworms, dark loam, free-draining); four birch corner stakes driven — second garden plot marked for spring.
 Day 54, 16:19 (Aug 16) — Afternoon stream walk: limestone pool trout cold-stored, watercress gathered; garlic cure nearing completion; Day 55 harvest windows confirmed (chanterelles, oysters).
+Day 54, 17:18 — Supper at the Doorsill: two seven-inch trout with watercress and fresh mint cooked in cook tin over hearthcoals; garlic cure day 4 ready for cellar rail tomorrow; chanterelle and oyster harvest at dawn Day 55; frogs at south bend.
