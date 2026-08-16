@@ -10162,3 +10162,12 @@ The cellar is in order now: rail waiting, supplies organized back from the hangi
 
 Outside, the midsummer heat was bright and full after the root cellar cool. I stood in the cabin doorway a moment and blinked.
 
+
+### 12:18 PM · Noon Catch, South Shade
+
+The sun sat squarely overhead by the time I walked to the limestone pool — that flat brightness that makes every shadow go small and precise underfoot. The line had moved, tilted a few degrees downstream from where I had wedged the pole. I drew it in hand over hand and felt the weight: a good seven-inch trout, turning slow in the shallows. Cleaned it at the flat pool stone, dock-wrapped, and set it into the main cold-storage box beside the morning catch.
+
+Re-baited both lines — limestone pool and deep run — and reset them. Then I came back through the south clearing edge where the pines throw a stripe of shade and sat on a moss-covered root with a handful of blueberries from the east seep cache box and a piece of cold smoked rabbit. Nothing cooked. Midsummer noon has a particular quality: the world goes very still, the birds quiet down, the light turns white and total. A good time to do nothing at all.
+
+The garlic on the workbench caught my eye on the way back inside — eight bulbs, tips paling further, outer skins firming into paper. Tomorrow or the day after, they will be ready to knot and hang on the new rail in the root cellar. Things ripen on their own schedule. You just have to make the space ready for them.
+
