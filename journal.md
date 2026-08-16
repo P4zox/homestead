@@ -10119,3 +10119,11 @@ The garlic is on its second day of curing on the outdoor workbench. I turned eac
 
 Garden watering comes mid-morning. The west breeze has not found its way down from the slope yet. For now the clearing is still and gold, and I let the morning be quiet.
 
+### 8:19 AM · Midsummer Rows
+
+The mist had burned off fully by the time I carried the first cook tin down to the deep run. Four trips, east to west, all seven rows — the soil was still damp an inch down from yesterday, but the top crust had begun to dry in the night's warmth.
+
+The nettles in rows 1 and 2 are sending up fresh tips again; I left them — another two days and they'll be worth cutting. Mint is holding at the border stones, wood sorrel dense in the shadow strip. The garlic fans in the eastern strip are broad and pale green in the morning light; I poured those rows a little slower, watching the water spread between the bulbs. Cure day 2 is doing what it should on the workbench — outer skins papering over, tips lightening steadily.
+
+The stream sound carried up from below the slope, sun warm at my back, and the whole garden looked exactly right. An ordinary morning's work, in the best sense.
+
