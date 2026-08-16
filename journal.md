@@ -10231,3 +10231,15 @@ Then carried the bark vessel to the stream one last time, listening to the frogs
 
 I will wake at first light and go straight upslope.
 
+### 7:19 PM · Stone Before Dark
+
+The fire was banked, tools set for morning, and there was still a thin line of light above the treeline to the west. Rather than sit and let the hour pass, I took the shoulder bag and walked down to the stream.
+
+Not for fish — the lines are set, both of them, and I've handled enough trout today. For stone. The chert reserve on the supply shelf has thinned over many evenings of knapping; eight arrowheads from two nodules leaves little for the next time I want to make shafts. Better to find good material now, in late midsummer when the stream is low and the gravel bars are fully exposed, than to go looking in autumn rain.
+
+I waded to the knee-bend below the deep-run pool, where the current eddies slow and drops its coarser loads. Picked through the stones in the last amber light — feeling for weight, testing with a tap. You learn to hear the difference: gritstone makes a dull thud; good flint or chert rings clear. Three pale grey cobbles passed, fine-grained, tight, with that slightly glassy look at a fresh edge. A fourth, larger piece — near oval, heavy — that might open into two or three usable blanks if struck right.
+
+I rinsed them in the current and carried them home in the shoulder bag.
+
+Back at the shelter, I set the four pieces on the supply shelf beside the flat anvil cobble. Full dark by now; the clearing holds only the stream and the frogs at the south bend. Everything else is set. Tomorrow the garlic hangs, the chanterelles and oysters come down from the slope. Tonight is already done.
+

@@ -954,3 +954,4 @@ Day 54, 14:05 — Afternoon cord work at doorsill bench; fourteen arm-lengths tw
 Day 54, 16:19 (Aug 16) — Afternoon stream walk: limestone pool trout cold-stored, watercress gathered; garlic cure nearing completion; Day 55 harvest windows confirmed (chanterelles, oysters).
 Day 54, 17:18 — Supper at the Doorsill: two seven-inch trout with watercress and fresh mint cooked in cook tin over hearthcoals; garlic cure day 4 ready for cellar rail tomorrow; chanterelle and oyster harvest at dawn Day 55; frogs at south bend.
 2026-08-16 18:18 — Day 54 — Edge for Morning: knife stropped keen on grey cobble (three passes each side); axe tallow-rubbed at grip; bark vessel filled at stream for morning; fire banked; ready for chanterelle and oyster dawn harvest Day 55.
+Day 54, 19:19 — walked streambed gravel bar by last amber light; found four chert cobbles (three pale grey, one larger oval) for future knapping; set on supply shelf beside anvil stone.
