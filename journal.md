@@ -10194,3 +10194,16 @@ I walked it slowly, thinking plainly. The main garden is full and serving well. 
 
 Walked home through long afternoon shadows. The bench looks good from the clearing edge — a patch of darker earth between the alder and the open slope, waiting quietly for its time.
 
+
+### 4:19 PM · Amber Run, Watercress
+
+The afternoon has held clear and warm, the west breeze still steady through the pines. With the morning work settled — the cellar rail fitted, the east bench staked, the cord coiled and put away — I walked down to the stream.
+
+The deep-run line was still, the earthworm hanging patient below the undercut bank. I left it undisturbed. The limestone pool line had another seven-inch trout in the shallows — clean hook, belly-up in the current. I cleaned it at the flat pool stone, dock-wrapped it, and cold-stored it in the main box. Re-baited with a fresh earthworm from the bark fold, pole re-wedged deep under the far ledge shadow for the overnight. Both lines in water now.
+
+At the side seep below the deep run I pulled a fistful of watercress — stems crisp and cold, leaves just past their most tender but still good. Dock-wrapped it and carried it back.
+
+I sat on the flat pool stone a moment before turning back. Through the trees the clearing was visible as a brightness — the bark roof catching afternoon sun, the smoke rack standing its quiet ground south of the door. Eight garlic bulbs curing stem-end up on the workbench, tips gone pale now and the outer skins papering firm. Tomorrow I will knot them and carry them down to the cellar rail. The chanterelle hollow will be ready. The oyster pine will be ready. Day 55 will be busy.
+
+For now the stream runs on, cold and clear. The frogs are beginning at the south bend. The light is still wide and golden.
+
