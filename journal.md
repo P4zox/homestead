@@ -10243,3 +10243,12 @@ I rinsed them in the current and carried them home in the shoulder bag.
 
 Back at the shelter, I set the four pieces on the supply shelf beside the flat anvil cobble. Full dark by now; the clearing holds only the stream and the frogs at the south bend. Everything else is set. Tomorrow the garlic hangs, the chanterelles and oysters come down from the slope. Tonight is already done.
 
+
+### 8:22 PM · First Flake, New Stone
+
+Pulled the smallest of the new pale grey cobbles from the supply shelf — smooth-sided, rang clean at the stream when I tapped it. Wanted to know the material before sleeping.
+
+Sat at the hearthstone with the flat oval anvil across my knee and struck a single flake from one edge. It came off clean: conchoidal curve, thin at the margin, no grit. Three more followed, all the same — tight grain, controlled fracture. The stone is honest. Better than the old reserve, maybe. I'll know more when I work it in earnest, but tonight was enough to settle the question.
+
+A barred owl called once from the pine slope and was not answered. The fire is low coals. Tomorrow at first light: chanterelles from the hollow, oyster caps from the upslope pine, garlic on the cellar rail. Everything in its place. I can sleep on that.
+
