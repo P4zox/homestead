@@ -10262,3 +10262,12 @@ Tomorrow will be a full morning: garlic to the cellar rail, oyster flush from th
 
 I'll sleep well.
 
+
+### 10:19 PM · Night Before Harvest
+
+The fire is coals now, barely orange in the dark. I am on the sleeping mat, bag pulled over me, listening — stream below, frogs at the south bend, an owl somewhere upslope that called once an hour ago and went silent. The shelter holds warmth. The garlic is papery and dry on the workbench outside; tomorrow morning it comes off and onto the rail in the cellar, and that small thing will feel like closing a door correctly.
+
+Upslope there are oysters ready. In the birch hollow, the chanterelles have opened. I will move at first light.
+
+Everything is prepared. The line is in the water. The snares are set. The knife is sharp and the axe is oiled and there is nothing useful left to do tonight except rest, and I know this, and I am nearly asleep.
+
