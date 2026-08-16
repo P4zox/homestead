@@ -10298,3 +10298,12 @@ I carried them into the cellar two at a time, tied a bark-cord loop around each 
 
 Came out, latched the bark lid, and went to start the fire.
 
+
+### 7:20 AM · Oysters in Morning Light
+
+The garlic was hanging in the cellar when I came out — four left, four right, bark-cord loops at each neck, bulbs swaying a little in the cool dark. A small thing, but it is the first food from my own ground that will last into winter. I latched the lid and came back into the light.
+
+The rotting pine at seventy paces delivered exactly what I had been watching for. Upper trunk: three broad clusters of pale buff oysters, caps spread wide, white gills clean, each one beaded with morning mist. I cut them at the stem base — four good handfuls, maybe a little more than last flush. Loaded them gill-side up across the smoke rack crossbars and fed green birch beneath until the smolder was steady and pale. That first curl of smoke in morning air always settles something in me.
+
+They should pull amber-tan and firm in two hours. The trunk went quiet below the harvest site — no new pins showing yet, but the wood underneath is still sound and dark. It will flush again, probably Day 58 or 59.
+
