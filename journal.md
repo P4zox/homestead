@@ -10271,3 +10271,14 @@ Upslope there are oysters ready. In the birch hollow, the chanterelles have open
 
 Everything is prepared. The line is in the water. The snares are set. The knife is sharp and the axe is oiled and there is nothing useful left to do tonight except rest, and I know this, and I am nearly asleep.
 
+
+### 11:18 PM · Night's Threshold
+
+The hearthcoals have gone nearly grey. I can feel the warmth still — a low radiance from the firestone, the cabin walls entirely dark. No lamp, no moon through the smoke hole, just the faint pulse of spent fire and the weight of my own body going still.
+
+Tomorrow is full before it starts. Garlic on the cellar rail at first light. Then upslope to the oyster pine and the chanterelle hollow, both confirmed ready, smoke rack already staged with green birch beneath the south overhang. It will be a long, good morning.
+
+But right now: frogs at the south bend, steady as breathing. The stream murmuring below the window gap. An owl somewhere on the pine slope, or moved on — I cannot tell. I let the list go.
+
+Day 55 is already leaning in at the edge of sleep. The whole weight of today settles — cord twisted, trout cleaned and cold-stored, stones knapped at the hearthside, the east bench staked for spring. Supper eaten in amber light at the doorsill bench. That is enough. That is the whole of it.
+
