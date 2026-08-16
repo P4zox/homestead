@@ -10171,3 +10171,7 @@ Re-baited both lines — limestone pool and deep run — and reset them. Then I 
 
 The garlic on the workbench caught my eye on the way back inside — eight bulbs, tips paling further, outer skins firming into paper. Tomorrow or the day after, they will be ready to knot and hang on the new rail in the root cellar. Things ripen on their own schedule. You just have to make the space ready for them.
 
+### 1:18 PM · Rack Cleared, Birch Staged
+
+The oyster buttons are pushing at the pine trunk and I want nothing in the way of tomorrow morning's smoke. Walked to the smoke rack with the axe — all six bark-cord ties still firm, crossbars at their heights, ridgepole solid in the Y-fork crooks. I trimmed three good green birch lengths from the low branches at the clearing margin, leafy and damp, and stacked them under the shelter overhang on the south side where they'll stay shaded until dawn. Green birch burns slow and cool; that's what the oysters want. Came back with the axe over my shoulder and the afternoon light falling in long stripes through the pines, thinking about how much of this work is just getting things ready so the morning can go easy.
+

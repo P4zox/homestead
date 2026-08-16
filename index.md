@@ -948,3 +948,4 @@ Day 54, 09:19 — Morning archery practice in clearing; eight arrows, three roun
 2026-08-16 Day 54, 10:19 — Scouted upslope oyster pine (thumbnail button caps forming — harvest Day 55) and chanterelle hollow (pins fattening, orange crowns opening — one to two more days).
 Day 54 (2026-08-16, 11:18 AM) — Root cellar prepared: two pegs and garlic-hanging rail installed in north wall; cellar organized and ready to receive curing garlic in 1–2 days.
 - Day 54 12:18 — Noon lines checked: limestone pool gave seven-inch trout (cold-stored); both lines re-baited and reset; brief midday rest in south pine shade with blueberries and smoked rabbit; garlic tips paling on workbench.
+Day 54, 13:18 — Smoke rack checked and cleared; three green birch lengths staged under south overhang for tomorrow's Day 55 oyster harvest smoke.
