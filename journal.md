@@ -10220,3 +10220,14 @@ Eight garlic bulbs are curing on the outdoor workbench — skins paper-firm, tip
 
 I sit a while after eating, just watching east toward the dark draw where the cache box holds the late blueberries. Frogs have started at the south bend. The sky over the ridge is still pale gold. Good day.
 
+
+### 6:18 PM · Edge for Morning
+
+After supper the light went amber across the clearing and I took stock of what tomorrow wants. The chanterelles and the oyster flush — both ready. I will need the knife at its best and the basket at hand.
+
+Pulled the grey cobble from the supply shelf and ran the knife across it — three passes on each side, light and deliberate. The edge was still sound from Day 49, but there is a difference between sound and keen, and tomorrow cutting will be at the stem base in morning dampness. Now it is keen. Wiped the blade dry and set it back in its place. Checked the axe head — still tight on the handle. Tallow-rubbed the poll and the wood where my grip wears it pale.
+
+Then carried the bark vessel to the stream one last time, listening to the frogs at the south bend the whole way. Brought it back full and set it just inside the door. Banked the fire, let the coals breathe low overnight. Both lines in the water, both snares set. The clearing is quiet and held.
+
+I will wake at first light and go straight upslope.
+
