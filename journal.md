@@ -10175,3 +10175,11 @@ The garlic on the workbench caught my eye on the way back inside — eight bulbs
 
 The oyster buttons are pushing at the pine trunk and I want nothing in the way of tomorrow morning's smoke. Walked to the smoke rack with the axe — all six bark-cord ties still firm, crossbars at their heights, ridgepole solid in the Y-fork crooks. I trimmed three good green birch lengths from the low branches at the clearing margin, leafy and damp, and stacked them under the shelter overhang on the south side where they'll stay shaded until dawn. Green birch burns slow and cool; that's what the oysters want. Came back with the axe over my shoulder and the afternoon light falling in long stripes through the pines, thinking about how much of this work is just getting things ready so the morning can go easy.
 
+### 2:00 PM · Afternoon cord work
+
+The afternoon came in warm and unhurried. I sat at the doorsill bench with a bundle of dry inner bark strips and just worked. The sun had moved past the south pines and was striking the bench square, and my hands fell into the rhythm without being asked — pull the strip taut, twist the two plies against each other, draft a new strand in as the last tapers off.
+
+Tomorrow promises to be full: the oyster pine is ready, the chanterelle hollow has had another day to open further, and the garlic is close enough that I will judge it at first light. I have been quietly stacking up small jobs toward that morning — staging the green birch fuel, hanging the garlic rail in the cellar, clearing the smoke rack. Today what was left was cord, and so I made cord.
+
+Fourteen arm-lengths twisted and tallow-rubbed before the light began to slant. The coil is growing. I do not think much about winter while I am doing this — the work is its own end, and the afternoon has a nice weight to it — but I know the coil will be there when I need it.
+
