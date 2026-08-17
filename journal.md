@@ -10465,3 +10465,12 @@ Then up the slope to the chanterelle hollow. The fallen birch had been quiet sin
 
 Day 56. The hollow is giving well.
 
+
+### 7:19 AM · Breakfast at the Doorsill
+
+One of the three chanterelles still sat on the outdoor workbench, resting in the shade of the east wall. I took the smallest of them — cut it rough with the knife — and laid the pieces in the cook tin with this morning's trout and a handful of wood sorrel pulled from row 5 on the way back through the garden. The hearth coals were still alive from last night; a few pine slivers and a breath of air brought them up.
+
+It is the kind of morning that arrives maybe two or three times in a season: warm before the heat has gathered, mist already gone, the sky a pale blue going deeper. I sat at the doorsill bench and ate while the clearing came into full light. The pines on the slope looked clean and still. The trout was good — firm from the cold stream — and the chanterelle added something rich and earthy underneath; the sorrel cut through it bright. A simple meal, but complete.
+
+The other two caps I will smoke this morning, once I have the green birch going on the rack. For now I am just here in the sun, tin rinsed and drying on the bench beside me, watching a pair of crossbills work through the far pines. The nettles in rows 1 and 2 are close. Maybe this afternoon.
+
