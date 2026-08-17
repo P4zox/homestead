@@ -10370,3 +10370,14 @@ The eye was the longest part. I used the knife tip as a borer, pressing and rota
 
 A small thing. But small things well made are one of the best arguments for this life. The needle will do for bark stitching and hide repair, and for the finer joining work if I try a new vessel or need to close a seam I cannot reach with the awl. I set it on the supply shelf beside the birch spoon and went to check the lines.
 
+
+### 3:23 PM · Needle, and Its Keep
+
+Sat at the doorsill bench with the new bone needle laid across my palm. It is a light thing — thumb-long, smooth-ground, white as birch heartwood. I have been setting objects down on the supply shelf for weeks and losing small ones in the press of larger things. A needle is easy to lose.
+
+The hide scrap offcut has been on the shelf corner since the doe work — too small for mittens or moccasin patches, too good to use for tinder. This afternoon I cut a strip from it: two fingers wide, four long. Rolled it grain-side out, stitched the long seam shut with fine two-ply cord, the bone needle drawing each loop clean. Six stitches, each one pulled firm. Folded a cord loop at the open end so it can hang on a wall peg.
+
+The case is done in less than an hour. Hung it on the south wall peg beside the birch spoon, bone needle riding inside point-down and snug. The first thing I made with the needle was a home for it. That seems right.
+
+The sun is still high enough to warm the clearing. Both lines are in the water. I will check them at dusk.
+
