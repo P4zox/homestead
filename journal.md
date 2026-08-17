@@ -10338,3 +10338,14 @@ This is a good kind of morning. The homestead holds.
 ### 11:18 AM · Midday Quiet Meal
 
 The morning has been full of small completions — oysters off the rack, log caps tucked into the cold box, garden darkened and settled. By eleven the clearing sits quiet in full midsummer sun. I pull one of the deep-run trout from the cold box, split it along the backbone at the flat stone outside, and set it in the cook tin with two of this morning's smoked oyster caps and a handful of wood sorrel from row 5. The hearthcoals from the morning fire are still holding, and I bank them back up with a few dry lengths. While the tin heats I sit on the doorsill bench and watch the light move through the garden — the garlic fans wide in the eastern strip, the wood sorrel edge perfectly still in its shadow band. The meal is ready in not much time: trout white and clean from the bone, oysters giving their smoke-earth depth, sorrel cutting the richness with a clean, green edge. I eat slowly. There is nothing urgent in this moment. Midsummer presses warm and slow. The cellar has its first hanging garlic, the shelter is sealed, the cold box holds more than enough. I rinse the tin at the stream stone, set it to dry in the sun, and sit a few minutes longer on the bench before the afternoon calls.
+
+### 12:19 PM · Poolside Shade
+
+After the meal I left the cook tin rinsed and drying on the bench and walked the trail east toward the limestone pool. The clearing sat in full midsummer heat — the kind that presses down and makes shadows precious. Under the pines it was cooler, needles soft underfoot, and by the time I reached the pool the air had that green smell of moving water.
+
+The pole was still wedged under the far ledge. The line was down with a seven-inch trout on it — cleaned at the flat stone beside the pool, dock-wrapped, carried back. I re-baited the hook with a fresh earthworm from the bark fold, reset the pole deep under the ledge shadow, and watched it settle in the current.
+
+I stayed a while on the mossy overhang above the pool, where the sun does not reach until late afternoon. A water-strider worked the far margin, leaving no mark on the surface. I do not often sit still in the middle of a day — there is always something pulling — but the heat made a good argument, and I let the afternoon move quietly around me.
+
+On the way back I stopped at the side-seep below the deep run and pulled a fistful of watercress, stems dark and crisp. Cold-stored in the box for supper. Home now in the shelter shade, door open for the west breeze.
+
