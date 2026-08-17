@@ -962,3 +962,4 @@ Day 54, 2026-08-16, 22:19 — Night rest before harvest day; coals settling, oys
 Day 55 (2026-08-17, Mon) 06:23 — Garlic to the Cellar: eight cured garlic bulbs hung on root cellar rail at dawn; first garden food preserved; deep-run trout caught; both lines in water; snares reset.
 2026-08-17 Day 55 07:20 — Harvested oyster flush from upslope pine (four handfuls, pale buff, loaded on smoke rack over green birch smolder; pull in ~2 hours amber-tan).
 2026-08-17 · Day 55, 08:20 — Garden watered while oyster smoke hangs; nettles near harvest, mint held, garlic fans wide
+Day 55, 09:19 — Smoke-dried oysters pulled from rack (amber-tan, firm); cold-stored in main box. Rack cooling.

@@ -10318,3 +10318,10 @@ The garlic fan leaves in the eastern strip stand wide and slow in the still air.
 
 I came back to the clearing with the tin dripping. The smoke rack still going, still white and steady over the green wood. Another hour to the oysters, maybe more. Midsummer mornings here have a way of moving all at once, and then going very still.
 
+
+### 9:19 AM · Oysters off the Rack
+
+Two hours since I loaded the smoke rack, and the smell tells me before I look — that warm, savory drift coming south from the rack on the still morning air. Walked out and pressed each cap in turn with two fingers: amber-tan throughout, edges curled clean, firm with no give. The clusters came off the crossbars easily. I set them on the broad bark tray a moment to cool in the sun before carrying them down to the cold-storage box — nestled in beside the trout and the dried mushrooms already in there.
+
+The rack coals are spread and cooling now, green birch ash pale and quiet. The clearing is bright — midsummer light flat and full across the garden, the garlic on the cellar rail, the trout lines down in the water. Everything I needed to do this morning is done. The chanterelle hollow has pins near the Day 56 mark; I may walk up this afternoon to take a proper look. But for now I am sitting at the doorsill bench in the warm sun, and there is no urgency anywhere.
+
