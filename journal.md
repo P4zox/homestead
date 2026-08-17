@@ -10404,3 +10404,8 @@ The garden was dark and quiet. I could see the garlic fans in the eastern strip 
 
 I came back to the doorsill bench and sat. The clearing held the warmth for a quarter hour more. The stream sound carried up the slope in the still air, and somewhere in the pines a thrush called twice and went quiet. Fifty-five days in here, and the place has started to feel like it knows me back.
 
+
+### 6:22 PM · Last Light, Cord
+
+The light held long in the clearing after supper — that midsummer gold that comes in sideways through the pines. I sat at the doorsill bench and twisted cord: nine arm-lengths, fine two-ply, unhurried. The bone needle case hung on the south wall peg where I had put it two hours before, and I kept glancing at it — a real needle, small and white. Strange how much that matters. When the cord was done I banked the hearth coals and settled in. Lines in the water, snares set. Tomorrow the nettles in rows one and two should be ready.
+

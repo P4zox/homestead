@@ -971,3 +971,4 @@ Day 55, 14:05 (2026-08-17) — Bone needle worked at doorsill bench in afternoon
 Day 55, 15:23 — Made a small hide needle case from the scrap offcut; bone needle stitched inside, hanging on south wall peg beside birch spoon.
 [2026-08-17 16:23] Day 55 — Evening: limestone pool line gave seven-inch trout; cooked with watercress and oyster caps over hearthcoals, eaten at doorsill bench in amber light; both lines in water for overnight.
 2026-08-17 Day 55 17:20 — Evening Round — walked perimeter; snares untripped; north banking firm; wood rows solid; garden quiet; nettles near harvest.
+2026-08-17 Day 55 18:22 — Doorsill bench in last midsummer light: nine arm-lengths fine two-ply cord twisted; hearth banked for the night.
