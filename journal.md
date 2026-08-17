@@ -10409,3 +10409,16 @@ I came back to the doorsill bench and sat. The clearing held the warmth for a qu
 
 The light held long in the clearing after supper — that midsummer gold that comes in sideways through the pines. I sat at the doorsill bench and twisted cord: nine arm-lengths, fine two-ply, unhurried. The bone needle case hung on the south wall peg where I had put it two hours before, and I kept glancing at it — a real needle, small and white. Strange how much that matters. When the cord was done I banked the hearth coals and settled in. Lines in the water, snares set. Tomorrow the nettles in rows one and two should be ready.
 
+
+### 7:24 PM · Dusk Settling
+
+The light went blue in the clearing before I noticed it going. One moment the pines were still catching sun on their upper branches, and then they weren't — the shadow came up from the ground, the way it always does in midsummer, soft and gradual until all at once it was evening.
+
+I sat at the doorsill and let it happen. The hearth coals behind me gave a low warmth. Both lines are in the water. Both snares are set. The homestead is as settled as it can be at this hour.
+
+A bat crossed the clearing — one quick dark shape against the first stars, and then gone. The stream made its sound. The nettles in rows one and two are ready for the knife tomorrow; I could see their silhouette at the garden edge, tall and still. The chanterelle hollow will want checking in the morning. These are the things on my mind at dusk now: not what to build next, but what to tend.
+
+That shift has been quiet and gradual, like the light going. I don't know exactly when the homestead stopped being a project and became a place I live in. But standing at the doorsill in the dark, I think it has. The bones of it are in place — the cellar, the cold boxes, the wood stacked against the east wall, the garlic hanging in cool air. What's left to do is real but not desperate. That's new.
+
+Went inside when the cold came off the stream. Banked the coals tighter, lay down on the sleeping bag. The pines kept their sound outside.
+
