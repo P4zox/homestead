@@ -10349,3 +10349,14 @@ I stayed a while on the mossy overhang above the pool, where the sun does not re
 
 On the way back I stopped at the side-seep below the deep run and pulled a fistful of watercress, stems dark and crisp. Cold-stored in the box for supper. Home now in the shelter shade, door open for the west breeze.
 
+
+### 1:05 PM · Afternoon Cord
+
+The east-wall shadow is the right place at this hour. Sun fills the south face of the cabin and falls flat on the garden; the outdoor bench sits in a narrow cool strip against the east logs, and the air coming off the slope still carries a faint pine smell. I brought the bark strips I had set aside and spent the hottest part of the afternoon just twisting.
+
+The morning was already full — lines and snares before dawn, garlic into the cellar, oysters on the smoke rack, garden, buried log, the midday meal, then down to the pool and back with the afternoon catch and watercress. By one o'clock there was nothing urgent left, and I felt that clearly.
+
+Fourteen arm-lengths of two-ply added to the coil. The supply is already heavy, but cord is never wasted — it becomes lashing, binding, snare loops, sewing thread. It always goes somewhere. And the rhythm of it, reverse-twist then forward-twist with even finger tension, settles the mind after a busy morning.
+
+What I keep thinking about is the garlic. Eight bulbs, loops at their necks, hanging in cool cellar air. I have kept fire all summer, kept lines in the water, kept the garden from going feral. But the garlic is the first thing that will be there in winter — grown here, cured here, stored here, waiting. That is a different kind of provision. It changes the shape of what winter looks like from this end of summer.
+
