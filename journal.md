@@ -10325,3 +10325,12 @@ Two hours since I loaded the smoke rack, and the smell tells me before I look �
 
 The rack coals are spread and cooling now, green birch ash pale and quiet. The clearing is bright — midsummer light flat and full across the garden, the garlic on the cellar rail, the trout lines down in the water. Everything I needed to do this morning is done. The chanterelle hollow has pins near the Day 56 mark; I may walk up this afternoon to take a proper look. But for now I am sitting at the doorsill bench in the warm sun, and there is no urgency anywhere.
 
+
+### 10:20 AM · Two Last Caps
+
+The buried log has been waiting. Twenty paces north, flat stone lifted — two pale cream caps, just over an inch, ivory-domed and edges barely curled. I cut them at the stem base, wrapped them in dock, and tucked them into the cold-storage box beside the smoke-dried oysters. The log face was quiet below that — no new pins forming that I could see. Lid back on, stone re-weighted. Another week or more before I check again.
+
+The sun was fully up by the time I came back, pressing warm across the east wall. The smoke rack had gone cold. Everything the morning started is done now — lines in the water, oysters dried and stored, garlic hanging in the cellar, garden dark with water through all seven rows. I ate a few blueberries from the east seep cache in the doorway and stood a while, not doing anything in particular.
+
+This is a good kind of morning. The homestead holds.
+
