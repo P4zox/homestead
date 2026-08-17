@@ -967,3 +967,4 @@ Day 55, 2026-08-17, 10:20 — Buried log seventh harvest: two pale cream caps (~
 2026-08-17 Day 55, 11:18 — Midday quiet meal: seven-inch trout with smoked oysters and wood sorrel at doorsill bench; midsummer warm and settled; cold box full, cellar organized.
 Day 55, 2026-08-17 (Mon), 12:19 PM — Limestone pool trout caught; watercress gathered at side-seep; rested in poolside shade.
 Day 55, 13:05 — Cord twisted in afternoon east-wall shade; fourteen arm-lengths two-ply added to coil; reflected on first garden food (garlic) preserved in root cellar.
+Day 55, 14:05 (2026-08-17) — Bone needle worked at doorsill bench in afternoon shade: rabbit fibula sliver shaped on cobble anvil to sharp point, tail flattened and eye bored with knife tip — needle complete, threaded and tested with fine two-ply cord; on supply shelf.

@@ -10360,3 +10360,13 @@ Fourteen arm-lengths of two-ply added to the coil. The supply is already heavy, 
 
 What I keep thinking about is the garlic. Eight bulbs, loops at their necks, hanging in cool cellar air. I have kept fire all summer, kept lines in the water, kept the garden from going feral. But the garlic is the first thing that will be there in winter — grown here, cured here, stored here, waiting. That is a different kind of provision. It changes the shape of what winter looks like from this end of summer.
 
+### 2:05 PM · Needle from Bone
+
+The afternoon heat settles fully on the clearing by now, and I have taken my place on the doorsill bench in the stripe of shade the eave throws across the threshold. The rabbit bones — the fine leg bones from the Day 41 and Day 45 rabbits, saved in a bark fold on the supply shelf — I sorted through this afternoon and chose the straightest among them. A narrow fibula from the second rabbit, pale and fine, slightly longer than my thumb.
+
+I worked it slowly. First I scored it lengthwise with the knife tip, splitting a slim sliver from the shaft — just wide enough for a needle, tapering at both ends. Then I drew the point end back and forth on the flat oval cobble anvil, checking the taper every few passes with a thumbnail-press. When the tip held without flexing, I switched ends and ground the blunt tail against the hearthstone corner — pressing, rocking side to side — until it was broad enough to take an eye.
+
+The eye was the longest part. I used the knife tip as a borer, pressing and rotating into the flattened tail in tiny circles, blowing the bone dust clear between passes. It went through cleanly in the end — small but true, wide enough for fine two-ply cord. I threaded a short length through to confirm. It passed without catching. The needle bends slightly under the fingers but does not snap.
+
+A small thing. But small things well made are one of the best arguments for this life. The needle will do for bark stitching and hide repair, and for the finer joining work if I try a new vessel or need to close a seam I cannot reach with the awl. I set it on the supply shelf beside the birch spoon and went to check the lines.
+
