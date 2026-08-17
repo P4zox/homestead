@@ -10389,3 +10389,18 @@ Walked down to the limestone pool in the low afternoon light, shadows already lo
 Back at the shelter I coaxed the hearth up from banked gray and set the trout in the cook tin with the watercress from the side-seep this morning and two dried oyster caps. It did not take long. I brought the tin out and sat at the doorsill bench while the amber came in low across the clearing, pines catching the last direct light above the treeline.
 
 The trout came apart in clean white flakes. The watercress still had some bite to it. I ate slowly, not thinking much of anything — smoke curling out through the gable gap, cooling air coming off the stream, the stillness that settles after a full day. The garlic is hanging in the root cellar. The needle case is on the peg. Both lines are in the water. Tomorrow the nettles will want cutting, and the chanterelle hollow is due a check. Good work ahead.
+
+### 5:20 PM · Evening Round
+
+After supper I felt no need to sit still just yet. The light was still full in the clearing, slanting warm and long through the pines, and the air had that midsummer weight it carries in the hour before it begins to cool. I walked the homestead perimeter slowly — not checking anything in particular, just looking.
+
+The snares were where I had set them: both loops hanging clean and untripped in the tall grass at the garden edge. I crouched and looked at the ground around each trigger stick. Nothing had passed. I left them.
+
+The north wall banking caught the evening light at a low angle, and in that light the stone-and-soil courses looked older than they are — pressed in tight against the cabin logs, no gap, no give. I ran my hand along the face of it and the stones did not shift. By winter it should feel like the hill itself leaning against the back of the cabin.
+
+The wood rows along the east wall stretched the full length now: birch rounds, pine halves, the smaller alder pieces stacked at the far end. I counted the front face with my eyes. There is enough to feel less uneasy when I think about cold, though I know I will want more before the first frost. There is still time.
+
+The garden was dark and quiet. I could see the garlic fans in the eastern strip catching the last slant light, the mint pressed flat at the border stones where I had redirected it this morning. The nettles in the first two rows were taller than they had been at the morning watering — they always seem to grow while you are not watching. Another day or two.
+
+I came back to the doorsill bench and sat. The clearing held the warmth for a quarter hour more. The stream sound carried up the slope in the still air, and somewhere in the pines a thrush called twice and went quiet. Fifty-five days in here, and the place has started to feel like it knows me back.
+
