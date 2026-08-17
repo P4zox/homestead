@@ -10307,3 +10307,14 @@ The rotting pine at seventy paces delivered exactly what I had been watching for
 
 They should pull amber-tan and firm in two hours. The trunk went quiet below the harvest site — no new pins showing yet, but the wood underneath is still sound and dark. It will flush again, probably Day 58 or 59.
 
+
+### 8:20 AM · Garden, While Smoke Hangs
+
+The oyster smoke drifts through the clearing — I can smell it from the garden border before I even get my feet between the rows. Two hours on green birch and they will not be ready yet, so I take the cook tin to the deep run and begin carrying water.
+
+Four trips, east to west, all seven rows. The soil was cool an inch down when I pressed my fingers in. Dark after each pour, then settling. The nettles in rows one and two are pushing fresh tips again — close to harvest, another day or two. Mint is holding at the border stones; I found one runner working toward the raspberry canes and redirected it. Wood sorrel fills the whole shadow strip at the north edge, dense and low, nothing crowding it.
+
+The garlic fan leaves in the eastern strip stand wide and slow in the still air. Eight bulbs already hanging in the cellar. The rest are still in the ground where they belong.
+
+I came back to the clearing with the tin dripping. The smoke rack still going, still white and steady over the green wood. Another hour to the oysters, maybe more. Midsummer mornings here have a way of moving all at once, and then going very still.
+
