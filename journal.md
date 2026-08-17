@@ -10449,3 +10449,19 @@ The bat came back — I heard the soft wing-beat through the gable gap, one pass
 ### 11:19 PM · Between the Coals
 
 Woke briefly — do not know why. The coals are banked low, just a red line at the base of the hearth surround. Stream sound through the log walls. A still hour: nothing wrong, nothing needing doing. I lay here counting the things ready for morning and ran out of worries before I ran out of things to count. Nettles in rows 1 and 2, knife keen, basket with dock leaves at the bench. The chanterelle hollow will be there just as I left it. Fifty-five days have a shape to them now. I know the dips in the ground, the lean of the pines, the way the light comes first across the east gable gap. Sleep again.
+
+---
+
+# Day 56 — Tuesday, 18 August 2026
+*Midsummer · Clear at first light; overnight mist thinning in low places at dawn; west air still; full midsummer sun building by mid-morning; warm and settled*
+
+### 6:00 AM · Chanterelle Hollow Dawn
+
+Mist still in the low ground when I lifted the latch bar. Cool air from the stream, the clearing just taking shape in early grey.
+
+The deep-run line had bent overnight — a seven-inch trout, cleaned at the flat stone in the half-dark. Earthworm from the bark fold in the cold-storage box, pole reset under the undercut bank. The limestone pool hook had come through bare; re-baited and wedged back under the far ledge shadow before the mist had lifted much. Both snares on the north garden edge untouched, loops clean. Reset them.
+
+Then up the slope to the chanterelle hollow. The fallen birch had been quiet since Day 51 — three thumbnail pins under a weighted flat stone, waiting. I lifted the stone and crouched over the wood: three caps now, palm to past-palm wide, deep orange-gold, gills a clean ridged funnel beneath each. Cut each at the stem base with the knife, nested them in the harvest basket, carried them down and set them on the outdoor workbench in morning air.
+
+Day 56. The hollow is giving well.
+
