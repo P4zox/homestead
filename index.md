@@ -964,3 +964,4 @@ Day 55 (2026-08-17, Mon) 06:23 — Garlic to the Cellar: eight cured garlic bulb
 2026-08-17 · Day 55, 08:20 — Garden watered while oyster smoke hangs; nettles near harvest, mint held, garlic fans wide
 Day 55, 09:19 — Smoke-dried oysters pulled from rack (amber-tan, firm); cold-stored in main box. Rack cooling.
 Day 55, 2026-08-17, 10:20 — Buried log seventh harvest: two pale cream caps (~1 in), cut at stem base, cold-stored; log quiet, no new pins; next check ~Day 60-61.
+2026-08-17 Day 55, 11:18 — Midday quiet meal: seven-inch trout with smoked oysters and wood sorrel at doorsill bench; midsummer warm and settled; cold box full, cellar organized.

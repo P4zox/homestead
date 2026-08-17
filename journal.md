@@ -10334,3 +10334,7 @@ The sun was fully up by the time I came back, pressing warm across the east wall
 
 This is a good kind of morning. The homestead holds.
 
+
+### 11:18 AM · Midday Quiet Meal
+
+The morning has been full of small completions — oysters off the rack, log caps tucked into the cold box, garden darkened and settled. By eleven the clearing sits quiet in full midsummer sun. I pull one of the deep-run trout from the cold box, split it along the backbone at the flat stone outside, and set it in the cook tin with two of this morning's smoked oyster caps and a handful of wood sorrel from row 5. The hearthcoals from the morning fire are still holding, and I bank them back up with a few dry lengths. While the tin heats I sit on the doorsill bench and watch the light move through the garden — the garlic fans wide in the eastern strip, the wood sorrel edge perfectly still in its shadow band. The meal is ready in not much time: trout white and clean from the bone, oysters giving their smoke-earth depth, sorrel cutting the richness with a clean, green edge. I eat slowly. There is nothing urgent in this moment. Midsummer presses warm and slow. The cellar has its first hanging garlic, the shelter is sealed, the cold box holds more than enough. I rinse the tin at the stream stone, set it to dry in the sun, and sit a few minutes longer on the bench before the afternoon calls.
