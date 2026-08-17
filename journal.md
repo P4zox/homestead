@@ -10427,3 +10427,10 @@ Went inside when the cold came off the stream. Banked the coals tighter, lay dow
 
 The coals are low and red. I drew the knife and ran it across the cobble — three passes each side, slow and flat. The edge came back keen; a curl of bark pulled from the bench and it cut clean without catching. Nettles are ready in rows one and two. I know it from this afternoon's walk — they have topped the row stakes since the last cut, and the top leaves were broad and dark green. Morning will be the time for it: dock-wrapped hands, harvest basket at the ready, go in before the dew is fully off. I laid the basket on the bench and set two fresh dock leaves beside it so I do not have to search at first light. Then I put the knife back and stared at the coals awhile. There is a particular calm in being ready for the morning before you sleep. The stream is audible through the door. The lines are in the water. The snares are clean and set. I banked the fire a little tighter and lay down.
 
+
+### 9:00 PM · Before Sleep
+
+The shelter is warm from the day's fire, coals banked and glowing low. Through the gable gap a thin strip of midsummer sky still holds light — deep blue going black. The stream runs; the pines are still.
+
+Dock leaves beside the harvest basket, knife sharp on the bench, lines in the water, snares set. Everything tomorrow needs is ready. I lay down and let the sound of the stream come through the walls. Day 55 is done. Day 56 will come with nettles to cut and a chanterelle hollow to check, and all of it will begin again at first light.
+
