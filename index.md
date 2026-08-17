@@ -975,3 +975,4 @@ Day 55, 15:23 — Made a small hide needle case from the scrap offcut; bone need
 2026-08-17 19:24 Day 55 — Dusk settling at doorsill; bat crossed clearing; nettles and chanterelles ready for tomorrow; homestead quiet and held.
 [2026-08-17 20:34] Day 55 — Knife stropped by hearthlight; dock leaves laid out for dawn nettle harvest; coals banked, lines in water, snares set — turned in.
 2026-08-17 21:00 — Day 55, 9 PM — lay in shelter by banked coals listening to stream; all set for dawn nettle harvest (Day 56)
+2026-08-17 Day 55 22:00 — Coals and Quiet: lay awake by banked hearthfire at night, listening to the stream through the log walls; reflected on fifty-five days of work and what they have become.

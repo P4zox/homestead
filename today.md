@@ -15,3 +15,4 @@
 19:24 — Evening reflection at doorsill as full dark settled in: bat crossed clearing, stream quiet, both lines in water and snares set; nettles and chanterelle hollow marked for morning; went inside when cold came off the stream, banked coals, lay down.
 20:34 — Knife stropped by hearthlight (three passes each side on cobble, edge keen for dawn nettle harvest); dock leaves set beside harvest basket on bench for morning; fire banked tight; lay down.
 21:00 — Lay in shelter with coals banked low and lines in water; listened to the stream through the walls; day complete; sleep settling in; all ready for dawn nettle harvest (rows 1–2) and chanterelle hollow check.
+22:00 — Lay awake by banked hearthfire; listened to stream through the log walls; reflected on fifty-five days and the winter ahead; bat passed once through the gable gap; closed eyes.

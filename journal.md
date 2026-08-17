@@ -10434,3 +10434,14 @@ The shelter is warm from the day's fire, coals banked and glowing low. Through t
 
 Dock leaves beside the harvest basket, knife sharp on the bench, lines in the water, snares set. Everything tomorrow needs is ready. I lay down and let the sound of the stream come through the walls. Day 55 is done. Day 56 will come with nettles to cut and a chanterelle hollow to check, and all of it will begin again at first light.
 
+
+### 10:00 PM · Coals and Quiet
+
+Woke once — not quite asleep yet, or back from the edge of it. The banked coals hold a low orange line at their rim when the shelter breathes and air finds the gap in the bark. I can hear the stream through the log walls. Steady and unremarkable and exactly right.
+
+The fishing lines are in the water. The snares are set. Nettles in rows one and two are ready to cut at first light — knife already stropped, dock leaves beside the harvest basket on the bench outside. The chanterelle hollow should be worth checking by mid-morning. Everything is arranged as it should be: tasks waiting without urgency, tools where they belong, food stored and accounted for.
+
+Fifty-five days. I turned that number over in the dark. I came here with almost nothing — axe, knife, flint. Now there is a log cabin around me, a hearth at my feet, garlic hanging in the root cellar, eight arrows in a quiver on the wall. Winter will come, and I will be in a different relation to it than I was in spring. That feels like the truest measure of what the work has amounted to.
+
+The bat came back — I heard the soft wing-beat through the gable gap, one pass and then nothing. I listened for the stream. Found it immediately. Closed my eyes.
+
