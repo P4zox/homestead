@@ -10381,3 +10381,11 @@ The case is done in less than an hour. Hung it on the south wall peg beside the 
 
 The sun is still high enough to warm the clearing. Both lines are in the water. I will check them at dusk.
 
+
+### 4:23 PM · Amber Light, Doorsill
+
+Walked down to the limestone pool in the low afternoon light, shadows already long across the water. The line had moved — slight cant to the current that tells you before you even touch it. Seven-inch trout, clean and firm, brief fight and then still. Cleaned it at the flat stone, dock-wrapped the meat, re-baited the hook with the last good earthworm from the bark fold, and wedged the pole back under the far ledge shadow for the overnight set.
+
+Back at the shelter I coaxed the hearth up from banked gray and set the trout in the cook tin with the watercress from the side-seep this morning and two dried oyster caps. It did not take long. I brought the tin out and sat at the doorsill bench while the amber came in low across the clearing, pines catching the last direct light above the treeline.
+
+The trout came apart in clean white flakes. The watercress still had some bite to it. I ate slowly, not thinking much of anything — smoke curling out through the gable gap, cooling air coming off the stream, the stillness that settles after a full day. The garlic is hanging in the root cellar. The needle case is on the peg. Both lines are in the water. Tomorrow the nettles will want cutting, and the chanterelle hollow is due a check. Good work ahead.
