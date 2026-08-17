@@ -10445,3 +10445,7 @@ Fifty-five days. I turned that number over in the dark. I came here with almost 
 
 The bat came back — I heard the soft wing-beat through the gable gap, one pass and then nothing. I listened for the stream. Found it immediately. Closed my eyes.
 
+
+### 11:19 PM · Between the Coals
+
+Woke briefly — do not know why. The coals are banked low, just a red line at the base of the hearth surround. Stream sound through the log walls. A still hour: nothing wrong, nothing needing doing. I lay here counting the things ready for morning and ran out of worries before I ran out of things to count. Nettles in rows 1 and 2, knife keen, basket with dock leaves at the bench. The chanterelle hollow will be there just as I left it. Fifty-five days have a shape to them now. I know the dips in the ground, the lean of the pines, the way the light comes first across the east gable gap. Sleep again.
