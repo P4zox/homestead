@@ -13,3 +13,4 @@
 17:20 — Evening walk of homestead perimeter: both snares untripped and clean; north wall banking firm and solid; wood rows along east wall long and deep; garden quiet — nettles in rows 1-2 near harvest; mint held at border stones; garlic fans wide in evening light. Sat at doorsill bench in last warmth. Clearing settled; thrush called twice in the pines.
 18:22 — Doorsill bench in last midsummer light: nine arm-lengths fine two-ply cord twisted; hearth banked for the night.
 19:24 — Evening reflection at doorsill as full dark settled in: bat crossed clearing, stream quiet, both lines in water and snares set; nettles and chanterelle hollow marked for morning; went inside when cold came off the stream, banked coals, lay down.
+20:34 — Knife stropped by hearthlight (three passes each side on cobble, edge keen for dawn nettle harvest); dock leaves set beside harvest basket on bench for morning; fire banked tight; lay down.

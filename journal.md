@@ -10422,3 +10422,8 @@ That shift has been quiet and gradual, like the light going. I don't know exactl
 
 Went inside when the cold came off the stream. Banked the coals tighter, lay down on the sleeping bag. The pines kept their sound outside.
 
+
+### 8:34 PM · Blade, Then Sleep
+
+The coals are low and red. I drew the knife and ran it across the cobble — three passes each side, slow and flat. The edge came back keen; a curl of bark pulled from the bench and it cut clean without catching. Nettles are ready in rows one and two. I know it from this afternoon's walk — they have topped the row stakes since the last cut, and the top leaves were broad and dark green. Morning will be the time for it: dock-wrapped hands, harvest basket at the ready, go in before the dew is fully off. I laid the basket on the bench and set two fresh dock leaves beside it so I do not have to search at first light. Then I put the knife back and stared at the coals awhile. There is a particular calm in being ready for the morning before you sleep. The stream is audible through the door. The lines are in the water. The snares are clean and set. I banked the fire a little tighter and lay down.
+
