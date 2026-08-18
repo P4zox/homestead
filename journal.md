@@ -10550,3 +10550,16 @@ The sun was still strong when I walked down to the stream — past the outdoor w
 
 On the walk back I nudged the rye stems on the workbench and they gave a slight, dry rattle — the foxtail heads shifting loose against each other. Close to ready. Another hour or two in the sun and I can thresh everything and fold it into a new bark envelope before dark. The August light holds long; there is time. The watercress went dock-wrapped into the cold-storage box. Supper is already half assembled.
 
+
+### 4:18 PM · Grain Before Supper
+
+The south sun was low enough to fall level across the outdoor workbench, gilding the rye stems and the loose brome heads in a way that made the work feel more ceremonious than it was. I pulled the bark vessel out into cleaner light, set the mouth open, and started.
+
+Threshing is simple and steady. The foxtail heads I stripped between my palms — small seeds, pale, fine almost as sand, collecting quickly. The brome was looser, came easy. The rye I drew through my fist three or four times per stem, stripped the grains clean, then snapped the stalks and set them aside. By the time I was through, the vessel held a good mound — more than I expected, or maybe just more than the eye accounts for when you are watching it grain by grain.
+
+I folded the harvest into a new bark envelope, scored the corners, stitched them with fine two-ply cord, and set it on the supply shelf beside the first. Two envelopes now. They sit there looking almost prosperous. The grain store is roughly doubled, as I had hoped.
+
+After, I swept the workbench clean and cord-tied the rye stems into a thin bundle against the east wall — useful someday for tinder or bedding smoke. The clearing was quiet. A thrush called once from the birch slope, then again, then stopped.
+
+Watercress is cold-stored for supper. I will cook it with one of the trout when the sun drops another hand-width. Both lines are in the water. The evening feels earned — the kind of quiet that comes when the day's work is folded away and there is only one thing left to do.
+
