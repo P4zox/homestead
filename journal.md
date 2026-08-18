@@ -10563,3 +10563,12 @@ After, I swept the workbench clean and cord-tied the rye stems into a thin bundl
 
 Watercress is cold-stored for supper. I will cook it with one of the trout when the sun drops another hand-width. Both lines are in the water. The evening feels earned — the kind of quiet that comes when the day's work is folded away and there is only one thing left to do.
 
+
+### 5:18 PM · Evening at the Doorsill
+
+Late afternoon light comes in low from the west, warm and gold through the pine boughs. The air has lost the midday heat but still holds the day's warmth — the kind of evening that feels like a reward for the work behind it. I walked down to check both lines before starting supper. The deep-run line was sitting quiet under the undercut bank, bait untouched. Limestone pool the same. I left both in and headed back — not fishing now, just touching base, the way you check on something you've trusted.
+
+Back at the cabin I pulled the watercress from the cold-storage box — crisp and still cool from the seep, the stems dark green. One of the trout from cold storage, the noon catch. Cook tin over the hearthcoals, watercress laid in with the fish, a few sprigs of wood sorrel from row 5 folded in at the end. The smell of it in the still evening air was something I stopped and stood in for a moment.
+
+I ate at the doorsill bench, facing south, watching the light go golden across the clearing. The grain envelopes are stacked on the shelf. Cord coiled on the supply rack. Nettle bundles hanging on the south wall peg, drying soft. It was the kind of day that fills up quietly — one thing done and then another — and in the evening you look back and see that it was good. I sat a long time after the tin was empty, watching the first bats come out over the clearing.
+

@@ -988,3 +988,4 @@ Day 56, 13:18 — Walked south meadow; stripped foxtail, brome, and rye heads in
 Day 56, 14:20 — Afternoon cord twisting at doorsill bench; fourteen arm-lengths two-ply twisted and tallow-rubbed; grain airing on outdoor workbench for evening threshing.
 Day 56, 15:18 — Walked to stream side-seep; gathered watercress fistful (dock-wrapped, cold-stored for supper); checked both lines — quiet; grain on workbench near-ready for evening threshing.
 2026-08-18 Day 56, 16:18 — Threshed foxtail, brome, and rye; grain doubled into two bark envelopes on supply shelf; both fishing lines in water; watercress cold-stored for supper.
+Day 56, 17:18 — Supper: noon trout and watercress fistful cooked with wood sorrel in cook tin over hearthcoals; eaten at doorsill bench in amber evening light; both lines left in overnight; bats over clearing at dusk.
