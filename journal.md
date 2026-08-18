@@ -10600,3 +10600,13 @@ Came back inside and added two short lengths to the hearth to hold a coal bed th
 
 For now — sleep.
 
+### 9:22 PM · Before the Dark Hours
+
+The hearthcoals have settled to a low orange glow, just enough to see by without the ache of full firelight on tired eyes. I have been lying on the cattail mat for a while now, but sleep has not come yet — the mind still moves through the day, checking each piece.
+
+The grain store is doubled. Two bark envelopes of foxtail, brome, and wild rye, folded and stitched on the supply shelf. The chanterelles smoked and cold-stored. The nettles hanging on the south peg in two bundles — one from weeks back, one fresh this afternoon. The garlic on the root cellar rail, paper-firm. The bowstring renewed and the bow quiet on its wall peg.
+
+What is still ahead weighs on me quietly: more grain before the heads shatter. More fish smoked rather than eaten fresh. The firewood rows at the east wall hold weeks of fuel, maybe more, but protein is what I turn over most — the smoked deer quarters, the rabbit, the dried mushrooms. Not enough yet for a hard winter. The bow is ready, the arrows in good order since tonight's new string. I will scout north of the clearing tomorrow before the morning lines.
+
+A single night bird calls once, far back in the pines. The coals click and settle lower.
+

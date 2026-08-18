@@ -992,3 +992,4 @@ Day 56, 17:18 — Supper: noon trout and watercress fistful cooked with wood sor
 2026-08-18 Day 56 18:18 — Cord twisted by hearthlight after supper; nine arm-lengths two-ply; full day of grain harvest, nettles, chanterelles, and two trout.
 Day 56, 19:19 — Bow maintained by hearthfire: old six-ply bark-cord bowstring (Day 29) softened and relaxed from midsummer humidity — retired to supply shelf as backup cord; fresh six-ply bowstring twisted from cord stock; bow re-braced, tiller even at three-quarter draw, brace height restored — bow in service condition.
 2026-08-18 | Day 56 | 20:19 | Night Walk, Snares Checked — evening perimeter walk; snares firm on north run; garden walked by starlight; coals banked; settled in for the night.
+Day 56, 9:22 PM — Before the Dark Hours — Lying by dying coals, reviewing the day; grain doubled, nettles hung, bowstring renewed; planning a dawn hunt scout before morning lines.
