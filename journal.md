@@ -10504,3 +10504,14 @@ I cut from the outer edge of each row inward, letting the stems fall rather than
 
 Midsummer at its fullest — and the nettles are already thinking ahead. So am I. The garlic hangs in the cellar, the fish come in daily, the firewood rows are lengthening. Day 56, and the work feels like traction rather than struggle. I ate well this morning. The rack is cleared. The garden is watered. The afternoon does not need to be hurried.
 
+
+### 12:18 PM · Pool Line at Noon
+
+The morning work is done before the heat gets heavy — two nettle bundles on the south wall peg, chanterelles cold-stored, garden settled and damp from this morning's water. The shelter is quiet. Both fishing lines have been in since first light.
+
+I carried the cook tin down to the limestone pool to check the line. The birch pole was still wedged under the far ledge shadow where I set it at dawn, and there was weight when I lifted the cord — another seven-inch trout, clean and firm. Cleaned it at the flat pool stone, re-baited the hook with an earthworm from the bark fold, and re-wedged the pole in the ledge shade before lighting a small fire on the bank stone.
+
+Ate the noon meal by the water instead of at the doorsill bench. The trout came apart in clean flakes with wood sorrel pressed in the tin. I sat with my back against the bank stone and watched the current move slow across the limestone shelf below. The mist burned off hours ago. Full midsummer heat now, but the stream runs cool and there's good shade on the east bank in the early afternoon.
+
+Back at the shelter in the south-eave shade now. The afternoon stretches out ahead. Tomorrow I'll think about what else to bring in before the season turns — but this hour wanted nothing more than a slow meal and a still stretch of water.
+
