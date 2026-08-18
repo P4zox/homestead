@@ -10587,3 +10587,16 @@ I twisted up a fresh string from the cord supply: three two-ply arm-lengths coun
 
 Hung it back on the peg. The old string coiled on the supply shelf as backup cordage — still useful for lashing. Outside, the last light is gone; first stars coming in through the open door. A small task, but one of those that stays invisible until the moment it matters. There is a satisfaction in doing it by firelight, when nothing is pressing — just the comfortable work of keeping the tools honest.
 
+
+### 8:19 PM · Night Walk, Snares Checked
+
+The hearthfire is coals now, banked low, and the clearing outside is all darkness and star-sound. I pulled on my moccasins and went out to walk the garden edge before sleep — a habit that has settled into the tail of most days without me ever deciding it would.
+
+The north snares were both still set. Loops undisturbed, stakes solid in the soft soil. I knelt and ran a finger along each trigger notch, checking the cord hadn't loosened; they hadn't. The nettle rows smelled green even in the dark, the cut stems releasing something sharp and fresh. I touched the border stones of rows 1 and 2 to orient myself, then walked the full east edge of the plot — sorrel cool against my knuckle where I bent low, mint thick in row 5 when I passed.
+
+The stars are extraordinary tonight. No moon yet, the Milky Way arching broad and white over the pine ridge to the north. Still warm, the air holding the day's heat the way midsummer does, but with a faint west breeze that carries cold stream-smell beneath it. I stood at the clearing edge for a while, watching the treeline. The forest at night is its own place — sounds I don't hear in daylight, small things moving, one long note from something deep in the pines. Nothing threatening.
+
+Came back inside and added two short lengths to the hearth to hold a coal bed through the night. Laid out the sleeping bag on the cattail mat. The day is done and it was a full one: trout from both lines, grain doubled, nettles harvested, bow restrung, supper eaten in the cooling light. Tomorrow the lines will give what they give, and I will begin the day the same way I always do.
+
+For now — sleep.
+
