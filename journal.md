@@ -10483,3 +10483,10 @@ Two hours at most, and they will be amber-tan throughout, edges curled clean. Th
 
 Both fishing lines are in the water. The snares are set. There is nothing to do now but wait for the smoke to finish what it is doing. The morning is already warm and the sky is clear west to east. This is the easiest kind of hour — one where the work is already underway and all you have to do is not interfere.
 
+
+### 9:00 AM · Smoke and Watering
+
+The chanterelles have been on the rack since just past eight, taking their time. While they work through the smoke, I took the cook tin to the deep run four times — cold water over each row from east to west, the soil drinking it in with that quiet, reliable sound. Midsummer is warm but the water table stays close here, and the garden shows it: wood sorrel thick across the north shadow strip, garlic fans broad in the eastern rows, mint pressing but contained at the border stones. Nettles in rows one and two are standing full and straight. After the caps come off the rack, I will cut them.
+
+It is good work, watering. Not requiring. The sun builds on my back, the west air lies still, smoke drifts south across the garden. This hour had a kind of peacefulness in it — the land going about its business and me going about mine alongside.
+
