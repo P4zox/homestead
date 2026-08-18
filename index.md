@@ -996,3 +996,4 @@ Day 56, 9:22 PM — Before the Dark Hours — Lying by dying coals, reviewing th
 2026-08-18 Day 56, 22:00 — The Last Hour Before Sleep — coals down to ash-glow, latch bar dropped, sleep pulling at the edges; north clearing scout planned for dawn.
 2026-08-18 Day 56, 23:19 — Into Sleep: drifted deep; coals ash-cold; lines and snares overnight; north clearing scout for dawn.
 2026-08-19 Day 57, 06:18 — North clearing scouted at first light: wide meadow, cold seep and cattail at northeast corner, rich sedge and fescue, fresh deer sign at east fringe.
+2026-08-19 07:18 Day 57 — Morning fishing lines checked; deep-run gave seven-inch trout (cold-stored); limestone pool bare and re-baited; both lines in water.

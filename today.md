@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — North clearing scouted at first light: wide meadow (~200 paces across), cold seep over flat stone and cattail stand at northeast corner, sedge and fescue richer than south meadow; fresh deer droppings and rubbed sapling at east fringe — snare line north of garden planned; back to cabin as sun rose, morning lines next.
+07:18 — Deep-run overnight line: seven-inch trout (cleaned at flat stream stone, dock-wrapped, cold-stored in main box; line re-notched with fresh earthworm, reset below undercut bank); limestone pool line bare at dawn (re-baited with earthworm from bait fold, pole re-wedged under far ledge shadow — both lines in water).

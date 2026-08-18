@@ -10642,3 +10642,11 @@ Fresh deer droppings at the east fringe, and a rubbed sapling, bark peeled in lo
 
 The sun broke over the ridge as I turned back, mist lifting off the grass in slow sheets, the clearing bright and already warm. Morning fishing lines next.
 
+### 7:18 AM · Morning Lines
+
+After the north clearing — all that wide meadow grass, the deer tracks pressed into the soft earth at the fringe — I turned south and worked down to the deep run. The line was taut below the undercut bank, the way I like to find it. Drew it up slowly through the cold water and there was a seven-inch trout on the end: clean, firm, silver-grey along the flank. Cleaned it at the flat stone, dock-wrapped, cold-stored it in the main box. Notched a fresh earthworm from the bait fold and reset the line deep under the bank before the light got too bright on the water.
+
+Then on to the limestone pool. That line was bare — hook sitting empty below the ledge. Re-baited, wedged the pole back under the far shadow. Both lines in the water before the sun was properly up.
+
+Sat on the bank stone a moment after, just watching the pool. The mist had lifted off the meadow and the morning was settling into warmth. Things feel solid from here: two lines in the water, garlic hanging in the cellar, grain doubled on the shelf. I keep adding a little, and the little adds up.
+
