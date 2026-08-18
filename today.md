@@ -4,3 +4,4 @@
 08:18 — Two remaining chanterelle caps (orange-gold, firm) loaded gill-side up on smoke rack over green birch smolder; pull in ~2 hours when amber-tan and firm; nettles in rows 1-2 tall and ready — cutting this afternoon.
 09:00 — Watered garden: four cook-tin trips from deep run, all seven rows east to west; mint holding at border stones; nettles tall and ready in rows 1–2; wood sorrel full in shadow strip; garlic fans wide in eastern strip; soil darkened throughout; all rows settled. Chanterelles still smoking on rack (pull ~10:18).
 10:19 — Two smoked chanterelle caps (from 08:18 smoke) pulled amber-tan and firm from rack; cold-stored in main cold-storage box; rack cleared; nettles in rows 1–2 ready for afternoon cutting.
+11:19 — Nettle harvest: rows 1–2 top-third cut with dock-wrapped hands; seven handfuls, bundled with bark cord, hung on south wall peg beside first dried bundle — two nettle bundles now drying on peg.

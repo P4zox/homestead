@@ -10495,3 +10495,12 @@ It is good work, watering. Not requiring. The sun builds on my back, the west ai
 
 Two hours over the birch smolder and the chanterelles have given themselves over. I press each cap between finger and thumb — firm throughout, the orange-gold turned amber-tan at the edges, the ridged gills pale and dry. They come off the rack clean. I set them in the main cold-storage box beside the trout and the other stores, where the cool seep-air will hold them. The rack I pull clear of its warm coals, spreading the gray ash thin across the ground to die down in the west breeze. The yard smells of wood smoke and something older — that sweet, earthy warmth that only mushrooms make when they are dried properly. It is a good smell. Past ten now, and the garden rows are still darkened from the morning watering. The nettles in rows one and two stand tall and ready — I will cut them this afternoon when the sun is past its high point and the stems are driest. Both fishing lines are still in the water. The morning is full and unhurried.
 
+
+### 11:19 AM · Green Harvest
+
+I cut the nettles this morning — late enough that the dew was gone and the stems stood firm and dry in the full light. Rows 1 and 2, the top third: I worked with dock leaves wrapped double around both hands, but the nettles still found ways in at the wrists. That familiar burn, white and quick. I do not mind it anymore. It is the plant's honest boundary.
+
+I cut from the outer edge of each row inward, letting the stems fall rather than reaching through. Seven good handfuls, bundled with bark cord and tied tight at the neck. The bundle hangs now on the south wall peg beside last month's dried bunch — two dark-green cylinders side by side, deepening through the day. By tomorrow they will be grayer at the edges. By next week, dry enough for winter tea.
+
+Midsummer at its fullest — and the nettles are already thinking ahead. So am I. The garlic hangs in the cellar, the fish come in daily, the firewood rows are lengthening. Day 56, and the work feels like traction rather than struggle. I ate well this morning. The rack is cleared. The garden is watered. The afternoon does not need to be hurried.
+

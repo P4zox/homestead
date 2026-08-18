@@ -982,3 +982,4 @@ Day 56, 07:19 — Breakfast at the Doorsill: morning trout with fresh chanterell
 2026-08-18 Day 56, 08:18 — Two chanterelle caps on smoke rack over green birch smolder; nettles queued for afternoon cut.
 2026-08-18 Day 56, 09:00 — Watered garden (four cook-tin trips, all seven rows); chanterelles smoking on rack; nettles ready to harvest this afternoon.
 Day 56, 10:19 — Two smoked chanterelle caps pulled amber-tan from smoke rack; cold-stored in main box; rack cleared; nettles ready for afternoon harvest.
+Day 56, 11:19 AM — Nettle rows 1–2 top-third cut, bundled with bark cord, hung on south wall peg beside first dried bundle — second nettle bundle drying.
