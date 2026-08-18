@@ -986,3 +986,4 @@ Day 56, 11:19 AM — Nettle rows 1–2 top-third cut, bundled with bark cord, hu
 Day 56, 12:18 PM — Limestone pool noon catch (seven-inch trout); noon meal by pool on small bank fire; south-eave shade.
 Day 56, 13:18 — Walked south meadow; stripped foxtail, brome, and rye heads into birch basket; grain store roughly doubled; rye stems on outdoor workbench for evening threshing.
 Day 56, 14:20 — Afternoon cord twisting at doorsill bench; fourteen arm-lengths two-ply twisted and tallow-rubbed; grain airing on outdoor workbench for evening threshing.
+Day 56, 15:18 — Walked to stream side-seep; gathered watercress fistful (dock-wrapped, cold-stored for supper); checked both lines — quiet; grain on workbench near-ready for evening threshing.

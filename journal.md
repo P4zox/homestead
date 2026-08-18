@@ -10543,3 +10543,10 @@ I've been thinking about the grain shelf. The basket this afternoon was full —
 
 Fourteen arm-lengths finished. Tallow-rubbed and coiled on the supply shelf.
 
+
+### 3:18 PM · Watercress for Supper
+
+The sun was still strong when I walked down to the stream — past the outdoor workbench where the grain lay spread and drying, rye stems flat and foxtail heads loose in the heat, and down the slope to the side seep where watercress grows thick against the mossy bank. I pulled a good fistful, stems still cool and crisp from the seep water, and ate one leaf standing there just to taste it. Sharp and clean. Then I walked to the limestone pool to check the line — pole wedged firm under the far ledge shadow, cord hanging slack in the current, nothing yet — and came back upstream to the deep-run set. That one also quiet. Both lines in order; both will fish through the evening.
+
+On the walk back I nudged the rye stems on the workbench and they gave a slight, dry rattle — the foxtail heads shifting loose against each other. Close to ready. Another hour or two in the sun and I can thresh everything and fold it into a new bark envelope before dark. The August light holds long; there is time. The watercress went dock-wrapped into the cold-storage box. Supper is already half assembled.
+
