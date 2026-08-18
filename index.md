@@ -985,3 +985,4 @@ Day 56, 10:19 — Two smoked chanterelle caps pulled amber-tan from smoke rack; 
 Day 56, 11:19 AM — Nettle rows 1–2 top-third cut, bundled with bark cord, hung on south wall peg beside first dried bundle — second nettle bundle drying.
 Day 56, 12:18 PM — Limestone pool noon catch (seven-inch trout); noon meal by pool on small bank fire; south-eave shade.
 Day 56, 13:18 — Walked south meadow; stripped foxtail, brome, and rye heads into birch basket; grain store roughly doubled; rye stems on outdoor workbench for evening threshing.
+Day 56, 14:20 — Afternoon cord twisting at doorsill bench; fourteen arm-lengths two-ply twisted and tallow-rubbed; grain airing on outdoor workbench for evening threshing.

@@ -10530,3 +10530,16 @@ An hour in the bending heat. I stopped when my lower back said stop, and also be
 
 The basket is in now, on the outdoor workbench. I will thresh the rye stems this evening against the bark vessel edge and fold all of it — foxtail, brome, rye — into a new bark envelope. The supply shelf grain store will double, at least.
 
+
+### 2:20 PM · Cord in the Afternoon
+
+The grain is spread on the outdoor workbench — foxtail and brome heads loose, rye stems laid flat in the full south sun, airing before this evening's threshing. Both fishing lines are in the water. The nettles are drying on the south wall peg. The afternoon has that full midsummer stillness when even the birds go quiet for a stretch.
+
+I've settled at the doorsill bench with bark strips and fourteen arm-lengths to twist. The west wall cuts the sun enough to make the work bearable. It's a good rhythm for this kind of afternoon — splitting bark to fiber, rolling it tight between palms, keeping the ply even. My hands know the motion now without much thought.
+
+A thrush calling from somewhere up the slope. Unhurried. The same three notes, the same pause between them.
+
+I've been thinking about the grain shelf. The basket this afternoon was full — more than I've brought back in one pass before. I don't know exactly what I'll do with it, whether flatbread or winter broth or something else, but having it there already changes something about how the season feels. Building the store is a kind of speaking to a future self: I saw winter coming, and I answered.
+
+Fourteen arm-lengths finished. Tallow-rubbed and coiled on the supply shelf.
+
