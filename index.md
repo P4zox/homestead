@@ -979,3 +979,4 @@ Day 55, 15:23 — Made a small hide needle case from the scrap offcut; bone need
 2026-08-17 23:19 (Day 55) — Between the Coals: woke briefly in the deep night, coals banked, stream through the walls, everything ready for dawn; sleep again.
 Day 56 (2026-08-18, Tue) 06:00 — Chanterelle hollow yielded three palm-wide orange-gold caps at dawn; overnight deep-run trout caught and cold-stored; both lines and snares reset; Day 56 begins.
 Day 56, 07:19 — Breakfast at the Doorsill: morning trout with fresh chanterelle and wood sorrel, eaten in early sun at the doorsill bench.
+2026-08-18 Day 56, 08:18 — Two chanterelle caps on smoke rack over green birch smolder; nettles queued for afternoon cut.

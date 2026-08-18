@@ -10474,3 +10474,12 @@ It is the kind of morning that arrives maybe two or three times in a season: war
 
 The other two caps I will smoke this morning, once I have the green birch going on the rack. For now I am just here in the sun, tin rinsed and drying on the bench beside me, watching a pair of crossbills work through the far pines. The nettles in rows 1 and 2 are close. Maybe this afternoon.
 
+
+### 8:18 AM · Caps on the Rack
+
+The two remaining chanterelle caps — harvested this morning from the birch-deadfall hollow, deep orange-gold, firm at the edges — come off the outdoor workbench and go gill-side up across the smoke rack crossbars. I coax green birch splits into a low smolder: no flame, just heat and white smoke rising in the still morning air. The smoke drifts past the shelter eave and thins out over the clearing. The garden smells of birch char and, faintly, mushroom.
+
+Two hours at most, and they will be amber-tan throughout, edges curled clean. Then into cold storage with the others. The nettles in rows one and two are nearly there — tall and dark green after yesterday's pause — and I will cut the top third this afternoon once the rack work is done and the sun is at its height.
+
+Both fishing lines are in the water. The snares are set. There is nothing to do now but wait for the smoke to finish what it is doing. The morning is already warm and the sky is clear west to east. This is the easiest kind of hour — one where the work is already underway and all you have to do is not interfere.
+
