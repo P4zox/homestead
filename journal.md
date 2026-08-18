@@ -10576,3 +10576,14 @@ I ate at the doorsill bench, facing south, watching the light go golden across t
 ### 6:18 PM · Cord by Hearthlight
 
 Evening comes slow in midsummer — the bats already working the clearing before the light truly left the sky. I built up the hearthfire and sat at the doorsill bench with the bark fibers, finding the old rhythm: twist right, twist right, lay the two strands back against each other. Nine arm-lengths done by the time the glow outside had softened to full dusk. The day has been a good one — grain doubled on the supply shelf, nettles hung to dry, chanterelles smoked and cold-stored, a trout taken at noon by the pool and supper eaten in quiet amber light. Sitting with the cord now, watching the fire pull down to embers, I feel the tiredness that belongs to a day well spent rather than one barely survived.
+
+### 7:19 PM · String and Draw
+
+The hearthfire has been burning since supper, and the light is comfortable now — orange and low, bats tracing arcs above the clearing through the open door. I took the bow off its wall peg. It has hung there most of the season, mostly untouched while the cabin, garden, and stores took all the hours. The last arrows were loosed in early spring, the day the string was new. I drew the cord off the nocks, turned the loops over in my hands.
+
+Four months of midsummer air has done what it does to fiber. The bowstring is a six-ply bark-cord twist from Day 29 — three two-ply lengths wound together, done well at the time — but the fibers have softened in the damp. Not frayed. Not broken. The twist has relaxed and the brace height has dropped; a hard draw would let the string slap the wrist wrong. Better to catch it now, at the fire, than discovered when there is something to shoot at.
+
+I twisted up a fresh string from the cord supply: three two-ply arm-lengths counter-twisted together, loops worked in by hand at each end, pulled to check they seat cleanly in the nock grooves. Then I held the bow tips briefly over the hearthcoals — just enough warmth to soften the bark at the nocks, not enough to dry or stress the limb wood. I braced the bow, settled the string, drew slowly to three-quarter pull. Tiller even through both limbs. Good. String tracks straight.
+
+Hung it back on the peg. The old string coiled on the supply shelf as backup cordage — still useful for lashing. Outside, the last light is gone; first stars coming in through the open door. A small task, but one of those that stays invisible until the moment it matters. There is a satisfaction in doing it by firelight, when nothing is pressing — just the comfortable work of keeping the tools honest.
+
