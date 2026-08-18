@@ -10626,3 +10626,19 @@ The last thing I can hear is the stream. That is enough.
 
 Somewhere after the coals settled to nothing I crossed the line. The cabin is dark and still — just the stream in its old course below the slope and the roof timbers holding the night above me. Both lines are in the water, both snares are set, the nettles are hanging, the bowstring is fresh. The day did what it was meant to do. Sleep is not an absence here; it feels more like the land accepting you back. I am deep in it now.
 
+
+---
+
+# Day 57 — Wednesday, 19 August 2026
+*midsummer · clear at first light; heavy dew on clearing grass; mist lying low; warm settled day building*
+
+### 6:18 AM · North Scout, Mist
+
+I rose before the light was fully up, hearth ash-cold, mist hanging low in the clearing. Pulled on the moccasins by feel, unlatched the door, took the axe on my shoulder, walked north past the garden rows — nettles still fragrant from yesterday's cut, sorrel cool underfoot at the path edge — and into the birch fringe beyond. I have been meaning to scout this direction for weeks.
+
+The north clearing is wider than I had allowed in my head. Two hundred paces across at least, tall meadow grass and dock running to a line of dark spruce at the far edge. At the northeast corner, where the ground dips, a dense cluster of young alder: I pushed in and found a cold seep moving slow over flat stone. The soil around it dark and rich, two patches of cattail at the margin each a few arm-spans across, sedge and fescue instead of the brome and foxtail I harvest to the south. Better grass, in richer ground.
+
+Fresh deer droppings at the east fringe, and a rubbed sapling, bark peeled in long strips at shoulder height. Something comes through here on a regular path. A snare line north of the garden border is worth setting in the days ahead.
+
+The sun broke over the ridge as I turned back, mist lifting off the grass in slow sheets, the clearing bright and already warm. Morning fishing lines next.
+
