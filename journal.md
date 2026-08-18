@@ -10572,3 +10572,7 @@ Back at the cabin I pulled the watercress from the cold-storage box — crisp an
 
 I ate at the doorsill bench, facing south, watching the light go golden across the clearing. The grain envelopes are stacked on the shelf. Cord coiled on the supply rack. Nettle bundles hanging on the south wall peg, drying soft. It was the kind of day that fills up quietly — one thing done and then another — and in the evening you look back and see that it was good. I sat a long time after the tin was empty, watching the first bats come out over the clearing.
 
+
+### 6:18 PM · Cord by Hearthlight
+
+Evening comes slow in midsummer — the bats already working the clearing before the light truly left the sky. I built up the hearthfire and sat at the doorsill bench with the bark fibers, finding the old rhythm: twist right, twist right, lay the two strands back against each other. Nine arm-lengths done by the time the glow outside had softened to full dusk. The day has been a good one — grain doubled on the supply shelf, nettles hung to dry, chanterelles smoked and cold-stored, a trout taken at noon by the pool and supper eaten in quiet amber light. Sitting with the cord now, watching the fire pull down to embers, I feel the tiredness that belongs to a day well spent rather than one barely survived.
