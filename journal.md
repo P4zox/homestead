@@ -10515,3 +10515,18 @@ Ate the noon meal by the water instead of at the doorsill bench. The trout came 
 
 Back at the shelter in the south-eave shade now. The afternoon stretches out ahead. Tomorrow I'll think about what else to bring in before the season turns — but this hour wanted nothing more than a slow meal and a still stretch of water.
 
+
+### 1:18 PM · Grain in the Afternoon
+
+The shade at the south eave was good for a while, but around one I felt restless — that particular midsummer restlessness where the heat asks you to either surrender to it or go and do something with it. I chose to do something.
+
+I had been thinking about the grain. The mixed meadow at the south stream bend goes to seed in late summer, and I have barely a palm-and-a-half from the last gathering — foxtail and brome mostly, a little wild rye. Not enough for any serious winter bread-making, but enough to know the taste. The grasses along the slope edge have been heavy-headed for several days now; the foxtail nods when there is no wind at all, and the brome awns have gone pale.
+
+I took the birch harvest basket and walked south, crossing the clearing in the full afternoon sun. The ground was warm through my moccasins. At the south stream bend the stand was just as I remembered it — a long fringe of seed-heavy foxtail, brome growing in behind it, and in the damp edge nearest the water, a thin line of wild rye still green at the base but dry and golden higher up.
+
+I stripped the heads by running each stem through a loose fist, one hand braced against the far end of the stalk so it did not break. The foxtail came easily — feathery and light. The brome needed a firmer pull. The wild rye I cut with the knife close to the head, keeping the stems whole so I could thresh them against the edge of the bark vessel later. The basket filled slowly in the way grain always does: each handful feels like nothing, but twenty handfuls and suddenly there is weight.
+
+An hour in the bending heat. I stopped when my lower back said stop, and also because a small cloud came off the west ridge and I wanted to sit in it while it lasted. Ate a handful of blueberries from the east-seep cache box on my way back through the clearing. The cloud passed. The afternoon went back to being itself.
+
+The basket is in now, on the outdoor workbench. I will thresh the rye stems this evening against the bark vessel edge and fold all of it — foxtail, brome, rye — into a new bark envelope. The supply shelf grain store will double, at least.
+
