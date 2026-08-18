@@ -10610,3 +10610,14 @@ What is still ahead weighs on me quietly: more grain before the heads shatter. M
 
 A single night bird calls once, far back in the pines. The coals click and settle lower.
 
+
+### 10:00 PM · The Last Hour Before Sleep
+
+The coals are almost nothing now — two or three orange eyes under the ash. I can hear the stream, and wind in the pines above the gable, and not much else. The night bird that was in the pines when I lay down must have moved on.
+
+I am not asleep yet but I am close. The day still runs quietly in the back of my mind: grain doubled on the shelf, second nettle bundle drying beside the first, bowstring fresh and tiller true. The question of winter protein is still open — the north clearing scout tomorrow before the morning lines — but that question belongs to morning. Right now there is nothing more to decide.
+
+The sleeping bag is warm. The cattail mat is a better bed than anything I had two months ago. I pulled the latch bar a little while ago and the door held without a sound. The hearthstone will still be faintly warm in the morning, and the coals will catch again quickly.
+
+The last thing I can hear is the stream. That is enough.
+
