@@ -10621,3 +10621,8 @@ The sleeping bag is warm. The cattail mat is a better bed than anything I had tw
 
 The last thing I can hear is the stream. That is enough.
 
+
+### 11:19 PM · Into Sleep
+
+Somewhere after the coals settled to nothing I crossed the line. The cabin is dark and still — just the stream in its old course below the slope and the roof timbers holding the night above me. Both lines are in the water, both snares are set, the nettles are hanging, the bowstring is fresh. The day did what it was meant to do. Sleep is not an absence here; it feels more like the land accepting you back. I am deep in it now.
+
