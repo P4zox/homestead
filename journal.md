@@ -10726,3 +10726,10 @@ Below the east thicket, where the slope drops toward the bench, I found three lo
 
 Nothing dramatic — a slow walk in the afternoon warmth, the kind of hour that asks nothing from you. But the land keeps showing me what it carries. The rose hips will be worth a return, properly, when the chill comes back in the mornings.
 
+
+### 3:19 PM · Afternoon Cord at Bench
+
+The afternoon shade crept along the east wall and I brought the cord bundle to the outdoor workbench. Elderberries drying by the hearthstone, rye stems too green yet to work — so the hands were free, and I sat on the upturned round beside the bench and twisted through fourteen arm-lengths of two-ply cord from prepared bark strips. The clearing was still at this hour: stream barely audible, the garden dark green and settled in the afternoon light, no wind from any quarter. A crow passed once over the pines and did not come back.
+
+The cord coil is already generous, but cord is the thing that runs out at the worst moment — mid-lashing in the dark, or the first cold week when you need to add a fur panel and find the supply bare. Better to have too much and remember a warm midsummer afternoon spent this way.
+
