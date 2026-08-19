@@ -1003,3 +1003,4 @@ Day 57, 09:18 — Cooked morning trout with wood sorrel on the hearth; ate at do
 Day 57, 11:18 — Walked upslope to oyster pine; lower cuts quiet, upper section (new area) shows pale early growth (thumb-sized, 3–4 days from cutting) — bark notch marked; clearing visible from above.
 Day 57, 12:18 PM — Limestone pool: seven-inch trout caught, cooked on bank fire, eaten at poolside (noon meal); both lines reset for afternoon.
 Day 57, 2026-08-19 — 13:18: Returned to north meadow; harvested foxtail, brome, wild rye (one hour); third grain envelope stitched and on shelf.
+Day 57, 14:19 — Forest edge walk south/east; three rose hip thickets found along tree line (not yet ripe, ~1–2 weeks); three elder bushes found below east thicket, quarter-bag ripe elderberries picked and set to dry by hearthstone.

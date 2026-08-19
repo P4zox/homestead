@@ -10715,3 +10715,14 @@ Back at the outdoor workbench in the south afternoon light, I threshed and winno
 
 The grain store feels like something now. Three envelopes together — they do not fill a hand, but they are there, and they will grow.
 
+
+### 2:19 PM · The Tree Line Yields
+
+The midsummer afternoon settled into its own heat — still air, the clearing baking white, no breath of wind off the slope. After the morning (lines checked, snares set, grain threshed and folded into its third envelope), I took the doe hide bag and walked the forest edge slowly, south and east, where the pines thin and the birch stands begin.
+
+I have been watching for rose hips. They are there — three thickets strung along the tree line, clusters just beginning to blush from green to orange-red, still firm and far from ready. Sixty or seventy hips across all three, maybe more if I counted carefully. Another two weeks and they will be swelling dark. I marked the spots in memory: one thicket behind the granite shelf, one at the corner where the birch forest curves east, one lower where an old windfall opened the canopy and let the bramble in.
+
+Below the east thicket, where the slope drops toward the bench, I found three low elder bushes I had not noticed before. The berries were clustered purple-black, most past their peak — soft at the stems, sticky. But the inner clusters were still sound and ripe. I picked carefully through the quarter-bag, leaving what was overripe for the birds, and carried the rest back. They are in the bark vessel now, set near the hearthstone to dry overnight.
+
+Nothing dramatic — a slow walk in the afternoon warmth, the kind of hour that asks nothing from you. But the land keeps showing me what it carries. The rose hips will be worth a return, properly, when the chill comes back in the mornings.
+
