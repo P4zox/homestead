@@ -10787,3 +10787,14 @@ I stepped outside after the cord-twisting was done, meaning only to stand in the
 
 But right now there is nothing that needs doing. The clearing held the August sky and the August quiet and I was standing inside both of them. That was enough. I went back in, pulled the door bar, added one last birch split to the banked coals. Sleep is coming easily tonight.
 
+
+### 10:22 PM · Into the Dark
+
+The hearthstone has cooled to faint warmth. I am lying on the cattail mat in my sleeping bag, the elderberry vessel sitting by the dead coals — the smaller berries have papered nicely, the larger still a little fleshy at the center. They will finish by morning. I will fold them into an envelope before the garden and the lines.
+
+The night is quiet in a way that still surprises me. The stream is there below the treeline, low and constant. No wind in the pines tonight. August warmth held all day and lingers now — the air inside the shelter is soft and still, a good kind of warm. I pulled the sleeping bag up to my chest anyway.
+
+I have been thinking about the rose hips. Three stands along the south and east treeline, blushing but not yet ripe — another week, maybe two. There will be a morning when they are ready and I take the birch basket out and spend a half-day picking. Vitamin C for the cold months. I find myself thinking about winter more steadily now — not with dread, just with a kind of practical attention that feels like preparation becoming habit. Three grain envelopes on the shelf. Good store of smoked meat. Firewood rows heavy against the east wall. The cellar cool and earning its keep.
+
+The door is barred. The coals are banked. Three snares set, both lines in the water. I am tired in the good way — the kind that says the day was full and nothing was wasted.
+

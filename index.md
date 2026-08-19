@@ -1011,3 +1011,4 @@ Day 57, 18:18 — Walked snare circuit before dark (all three undisturbed, reset
 2026-08-19 19:19 — Day 57, 7:19 PM: Sat at doorsill with yarrow tea; tended drying elderberries by hearthcoals; let the day settle in quiet.
 Day 57 (2026-08-19) 20:19 — Twisted nine arm-lengths two-ply cord by hearthlight; elderberries still drying; settled in for sleep.
 Day 57, 2026-08-19, 21:23 — Stepped outside into August dark; stood in clearing under full Milky Way listening to the stream; elderberries crinkling toward done by cooling hearthstone; sleep coming.
+2026-08-19 Day 57, 10:22 PM — Into the Dark: lay in sleeping bag by cooling hearthstone; elderberries nearly done; rose hips and winter preparations on the mind; three snares set, both lines overnight.
