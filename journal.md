@@ -10684,3 +10684,14 @@ I cut a third running-loop snare at the bench — hand-span opening of fine two-
 
 Three snares now, spread over two runs. The south garden-edge pair and this new one north. The trapline is starting to feel like something with shape to it.
 
+
+### 11:18 AM · Above the Clearing
+
+Mid-morning, warm enough that the pine needles were giving off resin when I climbed the slope to check the oyster log — seventy paces up, the big grey rotting trunk. Last cut three days ago, new flush expected around Day 58–59. Too early by a little, but worth seeing before the noon line check.
+
+The lower cut sites were dark and shut, waiting. Higher on the trunk, in a section I have never harvested from, I found pale soft growth pressed out at a seam: thumbnail-sized caps, barely curling at the edges. Not yet. Three or four more days. I marked the spot with a bark notch on a nearby branch and came back down in the sun.
+
+From that height the clearing lay spread below — the cabin at the northwest rise, the garden bench bright in south light, the smoke rack poles at the edge. Two months of work. It looks self-contained from above, like a word that means something. I do not often get that angle on it.
+
+The limestone pool line is waiting for noon.
+

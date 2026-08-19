@@ -1000,3 +1000,4 @@ Day 56, 9:22 PM — Before the Dark Hours — Lying by dying coals, reviewing th
 Day 57, 08:18 — Morning garden round: four cook-tin trips, all seven rows watered; nettle tips pushing after Day 56 harvest; both snares empty and reset on north garden-edge run.
 Day 57, 09:18 — Cooked morning trout with wood sorrel on the hearth; ate at doorsill bench in midsummer light; rested in the warm clearing after.
 2026-08-19 Day 57 10:18 — Set third snare on north meadow rabbit run; trapline now covers two runs (south garden edge + north meadow)
+Day 57, 11:18 — Walked upslope to oyster pine; lower cuts quiet, upper section (new area) shows pale early growth (thumb-sized, 3–4 days from cutting) — bark notch marked; clearing visible from above.
