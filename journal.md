@@ -10675,3 +10675,12 @@ Ate at the bench in the warmth. The fish was clean and sweet. The sorrel cut thr
 
 After, I rinsed the tin and set it to dry on the outdoor bench. I sat a little longer than I needed to. The limestone pool line has been quiet all morning; I'll walk down at noon to check it. For now the clearing is mine and warm and still, and there's nothing wrong with staying in it.
 
+
+### 10:18 AM · North Run, Laid
+
+The doorsill bench was warm enough to hold me a while after breakfast — full sun by nine, the clearing quiet, no wind at all. But the north meadow stayed in my mind: those fresh droppings at the east fringe this morning, and the sapling rubbed clean of bark at deer-shoulder height. Where deer move through tall grass, rabbits follow the same margins.
+
+I cut a third running-loop snare at the bench — hand-span opening of fine two-ply cord, green birch trigger stick with a clean notch, a ground stake sharpened to a point. Walked north with the tools and the morning sun building at my back. The meadow air was cooler than the clearing, held by the height of the sedge and fescue. Found the run easily: a pressed line through the grass five paces east of the rubbed sapling, angling toward the cattail stand at the northeast corner. Where it narrows between two grass tussocks I drove the stake, set the trigger, settled the loop at nose-height. Stood back and looked at it for a moment — nothing to see unless you knew where to look.
+
+Three snares now, spread over two runs. The south garden-edge pair and this new one north. The trapline is starting to feel like something with shape to it.
+
