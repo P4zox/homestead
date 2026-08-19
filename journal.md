@@ -10650,3 +10650,15 @@ Then on to the limestone pool. That line was bare — hook sitting empty below t
 
 Sat on the bank stone a moment after, just watching the pool. The mist had lifted off the meadow and the morning was settling into warmth. Things feel solid from here: two lines in the water, garlic hanging in the cellar, grain doubled on the shelf. I keep adding a little, and the little adds up.
 
+### 8:18 AM · Morning Garden Round
+
+The sun was fully up by the time I got back from the stream, and the clearing had already lost its bite. I went straight to the garden before the day got properly warm.
+
+The soil in the eastern strip was dry down an inch — garlic and wood sorrel sitting at the surface, and the dandelion roots spreading wider every week. I ran four trips to the deep run with the cook tin and walked the rows east to west: eastern strip first, then the nettle rows, then mint and raspberry and wood sorrel all the way across. The soil darkened as I went. By the last trip the whole plot had that heavy damp look that tells you the plants are drinking.
+
+Nettle rows one and two are already pushing fresh tips after yesterday's cut. A few days and they'll be ready again. The mint is holding at the border stones — no runners pressing over into the raspberry canes this morning. Wood sorrel is full edge to edge in the shadow strip. Raspberry laterals look vigorous. The garlic fans are broad and deep green in the eastern strip.
+
+After watering I walked the snare line. First snare at the north garden edge: loop clean, trigger undisturbed, reset and left. Second snare ten paces north: the same — undisturbed, reset. The rabbits have been quiet since the Day 47 catch, but the sign I found in the north clearing at dawn — fresh droppings, a rubbed sapling at the east fringe — tells me they're still moving through. I may extend the snare line north before the week is out, now that I know what the meadow holds.
+
+A good morning: lines in water, garden watered, snares set. The day is warming fast.
+
