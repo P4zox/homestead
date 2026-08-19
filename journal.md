@@ -10825,3 +10825,10 @@ Snare circuit: north meadow fringe snare undisturbed, reset; both south garden-e
 
 Nettles in rows 1–2 are standing tall — I could see the flush of new tips from the path. I will cut them when the dew dries off the leaves, midmorning at the earliest. The elderberries are folded away. The lines are set. The day is clear and still.
 
+
+### 7:18 AM · Nettle Cut at Dewbreak
+
+The dew was still beading the clearing grass when I first came out this morning, but by the time I reached the garden it had mostly lifted from the nettle stems. Good timing — wet nettles sting harder, and the dock leaves along the east strip edge kept my hands from the worst of it. I cut the top third of rows 1 and 2, both running tall and flush after the few days since the last harvest. The stems came away clean, each break leaving the lower growth open to light. I bundle-tied the cut stems with a bark-strip at the garden edge, carried them in, and hung a new cord-tied bundle on the spare wall peg beside the older dried bundle. The smell of fresh nettles fills the south corner of the shelter now — green and sharp, almost metallic. That rawness will go in drying; by winter they will taste more like dark tea, good in broth when everything green is buried under snow.
+
+Rows 1 and 2 look tidy now. The rest of the garden is quiet in the morning sun — garlic fans wide in the eastern strip, wood sorrel filling the north shadow edge, raspberry laterals bright green at the tips. I stood there a moment just looking at it, the way a summer garden earns itself by this point in the season, row after row of things I pressed into the ground and the ground made real.
+

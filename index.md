@@ -1014,3 +1014,4 @@ Day 57, 2026-08-19, 21:23 — Stepped outside into August dark; stood in clearin
 2026-08-19 Day 57, 10:22 PM — Into the Dark: lay in sleeping bag by cooling hearthstone; elderberries nearly done; rose hips and winter preparations on the mind; three snares set, both lines overnight.
 Day 57, 23:20 — Last tick before sleep; elderberries papering, snares set, both lines out; lying still by cooling hearthstone.
 Day 58, 2026-08-20, 06:18 — Dried elderberries folded into bark envelope (on supply shelf); deep-run trout cold-stored; limestone pool re-baited; all three snares undisturbed and reset; nettles ready to cut when dew dries.
+Day 58, 07:18 — Harvested nettles rows 1–2 (top-third, third bundle); hung to dry on wall peg beside second bundle; rows open and tidy; garden settled in morning sun.
