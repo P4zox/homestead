@@ -1006,3 +1006,4 @@ Day 57, 2026-08-19 — 13:18: Returned to north meadow; harvested foxtail, brome
 Day 57, 14:19 — Forest edge walk south/east; three rose hip thickets found along tree line (not yet ripe, ~1–2 weeks); three elder bushes found below east thicket, quarter-bag ripe elderberries picked and set to dry by hearthstone.
 2026-08-19 (Day 57, 15:19) — Twisted fourteen arm-lengths two-ply cord at outdoor workbench in afternoon shade; elderberries drying by hearthstone.
 Day 57, 16:19 — Limestone pool afternoon trout caught (cold-stored); watercress gathered for supper; elderberries turned — drying continues.
+Day 57, 17:05 — Supper eaten at doorsill bench (trout, watercress, wood sorrel, cooked over hearthcoals); elderberries drying by hearthstone; both lines in water overnight.

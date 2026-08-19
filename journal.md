@@ -10746,3 +10746,8 @@ Supper decided: the afternoon trout over hearthcoals with the watercress and two
 
 The afternoon was full and quiet. The clearing is in order.
 
+### 5:05 PM · Amber Supper
+
+The afternoon light is lying flat across the clearing now, gold and long-shadowed. I took a trout and the watercress from the main cold-storage box and cooked them together in the cook tin over hearthcoals with fresh wood sorrel from row five thrown in at the last moment, when the heat had dropped low. Ate at the doorsill bench with my feet on the threshold stone, watching the midsummer light deepen. Behind me on the hearthstone, the elderberries are still spreading in their bark vessel, drying slowly in the residual warmth. I could smell them as I ate — faintly sweet and a little sharp, an end-of-summer smell.
+
+Day 57 has been full. The snare line stretched north to the meadow fringe, the grain store grown to three envelopes, the forest edge mapped for elder and rose hip. Both fishing lines are in for the night. Tomorrow the nettles in rows one and two will likely be ready for another top-third cut. For now there is just this: the last hour of afternoon light, an empty tin, the elderberries drying beside the coals, and the clearing going quiet.
