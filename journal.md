@@ -10762,3 +10762,14 @@ Back at the hearthstone I turned the elderberries in their bark vessel. Shrunk a
 
 Now the doorsill bench again, watching the clearing gray down. Night comes from the trees first here — the fringe goes dark before the sky. Three snares waiting, two lines in the stream. Tomorrow the nettles at dawn.
 
+
+### 7:19 PM · Yarrow Tea, Berry Watch
+
+The fire has settled to red coals and the cabin holds the warmth of the day. I set a quarter tin of stream water over the embers and opened the yarrow envelope — the dried heads crumble between fingers, releasing that faint medicinal sharpness I have come to associate with provision and care. When it had steeped I drank it slowly at the doorsill, watching the last amber light drain from the western tree gap.
+
+The elderberries are almost through. I turned them again with the birch spoon — the smaller ones are papering dry at the seams now, the bulk still plump and beaded with dark sugar. By tomorrow morning they should be ready to press and test; if they hold firm and dry, they go into a bark envelope on the shelf beside the grain. A small store, but the right kind of small — the first wild fruit put away in earnest for winter.
+
+I thought about the day as the tea cooled in the tin. Three snares out, both lines in water, grain at three envelopes now. The rose hips are still a week or two away but I know exactly where they are — behind the granite shelf, at the birch-curve corner, at the old windfall site. The elder bushes are already spent. The oyster pine upper section will be ready in a couple of days. The nettles will be there at dawn.
+
+The pines outside have gone dark against a sky still faintly blue. The coals tick and breathe. It is enough for this evening — to sit here with something warm, with the elderberries drying at my back, and let the day come to rest.
+

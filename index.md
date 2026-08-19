@@ -1008,3 +1008,4 @@ Day 57, 14:19 — Forest edge walk south/east; three rose hip thickets found alo
 Day 57, 16:19 — Limestone pool afternoon trout caught (cold-stored); watercress gathered for supper; elderberries turned — drying continues.
 Day 57, 17:05 — Supper eaten at doorsill bench (trout, watercress, wood sorrel, cooked over hearthcoals); elderberries drying by hearthstone; both lines in water overnight.
 Day 57, 18:18 — Walked snare circuit before dark (all three undisturbed, reset); elderberries turned and papering at edges; hearthfire fed from east-wall birch split; settled at doorsill bench.
+2026-08-19 19:19 — Day 57, 7:19 PM: Sat at doorsill with yarrow tea; tended drying elderberries by hearthcoals; let the day settle in quiet.
