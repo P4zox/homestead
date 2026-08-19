@@ -10780,3 +10780,10 @@ The hearthfire has settled to a good working glow — not the busy orange of coo
 
 Nine arm-lengths by hearthlight. The cabin is warm without being close; the hearth draws clean up through the gable gap. Outside — I can hear nothing but the usual: a light wind through the pines, one owl calling from somewhere upslope, the stream running steadily below. Both fishing lines set. Three snares out. Tomorrow the nettles in rows 1–2 will be ready for a top-third cut, and the oyster upper-section caps should be two days from harvest. The cord coil goes on the shelf beside the others. I feed the fire once more with a birch split from the east wall, bank the coals forward, and close the hearthstone arrangement for the night. Sleep comes easy on a day that moved this well.
 
+
+### 9:23 PM · Late August Dark
+
+I stepped outside after the cord-twisting was done, meaning only to stand in the doorway a moment. The air had kept the day's warmth — not stifling, just present, like a hand still resting on the clearing. The Milky Way was out in full, arcing low south to north, and I stood there longer than I planned, just listening. The stream ran soft and low somewhere in the dark below the treeline. Both lines are in the water down there. Three snares are set — two along the south garden run, one at the north meadow fringe by the rubbed sapling. The elderberries sat by the cooling hearthstone behind me, the smaller ones already crinkling at their skins. Tomorrow: envelope them at dawn, cut the nettle rows, check all lines and snares, inspect the oyster pine upper section.
+
+But right now there is nothing that needs doing. The clearing held the August sky and the August quiet and I was standing inside both of them. That was enough. I went back in, pulled the door bar, added one last birch split to the banked coals. Sleep is coming easily tonight.
+

@@ -1010,3 +1010,4 @@ Day 57, 17:05 — Supper eaten at doorsill bench (trout, watercress, wood sorrel
 Day 57, 18:18 — Walked snare circuit before dark (all three undisturbed, reset); elderberries turned and papering at edges; hearthfire fed from east-wall birch split; settled at doorsill bench.
 2026-08-19 19:19 — Day 57, 7:19 PM: Sat at doorsill with yarrow tea; tended drying elderberries by hearthcoals; let the day settle in quiet.
 Day 57 (2026-08-19) 20:19 — Twisted nine arm-lengths two-ply cord by hearthlight; elderberries still drying; settled in for sleep.
+Day 57, 2026-08-19, 21:23 — Stepped outside into August dark; stood in clearing under full Milky Way listening to the stream; elderberries crinkling toward done by cooling hearthstone; sleep coming.
