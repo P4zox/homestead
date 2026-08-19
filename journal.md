@@ -10662,3 +10662,16 @@ After watering I walked the snare line. First snare at the north garden edge: lo
 
 A good morning: lines in water, garden watered, snares set. The day is warming fast.
 
+
+### 9:18 AM · Morning Fire, First Meal
+
+The morning's work was done before the sun had fully cleared the pines — clearing scouted, lines baited, garden darkened with stream water, snares checked and reset. I came back to the doorsill bench and sat for a moment with nothing pressing in my hands for the first time today.
+
+The seven-inch trout from the deep-run overnight set was cold-stored when I cleaned it at seven, dock-wrapped and firm. I brought it in now. Built the hearthfire up from last night's coals — a few dry pine splinters from the wall stack, one breath of air, and it caught. I pulled a handful of wood sorrel from row five on the way past, bright and lemony, stems still holding last night's dew.
+
+Cooked the fish in the cook tin with the sorrel and a thread of stream water. The clearing was fully lit by the time it was ready, that particular midsummer light that comes in flat and golden from the southeast and makes everything look like it's been waiting to be noticed.
+
+Ate at the bench in the warmth. The fish was clean and sweet. The sorrel cut through the richness. Somewhere up the slope a woodpecker was working steadily at something — that hollow knocking that goes on and on and sounds like it knows what it's doing.
+
+After, I rinsed the tin and set it to dry on the outdoor bench. I sat a little longer than I needed to. The limestone pool line has been quiet all morning; I'll walk down at noon to check it. For now the clearing is mine and warm and still, and there's nothing wrong with staying in it.
+

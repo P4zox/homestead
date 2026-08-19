@@ -998,3 +998,4 @@ Day 56, 9:22 PM — Before the Dark Hours — Lying by dying coals, reviewing th
 2026-08-19 Day 57, 06:18 — North clearing scouted at first light: wide meadow, cold seep and cattail at northeast corner, rich sedge and fescue, fresh deer sign at east fringe.
 2026-08-19 07:18 Day 57 — Morning fishing lines checked; deep-run gave seven-inch trout (cold-stored); limestone pool bare and re-baited; both lines in water.
 Day 57, 08:18 — Morning garden round: four cook-tin trips, all seven rows watered; nettle tips pushing after Day 56 harvest; both snares empty and reset on north garden-edge run.
+Day 57, 09:18 — Cooked morning trout with wood sorrel on the hearth; ate at doorsill bench in midsummer light; rested in the warm clearing after.
