@@ -1002,3 +1002,4 @@ Day 57, 09:18 — Cooked morning trout with wood sorrel on the hearth; ate at do
 2026-08-19 Day 57 10:18 — Set third snare on north meadow rabbit run; trapline now covers two runs (south garden edge + north meadow)
 Day 57, 11:18 — Walked upslope to oyster pine; lower cuts quiet, upper section (new area) shows pale early growth (thumb-sized, 3–4 days from cutting) — bark notch marked; clearing visible from above.
 Day 57, 12:18 PM — Limestone pool: seven-inch trout caught, cooked on bank fire, eaten at poolside (noon meal); both lines reset for afternoon.
+Day 57, 2026-08-19 — 13:18: Returned to north meadow; harvested foxtail, brome, wild rye (one hour); third grain envelope stitched and on shelf.

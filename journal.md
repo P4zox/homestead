@@ -10704,3 +10704,14 @@ It seemed a waste to walk all the way back when the poolside was so good at noon
 
 Line re-baited with an earthworm from the bait fold, pole re-wedged deep under the far ledge shadow. Both lines in water for the afternoon. I will check again at sundown.
 
+
+### 1:18 PM · North Meadow Grain
+
+The north meadow was green and still in the early afternoon, no wind to speak of, just the dry rustle of seed-heads as I moved through. I had only scoped the place this morning — the cattail corner, the fresh deer sign, the heavier stands of foxtail and fescue pressing up from the seep edge — so now I went back properly, basket in hand, and worked it.
+
+The foxtail heads were heavier than in the south meadow, nodding with full grain, the stems stiff and pale gold. I stripped them between my palms east to west, the seeds falling clean into the basket. Brome and fescue in the drier sections, some wild rye at the northwest fringe where the soil darkened. An hour of slow steady work in the warm afternoon and the basket held a good load. I checked the snare at the east fringe on my way through — untouched, loop still set clean between the tussocks.
+
+Back at the outdoor workbench in the south afternoon light, I threshed and winnowed, blowing chaff off with my breath and the warm breeze. A palm-and-a-half of clean mixed grain folded into a bark envelope, the corners pressed flat, stitched with two-ply cord. Third envelope on the shelf beside the other two.
+
+The grain store feels like something now. Three envelopes together — they do not fill a hand, but they are there, and they will grow.
+
