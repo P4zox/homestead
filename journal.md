@@ -10733,3 +10733,16 @@ The afternoon shade crept along the east wall and I brought the cord bundle to t
 
 The cord coil is already generous, but cord is the thing that runs out at the worst moment — mid-lashing in the dark, or the first cold week when you need to add a fur panel and find the supply bare. Better to have too much and remember a warm midsummer afternoon spent this way.
 
+
+### 4:19 PM · Still Water, Full Hands
+
+The afternoon has gone long and settled — the kind of day that asks little and gives much. The sun beginning its westward lean, shadows of the pines stretching east across the woodpile. I walked the slow path to the limestone pool in the amber light.
+
+The line was down in the far ledge shadow where I had left it, pole angled out over the dark water. I crouched at the bank and waited. The weight of the tip gave it away before I even touched it — that slight tension that says the hook is busy. Seven inches, clean and bright, come up through the cool depth into warm air. I cleaned it at the flat pool stone, notched a fresh earthworm onto the hook, and set the pole back deep under the ledge. Both lines still fishing.
+
+On the way home I took the side-seep path. The watercress was lush in the shade — stems thick, leaves dark — and I pulled a good fistful, rinsed it in the current, and dock-wrapped it for tonight.
+
+Supper decided: the afternoon trout over hearthcoals with the watercress and two dried oyster caps from the box. The elderberries in the bark vessel near the hearthstone smell faintly sweet and sharp — I turned them with the spoon, a gentle pass, set the vessel back in the warmth. Another evening or two and they will be properly dried and worth keeping.
+
+The afternoon was full and quiet. The clearing is in order.
+
