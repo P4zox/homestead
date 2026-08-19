@@ -10751,3 +10751,14 @@ The afternoon was full and quiet. The clearing is in order.
 The afternoon light is lying flat across the clearing now, gold and long-shadowed. I took a trout and the watercress from the main cold-storage box and cooked them together in the cook tin over hearthcoals with fresh wood sorrel from row five thrown in at the last moment, when the heat had dropped low. Ate at the doorsill bench with my feet on the threshold stone, watching the midsummer light deepen. Behind me on the hearthstone, the elderberries are still spreading in their bark vessel, drying slowly in the residual warmth. I could smell them as I ate — faintly sweet and a little sharp, an end-of-summer smell.
 
 Day 57 has been full. The snare line stretched north to the meadow fringe, the grain store grown to three envelopes, the forest edge mapped for elder and rose hip. Both fishing lines are in for the night. Tomorrow the nettles in rows one and two will likely be ready for another top-third cut. For now there is just this: the last hour of afternoon light, an empty tin, the elderberries drying beside the coals, and the clearing going quiet.
+
+### 6:18 PM · The Snares Before Dark
+
+The sun was still above the treeline but soft, the clearing gone golden and the shadows long. I walked the snare circuit before the light failed — north first, picking my way through the meadow grass to the fringe where I set the new loop five paces east of the rubbed sapling. Undisturbed. I knelt, checked the trigger, reset the loop to nose-height, pressed the stake in firm. The cattail stand at the far end of the seep swayed in a breeze I could not feel from where I crouched.
+
+The two garden-edge snares were the same — trigger sticks still notched and upright, loops open and waiting. I reset both and stood a moment looking at the rows: sorrel full in its shadow strip, the nettle tips in rows 1 and 2 already thickening again after the last cut. They will be ready at first light.
+
+Back at the hearthstone I turned the elderberries in their bark vessel. Shrunk a little from the overnight heat, slightly tacky where the skin runs thickest, but the smaller ones beginning to go papery at the seams. A few more hours and the bulk of them will be ready to fold into storage. I fed the fire a split of birch from the east-wall stack; the flames caught clean and the shelter warmed a notch.
+
+Now the doorsill bench again, watching the clearing gray down. Night comes from the trees first here — the fringe goes dark before the sky. Three snares waiting, two lines in the stream. Tomorrow the nettles at dawn.
+
