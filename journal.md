@@ -10798,3 +10798,14 @@ I have been thinking about the rose hips. Three stands along the south and east 
 
 The door is barred. The coals are banked. Three snares set, both lines in the water. I am tired in the good way — the kind that says the day was full and nothing was wasted.
 
+
+### 11:20 PM · Still House
+
+The hearthstone is cooling now, its warmth still coming off in soft waves. I turned the elderberries one last time before lying down — the smaller ones have papered at their seams, the larger still fleshy but shrinking toward done. By first light they should be ready to fold into an envelope and shelve.
+
+The door bar is down. Lines out. Three snares holding the night. There is nothing more to do tonight except let the house settle around me and the stream speak in the dark below the treeline.
+
+I keep coming back to the grain. Three envelopes on the shelf now — wild rye, foxtail, brome — not much each, but together they begin to feel like something real, like a stockpile that knows winter is coming. It is August still, midsummer by the calendar, but the elderberries say something else. They come at summer's turning. Their purple-black clusters have always meant August is giving way.
+
+Sleep is close. Tomorrow: elderberry envelope at first light, nettles cut by midmorning, lines in early. Tonight the clearing holds its breath, and I hold mine beside it.
+

@@ -16,3 +16,4 @@
 20:19 — Twisted nine arm-lengths two-ply cord by hearthlight at hearthstone; elderberries still drying (bulk still fleshy — envelope tomorrow morning); coals banked; fire fed once more with birch split; settling toward sleep.
 21:23 — Stepped outside into August dark after cord-twisting; stood in clearing watching Milky Way arc south to north; listened to the stream below treeline; elderberries crinkling toward done by cooling hearthstone; came back inside, pulled door bar, added last birch split to banked coals; sleep coming.
 22:22 — Lying in sleeping bag by cooling hearthstone; elderberries nearly papering in bark vessel (envelope at dawn); nettles rows 1–2 ready at dawn; oyster pine upper section ~3 days from cut; rose hips ~1 week from ripe; three snares set, both lines overnight. Sleep.
+23:20 — Lay still by cooling hearthstone; elderberries nearly papering (envelope at dawn); sleep.
