@@ -10773,3 +10773,10 @@ I thought about the day as the tea cooled in the tin. Three snares out, both lin
 
 The pines outside have gone dark against a sky still faintly blue. The coals tick and breathe. It is enough for this evening — to sit here with something warm, with the elderberries drying at my back, and let the day come to rest.
 
+
+### 8:19 PM · Fire and Fiber
+
+The hearthfire has settled to a good working glow — not the busy orange of cooking coals, but the steady amber that suits twisting. I pull a fresh bundle of inner-bark fiber from the shelf and sit at the hearthstone with it in my lap. The elderberries are still in the bark vessel to my right, drying down slowly; a few of the smallest ones are papering at the seams, but the bulk still feels fleshy at center when I press one between finger and thumb — tomorrow morning will tell. For now I twist, letting my hands do what they know: thumb over fingers, fiber feeding in from both sides, the plies tightening against each other in a slow even spiral.
+
+Nine arm-lengths by hearthlight. The cabin is warm without being close; the hearth draws clean up through the gable gap. Outside — I can hear nothing but the usual: a light wind through the pines, one owl calling from somewhere upslope, the stream running steadily below. Both fishing lines set. Three snares out. Tomorrow the nettles in rows 1–2 will be ready for a top-third cut, and the oyster upper-section caps should be two days from harvest. The cord coil goes on the shelf beside the others. I feed the fire once more with a birch split from the east wall, bank the coals forward, and close the hearthstone arrangement for the night. Sleep comes easy on a day that moved this well.
+
