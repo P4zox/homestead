@@ -10695,3 +10695,12 @@ From that height the clearing lay spread below — the cabin at the northwest ri
 
 The limestone pool line is waiting for noon.
 
+
+### 12:18 PM · Noon at the Pool
+
+I walked the stream path to the limestone pool when the sun was straight overhead, light hitting the water flat and white. The pool had been quiet all morning from a distance, no give in the prop-stick, but when I pulled the cord up it came alive — a seven-inch trout turning in the cold shadow-water under the far ledge. I cleaned it at the flat pool stone, dock-wrapped it, and started a small bank fire with tinder from the drawstring pouch.
+
+It seemed a waste to walk all the way back when the poolside was so good at noon — the water sliding past without sound, a stand of alder on the far bank throwing green shade across the current, the air noticeably cooler over the water than in the clearing. I propped a flat stone over the coals, set the fish against it, and watched the flesh go from translucent to white along the backbone. Ate it there with my back against a root-balled birch, the stream doing what streams do, indifferent and steady.
+
+Line re-baited with an earthworm from the bait fold, pole re-wedged deep under the far ledge shadow. Both lines in water for the afternoon. I will check again at sundown.
+
