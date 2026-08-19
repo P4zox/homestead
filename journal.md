@@ -10809,3 +10809,19 @@ I keep coming back to the grain. Three envelopes on the shelf now — wild rye, 
 
 Sleep is close. Tomorrow: elderberry envelope at first light, nettles cut by midmorning, lines in early. Tonight the clearing holds its breath, and I hold mine beside it.
 
+
+---
+
+# Day 58 — Thursday, 20 August 2026
+*midsummer · clear at first light; heavy dew on clearing grass; mist thin along treeline; still warm air; settled day building*
+
+### 6:18 AM · Elderberries, Dawn Lines
+
+The bark vessel was waiting by the cooling hearthstone. I tipped the dried elderberries gently — most of the clusters had papered overnight, tight dark wrinkles with no soft spots left at center. Folded them into a new bark envelope, stitched the end shut with two-ply cord, and set it on the supply shelf beside the grain envelopes. The shelf is beginning to look like something you could lean on.
+
+Down to the deep run then. The overnight line had a seven-inch trout on the earthworm, cleaned at the flat stream stone, dock-wrapped, cold-stored. Re-notched the hook with a fresh worm from the fold and reset it below the undercut bank. Limestone pool line bare — re-baited, pole re-wedged under the far ledge shadow. Both lines back in water before sunrise fully cleared the pines.
+
+Snare circuit: north meadow fringe snare undisturbed, reset; both south garden-edge snares undisturbed, reset. Three snares still waiting.
+
+Nettles in rows 1–2 are standing tall — I could see the flush of new tips from the path. I will cut them when the dew dries off the leaves, midmorning at the earliest. The elderberries are folded away. The lines are set. The day is clear and still.
+

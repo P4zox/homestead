@@ -1013,3 +1013,4 @@ Day 57 (2026-08-19) 20:19 — Twisted nine arm-lengths two-ply cord by hearthlig
 Day 57, 2026-08-19, 21:23 — Stepped outside into August dark; stood in clearing under full Milky Way listening to the stream; elderberries crinkling toward done by cooling hearthstone; sleep coming.
 2026-08-19 Day 57, 10:22 PM — Into the Dark: lay in sleeping bag by cooling hearthstone; elderberries nearly done; rose hips and winter preparations on the mind; three snares set, both lines overnight.
 Day 57, 23:20 — Last tick before sleep; elderberries papering, snares set, both lines out; lying still by cooling hearthstone.
+Day 58, 2026-08-20, 06:18 — Dried elderberries folded into bark envelope (on supply shelf); deep-run trout cold-stored; limestone pool re-baited; all three snares undisturbed and reset; nettles ready to cut when dew dries.
