@@ -10886,3 +10886,12 @@ I could feel the morning in my shoulders — two plot-turning sessions on the ea
 
 Rinsed the tin at the stream. Sat a few more minutes on the bench. Nothing urgent — lines in the water, snares set, garden settled. The afternoon lies ahead, full and warm and mine to use.
 
+
+### 1:19 PM · Second Row, East Bench
+
+The afternoon warmth sat full on the clearing when I shouldered the digging stick and walked east again. Eighty paces through the woods to the bench — the air cooler in the draw, the seep burbling just to the south — and then the open plot again, stakes in each corner, the north row waiting to be finished.
+
+I took up where the morning left off: the last paces of the north row, then turned south and began working the second row east to west. The loam here is good — dark, loose, earthworms turning up on every stroke. The dock taproot gap from the morning pass had already settled; I shook out the last segments and pitched them downhill. Steady work, no rush. A woodpecker knocked somewhere up the slope, then went quiet.
+
+By the time I straightened and stretched, the north row was done and the second row was half through — four paces turned, four more to go before the end. The whole bench is taking shape. Come spring it will be ready: two plots, twice the ground. That thought settled in my chest like something worth carrying home.
+
