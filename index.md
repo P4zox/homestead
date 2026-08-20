@@ -1024,3 +1024,4 @@ Day 58, 13:19 — East bench second garden plot: north row finished, second row 
 2026-08-20 Day 58, 14:21 — Completed second row of east bench second garden plot (four paces turned, dark loam throughout); two rows done, eight remaining for spring preparation.
 Day 58, 15:19 — Upslope oyster flush cut (three clusters, ~4 handfuls, pale buff caps, white gills clean); set on smoke rack over green birch smolder; pull ~17:19.
 Day 58, 4:19 PM — Walked limestone pool; afternoon seven-inch trout caught, cleaned, cold-stored; line re-baited and reset; oysters still smoking on rack (pull at 5).
+Day 58, 17:18 — Pulled oyster mushrooms from smoke rack (amber-tan, firm); cold-stored in main box; rack cleared; evening at doorsill.

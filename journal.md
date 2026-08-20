@@ -10928,3 +10928,10 @@ Sat on the bank stone a few minutes before walking back. The pool was clear and 
 
 The oysters will be ready at five. Three snares waiting in the dark when the dew comes down.
 
+
+### 5:18 PM · Amber from the Rack
+
+Two hours on the rack — I could smell it from the doorsill bench, that low green birch smoke threading through the late afternoon heat. I walked over and pressed each cap gently: amber-tan throughout, edges curled clean and tight, firm on all sides. Good. I pulled them off the crossbars one by one, stacked them into the cold-storage box, and raked the coals flat. The rack stands empty now in the long evening light, the birch coals going gray.
+
+Both fishing lines are in overnight. Three snares set in the dark. The rose hips at the south treeline are showing red tips — another few days and they will be ready. I sat on the doorsill bench after and watched the pines go amber, the light turning the way it does at this hour, warm and low and long. A good close to a day of turning soil and tending the smoke rack. Tomorrow the lines.
+
