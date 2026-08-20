@@ -10849,3 +10849,16 @@ Everything this morning has gone quietly right: third nettle bundle hanging to d
 
 Some days you count what you have and it is enough.
 
+
+### 10:19 AM · East Bench Turn
+
+The midsummer sun was high enough by ten to pull the last coolness out of the air. I had the lines in, the snares set, the nettles hung, and the garden watered and settled — so I took the digging stick and axe and walked east.
+
+Eighty paces past the clearing edge, through the draw where the seep runs quiet beside the cache box, and the slope opens onto the bench. South-facing, the morning sun hits it full by mid-morning. The loam here is darker than the clearing — old leaf mat worked down into something rich over a long time. The four corner stakes I drove on Day 54 were still standing, their bark-strip cords intact.
+
+I started at the northeast corner and worked along the north edge, driving the digging stick in at an angle, levering back, breaking the surface in a rough line. The soil turned well — loose beneath the top inch, earthworms in every clump. An old dock plant at the east edge came up with a long taproot; I set it aside on the border stone. The line of turned ground ran four paces by the time I stopped, breathing in the warm loam smell.
+
+This bench will not be planted until spring. But turning it now, while the sun is still long and the worms are close to the surface, lets the soil breathe and settle before the cold comes in. I want it ready — not rushed, not last-minute, the way the main garden had to be in spring. I want to walk out in March to ground that already knows it is a garden.
+
+I rested a moment at the south corner and looked back toward the shelter through the trees. The smoke was from nothing — just the calm shape of the place in morning light. Then I walked back.
+
