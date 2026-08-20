@@ -10917,3 +10917,14 @@ Set on the smoke rack now, gill-side up over a low green birch smolder. Two hour
 
 Three snares, two lines in the water. The rose hips are blushing but not yet ready. The elderberries are already folded into their envelope. One thing at a time — that's all the afternoon asks.
 
+
+### 4:19 PM · Still Water, Late Light
+
+The smoke rack is running steady south of the shelter — three oyster clusters on the crossbars, gill-side up, thin column bending in the light afternoon air. They won't be ready until near five, so I walked down to the limestone pool with an hour to spare.
+
+The afternoon light was coming in at a low angle, cutting the water amber where the current slows above the ledge. I checked the pole — seven-inch trout on the earthworm, tight against the undercut rock, right where the cold shadow holds longest. Cleaned it at the flat poolside stone, dock-wrapped it, and tucked it in the main cold-storage box when I came back. Re-baited with a fresh worm from the bark fold and wedged the pole deeper under the far ledge shadow for the overnight set.
+
+Sat on the bank stone a few minutes before walking back. The pool was clear and still, the light bending through it, amber fading toward the south treeline. I could see the rose hip thickets from the high bank — tips going red now, maybe a few more days. Not yet. But soon.
+
+The oysters will be ready at five. Three snares waiting in the dark when the dew comes down.
+
