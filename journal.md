@@ -10965,3 +10965,7 @@ I found the grey cobble on the supply shelf and sat down with the axe across my 
 
 The coals are banked, both lines still in water, three snares set in the dark grass. Everything is working, everything is in its place. All there is left to do is notice that, and sleep.
 
+
+### 9:19 PM · Last Cord Before Sleep
+
+The hearthcoals give off enough warmth to keep my hands supple. I settled cross-legged on the rush mat and pulled the remaining inner bark strips from the bundle — coarser than the mornings

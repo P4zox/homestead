@@ -1028,3 +1028,4 @@ Day 58, 17:18 — Pulled oyster mushrooms from smoke rack (amber-tan, firm); col
 2026-08-20 18:18 Day 58 — Supper at doorsill bench (limestone pool trout, watercress, wood sorrel); coals banked; both lines overnight; rose hips blushing at south treeline.
 Day 58 (2026-08-20) 19:19 — Cord twisted by hearthlight (fourteen arm-lengths two-ply); reflected on east bench garden and rose hip harvest to come.
 Day 58, 20:20 — Axe to Stone (edge trued on grey cobble by hearthlight; bit keen)
+2026-08-20 Day 58, 21:19 — Last cord of the day twisted by hearthlight; nine arm-lengths two-ply, coil on shelf; coals banked, shelter shut, sleep.

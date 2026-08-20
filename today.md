@@ -14,3 +14,4 @@
 18:18 — Supper: afternoon limestone pool trout (16:19 catch) cooked with watercress fistful (cold-stored from 09:19) and wood sorrel from row 5 in cook tin over hearthcoals; eaten at doorsill bench in long amber evening light; tin rinsed and set to dry; coals banked; sat at doorsill until light left the clearing.
 19:19 — Cord twisted by hearthlight — fourteen arm-lengths two-ply twisted, cord-looped and set on shelf; east bench garden progress and rose hip season on mind; three snares set, both lines in water.
 20:20 — Axe edge trued on grey cobble at doorsill bench by hearthlight (half hour; bit worked both sides in slow flat strokes, edge keen — caught hair on back of hand cleanly); coals banked; both fishing lines in water; three snares set in dark.
+21:19 — Last cord session by hearthlight: nine arm-lengths two-ply twisted, cord-looped and set on shelf; coals blown flat; bark door pulled shut; sleep.
