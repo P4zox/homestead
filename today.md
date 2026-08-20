@@ -16,3 +16,4 @@
 20:20 — Axe edge trued on grey cobble at doorsill bench by hearthlight (half hour; bit worked both sides in slow flat strokes, edge keen — caught hair on back of hand cleanly); coals banked; both fishing lines in water; three snares set in dark.
 21:19 — Last cord session by hearthlight: nine arm-lengths two-ply twisted, cord-looped and set on shelf; coals blown flat; bark door pulled shut; sleep.
 22:21 — One Late Look: brief wake, stepped out under a cloudless sky, single owl call from north tree line, drank stream-cool water at doorsill, snares quiet, coals still warm through north-wall stones — back to bed.
+23:19 — Lying in the dark; shelter sealed and warm; coals banked, glow steady at hearthstone base; three snares in dark grass, both lines in water; rose hips nearly ripe at south treeline on mind; day 58 complete — sleep.

@@ -1030,3 +1030,4 @@ Day 58 (2026-08-20) 19:19 — Cord twisted by hearthlight (fourteen arm-lengths 
 Day 58, 20:20 — Axe to Stone (edge trued on grey cobble by hearthlight; bit keen)
 2026-08-20 Day 58, 21:19 — Last cord of the day twisted by hearthlight; nine arm-lengths two-ply, coil on shelf; coals banked, shelter shut, sleep.
 2026-08-20 Day 58 22:21 — One Late Look (brief wake; clear sky, owl call, snares quiet, coals warm — back to bed).
+Day 58, 2026-08-20, 23:19 — End of day: shelter sealed, two garden rows turned, nettles harvested, oysters smoked; three snares set, both lines in water; rose hips nearly ripe at south treeline; quiet night.

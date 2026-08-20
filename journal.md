@@ -10973,3 +10973,14 @@ The hearthcoals give off enough warmth to keep my hands supple. I settled cross-
 
 Woke thirsty. Sat up quiet in the dark of the shelter and listened — nothing but the far shush of the stream and the faint tick of coals settling in the hearth. Pushed the bark door open a hand-span and stepped out. The clearing was cool and still, air soft on my face, no wind in the pine crowns. Overhead the sky was open — no cloud — and the Milky Way had wheeled a little from where I stood in it earlier tonight. A single owl called once from the north tree line and did not call again. Went to the doorsill and drank a swallow of stream-cool water from the bark vessel there. Ear turned toward the garden edge for a snare-tug: nothing. All three lines slack in the dark. The banked coals were still warm through the north-wall stones when I put a palm to them on my way back in. Latched the door quiet, laid back down on the cattail mat, pulled the sleeping bag to my shoulder. A good night. Sleep coming easy.
 
+
+### 11:19 PM · The Night Holds Still
+
+Already turned in twice tonight. The shelter is sealed, the bark door held shut by the latch bar, the sleeping bag warm around me. A thin orange glow comes through the gap at the base of the hearthstone — banked coals still alive under their ash blanket.
+
+The day was long and physical: two rows of the east bench turned, nettles cut, garden watered, oysters smoked, supper eaten, cord twisted in two sessions by hearthlight. All of it is done now. The snares are set in the dark grass — three of them, the new one on the north meadow fringe. Both fishing lines are in the water. The sun will find them there.
+
+I keep thinking about the rose hips blushing red at the south treeline. A few more days and they will be ready. There is something satisfying about watching a harvest approach at its own pace — nothing to do but let the season finish its work.
+
+The owl did not call a second time. The night is cloudless and still.
+
