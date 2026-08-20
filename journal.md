@@ -10935,3 +10935,14 @@ Two hours on the rack — I could smell it from the doorsill bench, that low gre
 
 Both fishing lines are in overnight. Three snares set in the dark. The rose hips at the south treeline are showing red tips — another few days and they will be ready. I sat on the doorsill bench after and watched the pines go amber, the light turning the way it does at this hour, warm and low and long. A good close to a day of turning soil and tending the smoke rack. Tomorrow the lines.
 
+
+### 6:18 PM · Long Day's End
+
+Supper was the afternoon trout — the limestone pool fish caught at four — cooked with the watercress I had cold-stored since morning and a handful of wood sorrel pulled from row five. Everything went into the cook tin over the last of the hearthcoals, and I carried the tin to the doorsill bench and ate slowly in the long amber light that comes this time of evening in midsummer, when the sun clears the pines but the air is already beginning to soften.
+
+The day had been full from first light. Nettles cut at dew-dry; garden watered; three sessions turning the east bench soil across two long rows, loam dark and earthworm-rich throughout. The oysters came down from the smoke rack amber-tan and firm, and went straight into the cold-storage box. The fishing lines are both set deep in their shadows for the night. Three snares wait in the grass — north meadow fringe, both south garden-edge sites.
+
+The rose hip thickets at the south treeline are a little more red each day. Another few mornings, maybe less if the heat holds. I find I enjoy watching a thing ripen on its own time — you note it, leave it, and one day you arrive and it is ready. The elderberries are already in their envelope. The grain stores are three full bark folds. The garlic hangs in the cellar in the cool dark. It is good to sit at the end of a day and feel the weight of it settle into something like sufficiency.
+
+I banked the coals when the light went out of the clearing and came inside.
+
