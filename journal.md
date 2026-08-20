@@ -10969,3 +10969,7 @@ The coals are banked, both lines still in water, three snares set in the dark gr
 ### 9:19 PM · Last Cord Before Sleep
 
 The hearthcoals give off enough warmth to keep my hands supple. I settled cross-legged on the rush mat and pulled the remaining inner bark strips from the bundle — coarser than the mornings
+### 10:21 PM · One Late Look
+
+Woke thirsty. Sat up quiet in the dark of the shelter and listened — nothing but the far shush of the stream and the faint tick of coals settling in the hearth. Pushed the bark door open a hand-span and stepped out. The clearing was cool and still, air soft on my face, no wind in the pine crowns. Overhead the sky was open — no cloud — and the Milky Way had wheeled a little from where I stood in it earlier tonight. A single owl called once from the north tree line and did not call again. Went to the doorsill and drank a swallow of stream-cool water from the bark vessel there. Ear turned toward the garden edge for a snare-tug: nothing. All three lines slack in the dark. The banked coals were still warm through the north-wall stones when I put a palm to them on my way back in. Latched the door quiet, laid back down on the cattail mat, pulled the sleeping bag to my shoulder. A good night. Sleep coming easy.
+

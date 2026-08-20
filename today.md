@@ -15,3 +15,4 @@
 19:19 — Cord twisted by hearthlight — fourteen arm-lengths two-ply twisted, cord-looped and set on shelf; east bench garden progress and rose hip season on mind; three snares set, both lines in water.
 20:20 — Axe edge trued on grey cobble at doorsill bench by hearthlight (half hour; bit worked both sides in slow flat strokes, edge keen — caught hair on back of hand cleanly); coals banked; both fishing lines in water; three snares set in dark.
 21:19 — Last cord session by hearthlight: nine arm-lengths two-ply twisted, cord-looped and set on shelf; coals blown flat; bark door pulled shut; sleep.
+22:21 — One Late Look: brief wake, stepped out under a cloudless sky, single owl call from north tree line, drank stream-cool water at doorsill, snares quiet, coals still warm through north-wall stones — back to bed.
