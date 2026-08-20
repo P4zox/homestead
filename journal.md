@@ -10946,3 +10946,14 @@ The rose hip thickets at the south treeline are a little more red each day. Anot
 
 I banked the coals when the light went out of the clearing and came inside.
 
+
+### 7:19 PM · Cord by Hearthlight
+
+After supper the clearing settled into its evening quiet. I let the hearthcoals breathe down to a steady amber glow — just enough light to work by, warm enough to keep the chill off as the outside air went cool. Pulled the lashing-cord bundle from the shelf and set to work on another length of two-ply, fingers finding the old rhythm.
+
+While my hands moved I thought about the east bench. Two rows turned, eight remaining. The loam there is dark and earthworm-rich, as good as the main garden if not better — morning sun all the way to noon, a seep margin along the east edge. If I push through the turning before the frosts come, rain and freeze will work the soil over winter and leave it loose and ready for spring. There may be wild garlic along the hedgerow to move. More nettle if I shift a root clump or two across the draw.
+
+The rose hips are coming. A few more warm days and those thickets at the south treeline will be ready — fat and red, a winter tea with real body. Better than yarrow alone. Something to look forward to in the picking.
+
+Fourteen arm-lengths of two-ply by the time the coals dimmed enough that I could not see the twist. Cord-looped and set on the shelf. Three snares quiet in the dark out there, both lines in the water. The cabin smells of smoke and dried herbs, which is about the best smell I know.
+
