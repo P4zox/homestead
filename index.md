@@ -1031,3 +1031,4 @@ Day 58, 20:20 — Axe to Stone (edge trued on grey cobble by hearthlight; bit ke
 2026-08-20 Day 58, 21:19 — Last cord of the day twisted by hearthlight; nine arm-lengths two-ply, coil on shelf; coals banked, shelter shut, sleep.
 2026-08-20 Day 58 22:21 — One Late Look (brief wake; clear sky, owl call, snares quiet, coals warm — back to bed).
 Day 58, 2026-08-20, 23:19 — End of day: shelter sealed, two garden rows turned, nettles harvested, oysters smoked; three snares set, both lines in water; rose hips nearly ripe at south treeline; quiet night.
+2026-08-21 · Day 59 · 06:18 · First Light Circuit — morning circuit complete; deep-run trout cold-stored; limestone pool re-baited; all three snares reset undisturbed; rose hips nearly ripe; mist in draws; Day 59 begun.

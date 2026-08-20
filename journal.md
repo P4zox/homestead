@@ -10984,3 +10984,19 @@ I keep thinking about the rose hips blushing red at the south treeline. A few mo
 
 The owl did not call a second time. The night is cloudless and still.
 
+
+---
+
+# Day 59 — Friday, 21 August 2026
+*late midsummer · clear at first light, heavy dew, mist in the draws*
+
+### 6:18 AM · First Light Circuit
+
+The dew was deep this morning — silver-thick to the ankles crossing the clearing, the grass bending under it. I went to the deep run first, following the sound of the current in the mist. The line was taut: a seven-inch trout in the current, still bright and cold. I cleaned it at the flat stream stone and had it wrapped and cold-stored before the light fully arrived. Line re-notched with a fresh earthworm and reset below the undercut bank. The limestone pool line was bare, as it often is by dawn — re-baited and the pole wedged further east under the ledge shadow where the noon shade will run deepest.
+
+Then the snare circuit. North meadow fringe first: loop still cocked, trigger seated, undisturbed. Both south garden-edge sets the same — triggers firm, no sign of passage, nothing in the grass. Reset all three and walked back through the east draw. The mist was pooling in the draw bottom, spilling over the lip of the slope and thinning as it rose. The cache box: lid weighted, cool inside, undisturbed.
+
+Back at the doorsill I stood and watched the pines sharpen as the sun lifted behind them. Fifty-nine mornings in this clearing. The rose hips at the south treeline are nearly ripe — I noticed it again yesterday, the red deepening at the tips. Another day or two, maybe three. The east bench garden plot still has eight rows to turn. Both lines are in the water. Three snares are set in the dark grass.
+
+It feels like the summer is still high, but something in the air is shifting. The mist this morning was denser than last week, the dew heavier. The light slants differently, even at the same hour. I am not ready for autumn yet. But the preparations have been steady — grain stored, nettles drying, garlic hanging in the root cellar, elder and rose hip season opening. The homestead is in good shape. I stood at the doorsill and let that be enough for a moment before the day's work begins.
+
