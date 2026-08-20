@@ -10895,3 +10895,12 @@ I took up where the morning left off: the last paces of the north row, then turn
 
 By the time I straightened and stretched, the north row was done and the second row was half through — four paces turned, four more to go before the end. The whole bench is taking shape. Come spring it will be ready: two plots, twice the ground. That thought settled in my chest like something worth carrying home.
 
+
+### 2:21 PM · Second Row Done
+
+The last four paces of the second row went quickly — I already had my rhythm, and the loam here is the same story as the north row: dark, cool, earthworm-rich all the way down. The digging stick went in easy. I pulled two more dock taproot segments and tossed them downhill into the draw, then stepped back and looked at what two completed rows look like: a narrow dark rectangle at the top of the bench, the soil upturned and loose, swallows already arcing low over it to pick off whatever the turning disturbed.
+
+Two rows done, eight or so to go before the plot is ready for spring. It felt right to stop there for today — the afternoon sun is full on the bench now, and I wanted to be back at the clearing while the limestone pool line still has shadow over it. Walked down through the draw, stopped to lift the lid on the east seep cache box (blueberries cool and good, elderberry envelope sealed tight on the supply shelf at home — everything in order), then followed the pines back into the clearing.
+
+The air here is slower and warmer than the bench. I sat a few minutes on the doorsill bench and just let the afternoon settle. The snares are set; both fishing lines are in the water; the garden is watered. There is not always something urgent to do, and I am learning to let those moments be what they are.
+
