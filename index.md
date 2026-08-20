@@ -1027,3 +1027,4 @@ Day 58, 4:19 PM — Walked limestone pool; afternoon seven-inch trout caught, cl
 Day 58, 17:18 — Pulled oyster mushrooms from smoke rack (amber-tan, firm); cold-stored in main box; rack cleared; evening at doorsill.
 2026-08-20 18:18 Day 58 — Supper at doorsill bench (limestone pool trout, watercress, wood sorrel); coals banked; both lines overnight; rose hips blushing at south treeline.
 Day 58 (2026-08-20) 19:19 — Cord twisted by hearthlight (fourteen arm-lengths two-ply); reflected on east bench garden and rose hip harvest to come.
+Day 58, 20:20 — Axe to Stone (edge trued on grey cobble by hearthlight; bit keen)

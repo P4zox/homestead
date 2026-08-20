@@ -10957,3 +10957,11 @@ The rose hips are coming. A few more warm days and those thickets at the south t
 
 Fourteen arm-lengths of two-ply by the time the coals dimmed enough that I could not see the twist. Cord-looped and set on the shelf. Three snares quiet in the dark out there, both lines in the water. The cabin smells of smoke and dried herbs, which is about the best smell I know.
 
+### 8:20 PM · Axe to Stone
+
+The light has gone soft, that particular bronze of late summer at the end of a long day. I pulled the axe off its peg and carried it to the doorsill bench, where the last of the daylight and the first of the hearthglow meet. The blade has done real work — eleven pines felled, all the splitting, limbing, rounds bucked — and in the quiet I can feel how the edge has given ground over all those days.
+
+I found the grey cobble on the supply shelf and sat down with the axe across my knees. Slow strokes on the flat face, angling the bit into the stone, both sides in turn. Not a grinding but a conversation, feeling for the burr, listening for the sound to change. After maybe half an hour I drew the edge across the back of my hand and it caught the hair cleanly. Good enough.
+
+The coals are banked, both lines still in water, three snares set in the dark grass. Everything is working, everything is in its place. All there is left to do is notice that, and sleep.
+
