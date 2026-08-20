@@ -10873,3 +10873,16 @@ The plot is 12 by 10 paces. The north row is nearly done. By the time the rose h
 
 Walked back in early warmth with soil on my hands and the stream sound carrying up from below the draw.
 
+
+### 12:18 PM · Noon Heat, Still
+
+By midday the clearing had gone quiet, that deep midsummer stillness where even the birds find shade. The sun sat almost directly overhead — no long shadows to read the time by, just the flat bright press of it on the garden rows and the bench plank.
+
+I pulled the cook tin from the shelf and took the deep-run trout from the cold-storage box, along with the watercress I had stashed from the side-seep this morning. Added a small fistful of wood sorrel from row five — the leaves pale and tender in the heat. Coaxed the hearthcoals back with two slow breaths, set the tin, let everything cook together until the watercress had wilted and the trout skin browned and split at the belly.
+
+Ate at the doorsill bench in whatever shade the shelter overhang gave me. The food was good — plain and right. Watercress bitter, trout firm and clean, wood sorrel cutting bright through both. I sat long enough to let the meal settle, watching the heat shimmer over the open grass.
+
+I could feel the morning in my shoulders — two plot-turning sessions on the east bench, digging stick and the flat of the axe blade working dark loam. The north row of the second garden is nearly done. Second row begun. Turning soil for a plot I will not plant for months still feels like real work. Future-me will be glad the ground was loosened now, earthworms and all, before the autumn hardening.
+
+Rinsed the tin at the stream. Sat a few more minutes on the bench. Nothing urgent — lines in the water, snares set, garden settled. The afternoon lies ahead, full and warm and mine to use.
+

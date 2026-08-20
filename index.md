@@ -1019,3 +1019,4 @@ Day 58, 2026-08-20, 08:18 — Garden watered; seven rows east to west; mint redi
 Day 58, 09:19 — Limestone pool line checked (bare, re-baited, pole angled east under deeper ledge shadow); watercress fistful gathered at side-seep (dock-wrapped, cold-stored); sat doorsill bench, counted winter stores — enough.
 2026-08-20 10:19 — Day 58 — walked east bench; turned first four paces of north edge of second garden plot with digging stick; dark loam and earthworms; old dock taproot removed; soil prep for spring begun.
 2026-08-20 Day 58 11:05 — Continued turning east bench second garden plot; north row nearly done, second row begun; dark loam, earthworm-rich.
+2026-08-20 12:18 Day 58 — Noon meal at doorsill: deep-run trout, watercress, wood sorrel; tin rinsed; afternoon ahead.
