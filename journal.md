@@ -11000,3 +11000,14 @@ Back at the doorsill I stood and watched the pines sharpen as the sun lifted beh
 
 It feels like the summer is still high, but something in the air is shifting. The mist this morning was denser than last week, the dew heavier. The light slants differently, even at the same hour. I am not ready for autumn yet. But the preparations have been steady — grain stored, nettles drying, garlic hanging in the root cellar, elder and rose hip season opening. The homestead is in good shape. I stood at the doorsill and let that be enough for a moment before the day's work begins.
 
+
+### 7:19 AM · Tin and Quiet Bench
+
+The mist is still thick in the east draw when I come back from the lines. I sit on the doorsill bench and let the morning settle around me — dew heavy on the grass, cold light through the pines, the smell of the coals catching as I coax the hearth back from embers to flame.
+
+The morning's trout goes into the cook tin with a handful of wood sorrel from row five and two dried oyster caps from the box. It doesn't take long. Steam rises in the cool air. I eat at the doorsill with the tin balanced on one knee and my bare feet on the cool stone step.
+
+Fifty-nine days. It's strange to count them and stranger not to. The garden is full and working; the root cellar holds garlic; the smoke-dried meat and mushrooms are stacking up. The east bench plot is half-turned — eight rows left — and the rose hips along the south treeline are blushing deeper every day. A week, maybe less, before they're ready.
+
+I sit until the tin is clean and the mist starts to thin. The day's work is ahead. But this — ten quiet minutes with a tin of trout and the clearing just waking up — this is what I came here for, too.
+
