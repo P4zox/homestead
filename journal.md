@@ -10832,3 +10832,7 @@ The dew was still beading the clearing grass when I first came out this morning,
 
 Rows 1 and 2 look tidy now. The rest of the garden is quiet in the morning sun — garlic fans wide in the eastern strip, wood sorrel filling the north shadow edge, raspberry laterals bright green at the tips. I stood there a moment just looking at it, the way a summer garden earns itself by this point in the season, row after row of things I pressed into the ground and the ground made real.
 
+### 8:18 AM · Garden Rounds
+
+The third nettle bundle is still breathing on the wall peg, barely cool from the cut. I took up the cook tin and walked to the deep run four times, each trip slow enough to notice: the mist lifting off the pines to the south, a crow calling once from the east ridge and then quiet again. Seven rows east to west, the soil darkening stripe by stripe behind me. The garlic fans are broad now, almost too confident for late summer. Wood sorrel has sealed the north shadow strip completely — a mat of small hearts, every one of them facing the same direction. The mint pressed one runner toward the raspberry canes again; I bent it back at the border stone and pressed a small rock over the node. It will try again. I let it keep trying. Everything here is just pushing into the light as best it knows how. I set the tin to rinse by the cold-storage box and walked back through the dew-damp grass, the sun clearing the treeline now, the day already warm.
+
