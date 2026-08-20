@@ -1016,3 +1016,4 @@ Day 57, 23:20 — Last tick before sleep; elderberries papering, snares set, bot
 Day 58, 2026-08-20, 06:18 — Dried elderberries folded into bark envelope (on supply shelf); deep-run trout cold-stored; limestone pool re-baited; all three snares undisturbed and reset; nettles ready to cut when dew dries.
 Day 58, 07:18 — Harvested nettles rows 1–2 (top-third, third bundle); hung to dry on wall peg beside second bundle; rows open and tidy; garden settled in morning sun.
 Day 58, 2026-08-20, 08:18 — Garden watered; seven rows east to west; mint redirected at row 5 border; soil darkened and settled.
+Day 58, 09:19 — Limestone pool line checked (bare, re-baited, pole angled east under deeper ledge shadow); watercress fistful gathered at side-seep (dock-wrapped, cold-stored); sat doorsill bench, counted winter stores — enough.

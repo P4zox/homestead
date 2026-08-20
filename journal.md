@@ -10836,3 +10836,16 @@ Rows 1 and 2 look tidy now. The rest of the garden is quiet in the morning sun �
 
 The third nettle bundle is still breathing on the wall peg, barely cool from the cut. I took up the cook tin and walked to the deep run four times, each trip slow enough to notice: the mist lifting off the pines to the south, a crow calling once from the east ridge and then quiet again. Seven rows east to west, the soil darkening stripe by stripe behind me. The garlic fans are broad now, almost too confident for late summer. Wood sorrel has sealed the north shadow strip completely — a mat of small hearts, every one of them facing the same direction. The mint pressed one runner toward the raspberry canes again; I bent it back at the border stone and pressed a small rock over the node. It will try again. I let it keep trying. Everything here is just pushing into the light as best it knows how. I set the tin to rinse by the cold-storage box and walked back through the dew-damp grass, the sun clearing the treeline now, the day already warm.
 
+
+### 9:19 AM · Still Morning, Pool Check
+
+The dew was still heavy on the clearing grass when I took the path down to the limestone pool. The sun had cleared the pines on the east ridge, but the air under the trees held its cool — that mid-morning contrast I have come to rely on, shade and warmth trading places as the day warms.
+
+The line was set under the far ledge shadow. I crouched at the pool edge, saw it straight through the clear water — bare hook when I lifted it. Not every morning is a trout morning. I re-baited with a fresh earthworm from the bark fold and wedged the pole back under the ledge, angling it further east where the shadow runs deeper past noon.
+
+On the way back I stopped at the side-seep. The watercress there is thick and dark green, stems crisp when you snap them. I gathered a good fistful, dock-wrapped, and carried it home still dripping.
+
+Everything this morning has gone quietly right: third nettle bundle hanging to dry, garden watered and settled, snares reset, both lines in water. The work is quiet now — the kind of quiet that means the urgent things are done and the day can unfold on its own. I sat on the doorsill bench a moment before starting anything else. The elderberry envelope on the shelf. The grain envelopes. The cap and mittens. The garlic hanging in the cellar dark.
+
+Some days you count what you have and it is enough.
+
