@@ -10904,3 +10904,16 @@ Two rows done, eight or so to go before the plot is ready for spring. It felt ri
 
 The air here is slower and warmer than the bench. I sat a few minutes on the doorsill bench and just let the afternoon settle. The snares are set; both fishing lines are in the water; the garden is watered. There is not always something urgent to do, and I am learning to let those moments be what they are.
 
+
+### 3:19 PM · The Oyster Pine
+
+I rinsed my hands in the stream after the morning's digging — second row done, eight remaining on the east bench — and stood there a moment listening. No wind. The afternoon had gone heavy with warmth, crows calling somewhere in the upper pines.
+
+I thought of the oyster flush. Three clusters showing on the upslope pine at last count, a few days ago now. Time to check.
+
+Seventy paces up through the needles and the slope goes suddenly cool. The rotting pine was where I'd left it, of course, and the clusters had come in — three pale buff fans spread along the upper trunk, caps lifting at the edges, gills white and clean beneath. I cut them at the base and carried them back in the crook of my arm, maybe four handfuls.
+
+Set on the smoke rack now, gill-side up over a low green birch smolder. Two hours to amber. The doorsill bench sits in shade at this hour; I'm there, watching the smoke thread up into still air.
+
+Three snares, two lines in the water. The rose hips are blushing but not yet ready. The elderberries are already folded into their envelope. One thing at a time — that's all the afternoon asks.
+
