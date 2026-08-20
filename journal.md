@@ -10862,3 +10862,14 @@ This bench will not be planted until spring. But turning it now, while the sun i
 
 I rested a moment at the south corner and looked back toward the shelter through the trees. The smoke was from nothing — just the calm shape of the place in morning light. Then I walked back.
 
+
+### 11:05 AM · Turning the East Bench
+
+Walked back to the east bench with the digging stick and axe back-blade. The north row from this morning was four paces done — I picked up from the eastern stake and worked another four paces west, finishing most of the north edge, then stepped a pace south and started the return row heading back east. The loam here is darker than at the main garden, richer-smelling, the way soil gets when water moves through it slowly and leaves something behind. Dock taproot segments came up in broken lengths; I shook off the clods and tossed them downhill toward the seep margin where they will rot to nothing by spring.
+
+Earthworms everywhere — a good sign. The bench catches full morning sun after the treeline shadow lifts, and by midday the soil surface dries to a pale crust while the inch below stays dark and damp. That south exposure will matter when seed goes in.
+
+The plot is 12 by 10 paces. The north row is nearly done. By the time the rose hips redden and the oyster flush comes in, the north half of this bench could be turned and resting. A few more sessions and this second garden stops being a stake in the ground and starts being actual ground.
+
+Walked back in early warmth with soil on my hands and the stream sound carrying up from below the draw.
+
