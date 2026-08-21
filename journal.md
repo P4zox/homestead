@@ -11150,3 +11150,12 @@ I turned the lamp-flint in my fingers earlier and set it on the shelf. Everythin
 
 The coals dim. The night is warm still but the dew will be heavy by four. Sleep.
 
+
+### 10:23 PM · Ember-Watch, Near Sleep
+
+Lying on the cattail mat with the hearthstone breathing its last warmth, I cannot quite fall asleep yet. The owl that has been calling from the northwest is still at it — two soft notes, a pause, two more — and the stream runs its steady low note below the treeline. The shelter is very still. All that remains of the fire is a thin ribbon of orange along one log, and the smell of woodsmoke hanging sweet in the rafters.
+
+I count through what I can see without moving: birch basket at the door for the rose hips. Cord coils on the supply shelf. Herb envelopes, grain envelopes, all tidy. The east bench second garden plot behind the treeline — ten rows, deep loose loam throughout, earthworms dense, ready for spring. That one is done. I do not need to carry it into tomorrow's worry.
+
+The rose hips will be there at first light. The trout lines are set. The snares are set. Tonight I can only lie here and let the coals finish their dimming, let the owl have the dark air. Sleep is very near.
+
