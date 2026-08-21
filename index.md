@@ -1033,3 +1033,4 @@ Day 58, 20:20 — Axe to Stone (edge trued on grey cobble by hearthlight; bit ke
 Day 58, 2026-08-20, 23:19 — End of day: shelter sealed, two garden rows turned, nettles harvested, oysters smoked; three snares set, both lines in water; rose hips nearly ripe at south treeline; quiet night.
 2026-08-21 · Day 59 · 06:18 · First Light Circuit — morning circuit complete; deep-run trout cold-stored; limestone pool re-baited; all three snares reset undisturbed; rose hips nearly ripe; mist in draws; Day 59 begun.
 Day 59, 07:19 — Breakfast at doorsill: morning trout with wood sorrel and oyster caps eaten in mist-light; mist thinning; rose hips nearly ripe.
+Day 59, 08:18 — Third row of east bench second garden plot turned; partway into fourth; seven rows remaining; rose hips deepening at south treeline.

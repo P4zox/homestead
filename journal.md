@@ -11011,3 +11011,12 @@ Fifty-nine days. It's strange to count them and stranger not to. The garden is f
 
 I sit until the tin is clean and the mist starts to thin. The day's work is ahead. But this — ten quiet minutes with a tin of trout and the clearing just waking up — this is what I came here for, too.
 
+
+### 8:18 AM · Third Row Turned
+
+The mist was still draped in the east draw as I set out with digging stick and axe. The bench catches the sun early — the land tilts just so — and by the time I reached it the warmth was already on my shoulders. I worked the third row end to end: digging stick first, breaking clods and opening the soil, axe-back crumbling any harder patches between strokes. Dark loam throughout, worms in good number, and one long dock taproot at the eastern margin that came up in segments after three careful passes. Tossed the segments off the slope and moved on.
+
+I pushed well into the fourth row before the sun cleared the pines. The soil there felt looser than the untouched ground farther down — as though the first two rows' turning had shifted things slightly, softening the next strip before I even arrived. The work went faster than expected.
+
+Seven rows remain. I am not in a hurry; turning them well matters more than turning them fast, and spring planting will go easier for it. But the rhythm is there, and the mornings have been clear. Walked back down in brightening light, checked the limestone pool line on the way — bait still on, pole wedged firm — and stood a moment at the south treeline where the rose hips are deepening. A few more days, I think, before they are fully ripe.
+
