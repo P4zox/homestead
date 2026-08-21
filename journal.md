@@ -11093,3 +11093,10 @@ I came back to the clearing with the digging stick over my shoulder and the afte
 
 The rose hips are deep burgundy along the south treeline. Tomorrow morning at first light, birch basket in hand.
 
+### 5:18 PM · Supper, Garden Done
+
+The cook tin came off the coals as the sun slid behind the west pines and spread amber light across the clearing. Watercress from the shoulder bag, wood sorrel stripped from row five, the afternoon limestone pool trout, two dried oyster caps — all heated together, the steam rising sharp and green. I ate at the doorsill bench with the light going honey-warm on the garden below.
+
+The east bench plot is finished. All ten rows turned end to end, dark loam throughout, dock taproot stand nearly done. The soil is deep and loose and ready — it will sleep through winter and receive seed in spring. I am glad to have it behind me. Across the south treeline the rose hips are blazing deep burgundy, fully ripe, waiting on tomorrow. At first light I'll take the birch basket down and pick them while the dew is still on.
+
+Both lines are in the water. Three snares set. A length of cord to twist by hearthlight, then sleep.
