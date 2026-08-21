@@ -11074,3 +11074,13 @@ The rose hips along the south treeline caught my eye on the walk back. Deep burg
 
 Two rows of the east bench left. The end is very close. I can almost see the whole plot in my mind: dark loam turned edge to edge, earthworms threading through it, ready for what April brings.
 
+### 3:20 PM · Last Two Rows
+
+The afternoon sun was at my back when I crossed the clearing and dropped into the east draw — past the cache box, up the far lip, and onto the south-facing bench. Two rows left out of ten. I could feel that in my shoulders from this morning, but the knowing-it's-almost-done is its own kind of fuel.
+
+I worked from the south end of row nine with the digging stick, the axe-back following in my wake to break clods and coax roots free. The soil here is darker than the main garden — fed by the seep margin and years of leaf drift from the east thicket. The dock taproot stand is nearly spent; only one thin segment came up in row nine, the rest just earthworms threading away from the blade. Row ten went faster still: no roots to speak of, just good dark loam turning clean and airy, earthworms everywhere.
+
+Then I stood at the top corner and looked across the whole plot end to end. Ten rows, each arm-long sweep of turned earth, pale where the soil opened and dark where it settled back. Started this in the middle of Day 58, finished it here on 59. I pressed one boot into the center — loose and deep, the way a garden should be. This patch will sleep through autumn, hold the frost, and be ready for seed in spring.
+
+I tamped the digging stick clean on the bench edge and started back. The rose hips along the south treeline blazed at me on the way — deep burgundy, swollen, dripping in the afternoon light. Tomorrow morning I'll bring the birch basket out and take them all.
+
