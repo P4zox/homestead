@@ -11184,3 +11184,14 @@ I carried it back in the early light, the weight of it satisfying against my hip
 
 The mist is lifting off the clearing. The second garden plot is ready and waiting in the east draw, spring-ready after yesterday's work. The rose hips will be dried and packed away before the week is out, and when they are, that's one more real thing laid in against what's coming.
 
+
+### 7:18 AM · The Morning Circuit
+
+The mist was still sitting thick at the treeline when I went out with the spare cord and the cook tin. Both snares on the north garden-edge run were undisturbed — loops still set, trigger sticks in their notches, no sign of traffic overnight. I nudged the triggers back to tension and moved on.
+
+The deep-run overnight line came up bare. I re-notched it with a fresh earthworm from the bait fold and reset it below the undercut bank, pole wedged in under the wet root mat where the current slows. The limestone pool line was bare as well — same treatment: fresh earthworm, pole re-wedged under the far ledge shadow. Both lines are in the water now.
+
+On the way back I stopped at the buried log. It was due — just past five days since the seventh harvest. I lifted the flat stone and peeled back the bark lid: two pale cream caps, inch-and-a-half across, ivory-domed with their edges curled cleanly inward and clean white gills underneath. I cut them at the stem base with the knife tip and set them in the cook tin. Underneath I could see three tight new pins, each about thumbnail-sized, with that faint white fuzz at the bases. Promising. I laid the lid back and weighted the stone — next check in four or five days.
+
+By the time I was back at the doorsill the sun was fully over the pines and the heavy dew on the workbench was lifting off the rose hips in wisps. The morning round: clear.
+
