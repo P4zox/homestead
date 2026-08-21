@@ -11047,3 +11047,12 @@ The mist has burned off the east draw and the sun is well overhead now. My back 
 
 The rose hips at the south treeline are catching full sun, red and heavy. Tomorrow with the birch basket. Both fishing lines have been in the water since dawn; I will check them at noon. For now the sixth row is done, turned end to end, dark and open to the sky.
 
+
+### 12:18 PM · Seventh Row, Noon Quiet
+
+The sun has moved past the ridge line — straight overhead now, no more morning slant to judge the time by. I came back through the main clearing after the sixth row, watered the cook tin at the stream, and carried on east to the bench plot without stopping long.
+
+The seventh row runs from the edge of the seep draw all the way across to the eastern margin. Loam opened clean under the stick, earthworms rolling free in each furrow. One more dock taproot came out at the far edge — smaller than the past two days, the stand thinning as I work toward the centre of the bench.
+
+Three rows to go. Tomorrow the plot will be turned in full, and then a morning harvest of rose hips from the south treeline before the season shifts. I set the digging stick across the outdoor workbench and came back in. Quiet at noon. The mist burned off the clearing hours ago and the light is flat and warm.
+
