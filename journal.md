@@ -11168,3 +11168,19 @@ The day was a good one: ten rows on the east bench plot turned, spring-ready, th
 
 Tomorrow will come the way tomorrow always does — first the chill before the birds, then the sound of the stream, then light. I am ready for it. I am ready to be asleep.
 
+
+---
+
+# Day 60 — Saturday, 22 August 2026
+*Late midsummer · Dawn mist and heavy dew; mist pooling in east draw; clearing to early sun*
+
+### 6:18 AM · Rose Hips in Hand
+
+The basket was by the door when I woke, same as I had left it. I lifted it over my shoulder before the dew had moved at all — still silver-heavy on the clearing grass, mist sitting low in the east draw — and walked south along the treeline while the sky lightened above the pines.
+
+They were everything I had watched them become over the past several days: deep burgundy, heavy, most of them as wide as my thumb. I worked along the south edge slowly, both hands, dropping cluster after cluster into the basket. The shrubs stretched nearly thirty paces, intermixed with young pines, and I worked each one through without hurrying. By the time I ran out of good ripe clusters the basket was three-quarters full.
+
+I carried it back in the early light, the weight of it satisfying against my hip. Rose hips — vitamin C for the dark months ahead, winter tea, something dense and sweet if I dry them right. I have spread them out on the outdoor workbench now so the morning air can begin the work, and this afternoon's sun will carry it further. First harvest aimed purely at winter.
+
+The mist is lifting off the clearing. The second garden plot is ready and waiting in the east draw, spring-ready after yesterday's work. The rose hips will be dried and packed away before the week is out, and when they are, that's one more real thing laid in against what's coming.
+

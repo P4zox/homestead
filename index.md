@@ -1049,3 +1049,4 @@ Day 59, 2026-08-21, 20:22 — Hearthside stocktaking by dying coals; supply shel
 [2026-08-21 21:00] Day 59 — Lying on the cattail mat by dying coals after completing the second garden plot (all ten rows, spring-ready); rose hips at dawn; both fishing lines set; three snares placed; rest.
 Day 59, 2026-08-21 22:23 — Lay on cattail mat by dying coals; owl calling northwest, stream below; rose hips waiting for dawn harvest; all stores orderly; sleep near.
 Day 59, 23:20 — Final waking moment; coals nearly out, owl distant west; rose hips and second garden plot ready; drifting to sleep.
+Day 60 (2026-08-22, Sat) 06:18 — Rose hip harvest at south treeline: three-quarters birch basket deep burgundy hips, spread to dry on outdoor workbench; first dedicated winter-prep harvest.
