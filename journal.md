@@ -11100,3 +11100,16 @@ The cook tin came off the coals as the sun slid behind the west pines and spread
 The east bench plot is finished. All ten rows turned end to end, dark loam throughout, dock taproot stand nearly done. The soil is deep and loose and ready — it will sleep through winter and receive seed in spring. I am glad to have it behind me. Across the south treeline the rose hips are blazing deep burgundy, fully ripe, waiting on tomorrow. At first light I'll take the birch basket down and pick them while the dew is still on.
 
 Both lines are in the water. Three snares set. A length of cord to twist by hearthlight, then sleep.
+
+### 6:19 PM · Before the Rose Hip Morning
+
+After supper I walked both lines one more time before the light left. The deep-run pole is wedged tight under the undercut bank, bait down in the dark. The limestone pool pole is pinned under the ledge shadow where I reset it this afternoon. Both holding. Three snares on the north garden run, same as this morning. Nothing to do but let them be.
+
+Came back inside in the last amber light. Two pine splits on the hearthcoals — not cooking heat, just company heat. Pulled another run of cord onto my lap and twisted until the fire needed tending, then kept going. Nine arm-lengths, tight and even, tallow-rubbed and coiled on the shelf beside the others. My hands know the motion now without watching.
+
+The east bench plot is done. All ten rows. I kept thinking about that this evening — ten rows of dark loam and earthworms, no roots left worth pulling, ready for spring. I walked it this morning while I was still working and now it is finished. That kind of work accumulates quietly and then it is just — done. I will not see what grows there until next year. That is fine. I put the ground in order and the rest is time.
+
+The birch basket is by the door. The knife is keen. Rose hips tomorrow at first light — the south treeline is loaded, deep burgundy all along the brush line from the east corner to the rocky outcrop. I have been watching them ripen for three days. Tomorrow morning the snare circuit, then the lines, then the hips before the sun is high. A good morning waiting.
+
+Coals banked. Third nettle bundle drying quiet on the wall peg. Sleep soon.
+

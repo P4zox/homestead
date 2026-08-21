@@ -1043,3 +1043,4 @@ Day 59, 14:22 — Checked limestone pool line (bare, re-baited); gathered waterc
 Day 59, 15:20 — Completed the final two rows of the east bench second garden plot; full ten-row turn done; rose hips at south treeline ready for tomorrow's harvest.
 Day 59, 16:19 — Completed east bench second garden plot (all ten rows turned); cord-twisted fourteen arm-lengths two-ply in afternoon light; rose hips ripe for harvest at dawn tomorrow.
 Day 59, 17:18 — Supper (trout, watercress, wood sorrel, oyster caps) at doorsill bench in amber evening light; east bench plot complete; rose hips ripe for harvest tomorrow.
+Day 59, 18:19 — Checked both fishing lines at dusk, hearthlight cord-twisting, rose hip harvest planned for tomorrow morning.
