@@ -11061,3 +11061,16 @@ Three rows to go. Tomorrow the plot will be turned in full, and then a morning h
 
 Five hours of turning and the east bench is showing its shape now — eight rows of dark loam running straight down the slope, open and clear, the clod-smell rising whenever the stick goes in. The dock stand has almost given up its roots; only small fragments came up with this pass, and I left them in a heap at the east margin. Three rows stand between this work and done, two now. The clearing light is sitting warm at midday and I feel the pace of the morning giving way to something steadier. Across the draw the rose hips at the south treeline are red to the stem. Tomorrow I will take the basket south.
 
+
+### 2:22 PM · Pool and Watercress
+
+Six rows of the east bench turned before noon — arms know it. I set the tools against the east wall at the end of the thirteenth hour and let myself follow the stream downstream, which is the oldest kind of rest I know here.
+
+The limestone pool sits in full afternoon shadow by now, that particular green-dark quiet that means something is probably holding near the ledge. The line was taut but not pulled — bait taken clean, hook bare. I re-baited with a fresh earthworm from the bark fold and wedged the pole back under the far ledge overhang. The water said nothing, which is its own kind of peace.
+
+At the side-seep below the deep run, the watercress is dense and dark green, the kind that comes from cold spring water running slow. I pulled a generous fistful — stems crisp, a faint peppery smell that opens up the lungs — dock-wrapped it and tucked it into the shoulder bag beside the fish from this morning. That, and whatever the evening line gives, will be supper.
+
+The rose hips along the south treeline caught my eye on the walk back. Deep burgundy-red, most of them, a few still blushing but most past the point of waiting. Tomorrow morning, birch basket and a slow harvest. They'll dry well by hearthstone into winter — vitamin and flavor both, dried into tea and eaten whole.
+
+Two rows of the east bench left. The end is very close. I can almost see the whole plot in my mind: dark loam turned edge to edge, earthworms threading through it, ready for what April brings.
+
