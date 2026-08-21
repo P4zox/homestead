@@ -11029,3 +11029,14 @@ Six rows remaining now. I am going north to south across the plot, one row at a 
 
 On my way back I stopped and looked at the rose hips along the south treeline. They are getting there — still a little firm at the shoulder, but the color has deepened overnight and the skins are starting to yield to thumb pressure. Another day, maybe two. I am watching them.
 
+
+### 10:18 AM · Row After Row
+
+The mist had all but lifted by the time I came back to the east bench — just a trace of it hanging in the draw to the east, thinning fast. I drank from the bark vessel at the doorsill, watched the pines a moment, and went.
+
+The fifth row went the same as the others: digging stick first where the surface had tightened overnight, then axe-back to chunk and turn the deeper blocks. The loam here surprises me every time — darker than the clearing garden, heavier with humus laid down by years of leaf fall from the draw. Earthworms at almost every stroke. The soil does not need much persuading.
+
+Two more dock taproot remnants at the eastern margin came out in segments, one at a time. Whatever that dock was, it had deep plans. I set the fragments aside on the turned edge and moved west, row by row. Five rows still unturned to the south. The northern half of the plot lies open now, crumbling dark and loose in the mid-morning sun.
+
+On the walk back I stopped at the south treeline for a look at the rose hips. They are very close — skins a deep arterial red on the sunny side, a few past that, toward something almost purple. Tomorrow they will pull with a tug. I will bring the birch basket.
+
