@@ -11040,3 +11040,10 @@ Two more dock taproot remnants at the eastern margin came out in segments, one a
 
 On the walk back I stopped at the south treeline for a look at the rose hips. They are very close — skins a deep arterial red on the sunny side, a few past that, toward something almost purple. Tomorrow they will pull with a tug. I will bring the birch basket.
 
+
+### 11:18 AM · Sixth Row Down
+
+The mist has burned off the east draw and the sun is well overhead now. My back has found the rhythm — digging stick in, lever, flip; axe-back to break the clods. This plot gives without much fight: dark loam, free-draining at the seep margin, earthworms threading through every turn of the stick. I found another dock taproot midway down the row, running shallow and sideways, and eased it out in three sections. Four rows remain after this one. Halfway through the plot now.
+
+The rose hips at the south treeline are catching full sun, red and heavy. Tomorrow with the birch basket. Both fishing lines have been in the water since dawn; I will check them at noon. For now the sixth row is done, turned end to end, dark and open to the sky.
+
