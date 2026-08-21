@@ -11084,3 +11084,12 @@ Then I stood at the top corner and looked across the whole plot end to end. Ten 
 
 I tamped the digging stick clean on the bench edge and started back. The rose hips along the south treeline blazed at me on the way — deep burgundy, swollen, dripping in the afternoon light. Tomorrow morning I'll bring the birch basket out and take them all.
 
+
+### 4:19 PM · Cord, Late Sun
+
+The tenth row is done. I stood at the east bench plot and looked back along it — ten rows of clean dark loam, every dock root pulled, earthworms threading through like the soil itself approving. Twelve paces wide, ten deep. That ground is ready; it will hold through winter and wake in spring soft and rich, and I will seed it when the time comes.
+
+I came back to the clearing with the digging stick over my shoulder and the afternoon light going golden behind the pines. Sat against the south wall of the shelter with a length of inner bark in my lap and twisted cord — the old rhythm that settles the hands when the mind is still full. Fourteen arm-lengths, two-ply, pulled tight and counter-rolled until the coil sat firm. Tallow-rubbed at the end and set on the supply shelf. The cord supply is deep now; I have more than I could use in a season.
+
+The rose hips are deep burgundy along the south treeline. Tomorrow morning at first light, birch basket in hand.
+
