@@ -11137,3 +11137,16 @@ Tomorrow the rose hips. I confirmed the birch basket standing by the door before
 
 Autumn is not here yet but I can smell it in the dew. The mornings bite a little earlier. The mist on the east draw sits longer before the sun lifts it. I notice these things and I am glad to notice them. It means I have been here long enough to know the difference.
 
+
+### 9:00 PM · Embers and Spring
+
+The coals are almost nothing now — a faint orange glow under ash, the heat still coming off the hearthstones in slow, even waves. I am lying on the cattail mat with the sleeping bag half-open around my shoulders, and the cabin is as quiet as it ever gets: the stream below the treeline, an owl somewhere northwest, the occasional shift of the banked coals.
+
+I keep thinking about the second garden. Ten rows, all turned, loam dark and loose, earthworms threading through every fistful. It is not yet a garden — not until spring, not until seed — but it is ready to become one. I have been working on it since yesterday at ten in the morning, row by row, and now it is done and the soil will rest through autumn and winter and be alive and waiting when the light returns.
+
+The birch basket is by the door. The rose hips have been building toward this for weeks: the blushing I noted, the deepening, the full burgundy I walked past this afternoon and knew without question. Tomorrow at first light I will go down along the south treeline with the basket and fill it. Vitamin-rich, tart, good for a long winter. One more store going in before the season turns.
+
+I turned the lamp-flint in my fingers earlier and set it on the shelf. Everything is where it should be. Both fishing lines in the dark water. The snares waiting on the north run. Cord coils on the shelf, herb envelopes beside them, grain in bark-fold packets, garlic hanging in the root cellar's cool air. It took fifty-nine days to build this much. I notice that without pride, just as a fact that holds.
+
+The coals dim. The night is warm still but the dew will be heavy by four. Sleep.
+
