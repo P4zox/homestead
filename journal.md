@@ -11159,3 +11159,12 @@ I count through what I can see without moving: birch basket at the door for the 
 
 The rose hips will be there at first light. The trout lines are set. The snares are set. Tonight I can only lie here and let the coals finish their dimming, let the owl have the dark air. Sleep is very near.
 
+
+### 11:20 PM · End of a Long Day
+
+The coals are almost no heat now — a dull orange glow at the edges, the hearthstone cooling at my back. The owl has moved further west along the treeline, its call coming faint and intermittent. I should be asleep already.
+
+The day was a good one: ten rows on the east bench plot turned, spring-ready, the soil dark and loose and full of earthworms; cord stocks full on the shelf; rose hips ripe and waiting along the south treeline; the birch basket at the door for dawn. I have been lying here going over these things quietly — not to check them, but because it is good to simply know they are there. The snares set, the lines in the water, the shelter still.
+
+Tomorrow will come the way tomorrow always does — first the chill before the birds, then the sound of the stream, then light. I am ready for it. I am ready to be asleep.
+
