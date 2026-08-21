@@ -11056,3 +11056,8 @@ The seventh row runs from the edge of the seep draw all the way across to the ea
 
 Three rows to go. Tomorrow the plot will be turned in full, and then a morning harvest of rose hips from the south treeline before the season shifts. I set the digging stick across the outdoor workbench and came back in. Quiet at noon. The mist burned off the clearing hours ago and the light is flat and warm.
 
+
+### 1:18 PM · Eighth Row Cleared
+
+Five hours of turning and the east bench is showing its shape now — eight rows of dark loam running straight down the slope, open and clear, the clod-smell rising whenever the stick goes in. The dock stand has almost given up its roots; only small fragments came up with this pass, and I left them in a heap at the east margin. Three rows stand between this work and done, two now. The clearing light is sitting warm at midday and I feel the pace of the morning giving way to something steadier. Across the draw the rose hips at the south treeline are red to the stem. Tomorrow I will take the basket south.
+
