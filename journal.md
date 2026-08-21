@@ -11113,3 +11113,16 @@ The birch basket is by the door. The knife is keen. Rose hips tomorrow at first 
 
 Coals banked. Third nettle bundle drying quiet on the wall peg. Sleep soon.
 
+
+### 7:20 PM · Ten Rows, Then Rest
+
+The last cord was twisted an hour ago and the coals are banked. I am sitting on the rush mat by the hearthstone with the door cracked just enough to hear the stream.
+
+Today the east bench second garden plot is done. All ten rows turned — deep loose loam throughout, earthworms dense in every pass. I finished the last row late afternoon and stood there for a moment with the digging stick in my hand, looking at it. Twelve paces by ten paces of broken earth, eighty paces east past the cache-box draw, south-facing, free-draining along the seep margin. It will not be planted until spring. But it is ready.
+
+That matters more than it should, perhaps. I will not taste anything from that ground for another six or seven months. But there is something in having done the turning now — while the season still carries warmth, while the loam breaks easily — rather than scrambling in the mud of early spring when everything else needs doing at once. This is this year's work placed into next year. I like that arrangement.
+
+The rose hips are blazing burgundy along the south treeline. I inspected them on the walk back from the limestone pool this afternoon: fully ripe, most of them, deep as old wine in the slant light. Tomorrow at first light I will go with the birch basket and strip what I can reach. Rose hips for winter tea, beside the yarrow and red clover and plantain already folded into bark envelopes on the supply shelf. The cold will come. I want to meet it with a full shelf.
+
+The hearth is only coals now — a dull orange glow. Outside: stream sound, frogs at the meadow edge, the pines breathing. Quiet. Day 59. Fifty-nine days since I had almost nothing. It seems like a long time and also, somehow, not.
+
