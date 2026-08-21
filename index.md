@@ -1045,3 +1045,4 @@ Day 59, 16:19 — Completed east bench second garden plot (all ten rows turned);
 Day 59, 17:18 — Supper (trout, watercress, wood sorrel, oyster caps) at doorsill bench in amber evening light; east bench plot complete; rose hips ripe for harvest tomorrow.
 Day 59, 18:19 — Checked both fishing lines at dusk, hearthlight cord-twisting, rose hip harvest planned for tomorrow morning.
 2026-08-21 Day 59 19:20 — Evening reflection by hearthlight; east bench second garden plot fully turned (all ten rows, spring-ready); rose hips fully ripe, harvest planned at dawn.
+Day 59, 2026-08-21, 20:22 — Hearthside stocktaking by dying coals; supply shelf, herb envelopes, grain packets, cord coils all confirmed orderly; birch basket set by door for dawn rose hip harvest.

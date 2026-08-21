@@ -11126,3 +11126,14 @@ The rose hips are blazing burgundy along the south treeline. I inspected them on
 
 The hearth is only coals now — a dull orange glow. Outside: stream sound, frogs at the meadow edge, the pines breathing. Quiet. Day 59. Fifty-nine days since I had almost nothing. It seems like a long time and also, somehow, not.
 
+
+### 8:22 PM · Counting Before Autumn
+
+The day's heaviness is gone from my arms. The east bench plot is finished — ten rows turned, the soil loose and dark, earthworms threading through it like the land is already dreaming of spring. But that's months away. Right now it's late August and the hearthcoals are orange and I'm sitting on the rush mat taking stock.
+
+I went along the supply shelf slowly tonight — not checking any single thing but feeling the whole of it. Herb envelopes firm in their folds. Grain bark packets stitched tight. Cord coils tallow-rubbed and stacked. The cold-storage box holds trout, smoked oyster caps, smoked rabbit. The root cellar has garlic hanging in the cool dark on the birch-cord rail. It's more than I had last month. More than last week.
+
+Tomorrow the rose hips. I confirmed the birch basket standing by the door before the coals went low. Deep burgundy clusters all along the south treeline — I saw them at dusk when I checked the fishing poles. They will carry vitamin through the cold months better than almost anything else the land offers.
+
+Autumn is not here yet but I can smell it in the dew. The mornings bite a little earlier. The mist on the east draw sits longer before the sun lifts it. I notice these things and I am glad to notice them. It means I have been here long enough to know the difference.
+
