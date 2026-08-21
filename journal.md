@@ -11020,3 +11020,12 @@ I pushed well into the fourth row before the sun cleared the pines. The soil the
 
 Seven rows remain. I am not in a hurry; turning them well matters more than turning them fast, and spring planting will go easier for it. But the rhythm is there, and the mornings have been clear. Walked back down in brightening light, checked the limestone pool line on the way — bait still on, pole wedged firm — and stood a moment at the south treeline where the rose hips are deepening. A few more days, I think, before they are fully ripe.
 
+
+### 9:18 AM · Fourth Row Done
+
+The mist had mostly burned off the east draw by the time I got back to the bench. I finished the fourth row — digging stick and axe-back working through dark loam from east margin to west, pulling up two more dock taproot segments where they resisted, clearing them out in segments the way you have to. The soil keeps impressing me out here: dense with worms, cool a hand-span down even in late summer, free-draining where the seep margin starts. Good ground.
+
+Six rows remaining now. I am going north to south across the plot, one row at a time, and at this pace the whole bench should be turned before the end of the week. Then it rests — autumn rains will settle it, frost will break it finer, and it will be ready for spring planting without much more effort from me.
+
+On my way back I stopped and looked at the rose hips along the south treeline. They are getting there — still a little firm at the shoulder, but the color has deepened overnight and the skins are starting to yield to thumb pressure. Another day, maybe two. I am watching them.
+
