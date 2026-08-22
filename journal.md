@@ -11215,3 +11215,14 @@ Day 60. Sixty mornings I have woken here. The clearing is beginning to feel, fin
 
 The hips will need two more days before they are dry enough to fold into an envelope. I will bring them inside before the evening dew settles. For now I stand in the late-summer sun, turning them one by one, and let the quiet of a Saturday morning sit with me.
 
+
+### 10:05 AM · Poolside Breakfast
+
+The rose hips were turning well in the morning sun — no need to watch them — so I took the cook tin and walked downstream to the limestone pool. The mist had burned off the run by then, and the water ran clear green over the limestone ledges, cold-shadowed beneath where the pole rides against the bank.
+
+The line was bowed. A good seven-inch trout, turning silver as I drew it in. I cleaned it at the flat pool stone — water clearing everything quickly — and gathered a handful of wood sorrel from the stand at the stream bend. Small bank fire, just enough. I ate beside the water with the tin balanced on a root, the fish hot and clean, the sorrel bright against it.
+
+The morning had already been full: the harvest walk in the dew, the circuit, the garden, four turns of the rose hips. This was something quieter — a pause in it, a meal away from the doorsill with the pool running alongside. The day still ahead, the hips drying, the snares set.
+
+Line re-baited with a fresh earthworm and reset deep under the far ledge. Both lines in water for the afternoon.
+
