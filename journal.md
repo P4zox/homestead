@@ -11277,3 +11277,16 @@ On the way back I stopped at the side-seep below the deep run and pulled a fistf
 
 Passed the outdoor workbench on the way in. The rose hips were still spread in the afternoon light, deep burgundy, most of them dry to the touch now. I will bring them inside before the dew rises. Another day and they will be ready to fold into bark envelopes and set in the root cellar beside the garlic — winter medicine stored quietly in summer while I am still warm.
 
+
+### 3:18 PM · Dark Berries, Examined
+
+Sat at the doorsill bench with the sprig from the east-draw thicket — the unknown one I brought back at midday. Rose hips still spread on the outdoor workbench, moving slowly from cool-damp to paper-dry in the afternoon sun. I had an hour and a question to answer.
+
+The sprig has flat-topped clusters — five or six small dark berries per head, held on thin forking stems that radiate from a single point at the top of the stalk. The berries themselves are deep purple-black, almost the same shade as the elderberries I picked from the lower thicket last week. The leaves are compound: five to seven leaflets on a ribbed central stalk, edges toothed. When I scraped the outer bark with my thumbnail, it came away pale gray-green, and underneath, the wood was soft and pithy — hollow almost when I pressed it hard with my nail. That pithiness is the thing I remember from the elder bushes below the east thicket.
+
+I think it is elder. A second stand, inside the east-draw itself, hemmed in by alder and old dock, which is why I walked past it a dozen times without noticing. The leaf shape matches the plants I know, the berry clusters look the same, and the pithy hollow stem is the detail I trust most — it is characteristic enough that I would not expect it from something else in this forest.
+
+I am not going to eat the berries from this sample. I want to see the whole bush first — the full form, how many clusters remain on the branches, how the bark reads at the base. But I am not worried. Tomorrow or the next day I will walk the east-draw carefully and find where this sprig was pulled from. If the parent bush is elder, there may be half a basket of berries I missed entirely, still waiting on branches.
+
+The sprig I set aside in a dry corner of the supply shelf. The rose hips are nearly done. I will bring them in an hour before the light goes.
+
