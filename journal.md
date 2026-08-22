@@ -11348,3 +11348,12 @@ Sixty days. I tried to count back — the first pine felled, the first fire insi
 
 Both lines are set in the water. Both snares are on the rabbit run. The rose hips will finish by morning. The day has been long and good. I pulled the door shut — the bar drops, settles — and lay down.
 
+
+### 11:18 PM · Embers, Then Dark
+
+At this hour it is only the slow dimming of coals, the faint sweet scent of rose hips finishing on doubled birch bark by the hearthstone, and the weight of sixty days settling into ease. I am on the cattail mat inside the sleeping bag, listening to the forest go perfectly still. No wind. Stars somewhere above the bark roof.
+
+Everything is in order. The snares are set. Both lines are in the water. The door is latched and the shelter is warm and sealed. Sixty days of building — all of it held by something so simple: a dry place, food in the cold-storage box, seeds in the ground for spring. I keep expecting it to feel finished, but it never does quite that way. It feels more like a rhythm caught.
+
+There is a second garden plot turned and waiting. Dried nettles hang on the wall peg. A row of garlic hangs in the root cellar. Tomorrow I will walk the east draw and follow that elder sprig to its source. But that is tomorrow. Tonight I let the coals do their slow work, and close my eyes.
+

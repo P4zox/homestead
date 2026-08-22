@@ -15,3 +15,4 @@
 20:00 — Rose hips sorted by hearthlight: firm batch (~palm's worth, paper-dry) folded into new bark envelope and stitched shut with three passes two-ply cord — on supply shelf beside grain and elderberry envelopes; ~sixty softer hips left on doubled birch bark near hearthstone to finish overnight.
 21:00 — Tended drying rose hips by hearthstone: turned the soft batch once on doubled birch bark, softest edge nearest coals; most now paper-dry; remainder to finish overnight; birch basket set at door for east-draw elder walk at dawn; sat by banked hearth as Day 60 closed.
 22:00 — Settled in for sleep: banked hearth coals, door latch set, rose hips finishing by coals overnight; reflected on sixty days complete; birch basket at door for dawn elder-draw walk.
+23:18 — Lying in sleeping bag listening to night: embers dying slowly, rose hips scenting the shelter with faint sweetness; sixty days settled into ease; tomorrow east-draw elder walk at dawn.

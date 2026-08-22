@@ -1065,3 +1065,4 @@ Day 60, 2026-08-22, 19:00 — Hearthlight, Day Sixty: evening cord-twisting at h
 Day 60, 20:00 — Sorted rose hips by hearthlight; firm batch (palm's worth) folded into bark envelope and stitched shut, on supply shelf; ~60 soft hips left on doubled birch bark near hearthstone to finish overnight.
 2026-08-22 Day 60, 21:00 — Tended soft rose hips by hearthstone; turned on doubled birch bark; most paper-dry; birch basket set at door for east-draw elder walk at dawn; Day 60 closed by banked hearth.
 2026-08-22 Day 60, 22:00 — Settled in for the night; banked hearth, rose hips drying by coals, reflected on sixty days; basket at door for dawn elder-draw walk.
+Day 60, 23:18 — Last waking hour: lying in sleeping bag, embers dying, rose hips scenting the shelter; quiet reflection on sixty days complete; sleep approaching.
