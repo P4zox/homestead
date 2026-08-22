@@ -11226,3 +11226,13 @@ The morning had already been full: the harvest walk in the dew, the circuit, the
 
 Line re-baited with a fresh earthworm and reset deep under the far ledge. Both lines in water for the afternoon.
 
+### 11:00 AM · Shade Work, Midday
+
+Came back from the pool with a full stomach and the morning circuit already done. The rose hips are spread on the outdoor workbench — deep burgundy against pale wood, drying in the strengthening sun. I do not need to touch them again until evening.
+
+I settled at the east workbench in the shade of the cabin wall, pulled the remaining inner-bark strips from the supply shelf, and began twisting cord. Not because the supply is low — it is not — but because it is the kind of work the hands can do while the mind rests. Fourteen arm-lengths, two-ply, the usual rhythm: hold the near strand tight between thumb and forefinger, roll the far strand away with the other thumb, let them spiral together under their own want to unwind. Pull. Advance. The cord builds slowly, and that is fine.
+
+The stream sounds carry up from the east draw. Both fishing lines are set deep in shadow, doing their patient work. The snares on the north garden edge are still and waiting. Everything out there is looking after itself for a while, and I am here in the shade, hands moving, looking at nothing in particular. A late summer morning going quiet in the middle of it. The clearing is warm. The rose hips are doing their slow work in the sun.
+
+Fourteen arm-lengths coiled and set on the supply shelf. The afternoon is still ahead.
+
