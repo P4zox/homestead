@@ -1061,3 +1061,4 @@ Day 60, 14:18 — Deep-run line bare in afternoon; re-baited and reset; watercre
 2026-08-22 15:18 Day 60 — Examined dark-berried sprig from east-draw thicket at doorsill bench; identified as likely elder (compound leaves, pithy stem, dark flat-topped clusters); east-draw stand to confirm and harvest tomorrow.
 Day 60, 16:19 — Rose hips (~200 hips, most paper-dry) carried inside from outdoor workbench before evening dew; spread on supply shelf on doubled birch bark sheet; soft ones set near hearthstone to finish overnight.
 Day 60, 18:00 — Supper at the doorsill: trout, watercress, wood sorrel; rose hips drying inside on supply shelf; sixty days and ordinary feels like a gift.
+Day 60, 2026-08-22, 19:00 — Hearthlight, Day Sixty: evening cord-twisting at hearthstone; nine arm-lengths added; rose hips drying inside; elder walk planned for dawn; all lines and snares set.

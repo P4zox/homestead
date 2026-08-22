@@ -11307,3 +11307,12 @@ Raked the ash back on the morning coals and set the cook tin going — one cold-
 I ate at the doorsill bench as the light went amber. The clearing was very quiet. Inside, the rose hips spread on the shelf smelled faintly sweet — you don't notice it until the air cools toward evening and the scent settles in. Tin rinsed, coals banked. Both lines are in water; the snares are set. The elder question can wait until tomorrow. I'm inside, it's dry, the hearth is warm.
 
 That feels like a full day.
+
+### 7:00 PM · Hearthlight, Day Sixty
+
+Evening settling over the clearing. The rose hips give off a faint sweet smell from the supply shelf — somewhere between dried apple and something sharper, tarter — and the coals are banked low under their ash from supper. I sit down at the hearthstone with a palm of bark strips and start twisting cord. The motion is easy after sixty evenings of it.
+
+Sixty days. I took quiet stock at noon in the east-pine shade, but sitting here now — fire low, dew settling outside, rope growing in my hands — the weight of it reaches me more fully. The shelter is tight. The garden is green and still giving. The root cellar holds cured garlic on its rail. The supply shelf holds smoke-dried fish and rabbit and three envelopes of grain and herb folds for winter tea. There is still work before the hard freeze — more firewood, more drying, the rose hips to finish, the elder bush to confirm and harvest if it is what I think it is — but the foundation is real. I am not the person who woke here with a tent and an axe and almost nothing.
+
+Nine arm-lengths of two-ply cord twisted and coiled to the supply shelf before the fire dies to coals. The elder-sprig still sits at the far end of the shelf, waiting for morning. Both fishing lines and both snares are set and active in the dark outside. Tonight is hearthlight and the faint sweet smell of rose hips drying, and that is enough.
+
