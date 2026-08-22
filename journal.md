@@ -11327,3 +11327,13 @@ The soft ones — sixty or so — stayed on the doubled bark sheet, a hand's bre
 
 Sixty days. The shelf holds more than I planned for it to hold by now. I didn't manage it, exactly — I just kept moving, and the moving added up.
 
+### 9:19 PM · Sixty Days, Still Hearth
+
+The soft rose hips are spread on doubled birch bark by the hearthstone. I turned them once — put the softest edge nearest the coals — and then sat back against the south wall to let the night do the rest. The ones closest to the heat are paper-dry already. The back edge still gives a little. By morning they will all be ready to envelope.
+
+The elder sprig is on the shelf. The birch basket is at the door for the east-draw walk at dawn. Both fishing lines in the stream, both snares on the rabbit run. Sixty days and the shelter holds everything I could want.
+
+I keep turning sixty over in my head. That first morning with the axe and the tent and the cold ground — I had no idea any of this was coming. Now I am sitting by my own hearth, inside walls I built log by log, watching rose hips dry by fire I lit myself. That is the whole thing, really. Just that.
+
+The hips will be done by morning. The elder draw will wait for first light. The door is latched and the hearth is banked. That is enough.
+
