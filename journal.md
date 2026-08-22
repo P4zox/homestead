@@ -11299,3 +11299,11 @@ Two hundred hips is not a large harvest in terms of weight, but it feels signifi
 
 The dark-berried sprig from the east-draw thicket is still on the supply shelf. Tomorrow I will walk the draw and find the parent bush. If it is elder, those clusters should come in while they still hold.
 
+
+### 6:00 PM · Supper at the Doorsill
+
+Raked the ash back on the morning coals and set the cook tin going — one cold-stored trout, watercress from this afternoon, wood sorrel from row 5. Not much ceremony, just routine. That's the thing about sixty days: some of this has become ordinary, and ordinary is exactly what I wanted.
+
+I ate at the doorsill bench as the light went amber. The clearing was very quiet. Inside, the rose hips spread on the shelf smelled faintly sweet — you don't notice it until the air cools toward evening and the scent settles in. Tin rinsed, coals banked. Both lines are in water; the snares are set. The elder question can wait until tomorrow. I'm inside, it's dry, the hearth is warm.
+
+That feels like a full day.

@@ -1060,3 +1060,4 @@ Day 60, 1:19 PM — South margin walk: south and east treeline circuited; elder 
 Day 60, 14:18 — Deep-run line bare in afternoon; re-baited and reset; watercress fistful gathered at side-seep, dock-wrapped for supper; rose hips drying on workbench, most firm to touch.
 2026-08-22 15:18 Day 60 — Examined dark-berried sprig from east-draw thicket at doorsill bench; identified as likely elder (compound leaves, pithy stem, dark flat-topped clusters); east-draw stand to confirm and harvest tomorrow.
 Day 60, 16:19 — Rose hips (~200 hips, most paper-dry) carried inside from outdoor workbench before evening dew; spread on supply shelf on doubled birch bark sheet; soft ones set near hearthstone to finish overnight.
+Day 60, 18:00 — Supper at the doorsill: trout, watercress, wood sorrel; rose hips drying inside on supply shelf; sixty days and ordinary feels like a gift.
