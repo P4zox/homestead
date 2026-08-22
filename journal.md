@@ -11290,3 +11290,12 @@ I am not going to eat the berries from this sample. I want to see the whole bush
 
 The sprig I set aside in a dry corner of the supply shelf. The rose hips are nearly done. I will bring them in an hour before the light goes.
 
+
+### 4:19 PM · Hips Inside
+
+The hips have been out all day, two hundred of them spread stem-end up on the outdoor workbench in whatever sun would come. By mid-afternoon most were paper-dry to the touch. I brought them in two trips — cupped in both hands, carrying the birch bark sheet like a wide tray, walking slow so none rolled into the grass. They are on the supply shelf now, spread on a doubled sheet of birch bark with a little room between them to breathe. The few that still feel soft I set closest to the hearthstone, where the warmth will finish them overnight.
+
+Two hundred hips is not a large harvest in terms of weight, but it feels significant. I kept thinking that as I worked. Each one a small store against January. The evening light is already changing quality — still warm, still the long amber of a late August afternoon, but something in the air tells you the dew is coming. The hips are inside before it matters. That is the whole point of the afternoon.
+
+The dark-berried sprig from the east-draw thicket is still on the supply shelf. Tomorrow I will walk the draw and find the parent bush. If it is elder, those clusters should come in while they still hold.
+
