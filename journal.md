@@ -11316,3 +11316,14 @@ Sixty days. I took quiet stock at noon in the east-pine shade, but sitting here 
 
 Nine arm-lengths of two-ply cord twisted and coiled to the supply shelf before the fire dies to coals. The elder-sprig still sits at the far end of the shelf, waiting for morning. Both fishing lines and both snares are set and active in the dark outside. Tonight is hearthlight and the faint sweet smell of rose hips drying, and that is enough.
 
+
+### 8:00 PM · Sorting Hips by Hearthlight
+
+Sat cross-legged at the hearthstone after the cord-twisting, the fire burned to coals. Pulled the doubled birch-bark sheet of rose hips closer into the warmth and began sorting through them one by one. The ones that had been near the hearthstone since mid-afternoon were gone paper-firm — a satisfying squeeze that gives nothing, just a dense round shell with the faint sweet smell of something preserved.
+
+I sorted by feel: firm ones into a pile to the left, soft ones pushed back toward the heat for the night. The firm pile grew slowly — maybe a palm's worth, maybe a little more — small, wrinkled, deep burgundy. When I had what I thought was the ready batch, I cut a strip from the bark offcut pile, folded it into a tight envelope, loaded the dry hips in, stitched the end with three passes of two-ply cord, and set it on the supply shelf between the grain envelopes and the elderberry packet.
+
+The soft ones — sixty or so — stayed on the doubled bark sheet, a hand's breadth closer to the coals than before. They'll finish overnight in the warmth and still air.
+
+Sixty days. The shelf holds more than I planned for it to hold by now. I didn't manage it, exactly — I just kept moving, and the moving added up.
+

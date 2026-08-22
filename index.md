@@ -1062,3 +1062,4 @@ Day 60, 14:18 — Deep-run line bare in afternoon; re-baited and reset; watercre
 Day 60, 16:19 — Rose hips (~200 hips, most paper-dry) carried inside from outdoor workbench before evening dew; spread on supply shelf on doubled birch bark sheet; soft ones set near hearthstone to finish overnight.
 Day 60, 18:00 — Supper at the doorsill: trout, watercress, wood sorrel; rose hips drying inside on supply shelf; sixty days and ordinary feels like a gift.
 Day 60, 2026-08-22, 19:00 — Hearthlight, Day Sixty: evening cord-twisting at hearthstone; nine arm-lengths added; rose hips drying inside; elder walk planned for dawn; all lines and snares set.
+Day 60, 20:00 — Sorted rose hips by hearthlight; firm batch (palm's worth) folded into bark envelope and stitched shut, on supply shelf; ~60 soft hips left on doubled birch bark near hearthstone to finish overnight.
