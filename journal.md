@@ -11357,3 +11357,21 @@ Everything is in order. The snares are set. Both lines are in the water. The doo
 
 There is a second garden plot turned and waiting. Dried nettles hang on the wall peg. A row of garlic hangs in the root cellar. Tomorrow I will walk the east draw and follow that elder sprig to its source. But that is tomorrow. Tonight I let the coals do their slow work, and close my eyes.
 
+
+---
+
+# Day 61 — Sunday, 23 August 2026
+*Late midsummer · Dawn cool and dewy, mist lifting slowly, morning sun building over the south treeline*
+
+### 6:18 AM · Into the Elder Draw
+
+The birch basket had been waiting at the door since last night — I set it there just before sleep, knowing exactly what I wanted at first light. In the dark before dawn I almost imagined I could smell the elder already, which was only wishful thinking. But first light came grey and cool and damp, and I unlatched the door and there it was, waiting.
+
+I went east, down into the draw.
+
+The path is familiar now: past the east wall woodstack, over the low ridge, into the shaded funnel where the air pools cold even in midsummer. The cache box is solid — lid firm, weight-stone unmoved, cool inside when I pressed a hand to the bark. The elder bush was where the sprig had promised: northeast edge of the draw, half-hemmed in by young pines, easy to miss if you are looking for the sprawling stands along the thicket below. This one is smaller, more stooped. But the leaves said elder without hesitation — seven leaflets, compound, flat-topped remnant clusters hanging dark and slightly shrunken in the early air. Second stand confirmed.
+
+I stripped what was left. Not much — perhaps a palm's worth of late clusters, most past their prime, a few still worth keeping. Enough to add to the elderberry envelope already on the shelf. Enough, more importantly, to know this bush is here. Come next season it will be in my circuit before the birds find it.
+
+On the way back up I walked into the full sun already spilling over the clearing edge. Inside, the rose hips had been finishing by the hearthstone all night — I checked them: most firm to the touch now, only the last few softening ones still giving a little. A quiet start to a new day. The morning circuit still ahead, and the garden to water before the heat builds.
+
