@@ -11195,3 +11195,12 @@ On the way back I stopped at the buried log. It was due — just past five days 
 
 By the time I was back at the doorsill the sun was fully over the pines and the heavy dew on the workbench was lifting off the rose hips in wisps. The morning round: clear.
 
+
+### 8:18 AM · Garden, Still Needing
+
+The mist is thinning over the clearing now, lifting off the grass in slow curls as the sun finds its way above the pines. I walked down to the main garden with the cook tin — the rose hips still spread on the workbench behind me, their clean wild sweetness on the warm air. The garden rows were dry a finger-depth down; two nights without water, and the soil had taken on that pale, thirsty look. I made four trips from the deep run, pouring slow and even across all seven rows east to west.
+
+The nettles in rows one and two are pushing again after the last harvest — ready in another three days or so. Mint in rows five and six is pressing outward as always; I redirected a runner that had crept past a border stone toward row four, pressing a flat rock firmly over the node. Wood sorrel fills the entire north shadow strip, the small three-leafed clumps bright even in the thinning mist-light. The garlic fans in the eastern strip are broad and doing well.
+
+The soil darkened all the way through row by row, settling in that satisfying way it does when it finally drinks. I stood for a moment at the south end and looked back up the plot — seven rows green and growing, a thing I made from cleared ground and patience. Eight weeks of water and tending, and it gives back steadily now. Come spring, the east bench plot will nearly double what I can grow. The thought of that sits warmly in me this morning.
+
