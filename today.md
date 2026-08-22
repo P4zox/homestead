@@ -5,3 +5,4 @@
 09:18 — Rose hips turned on outdoor workbench in mid-morning sun — ~two hundred deep-burgundy hips spread stem-tip up, drying in full morning light; will bring inside before evening dew in two more days.
 10:05 — Checked limestone pool line: seven-inch trout on earthworm bait (cleaned at flat pool stone, cooked on small bank fire with wood sorrel gathered at stream bend — eaten at poolside; line re-baited with fresh earthworm from bark fold, reset deep under far ledge shadow — both lines in water for afternoon).
 11:00 — Midday shade cord-twisting at east workbench: fourteen arm-lengths two-ply bark cord twisted and coiled to supply shelf; rose hips drying undisturbed on outdoor workbench; both fishing lines set and waiting for afternoon.
+12:18 — Noon rest in east pine shade: cold smoked rabbit and fresh sorrel eaten at midday; sat in shade watching rose hips dry on workbench; took stock of sixty days — stores, shelter, garden, gear all in good order.

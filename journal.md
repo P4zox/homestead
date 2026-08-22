@@ -11236,3 +11236,18 @@ The stream sounds carry up from the east draw. Both fishing lines are set deep i
 
 Fourteen arm-lengths coiled and set on the supply shelf. The afternoon is still ahead.
 
+
+### 12:18 PM · A Good Sixty Days
+
+The day is hot now, the midsummer sun straight overhead and the dew long burned away. I have pulled a stool into the narrow shade east of the cabin, watching the rose hips spread burgundy on the workbench and listening to the distant thread of the stream below.
+
+I ate a piece of smoked rabbit — cold, from the box — with a handful of fresh sorrel from row five. Simple enough. Sixty days in, and cold smoked meat is an ordinary thing to have. I remember what it meant to catch the first trout.
+
+The east bench garden plot is spring-ready. The cabin is sealed and warm. The root cellar holds garlic. The supply shelf holds grain — three envelopes now — dried mushrooms, elderberries, smoked meat, dried nettles for tea. The winter cap and mittens hang on the wall peg.
+
+Eight complete arrows in the quiver. A good coil of cord. Tools I made myself.
+
+Sixty days is long enough to stop counting every catch and start trusting the rhythm. The lines go in each morning; something usually comes back. The snares wait in silence and sometimes deliver. The garden drinks and grows. The clearing holds.
+
+I will check the deep-run line in an hour when the sun tips west. For now I sit here in the pine shade, listening to the stream.
+

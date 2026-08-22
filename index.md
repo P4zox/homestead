@@ -1055,3 +1055,4 @@ Day 60, 08:18 — Watered main garden (four cook-tin trips, all seven rows); net
 Day 60, 09:18 — Rose hips turned on outdoor workbench in mid-morning sun; ~two hundred deep-burgundy hips drying well, bring in before evening dew.
 Day 60, 10:05 AM — Poolside breakfast: limestone pool gave seven-inch trout, cleaned and cooked on small bank fire with wood sorrel, eaten at poolside; line re-baited and reset for afternoon.
 Day 60, 11:00 — Cord-twisting in midday shade at east workbench; fourteen arm-lengths two-ply added to supply shelf; rose hips drying; fishing lines and snares set.
+Day 60, 12:18 PM — Noon rest in east pine shade: cold smoked rabbit and sorrel, sitting with sixty days of work and finding the rhythm solid.
