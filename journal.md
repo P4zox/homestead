@@ -11375,3 +11375,15 @@ I stripped what was left. Not much — perhaps a palm's worth of late clusters, 
 
 On the way back up I walked into the full sun already spilling over the clearing edge. Inside, the rose hips had been finishing by the hearthstone all night — I checked them: most firm to the touch now, only the last few softening ones still giving a little. A quiet start to a new day. The morning circuit still ahead, and the garden to water before the heat builds.
 
+### 7:18 AM · Circuit in the Mist
+
+The elder clusters were still wet from overnight dew when I passed them on the workbench — spreading them in the morning air seemed right. I pressed a rose hip by the hearthstone with my thumb: it held its shape, no longer dimpling soft. Ready to fold into an envelope.
+
+Down the north garden edge first. Both snares undisturbed — loops still set, stakes firm in the morning-damp soil. I reset them, straightened the trigger sticks, moved on. The deep-run line gave a seven-inch trout, as it so often does: lying sideways under the bank in the current, barely moving. Cleaned it at the flat stream stone, dock-wrapped it, cold-stored it. Line re-notched with a fresh earthworm, reset below the undercut bank.
+
+The limestone pool was still and shadowed when I reached it. Bare hook, bait gone in the night. Re-baited from the fold, re-wedged the pole under the far ledge shadow, stood a moment before turning back. The pool has a patience in the early morning that I do not always have. Both lines in water now.
+
+Back at the clearing the sun was just cresting the south treeline, throwing long gold light across the dew-wet grass. I went through the elder clusters on the workbench — most past prime, but four or five flat-topped clusters still decent. Sorted the best onto a clean bark piece to finish drying. The rest I left spread to see what the heat does by midday.
+
+Snares reset, trout cold-stored, both lines in water. Garden to water next.
+

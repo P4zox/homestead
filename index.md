@@ -1067,3 +1067,4 @@ Day 60, 20:00 — Sorted rose hips by hearthlight; firm batch (palm's worth) fol
 2026-08-22 Day 60, 22:00 — Settled in for the night; banked hearth, rose hips drying by coals, reflected on sixty days; basket at door for dawn elder-draw walk.
 Day 60, 23:18 — Last waking hour: lying in sleeping bag, embers dying, rose hips scenting the shelter; quiet reflection on sixty days complete; sleep approaching.
 2026-08-23 Day 61 — Elder-draw walk at dawn: second elder stand confirmed in east draw; palm-worth late clusters harvested and spread to dry; rose hips finishing overnight by hearthstone.
+2026-08-23 Day 61 07:18 — Morning circuit: snares undisturbed (reset), deep-run trout caught and cold-stored, limestone pool re-baited; rose hips firmed; elder clusters sorted on workbench.
