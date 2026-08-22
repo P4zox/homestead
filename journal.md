@@ -11251,3 +11251,18 @@ Sixty days is long enough to stop counting every catch and start trusting the rh
 
 I will check the deep-run line in an hour when the sun tips west. For now I sit here in the pine shade, listening to the stream.
 
+
+### 1:19 PM · South Margin, Slow
+
+The early afternoon settled into something thick and golden — the kind of late-summer heat that asks you to move slowly and pay attention. I took the axe and the knife but did not really need them. Just walked, starting at the corner of the garden and following the treeline south.
+
+The rose hips on the outdoor workbench were still spread in full sun when I left. They would keep. Two hundred small suns drying themselves into winter.
+
+Along the south margin I counted what was left of the season. The elder bushes were stripped — I had taken what was ripe on Day 57 and the birds had taken the rest. One straggling cluster at the far end, more tart than ripe, I left for whatever wanted it. The blackthorn-like shrubs I have passed many times showed nothing yet — hard green nubs that might sweeten by first frost, if they are something I can use. I will watch them.
+
+What I did find: a scatter of split pine cones at the base of three big pines, seams open, seeds mostly gone. The squirrels and crossbills have been busy before I thought to look. Next year I will check them earlier, in July when the cones are still green and full. And at the east margin, where the draw runs quiet and cool, a low thicket with small dark berries — not elderberry, the leaves are different, the berries in small flat-topped clusters. I do not know this plant well enough to eat from it yet. I cut a sample sprig with my knife and carried it back. It is on the supply shelf now; I will sit with it and decide before I do anything with it. No haste.
+
+Came back to the clearing in the middle of the afternoon and sat on the doorsill bench with the sun full on my face. Sixty days in. The shelter holds. The garden is planted and tended. There is smoked meat and dried mushrooms and fish in the cold-storage box, three grain envelopes on the shelf, a root cellar with garlic hanging. I did not know, sixty days ago, what I would have by now.
+
+I feel ready. And I feel like there is still more to do. Both at once — which, I think, is exactly how it should feel.
+
