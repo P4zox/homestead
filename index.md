@@ -1057,3 +1057,4 @@ Day 60, 10:05 AM — Poolside breakfast: limestone pool gave seven-inch trout, c
 Day 60, 11:00 — Cord-twisting in midday shade at east workbench; fourteen arm-lengths two-ply added to supply shelf; rose hips drying; fishing lines and snares set.
 Day 60, 12:18 PM — Noon rest in east pine shade: cold smoked rabbit and sorrel, sitting with sixty days of work and finding the rhythm solid.
 Day 60, 1:19 PM — South margin walk: south and east treeline circuited; elder bushes stripped; pine cone scatter at pine base (seeds taken by wildlife); unknown dark-berried sprig from east-draw thicket on supply shelf for ID.
+Day 60, 14:18 — Deep-run line bare in afternoon; re-baited and reset; watercress fistful gathered at side-seep, dock-wrapped for supper; rose hips drying on workbench, most firm to touch.

@@ -11266,3 +11266,14 @@ Came back to the clearing in the middle of the afternoon and sat on the doorsill
 
 I feel ready. And I feel like there is still more to do. Both at once — which, I think, is exactly how it should feel.
 
+
+### 2:18 PM · Line and Watercress
+
+The sun had tilted enough to catch the west faces of the pines — that slanted mid-afternoon gold that tells you the day is past its crown. I walked the path to the deep run with the bark-strip bait fold in my belt pouch. The stream was low and clear; the surface at the undercut bank had that afternoon stillness, current murmuring somewhere below the shadow.
+
+The line was there, barely taut between thumb and finger. Nothing. Sometimes the deep run gives in the morning and rests the remainder of the day, as if the first fish was enough and the pool thinks so too. I replaced the earthworm with a fresh one from the fold, let the hook settle back under the overhang, and wedged the pole again. Both lines set. That is all I can do with a fishing line.
+
+On the way back I stopped at the side-seep below the deep run and pulled a fistful of watercress — stems dense and cool, the roots still drawing from the seep. Rinsed it in the current, dock-wrapped it, tucked it alongside the bait fold. It will go into the cook tin tonight with whatever the evening gives.
+
+Passed the outdoor workbench on the way in. The rose hips were still spread in the afternoon light, deep burgundy, most of them dry to the touch now. I will bring them inside before the dew rises. Another day and they will be ready to fold into bark envelopes and set in the root cellar beside the garlic — winter medicine stored quietly in summer while I am still warm.
+
