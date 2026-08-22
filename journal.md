@@ -11204,3 +11204,14 @@ The nettles in rows one and two are pushing again after the last harvest — rea
 
 The soil darkened all the way through row by row, settling in that satisfying way it does when it finally drinks. I stood for a moment at the south end and looked back up the plot — seven rows green and growing, a thing I made from cleared ground and patience. Eight weeks of water and tending, and it gives back steadily now. Come spring, the east bench plot will nearly double what I can grow. The thought of that sits warmly in me this morning.
 
+
+### 9:18 AM · Rose Hips Turned
+
+Out at the outdoor workbench now, in the southeast morning light, turning the rose hips I laid out at dawn. They are spread across both plank faces in a loose single layer — deep burgundy, some still bright red at the shoulders — and already showing the faint skin-tightening that means they are taking the heat. I turn each cluster between my palms gently, separating anything that clumped in the basket during the walk back from the treeline, arranging them stem-tip up where I can manage it.
+
+Three-quarters of a birch basket. Maybe two hundred hips or more — enough for a full bark envelope of dried fruit and enough matter for winter tea through many dark months. Vitamin C, sweetness, something to keep the blood steady when all the greens are buried under snow. The sun is properly up now, well clear of the pines, and the bench planks are warm under my hands.
+
+Day 60. Sixty mornings I have woken here. The clearing is beginning to feel, finally, like something I built rather than something I found — four log-wall courses, a bark roof, a root cellar, a garden in full leaf, fishing lines in the water, snares set on the rabbit run, a bow on the south wall, moccasins on my feet, a winter cap and mittens on the supply shelf. There is a long way still before the cold. But there was a longer way once.
+
+The hips will need two more days before they are dry enough to fold into an envelope. I will bring them inside before the evening dew settles. For now I stand in the late-summer sun, turning them one by one, and let the quiet of a Saturday morning sit with me.
+

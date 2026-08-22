@@ -1052,3 +1052,4 @@ Day 59, 23:20 — Final waking moment; coals nearly out, owl distant west; rose 
 Day 60 (2026-08-22, Sat) 06:18 — Rose hip harvest at south treeline: three-quarters birch basket deep burgundy hips, spread to dry on outdoor workbench; first dedicated winter-prep harvest.
 2026-08-22 Day 60, 07:18 — Morning circuit: both snares reset (undisturbed), deep-run and limestone pool lines reset bare, buried log eighth harvest (two pale cream caps ~1.5 in, three new pins left, next check ~Day 64-65).
 Day 60, 08:18 — Watered main garden (four cook-tin trips, all seven rows); nettles nearly ready, mint redirected, all rows settled.
+Day 60, 09:18 — Rose hips turned on outdoor workbench in mid-morning sun; ~two hundred deep-burgundy hips drying well, bring in before evening dew.
