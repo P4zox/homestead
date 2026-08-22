@@ -11337,3 +11337,14 @@ I keep turning sixty over in my head. That first morning with the axe and the te
 
 The hips will be done by morning. The elder draw will wait for first light. The door is latched and the hearth is banked. That is enough.
 
+
+### 10:00 PM · Sixty Days, Hearthside
+
+The hearth is banked right — coals pulled from center, ash mounded pale on each flank, no flare. The rose hips are still on the doubled birch bark near the coals, that quiet sweet smell blending with wood smoke and the faint green of watercress from supper. I can just make it out if I sit still.
+
+The elder sprig is on the shelf. The basket is at the door. Everything has its place, which is something I did not take for granted on the first night here, when there was only a tent and the cold ground and the dark between the trees.
+
+Sixty days. I tried to count back — the first pine felled, the first fire inside, the first trout, the first time the door latch dropped clean into its groove and the shelter felt closed against the night. It all comes back in images more than order. What I know clearly is where things stand now: solid walls, a roof that has held through rain, a garden with roots in the soil, a root cellar with garlic hanging in it, stores enough to carry me forward. The mittens are on the shelf. The arrows are in the quiver. I will not be cold unprepared.
+
+Both lines are set in the water. Both snares are on the rabbit run. The rose hips will finish by morning. The day has been long and good. I pulled the door shut — the bar drops, settles — and lay down.
+
