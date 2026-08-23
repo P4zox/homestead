@@ -11537,3 +11537,14 @@ I stood a moment in the quiet and counted them. Seven envelopes. Each one a morn
 
 This morning has opened cleanly.
 
+
+### 7:19 AM · Morning Lines, Quiet Snares
+
+Heavy dew on the clearing grass, first light barely over the pines, when I walked down to the deep run. The overnight line was taut — a seven-inch trout on the earthworm bait, bright and firm. Cleaned it at the flat stream stone, dock-wrapped it, cold-stored it in the box. Re-notched the hook with a fresh earthworm and reset the line below the undercut bank.
+
+The limestone pool was bare. Re-baited, wedged the pole back under the far ledge shadow — both lines in the water now.
+
+I checked the snares on my way back up through the north garden edge. Both undisturbed: triggers clean, loops unsprung. Reset each one and left them. The snares need patience more than anything else.
+
+Sat on the doorsill bench for a moment after, the mist lifting off the clearing, dew thinning where the sun touched it. The air had that edge again — a little cool, a little new. It was not cold yet, but it was practicing.
+
