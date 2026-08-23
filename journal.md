@@ -11446,3 +11446,16 @@ Came home with the basket three-quarters full. Threshed at the outdoor workbench
 
 Four envelopes now. Still short of comfortable, but better. There is still August to work with.
 
+
+### 3:19 PM · Hips Along the South Line
+
+The four grain envelopes are stitched and on the shelf, and the afternoon felt long and warm after all the morning work. I took my knife and a spare bark fold and walked the south treeline — the three rose hip stands I had noted on Day 57 when they were still blushing orange.
+
+The first stand, closest to the east corner, is coming in well: hips deep red now, firm at the tip, a few just starting to soften at the shoulder. Not quite ready — another four or five days. The second stand, midway along the south edge, has smaller hips but they are darker, nearly burgundy, and one or two pinched clean from the stem without resistance. Those are close. I ate three of the darkest ones at the bush, spitting seeds into the leaf duff. Tart and thick, sweetness hiding under the bitterness. Good. The third stand at the east thicket margin is still behind — orange in patches, a week out at least.
+
+So I know the order now: stand two in about three days, stand one a few days after, stand three perhaps Day 66 or 67. Manageable, and worth knowing before the harvests pile together.
+
+The walk itself was good — bees still working the late-season clover at the south meadow edge, the light thick and golden. I stood at the treeline a while and looked back at the cabin. The bark roof has darkened with the weeks, the smoke gap barely a line against the pale gable. The door was shut, the garden a stripe of green below the south face. It looked like a place where someone lives. Sixty-one days in and it looks like that.
+
+Back before the light angles too far. Supper to think about.
+
