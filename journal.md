@@ -11521,3 +11521,19 @@ The shelter has gone fully still. The coals are nothing but orange threads under
 
 Day sixty-one, long and full. Grain secured. Rose hips sealed. Stores counted and found not quite but nearly good enough. Tomorrow the elder envelope at first light, then watch stand two for the next hip run. But that is tomorrow. Right now there is nothing left to do but let the night close down. I am glad to be here.
 
+
+---
+
+# Day 62 — Monday, 24 August 2026
+*midsummer, late — edge of turning · dawn, cool and still; first light on pine tops; dew heavy; coals warm*
+
+### 6:18 AM · Elder Fold at Dawn
+
+I woke to coals still holding warmth and could smell it before I opened my eyes — the faint sweet dusty scent of elderberries that had been papering all night on the supply shelf above me. Outside, the clearing was just brightening, dawn barely touching the tops of the pines, dew heavy on the grass and every surface grey-blue in the half-light.
+
+I rose and went to the supply shelf. The elder clusters from the east-draw stand — stripped yesterday morning from the smaller bush half-hidden by the young pines — had been good to me overnight. I lifted each cluster one at a time in the low light, pressed each cap with a thumb: dry through to the center, edges darkened and papery, barely any give. Right. The cook tin was off the hearthstone so there was room to work. I set the bark piece flat, tipped the dried clusters onto it, folded the corners to center, doubled the fold tight, and stitched it shut with three passes of two-ply cord, knotting off with a half-hitch. Done. The envelope joined the others on the supply shelf — a small row of sealed work: four grain envelopes, two rose hip, and now two elderberry.
+
+I stood a moment in the quiet and counted them. Seven envelopes. Each one a morning or an afternoon or an evening given over to something that needed doing. I thought about the oyster clusters on the upslope pine, one more day from ready. The rose hip stands along the treeline, stand two probably harvestable in two more days, the others behind it. The snares are out in the north run. Both lines are in the water. The garden is watered. The coals are warm.
+
+This morning has opened cleanly.
+
