@@ -11504,3 +11504,13 @@ The clearing is very quiet now. A few insects still — late summer voices, fewe
 ### 9:18 PM · Night Air, Stars
 
 I went to the door one last time — not for any reason, just to feel the night. The clearing was fully dark, the stream audible below the tree line, the first insects already quiet. The air held something different: not autumn yet, but the idea of it, a thread of cold running through the midsummer dark that wasnt
+### 10:18 PM · Last Light, Elder Smell
+
+The shelter is quiet. Hearthcoals have settled to low orange — barely bright enough to see by, but enough to feel. From the supply shelf overhead, the elder clusters give off a faint sweet smell, papery and almost floral. Tomorrow I will fold them into an envelope. Tonight they can breathe.
+
+I sat at the hearthstone for a while, hands flat on my thighs, and let the warmth and silence settle in. Outside, the clearing has gone completely still; even the night insects are thinner than a week ago — a small sign, quiet as the cold thread I felt at the doorway an hour past, that the season is beginning its turn. It comes slowly here, then all at once.
+
+Day 61 has been full and good. Four envelopes of grain. Two rose hip envelopes sealed. Both lines and both snares waiting in the dark. The elder clusters nearly ready. Stores are building. There is plenty more ahead — the second rose hip stand in two or three days, the oyster pine flush by morning perhaps, autumn wanting all the preparation I can give it — but none of that is tonight. Tonight is only the cooling fire and the soft dark and the permission to rest.
+
+I pulled the sleeping bag around me and let my eyes close.
+
