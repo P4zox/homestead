@@ -11435,3 +11435,14 @@ Checked both snares through the south pines on the way back — undisturbed. Ear
 
 The outdoor workbench sits in full south afternoon light, the elder clusters spread at one end still papering dry. I used the quiet hour to take stock — not formally, just letting my mind move through what is saved: eight garlic bulbs hanging on the root cellar rail, three bark envelopes of meadow grain, two of rose hips, one of elderberries, dried nettles and herb folds on the supply peg, the main cold-storage box holding trout and smoked rabbit and mushroom caps. The cord coil is thick and long. It adds up to more than I could have named at midsummer start, and still not enough for winter end — grain is what I have least of, the threshed envelopes light; another run before summer closes would help. The shape is otherwise sound. I turned the elder clusters once more; they want one more day of drying. The afternoon stayed warm and still, the clearing holding the season like something slow and full.
 
+
+### 2:18 PM · North Meadow Gold
+
+The stocktake sat with me this afternoon — three envelopes of grain, and the summer angling south already, the light telling its slow story through the pines. Not an emergency, but close enough to move on. I took the birch basket and walked north.
+
+The meadow in August at this hour is fine. Foxtail heavy and seed-dark, brome nodding on long stems, wild rye standing pale gold in the still air. I worked through the stand for two hours — drawing heads between palms, pulling rye through a loose fist, moving down the rows in the warm. A vole scattered ahead of me through the stems and I watched it go, then went back to work.
+
+Came home with the basket three-quarters full. Threshed at the outdoor workbench in the last of the full afternoon light — foxtail and brome stripped fine, rye in three passes through the fist. Folded into a fresh bark envelope, stitched with two-ply cord, set on the supply shelf.
+
+Four envelopes now. Still short of comfortable, but better. There is still August to work with.
+
