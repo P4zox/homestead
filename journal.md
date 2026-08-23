@@ -11387,3 +11387,7 @@ Back at the clearing the sun was just cresting the south treeline, throwing long
 
 Snares reset, trout cold-stored, both lines in water. Garden to water next.
 
+
+### 8:19 AM · Rows in Morning Light
+
+The mist was fully off the clearing by the time I filled the cook tin at the deep run for the first time. Four trips, east to west — I have done it enough times now that I move through it half-dreaming, down the bank, tin in the current, back up to the rows, slow pour at the far end, work back. The soil darkened fast, still loose and yielding from all the turning. Nettles in rows one and two are pushing fresh tips again after the last cut, but not quite ready. Wood sorrel thick in the shadow strip. Garlic fans broad in the eastern strip. The mint held at the border stones, which I take as a small daily victory. I set the last tin down and stood there a moment in the full morning sun that comes over the south treeline by eight. The garden looks like a proper garden now — orderly rows, things growing because I planted them and kept coming back. That still surprises me, sometimes, how much is held by simple repetition. The rose hips by the hearthstone have firmed overnight; I will fold them into their bark envelope before the afternoon.
