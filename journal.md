@@ -11459,3 +11459,11 @@ The walk itself was good — bees still working the late-season clover at the so
 
 Back before the light angles too far. Supper to think about.
 
+
+### 4:18 PM · Pool Line, Amber Supper
+
+The rose hip walk left me restless in a satisfied way — numbers tallied, days counted, the same patience I bring to every maturing thing. On the way back through the south pines I swung east along the stream to the limestone pool. The line had been in the water since noon; the pole was still wedged under the far ledge shadow, and when I lifted it there was weight. A seven-inch trout, clean silver flash in the low sun. I cleaned it at the flat pool stone, wrapped it in dock leaves, and gathered a fistful of watercress from the side seep on the way back — stems crisp, clumps cool in my hand.
+
+Back at the doorsill bench the amber light was already crossing the clearing at an angle, pines throwing long shadow east. I built the fire low in the hearth, set the cook tin on the coals with the trout and watercress and a handful of wood sorrel from row five. While it cooked I re-baited the pool line with a fresh earthworm from the bark fold and wedged the pole back deep under the ledge shadow. Both lines now in water for the night.
+
+Supper was quiet. I ate slow, watching the shadow-line climb the pine trunks across the clearing. The elder clusters on the workbench have papering edges now — another night and I will fold them tomorrow morning. The grain store feels solid at four envelopes. Sunday evening on the homestead, midsummer still, and everything holding.
