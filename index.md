@@ -1079,3 +1079,4 @@ Day 61, 15:19 — South treeline rose hip scouting: stand 2 nearly ready (~3 day
 Day 61, 16:18 (2026-08-23) — Afternoon limestone pool catch; supper (trout, watercress, sorrel) eaten at doorsill in amber light; elder clusters papering — will seal tomorrow morning; grain four envelopes; both lines set overnight; all provisions holding.
 Day 61, 17:18 — Evening cord-twisting by hearthlight; final turn of elder clusters on workbench before dew; nine arm-lengths two-ply twisted; both lines and snares active; elderlight and embers.
 2026-08-23 Day 61 18:00 — Brought elder clusters inside from workbench to finish drying by hearthstone; hearth banked; sat at doorsill bench in cooling evening air.
+Day 61, 19:18 — Knife stropped by hearthlight; winter accounting by hearth (grain thin but four envelopes; three rose hip stands ahead; east plot turned; all gear complete); elder clusters papering overnight by hearthstone.

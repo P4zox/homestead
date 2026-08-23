@@ -11477,3 +11477,15 @@ After supper the clearing grew quiet. The sun was behind the pines by this hour 
 
 I banked the hearthfire low — a birch log laid across good coals, enough warmth to keep the shelter dry through the night — then sat at the doorsill bench as the air cooled. The garden held its shape in the fading light. Both snares quiet along the north run. The fishing lines in. There is a particular ease that comes in this hour when nothing urgent remains and the day's work sits whole behind you. Day sixty-one winding down well.
 
+
+### 7:18 PM · Edge and Account
+
+The hearth has settled into a low steady glow, the banked birch log doing its quiet work. I pull the knife from its sheath and hold the edge toward the hearthlight — fine enough, but six days since the last strop. Three passes on each side across the grey cobble, then three more on the smooth hearthstone face: the sound comes clean, whisper-fine by the last pass. I resheath it and set it on the bench beside me.
+
+The elder clusters are breathing a foot from the coals, edges still papering in the warm air. By dawn they should be ready to fold.
+
+I sit and let the evening's accounting come naturally. Four grain envelopes now — better than this morning, though thin still for a hard winter. Three rose hip runs yet to make: stand 2 in three days, stand 1 in four or five, stand 3 in a week. The oyster pine wants one more day. The second garden plot is fully turned and waiting for spring. Cap, mittens, moccasins done. Bow with all eight arrows in quiver. Cord coil full.
+
+What's left: more meadow grain if the heads give it. All three rose hip stands. One more nettle cut if the rows push tips in time. And then just the slow deepening of the cold, and whatever it asks of me.
+
+It's enough for one night's accounting. I bank the fire once more and move toward sleep.
