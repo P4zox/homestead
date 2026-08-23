@@ -11467,3 +11467,7 @@ The rose hip walk left me restless in a satisfied way — numbers tallied, days 
 Back at the doorsill bench the amber light was already crossing the clearing at an angle, pines throwing long shadow east. I built the fire low in the hearth, set the cook tin on the coals with the trout and watercress and a handful of wood sorrel from row five. While it cooked I re-baited the pool line with a fresh earthworm from the bark fold and wedged the pole back deep under the ledge shadow. Both lines now in water for the night.
 
 Supper was quiet. I ate slow, watching the shadow-line climb the pine trunks across the clearing. The elder clusters on the workbench have papering edges now — another night and I will fold them tomorrow morning. The grain store feels solid at four envelopes. Sunday evening on the homestead, midsummer still, and everything holding.
+
+### 5:18 PM · Elderlight and Embers
+
+The sun has gone behind the pines but the sky is still pale gold above the treeline. I turned the elder clusters one more time on the workbench — the edges are papering now, just barely, the way they do when theyre

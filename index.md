@@ -1077,3 +1077,4 @@ Day 61, 11:18 — Limestone pool gave seven-inch trout at noon; cooked on bank f
 Day 61 (Sun 2026-08-23) 14:18 — North meadow grain run; fourth bark envelope; grain store up to four envelopes.
 Day 61, 15:19 — South treeline rose hip scouting: stand 2 nearly ready (~3 days), stand 1 four-five days, stand 3 ~1 week; tasted a few at stand 2.
 Day 61, 16:18 (2026-08-23) — Afternoon limestone pool catch; supper (trout, watercress, sorrel) eaten at doorsill in amber light; elder clusters papering — will seal tomorrow morning; grain four envelopes; both lines set overnight; all provisions holding.
+Day 61, 17:18 — Evening cord-twisting by hearthlight; final turn of elder clusters on workbench before dew; nine arm-lengths two-ply twisted; both lines and snares active; elderlight and embers.
