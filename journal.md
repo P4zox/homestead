@@ -11489,3 +11489,14 @@ I sit and let the evening's accounting come naturally. Four grain envelopes now 
 What's left: more meadow grain if the heads give it. All three rose hip stands. One more nettle cut if the rows push tips in time. And then just the slow deepening of the cold, and whatever it asks of me.
 
 It's enough for one night's accounting. I bank the fire once more and move toward sleep.
+
+### 8:18 PM · Ember Watch
+
+The fire is banked and the shelter settles around its warmth. I have been sitting at the hearthstone a while now — coals pulsing orange-amber in the dimness, the elder clusters on the supply shelf above giving off their faint dry sweetness. The knife is sharp, the cord coil is full, the grain envelopes stack four deep.
+
+Late August is a quieter pressure than early summer: not urgent, but insistent. I can feel the days tipping. The mornings bite a little sharper than a fortnight ago. The rose hips are blushing fast along the south treeline. The nettles will give one more good cut before they slow. Everything is still moving, but the direction has shifted.
+
+There is something in accounting done well. I spent the afternoon in the sun with the inventory in my head — what is in, what is thin, what will close before I have gathered enough. The grain is the worry; four envelopes feels thin against a full winter. But the stands are still giving, and I know exactly where they are. Tomorrow: fold the elder envelope at first light, check the snares, see what the overnight lines brought in.
+
+The clearing is very quiet now. A few insects still — late summer voices, fewer every evening. And the cold smell of dew coming on in the dark. I ought to sleep soon.
+
