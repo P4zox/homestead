@@ -1071,3 +1071,4 @@ Day 60, 23:18 — Last waking hour: lying in sleeping bag, embers dying, rose hi
 Day 61, 08:19 — Garden watered in morning sun (four cook-tin trips, all seven rows east to west); nettles rows 1–2 fresh tips; rose hips firmed by hearthstone.
 2026-08-23 Day 61 09:18 — Rose Hips, Sealed: second rose hip batch firmed overnight by hearthstone; sorted, folded into bark envelope, stitched with two-ply cord, stored on supply shelf beside first envelope and elderberry and grain envelopes.
 2026-08-23 Day 61 10:18 — Checked upslope oyster pine; three new clusters thumbnail-sized, not yet ready (another day or two); trunk damp and working; both fishing lines active.
+Day 61, 11:18 — Limestone pool gave seven-inch trout at noon; cooked on bank fire with wood sorrel and eaten at poolside in full sun; both lines back in water.
