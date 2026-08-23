@@ -11419,3 +11419,14 @@ Both lines still in water at the deep run and limestone pool. The clearing holds
 ### 11:18 AM · Poolside at Noon
 
 The clearing was bright and warm by mid-morning, the mist fully lifted and the south pines catching full sun. I walked down to the limestone pool with the cook tin and the bark fold of earthworms, taking the longer way past the south treeline where the light was good on the needles. The pool was still in shadow from the east bank — the trout prefer that — and when I pulled the pole free from the ledge there was weight on the line. Seven inches, silver-sided, came up clean and clean. I cleaned it on the flat pool stone, laid the fire small and bright on the near bank with dry pine chips and a curl of birch bark, and cut a handful of wood sorrel growing low along the path on the way down. Cooked it there by the pool and ate it in the first full sun of noon — the limestone shelf warm through my moccasins, water moving quiet below, no sound but the stream and one bird somewhere in the east draw. No hurry at all. The line back in the water before I left, pole wedged deep in the ledge shadow for the afternoon. Walking back I stopped to look at the elder clusters on the outdoor workbench — still pale and damp through the center, another day drying yet. The shelter smelled of hearthstone and pine when I stepped inside. Sixty-one days here, and the place already has a smell of its own.
+
+### 12:18 PM · Noon Light, Quiet Hands
+
+Back from the limestone pool with the sun full overhead, the day warm and slow. I stopped at the outdoor workbench to turn the elder clusters — spread since first light, and the best ones are papering at the edges now, stems still holding a little flex at center. Another day, perhaps two for the softer bunches. I left them undisturbed and moved on.
+
+Settled in the south pine shade with the cord bundle and a handful of prepared inner bark strips. Fourteen arm-lengths of two-ply twisted by the time the shadow line shifted an arm-span. Good cord, tight and even; the coil has grown into something substantial.
+
+There is satisfaction in a day like this. The morning was busy in the way good mornings are — lines checked, garden watered, rose hips sealed, everything placed. The noon trout cooked fast on the bank fire and tasted clean. Now the afternoon opens quietly, and the cord-twisting is a way of staying present without needing to move. The supply shelf grows a little fuller. Winter feels less like a threat and more like something I am simply moving toward, in good order.
+
+Checked both snares through the south pines on the way back — undisturbed. Earthworm fold still cool in the box. Limestone pool line set deep under the ledge shadow for the evening run.
+
