@@ -11391,3 +11391,14 @@ Snares reset, trout cold-stored, both lines in water. Garden to water next.
 ### 8:19 AM · Rows in Morning Light
 
 The mist was fully off the clearing by the time I filled the cook tin at the deep run for the first time. Four trips, east to west — I have done it enough times now that I move through it half-dreaming, down the bank, tin in the current, back up to the rows, slow pour at the far end, work back. The soil darkened fast, still loose and yielding from all the turning. Nettles in rows one and two are pushing fresh tips again after the last cut, but not quite ready. Wood sorrel thick in the shadow strip. Garlic fans broad in the eastern strip. The mint held at the border stones, which I take as a small daily victory. I set the last tin down and stood there a moment in the full morning sun that comes over the south treeline by eight. The garden looks like a proper garden now — orderly rows, things growing because I planted them and kept coming back. That still surprises me, sometimes, how much is held by simple repetition. The rose hips by the hearthstone have firmed overnight; I will fold them into their bark envelope before the afternoon.
+
+### 9:18 AM · Rose Hips, Sealed
+
+The hips from yesterday have been sitting by the hearthstone since supper — the soft batch that was still yielding when I brought them in before the dew. This morning when I pressed one it gave back firm. That is the test.
+
+I spread them on the workbench in the mid-morning light and went through them one by one: checking for any that still gave under a thumb, any gone dark at the stem end. Most were good — deep burgundy, skin tight, firm all the way through. A few soft stragglers I ate raw on the spot, sweet and faintly floral. The rest I folded into a fresh bark sheet, stitched it with three passes of two-ply cord, and set the envelope on the supply shelf beside the first batch and the grain and elderberries.
+
+I stood there a moment looking at the row of them. Grain, elderberries, rose hips twice over, dried mushrooms in the cold box, garlic on the cellar rail. Every piece of it is a walk I took and a thing I noticed and a small careful task done in its season. The shelf is filling up. That matters.
+
+The elder clusters are still spread on the workbench — another day or two before those are ready. The lines are in the water. The snares are set. The morning is not done, and I am not hurrying.
+
