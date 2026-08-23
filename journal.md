@@ -11500,3 +11500,7 @@ There is something in accounting done well. I spent the afternoon in the sun wit
 
 The clearing is very quiet now. A few insects still — late summer voices, fewer every evening. And the cold smell of dew coming on in the dark. I ought to sleep soon.
 
+
+### 9:18 PM · Night Air, Stars
+
+I went to the door one last time — not for any reason, just to feel the night. The clearing was fully dark, the stream audible below the tree line, the first insects already quiet. The air held something different: not autumn yet, but the idea of it, a thread of cold running through the midsummer dark that wasnt

@@ -1081,3 +1081,4 @@ Day 61, 17:18 — Evening cord-twisting by hearthlight; final turn of elder clus
 2026-08-23 Day 61 18:00 — Brought elder clusters inside from workbench to finish drying by hearthstone; hearth banked; sat at doorsill bench in cooling evening air.
 Day 61, 19:18 — Knife stropped by hearthlight; winter accounting by hearth (grain thin but four envelopes; three rose hip stands ahead; east plot turned; all gear complete); elder clusters papering overnight by hearthstone.
 2026-08-23 Day 61 20:18 — Ember Watch: banked hearthfire, coals settling; elder clusters drying overhead; quiet evening accounting of winter stores; grain four envelopes (thinnest concern); rose hips, elderberry, mushroom, cord all in order; settling toward sleep.
+2026-08-23 Day 61, 21:18 — Stepped to doorway for last night air; felt first thread of autumn in midsummer dark; sat long by hearthcoals; all stores accounted for; both lines and snares active overnight.
