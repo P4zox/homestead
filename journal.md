@@ -11430,3 +11430,8 @@ There is satisfaction in a day like this. The morning was busy in the way good m
 
 Checked both snares through the south pines on the way back — undisturbed. Earthworm fold still cool in the box. Limestone pool line set deep under the ledge shadow for the evening run.
 
+
+### 1:18 PM · Counting What Is Stored
+
+The outdoor workbench sits in full south afternoon light, the elder clusters spread at one end still papering dry. I used the quiet hour to take stock — not formally, just letting my mind move through what is saved: eight garlic bulbs hanging on the root cellar rail, three bark envelopes of meadow grain, two of rose hips, one of elderberries, dried nettles and herb folds on the supply peg, the main cold-storage box holding trout and smoked rabbit and mushroom caps. The cord coil is thick and long. It adds up to more than I could have named at midsummer start, and still not enough for winter end — grain is what I have least of, the threshed envelopes light; another run before summer closes would help. The shape is otherwise sound. I turned the elder clusters once more; they want one more day of drying. The afternoon stayed warm and still, the clearing holding the season like something slow and full.
+
