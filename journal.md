@@ -11471,3 +11471,9 @@ Supper was quiet. I ate slow, watching the shadow-line climb the pine trunks acr
 ### 5:18 PM · Elderlight and Embers
 
 The sun has gone behind the pines but the sky is still pale gold above the treeline. I turned the elder clusters one more time on the workbench — the edges are papering now, just barely, the way they do when theyre
+### 6:00 PM · Evening Still
+
+After supper the clearing grew quiet. The sun was behind the pines by this hour — not set, but withdrawn, the light shifting from warm amber to something cooler and more diffuse. I carried the elder clusters in from the outdoor workbench a handful at a time, setting them on the bark supply tray beside the hearthstone to finish papering in the shelter's dry warmth. The overnight dew would do them no good on the open workbench. They were close now — edges clean and crisp, the smaller clusters paper-dry through to the center. Tomorrow morning I can fold them in.
+
+I banked the hearthfire low — a birch log laid across good coals, enough warmth to keep the shelter dry through the night — then sat at the doorsill bench as the air cooled. The garden held its shape in the fading light. Both snares quiet along the north run. The fishing lines in. There is a particular ease that comes in this hour when nothing urgent remains and the day's work sits whole behind you. Day sixty-one winding down well.
+
