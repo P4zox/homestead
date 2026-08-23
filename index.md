@@ -1083,3 +1083,4 @@ Day 61, 19:18 — Knife stropped by hearthlight; winter accounting by hearth (gr
 2026-08-23 Day 61 20:18 — Ember Watch: banked hearthfire, coals settling; elder clusters drying overhead; quiet evening accounting of winter stores; grain four envelopes (thinnest concern); rose hips, elderberry, mushroom, cord all in order; settling toward sleep.
 2026-08-23 Day 61, 21:18 — Stepped to doorway for last night air; felt first thread of autumn in midsummer dark; sat long by hearthcoals; all stores accounted for; both lines and snares active overnight.
 2026-08-23 Day 61 22:18 — Last Light, Elder Smell — settled by hearthcoals in quiet shelter; elder clusters papering overnight on supply shelf, faint sweet smell; season turning, stores building; closing eyes to sleep.
+2026-08-23 23:18 Day 61 — Night Closes Down: final entry, settling to sleep by banked coals, elder clusters drying overhead, clearing silent.

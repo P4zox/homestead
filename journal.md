@@ -11514,3 +11514,10 @@ Day 61 has been full and good. Four envelopes of grain. Two rose hip envelopes s
 
 I pulled the sleeping bag around me and let my eyes close.
 
+
+### 11:18 PM · Night Closes Down
+
+The shelter has gone fully still. The coals are nothing but orange threads under grey ash — barely enough to hold their heat through to morning. Elder clusters on the supply shelf above give off the last of their drying sweetness in the dark. I have been lying in the sleeping bag listening to the clearing outside go silent: the night insects, gone now, just wind moving slow in the pines.
+
+Day sixty-one, long and full. Grain secured. Rose hips sealed. Stores counted and found not quite but nearly good enough. Tomorrow the elder envelope at first light, then watch stand two for the next hip run. But that is tomorrow. Right now there is nothing left to do but let the night close down. I am glad to be here.
+
