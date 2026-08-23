@@ -11402,3 +11402,16 @@ I stood there a moment looking at the row of them. Grain, elderberries, rose hip
 
 The elder clusters are still spread on the workbench — another day or two before those are ready. The lines are in the water. The snares are set. The morning is not done, and I am not hurrying.
 
+
+### 10:18 AM · Oyster Pine, Checked
+
+The morning has been full already — the elder walk before dawn, the morning circuit, four tin trips to the garden, the rose hip envelope sealed and shelved. By ten o'clock the clearing is warm and the mist fully burned off, the south treeline bright in full sun.
+
+I took the bow on my shoulder and walked upslope to the rotting pine at seventy paces. The last oyster flush was three days ago; the trunk had been quiet when I pulled that harvest, the bark undisturbed after the caps came free. Coming up through the pines with the light angled long and low through the canopy, I could see from twenty paces that the bark near the upper section had gone pale in small patches — the early sign I have learned to read.
+
+Three clusters, new ones, just beginning to push. The caps are thumbnail-sized, cream-edged, barely lifted from the bark. Not ready; another day or two and they will be spread wide, white-gilled, worth the rack. I pressed a palm against the wood near the largest cluster. Damp and soft underneath — the pine is still feeding them.
+
+I left them undisturbed and came back down through the pines with a quiet feeling. Not disappointment — the particular satisfaction of finding something alive that is not yet ready to take. The trunk is working. I marked the check and came home.
+
+Both lines still in water at the deep run and limestone pool. The clearing holds the morning heat now; the elder clusters on the workbench turn slowly in the light breeze.
+
