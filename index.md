@@ -1094,3 +1094,4 @@ Day 62, 12:19 PM — Limestone pool noon catch: seven-inch trout, cooked on bank
 2026-08-24 13:18 Day 62 — First firewood stack begun: dead birch and pine dragged from forest edge, split and stacked against south cabin wall under eave — knee-high start; winter prep begins.
 2026-08-24 14:19 Day 62 — Rose hip stand 1 harvested; two batches papering on workbench; pine shadows reaching past garden edge by mid-afternoon
 - Day 62 (2026-08-24) 15:19 — kindling under the eave: split wedge-pieces into two arm-loads finger-thin sticks + resin-sliver bark sleeve; tucked under eave behind main stack.
+Day 62, 4:19 PM — Limestone pool line: seven-inch trout at low sun; watercress gathered; supper planned.

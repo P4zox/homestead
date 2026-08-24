@@ -11624,3 +11624,7 @@ When I stood back, the south wall looked different than it did before lunch. Not
 
 The rose hips were papering quietly on the workbench through all of this, both batches side by side, curling at their edges. The pines’ shadows had reached the garden and were sliding toward the east border stones. Somewhere in the north garden edge, the snares waited. I did not rush any of them. It felt like the kind of afternoon a person could grow old on, if they were lucky enough.
 
+
+### 4:19 PM · Line at Low Sun
+
+The pine shadows had crossed the garden border and were reaching east toward the treeline when I went down to the pool. The air had cooled a notch — not cold, but the warmth had gone out of it, that first thin reminder that August has a back half. The pool was dark in the shadow of the granite ledge, the water clear below where I'd wedged the pole. I lifted the line by feel more than sight: weight on it before the tip broke the surface. Seven inches, good color, firm through the shoulder — on the flat stone and done before the light shifted again. I re-baited with a fresh earthworm from the bait fold, pressed the pole back deep under the ledge overhang, and let the current settle. On the way back I pulled a fistful of watercress from the side seep — stems cold and crisp, dark green in the low light — and wrapped it in dock leaves. Tonight's supper is decided. I like these late-afternoon moments at the pool: the day is mostly done, you can feel the shape of what you accomplished, and all that's left is to cook and eat and watch the stars come out.
