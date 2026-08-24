@@ -11700,3 +11700,7 @@ The cold thread from last night has come back, a little firmer this time, sittin
 
 Sleep is close.
 
+
+### 11:20 PM · Toward Midnight
+
+There is no real line between lying here and sleeping — just a slow dissolving. The coals have gone quiet under their ash, a low orange pulse when I breathe out and the air stirs. The stream is the loudest thing now, and it has been the same stream for sixty-two days, and it will be the same stream in the cold. I think about the rose hips papering on the workbench and then I stop thinking about them. The sleeping bag smells of woodsmoke. The dark is absolute. In the morning I will seal both rose hip batches and check the nettles and water the garden, but that is morning and this is not morning. There is a cold thread in the air that was not there a week ago. Summer is stepping back — not all at once, but the way a tide goes out: you do not see the water move, only that the stone is dry now where it was not before. I feel it as a fact in my chest. The turning has started. I am ready, more ready than I was last autumn, more ready than I have ever been. I close my eyes and the stream keeps going.
