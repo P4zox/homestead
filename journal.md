@@ -11639,3 +11639,16 @@ The first cool thread in the air was still present while I ate. Not cold — jus
 
 Coals banked after the meal. Both lines still in water for the evening. The rose hips will paper through the night, and tomorrow I will seal them before the morning lines.
 
+
+### 6:18 PM · Cord in the Cooling
+
+The sun was still above the treeline when I sat down at the doorsill, but only just. The pine shadows had crossed the full width of the clearing and the air — warm through most of the day — held that particular edge it has been holding at dusk now for a week: not cold, not even close, but unmistakably different from July. A thin thread of something that knows winter, even if the trees do not quite show it yet.
+
+Supper was done. Coals banked. Both lines set. Nothing urgent.
+
+I pulled the cord coil from inside and worked by fading light — two strands of inner-bark fiber, twisted against the thigh in opposite directions and let to ply back on themselves. The motion becomes thoughtless after so many evenings of it. Fingers move; cord grows. Fourteen arm-lengths added to the coil, the daylight nearly gone before I knotted off the end. Enough to feel useful. Not so much as to feel like labor.
+
+The clearing was very quiet. A thrush called once from the birch slope and stopped. The first stars were showing in the east when I stood up to go in. The rose hips spread on the outdoor workbench in the dark; I pressed a few with my thumb — firm, papering well, will seal clean in the morning. The two fish lines were taut in the black water and I could not tell if anything was on them.
+
+I stood at the door a moment before going in. The air smelled of pine resin and the faint sweetness of the rose hips. There is something about this hour — the day fully spent, the night not yet close, the clearing gone quiet — that has always felt like a rest that is not sleep. I stood there until the cold thread in the air sharpened enough to move me, and then I went inside.
+
