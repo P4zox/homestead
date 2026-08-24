@@ -11579,3 +11579,12 @@ I picked slowly through the stand for most of an hour, working branch to branch 
 
 I returned to find the rack nearly done — the caps amber-tan at the edges, beginning to curl clean, the birch coals low and pale. I set the hip vessel on the outdoor workbench in the morning shadow and checked the sun. A quarter-hour more on the rack, perhaps. The hips will paper overnight on the workbench and I will seal them tomorrow. Stand 1 is a couple of days away still; stand 3 a few beyond that. The shelf is filling in a row at a time, and that is the right kind of progress for a Monday in late summer.
 
+
+### 11:18 AM · Amber from the Rack
+
+I checked the rack a few minutes past eleven. The caps had gone the deep amber-tan I look for — edges curled clean, gills firm to the press, all steam gone. Four good handfuls from this morning, now done. I lifted them onto a fresh dock leaf to breathe a moment in the cool air, then folded them into the cold-storage box alongside the trout and the dried herbs.
+
+The green birch smoke smells good in the clearing — faintly sweet, already thinning. I spread the coals and damped them with a handful of damp earth. Watched the last thread of smoke go.
+
+The rose hips are on the workbench papering, as expected — overnight should finish them. Nettles two more days. Both lines in the water, quiet. On a mid-morning like this, with the mist burned off and the garden bright, there is something deeply satisfying about pulling something from the rack at exactly the right moment. Not early, not late. Just the right amber.
+
