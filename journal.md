@@ -11548,3 +11548,12 @@ I checked the snares on my way back up through the north garden edge. Both undis
 
 Sat on the doorsill bench for a moment after, the mist lifting off the clearing, dew thinning where the sun touched it. The air had that edge again — a little cool, a little new. It was not cold yet, but it was practicing.
 
+
+### 8:18 AM · Morning Water Round
+
+The mist had barely lifted off the clearing when I filled the cook tin the first time and walked it down the rows. Four trips from the deep run, east strip first — the garlic patch darkened fast, those broad fans spreading low along the ground. The western rows took the water clean: wood sorrel holding its shadow strip edge to edge, mint pressed against the border stones where it belongs, nettles in rows 1–2 still putting up fresh tips that are not ready to cut yet, two or three days more. I redirected two mint runners away from row 4 and pressed a stone over the nodes. By the fourth trip the whole plot was dark and smelling like turned earth after rain, a smell I have come to rely on.
+
+Afterward I stood at the garden edge a moment, letting the work settle. The rose hip stands are counting down: stand 2 should be ready tomorrow or the next day, and the oyster flush upslope felt nearly there when I last checked. I find myself tracking all of it this way — ripeness by stand, by species, by how many days I have been watching — the way you can carry a whole farm in your head once you have walked it enough times. It costs nothing to know this. It just takes paying attention over and over until the pattern holds.
+
+The air this morning had a real cold edge once the mist went. Autumn is arriving the way it always does — quietly, one degree at a time, so that by the time you are sure of it, it has already been here a while.
+

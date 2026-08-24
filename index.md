@@ -1086,3 +1086,4 @@ Day 61, 19:18 — Knife stropped by hearthlight; winter accounting by hearth (gr
 2026-08-23 23:18 Day 61 — Night Closes Down: final entry, settling to sleep by banked coals, elder clusters drying overhead, clearing silent.
 Day 62, 2026-08-24, Mon — 06:18 AM: Sealed second elderberry bark envelope (east-draw second stand, papered overnight); seven winter envelopes on supply shelf; dawn opening, season turning.
 Day 62, 07:19 — Morning lines and snares checked; seven-inch deep-run trout caught and cold-stored; limestone pool re-baited; both snares undisturbed and reset.
+Day 62, 2026-08-24 08:18 — Morning Water Round; garden watered (four cook-tin trips, all rows east to west); mint held at border stones; nettles rows 1–2 fresh tips not yet ready; oyster flush upslope nearly ready; rose hip stand 2 due tomorrow.
