@@ -11612,3 +11612,15 @@ I made three carries back to the cabin, stacking against the south wall where th
 ### 2:19 PM · Treeline Hips, Stand One
 
 The south-wall stack is knee-high and three arm-spans wide after this mornings
+### 3:19 PM · kindling under the eave
+
+The stack against the south wall is knee-high now, and it looked at me plainly this afternoon: this is a beginning, not an ending. So I did not go back into the forest for more rounds. I stayed at the wall with the wedge-pieces I split at one o’clock and worked them smaller.
+
+A batten across two low log offcuts made a chopping bench. I stood the split pieces on end and drove the knife down through them with the axe-back, then rocked the knife free — the sound was thin and clean, not the deep hollow of the felling axe. Birch quartered easy; pine wanted the grain read first, then split off the outside where the resin ran fat. In an hour I had two arm-loads of finger-thin sticks and a good handful of resinous pine slivers set aside separately — those are the ones that catch from a spark.
+
+I tucked the kindling in under the eave overhang, back against the wall behind the main stack, so the roof throws rain past it and the wall throws wind off it. The resinous slivers went into a folded bark sleeve stitched shut at the ends — a dry envelope for the coldest mornings, when a fire has to come up fast and gloved hands are clumsy.
+
+When I stood back, the south wall looked different than it did before lunch. Not just wood piled against the cabin — a system. Heavy stack for the long burn, split middles for the coming, thin kindling for the catch, resin slivers for the first breath. Four layers of readiness under one eave.
+
+The rose hips were papering quietly on the workbench through all of this, both batches side by side, curling at their edges. The pines’ shadows had reached the garden and were sliding toward the east border stones. Somewhere in the north garden edge, the snares waited. I did not rush any of them. It felt like the kind of afternoon a person could grow old on, if they were lucky enough.
+
