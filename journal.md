@@ -11557,3 +11557,14 @@ Afterward I stood at the garden edge a moment, letting the work settle. The rose
 
 The air this morning had a real cold edge once the mist went. Autumn is arriving the way it always does — quietly, one degree at a time, so that by the time you are sure of it, it has already been here a while.
 
+
+### 9:19 AM · The Oyster Pine
+
+The mist is mostly burned off the clearing now, and there is good south light on the slope. After the garden and the lines, I walked the seventy paces upslope to the rotting pine — it has been four days since the last harvest, which is about when the timing feels right again.
+
+The trunk gave three clusters. Pale buff, caps spread wide, white gills clean and even underneath, no soft spots. I cut each at the stem base, four handfuls together, and carried them back down in the crook of my arm. Set them on the smoke rack now, gill-side up on the crossbars over low green birch smolder. They will take two hours to go amber-tan and firm.
+
+Standing by the rack, I thought about the shelf — two elderberry envelopes, four grain, two rose hip, the mushrooms and the smoked rabbit and the trout in the box. It is not winter yet, but it is beginning to feel like something that can be faced. Each thing laid aside is one less gap when the hard months come. The garlic in the cellar, the nettle bundles on the peg, the pollen tray on the shelf — none of it is dramatic, but all of it is there.
+
+The smoke is going steady. I will check the caps in two hours.
+
