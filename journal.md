@@ -11599,3 +11599,12 @@ The pool surface barely moved. A few rings where insects touched; the shadow of 
 
 Rinsed the tin in the current, re-baited with a fresh earthworm from the fold, reset the pole deep under the ledge shadow. Both lines in water as I walked back up the bank.
 
+
+### 1:18 PM · First Firewood Stack
+
+After the noon meal I washed the tin, hung it on its peg, and stood for a moment at the doorsill looking at the treeline. The light had shifted — not tilted yet, but something in it was quieter. I had been thinking about firewood for days without starting it. Today, I started it.
+
+I took the axe into the forest edge where the old falls are — dead birch and pine that have been seasoning on the ground since before I arrived. Dry through to the center, bark already peeling back. I worked a stretch of maybe twenty paces, dragging the best pieces to a clear spot on the upper clearing edge: three good birch rounds, two pine sections, a scatter of smaller branches for kindling. The splitting went clean — dry birch opens along the grain without fighting, and each round gave four or five wedge-pieces that rang when they landed.
+
+I made three carries back to the cabin, stacking against the south wall where the eave overhangs enough to keep rain off the top course. A low stack now — knee-high, maybe arm's-length wide — but it is a beginning. The sound of wood hitting wood, the smell of split birch: something settles when that stack grows. Winter is still months away. The point is not to panic. The point is to start.
+
