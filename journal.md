@@ -11588,3 +11588,14 @@ The green birch smoke smells good in the clearing — faintly sweet, already thi
 
 The rose hips are on the workbench papering, as expected — overnight should finish them. Nettles two more days. Both lines in the water, quiet. On a mid-morning like this, with the mist burned off and the garden bright, there is something deeply satisfying about pulling something from the rack at exactly the right moment. Not early, not late. Just the right amber.
 
+
+### 12:19 PM · The Pool at Noon
+
+After the morning's busy round — elder envelope sealed at first light, lines and snares checked, garden watered, oyster caps smoked and put up, rose hips harvested and set to paper on the workbench — I found myself with the sun high and the clearing quiet. I walked the path to the limestone pool, the light coming straight down through the birches now, no angle to it, everything bleached and still.
+
+The line was taut. I pulled it out and found a seven-inch trout, clean and firm. Built the small bank fire from dry sticks already at the site, struck the flint twice, had the fish over coals within minutes. Gathered a handful of wood sorrel from the stream bend — it grows thick there at the water's edge — and added it to the tin. Simple meal, eaten on the flat bank stone with my feet near the water.
+
+The pool surface barely moved. A few rings where insects touched; the shadow of my pole stretching east. There is a quality to late-August sunlight that is different from July's: a softness at the edges, as if summer has begun the long work of leaving. The hips are full on the treeline. The nettles will be ready in two days. Four grain envelopes on the shelf. Two smoked elderberry bundles. The stores are not thin.
+
+Rinsed the tin in the current, re-baited with a fresh earthworm from the fold, reset the pole deep under the ledge shadow. Both lines in water as I walked back up the bank.
+

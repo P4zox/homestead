@@ -1090,3 +1090,4 @@ Day 62, 2026-08-24 08:18 — Morning Water Round; garden watered (four cook-tin 
 2026-08-24 09:19 Day 62 — Upslope oyster pine checked and harvested: three clusters (pale buff, wide-spread caps, clean white gills, four handfuls), cut at stem base, loaded gill-side up on smoke rack over low green birch smolder — pull in ~2 hours when amber-tan.
 Day 62, 10:00 — Rose hip stand 2 harvested: bark vessel three-quarters full of firm red hips; oyster caps nearing done on rack.
 Day 62, 11:18 AM — Oyster caps pulled from smoke rack (amber-tan, firm, cold-stored in main box; rack cleared)
+Day 62, 12:19 PM — Limestone pool noon catch: seven-inch trout, cooked on bank fire with wood sorrel, eaten at poolside in midday sun; line re-baited and reset; both lines in water.
