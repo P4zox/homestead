@@ -11689,3 +11689,14 @@ A long season. I can feel it on me — not weight exactly, but fullness. Autumn 
 
 Good tired. The kind you don't need to explain.
 
+
+### 10:21 PM · Night Still
+
+The coals have gone to deep orange under their ash. Through the bark walls I can hear the stream, low and steady, and an occasional small tick from the cooling wood. I am lying on the cattail mat with the sleeping bag pulled close, thinking of nothing much — the lines are out, the hips are papering, the snares are waiting. The day was full and the day is done.
+
+There is something settling about a night where everything is simply working without you: fish resting on their lines, hips drying in the cool air, cord coiled on the supply shelf waiting to be useful. I did a good day's work — rose hips, kindling, oyster caps, cord — and now none of it needs me anymore until morning.
+
+The cold thread from last night has come back, a little firmer this time, sitting in the roots of the pines. Autumn is not here yet but it is near, and I am more ready for it than I was a week ago.
+
+Sleep is close.
+
