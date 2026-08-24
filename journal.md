@@ -11674,3 +11674,18 @@ I am not finished — I will not be finished before the cold — but I am ahead 
 
 A moth found the open door and circled the hearthglow once and left. The pines on the slope behind me were just black shapes. Somewhere in the dark the stream went on making its sound, the same it always has. I stayed until the chill on my shins was real enough to mean something, then I came inside and set the latch bar across.
 
+
+### 9:22 PM · Coals and Rest
+
+Inside now, the latch bar down, the coals laid low. The hearth is down to orange-red breath — no flame, just heat pulling slowly out of the wood. I banked it with the cook tin's rim, drew ash over the top, left just enough air at one side to hold a core through the night.
+
+The sleeping bag is out on the cattail mat. I shook it, pressed my hand to the cabin floor to feel the chill — it's there, cool and particular, different from a month ago. Summer's floor is warm; this is something else beginning.
+
+The rose hips are still on the workbench outside. The air is dry and still, no wind — they'll be fine. Tomorrow: seal both batches, check the nettles (another day or two), note the buried log for around Day 64 or 65, water the garden. Both lines should come in with something at first light.
+
+I lay down in the near-dark and took stock without moving: the cord coil on the supply shelf, the seven winter envelopes in a row, the firewood stack under the south eave, both lines in the water, both snares waiting north of the garden edge. All of it in order. The coals ticked. The cabin smelled of pine resin and hearthsmoke.
+
+A long season. I can feel it on me — not weight exactly, but fullness. Autumn is coming; the rose hips told me plainly, the shortened afternoon shadow told me, the cold thread in the last nights told me. I've been building toward this and now I'm inside it: stores growing, woodpile growing, lines in water every night.
+
+Good tired. The kind you don't need to explain.
+
