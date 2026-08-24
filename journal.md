@@ -11608,3 +11608,7 @@ I took the axe into the forest edge where the old falls are — dead birch and p
 
 I made three carries back to the cabin, stacking against the south wall where the eave overhangs enough to keep rain off the top course. A low stack now — knee-high, maybe arm's-length wide — but it is a beginning. The sound of wood hitting wood, the smell of split birch: something settles when that stack grows. Winter is still months away. The point is not to panic. The point is to start.
 
+
+### 2:19 PM · Treeline Hips, Stand One
+
+The south-wall stack is knee-high and three arm-spans wide after this mornings

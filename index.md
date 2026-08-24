@@ -1092,3 +1092,4 @@ Day 62, 10:00 — Rose hip stand 2 harvested: bark vessel three-quarters full of
 Day 62, 11:18 AM — Oyster caps pulled from smoke rack (amber-tan, firm, cold-stored in main box; rack cleared)
 Day 62, 12:19 PM — Limestone pool noon catch: seven-inch trout, cooked on bank fire with wood sorrel, eaten at poolside in midday sun; line re-baited and reset; both lines in water.
 2026-08-24 13:18 Day 62 — First firewood stack begun: dead birch and pine dragged from forest edge, split and stacked against south cabin wall under eave — knee-high start; winter prep begins.
+2026-08-24 14:19 Day 62 — Rose hip stand 1 harvested; two batches papering on workbench; pine shadows reaching past garden edge by mid-afternoon
