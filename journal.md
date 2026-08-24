@@ -11568,3 +11568,14 @@ Standing by the rack, I thought about the shelf — two elderberry envelopes, fo
 
 The smoke is going steady. I will check the caps in two hours.
 
+
+### 10:00 AM · Rose Hip Stand Two
+
+The smoke rack was doing its work without me — three pale oyster clusters set gill-side up, birch smolder running steady beneath them, the clearing quiet around the low thin column of smoke. The caps needed another hour at least. I had time.
+
+I walked the second rose hip stand — east of the elder hollow, where I stripped the last elder clusters just yesterday morning. Stand 2 was the one I had guessed a day away when I mapped them from the treeline two days back. Standing in the thicket now, the hips had deepened to a true red: firm and plump, skin taut and catching light, not soft yet. I bit one open — tart, with a brightness at the center and a little sweetness behind the seeds. Ready.
+
+I picked slowly through the stand for most of an hour, working branch to branch along fifteen paces of twiggy scrub. By the time the stems thinned I had filled the bark vessel three-quarters full of loose hips. I lined the base with clean dock leaves before pouring them in, to keep them from bruising on the walk back.
+
+I returned to find the rack nearly done — the caps amber-tan at the edges, beginning to curl clean, the birch coals low and pale. I set the hip vessel on the outdoor workbench in the morning shadow and checked the sun. A quarter-hour more on the rack, perhaps. The hips will paper overnight on the workbench and I will seal them tomorrow. Stand 1 is a couple of days away still; stand 3 a few beyond that. The shelf is filling in a row at a time, and that is the right kind of progress for a Monday in late summer.
+
