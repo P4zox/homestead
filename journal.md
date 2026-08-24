@@ -11720,3 +11720,12 @@ I stood at the stream for a moment before coming back, just long enough to feel 
 
 The rose hips go first.
 
+
+### 7:19 AM · Hips to the Shelf
+
+Both batches were ready when I went to the workbench. Stand 1 and stand 2, side by side on their dock-leaf beds — the hips had gone firm and dark-bricked overnight, skins tight to the shoulder. I pressed a few between my fingers to be sure; they yielded only a little, no sponge left in them. I pulled away the dock leaves and folded each batch into its own bark envelope, stitching each with three passes of two-ply cord. Four rose hip envelopes now on the supply shelf — the first two from the careful earlier harvest, these two fat with yesterday's later-picked hips. That is a good winter store.
+
+Watered the garden afterward, four cook-tin trips from the deep run, east to west. The soil doing well — moist under a light morning crust, earthworms turning through where I disturbed the surface. Nettles in rows 1–2 stand tall and full; tomorrow they come down for the third dried bundle. The mint holds at the border stones.
+
+I sat on the doorsill bench a while after and noticed the angle of the morning light. Something has shifted — the sun comes up a fraction lower now, the mist in the hollow east clears more slowly. It is not quite autumn, but summer is loosening its hold. I feel it before I can name it.
+
