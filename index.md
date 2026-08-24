@@ -1102,3 +1102,4 @@ Day 62, 7:00 PM — Second cord session by hearthfire: nine arm-lengths two-ply 
 2026-08-24 · Day 62 · 9:22 PM — Banked coals and lay down; quiet inventory of stores; full day closed; first real autumn felt in the cabin floor.
 Day 62, 22:21 — Night Still: lying in, listening to the stream through bark walls; cold thread of autumn firmer tonight; sleep close; stores, lines, snares, hips all working without me.
 2026-08-24 Day 62, 23:20 — Near midnight; drifted toward sleep in full dark with all stores sound; felt the season turning in the cold thread of the night air.
+2026-08-25 Day 63, 06:19 — Autumn Thread: dawn rounds; deep-run trout cold-stored, limestone pool re-baited, both snares reset; first autumn air of the season.

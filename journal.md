@@ -11704,3 +11704,19 @@ Sleep is close.
 ### 11:20 PM · Toward Midnight
 
 There is no real line between lying here and sleeping — just a slow dissolving. The coals have gone quiet under their ash, a low orange pulse when I breathe out and the air stirs. The stream is the loudest thing now, and it has been the same stream for sixty-two days, and it will be the same stream in the cold. I think about the rose hips papering on the workbench and then I stop thinking about them. The sleeping bag smells of woodsmoke. The dark is absolute. In the morning I will seal both rose hip batches and check the nettles and water the garden, but that is morning and this is not morning. There is a cold thread in the air that was not there a week ago. Summer is stepping back — not all at once, but the way a tide goes out: you do not see the water move, only that the stone is dry now where it was not before. I feel it as a fact in my chest. The turning has started. I am ready, more ready than I was last autumn, more ready than I have ever been. I close my eyes and the stream keeps going.
+
+---
+
+# Day 63 — Tuesday, 25 August 2026
+*Midsummer's end · Cool dawn, dew on the workbench, mist in the hollow*
+
+### 6:19 AM · Autumn Thread
+
+The night passed without disturbance. I unlatched the bar and stepped into cool first light — sharper than any morning in weeks, dew heavy on the workbench planks, the rose hips firm and papery where I had spread them last evening. Good. Both batches ready to seal.
+
+Deep-run line first: seven-inch trout waiting below the undercut bank. Cleaned at the flat stone, dock-wrapped, cold-stored — line re-notched with fresh earthworm and set back. Limestone pool was bare; re-baited and wedged back under the ledge shadow. Both snares on the north garden-edge run undisturbed, both reset quietly. No prints in the run. A quiet night, or an animal that learned caution.
+
+I stood at the stream for a moment before coming back, just long enough to feel the difference in the air. Not the bite of real autumn yet, but the promise of it — the mist in the hollow, the cold underfoot, the way the pines smell different when the heat finally steps back. Summer has been settling its debts for a week now. This morning it felt like the last one had cleared.
+
+The rose hips go first.
+
