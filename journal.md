@@ -11628,3 +11628,14 @@ The rose hips were papering quietly on the workbench through all of this, both b
 ### 4:19 PM · Line at Low Sun
 
 The pine shadows had crossed the garden border and were reaching east toward the treeline when I went down to the pool. The air had cooled a notch — not cold, but the warmth had gone out of it, that first thin reminder that August has a back half. The pool was dark in the shadow of the granite ledge, the water clear below where I'd wedged the pole. I lifted the line by feel more than sight: weight on it before the tip broke the surface. Seven inches, good color, firm through the shoulder — on the flat stone and done before the light shifted again. I re-baited with a fresh earthworm from the bait fold, pressed the pole back deep under the ledge overhang, and let the current settle. On the way back I pulled a fistful of watercress from the side seep — stems cold and crisp, dark green in the low light — and wrapped it in dock leaves. Tonight's supper is decided. I like these late-afternoon moments at the pool: the day is mostly done, you can feel the shape of what you accomplished, and all that's left is to cook and eat and watch the stars come out.
+
+### 5:18 PM · Low Light, Supper Done
+
+The sun is at that low angle now — the kind that makes shadows sharp and draws the pines behind the shelter in long dark lines far east across the garden. I brought the trout from the cold-storage box and the watercress from its dock-wrap, and cooked them together in the cook tin over a handful of hearthcoals with a pinch of wood sorrel from row five. It takes almost nothing to make this meal: ten minutes over low fire, a clean tin, the smell of good fish in the last amber warmth.
+
+Ate at the doorsill bench while the light lasted. From the threshold I could see the outdoor workbench where both rose hip batches are spread to paper — stand 1 and stand 2 together, a full spread of deep crimson. They will be ready to fold and stitch in the morning. Inside on the supply shelf: two elderberry envelopes, four grain envelopes, two rose hip envelopes already done, dried mushrooms, smoked rabbit, dried nettles. The shelf is the fullest it has been since I came here.
+
+The first cool thread in the air was still present while I ate. Not cold — just the suggestion of a season turning. The nettles in rows one and two will be ready in another two days; stand three hips in about the same. I am not behind. But I can feel the shape of what is coming.
+
+Coals banked after the meal. Both lines still in water for the evening. The rose hips will paper through the night, and tomorrow I will seal them before the morning lines.
+
