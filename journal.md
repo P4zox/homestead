@@ -11652,3 +11652,12 @@ The clearing was very quiet. A thrush called once from the birch slope and stopp
 
 I stood at the door a moment before going in. The air smelled of pine resin and the faint sweetness of the rose hips. There is something about this hour — the day fully spent, the night not yet close, the clearing gone quiet — that has always felt like a rest that is not sleep. I stood there until the cold thread in the air sharpened enough to move me, and then I went inside.
 
+
+### 7:00 PM · Hearthlight, Second Cord
+
+The coals had settled to a steady glow by the time I sat down on the rush mat with the bark-strip bundle for the second time today. Nine arm-lengths of two-ply twisted slowly in the hearthlight, hands moving from memory, the rhythm easy after all these weeks. Outside: both lines in the water, rose hips pressed flat on the workbench going their slow paper overnight, the new south-wall firewood row standing under its eave.
+
+I found myself going over the stores as I twisted. Grain: four envelopes, thinnest supply still. Dried mushrooms: good. Smoked meat: some. Rose hips and elderberries newly in. The direction is clear, even if the work is not finished. Winter will come, and I will have more ready for it than I had last time.
+
+Nine arm-lengths more for the coil. A moth by the hearthstone. Outside, the stream, faint and steady.
+

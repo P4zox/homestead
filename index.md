@@ -1097,3 +1097,4 @@ Day 62, 12:19 PM — Limestone pool noon catch: seven-inch trout, cooked on bank
 Day 62, 4:19 PM — Limestone pool line: seven-inch trout at low sun; watercress gathered; supper planned.
 2026-08-24 17:18 — Day 62 — Cooked and ate supper at the doorsill (trout, watercress, wood sorrel); coals banked; both rose hip batches papering for morning; both lines in water.
 Day 62, 18:18 — twisted fourteen arm-lengths two-ply cord at doorsill as evening light faded; noted cooling air and first stars; rose hips papering well on outdoor workbench overnight.
+Day 62, 7:00 PM — Second cord session by hearthfire: nine arm-lengths two-ply twisted; winter stores reviewed in mind (grain thinnest); rose hips papering overnight, south wall firewood stack complete, lines in water.
