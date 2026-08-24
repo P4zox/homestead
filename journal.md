@@ -11661,3 +11661,16 @@ I found myself going over the stores as I twisted. Grain: four envelopes, thinne
 
 Nine arm-lengths more for the coil. A moth by the hearthstone. Outside, the stream, faint and steady.
 
+
+### 8:22 PM · Threshold at Dark
+
+The hearthfire is mostly coals now, just enough warmth pressing at my back through the open door. I brought the doorsill bench close and sat with my legs out in the night air. The sky had gone from deep blue to black by degrees I almost missed, and then the stars were simply there — a spread of them east and south, the way they go this time of year, thickening as my eyes opened to them.
+
+The air has a different quality tonight. Not cold — not yet — but no longer warm in the easy way of high summer. There is something under it, a thread of what is coming, the way you can smell water before you see it. Autumn does not announce itself here; it just begins to be present at the edges, and you start to feel it at the back of your neck when the fire drops low.
+
+I sat there a while taking stock without paper. Lines in water, both of them — the deep run and the limestone pool. Both rose hip batches papering on the outdoor workbench, and the workbench is set back under the eave enough that the dew will not find them before morning. Snares on the north garden edge. Seven envelopes on the supply shelf: grain (four), elderberry (two), rose hips (one, with another two sealing tomorrow). The cord coil is thick now, weeks of evenings in it. The woodpile at the south wall has four layers of readiness from heavy rounds down to resin slivers.
+
+I am not finished — I will not be finished before the cold — but I am ahead of where I was. That is the measure that matters out here. Not done. Ahead.
+
+A moth found the open door and circled the hearthglow once and left. The pines on the slope behind me were just black shapes. Somewhere in the dark the stream went on making its sound, the same it always has. I stayed until the chill on my shins was real enough to mean something, then I came inside and set the latch bar across.
+
