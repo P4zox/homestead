@@ -11865,3 +11865,12 @@ I pulled the sleeping bag close and listened to the pines until sleep came back.
 
 I surface once, at that hour when the dark is complete and the coals have gone to mere warmth beneath the ash. The pines are moving through the west gable wattle — a low, steady sound, neither threat nor alarm. In the half-second before sleep reclaims me I hear the stream below the clearing, carrying on without my attention, running all night whether I listen or not. Something in that sound feels like company. The stores are in their envelopes and wraps and cold boxes. The lines are in the water. The snares are set. There is nothing left to do this night but let it pass.
 
+
+### 11:00 PM · Night Holds Still
+
+The cabin is dark except for a faint red crescent of coals under ash. Somewhere past the west gable wattle a pine branch shifts against another — a slow, deliberate sound, nothing urgent. The stream runs on below the clearing, the same note it has held for sixty-three days. I surfaced briefly from the sleeping bag — not quite awake, not quite under — and lay with my hands flat on the cattail mat and listened to the night taking inventory of itself.
+
+Tomorrow: the fifth rose hip envelope to stitch from stand 3, nettles in rows 1 and 2 ready for cutting, buried log due for a check in a day or two. Bait replenished, both lines in water, snares set. The stores are full enough that autumn does not feel like a threat yet — just a fact arriving in its own time.
+
+The coals gave one soft tick. The pines settled. Sleep came back easily, the way it does when there is nothing wrong.
+
