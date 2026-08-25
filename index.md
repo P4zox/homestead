@@ -1113,3 +1113,4 @@ Day 63, 12:18 — Harvested rose hip stand 3 (southeast treeline, old stump thic
 2026-08-25 14:19 (Day 63) — Afternoon east walk: last east-seep blueberries eaten, east bench second plot checked (settled, dark loam, ready for spring), dock leaves gathered for rose hip stitching.
 Day 63, 15:21 (Tue 25 Aug 2026) — Afternoon limestone pool trout; rose hip stand 3 batch turned on workbench; bait fold thinning — new worms tomorrow.
 Day 63, 16:18 — Supper at doorsill: trout, watercress, and wood sorrel cooked over hearthcoals, eaten slow at the bench as south treeline went gold — day done, lines in water, snares set.
+Day 63, 17:18 — Dug fresh earthworms from north garden edge; bait fold refilled (~two dozen, new damp bark fold, cold-stored); rose hip stand 3 papering well overnight; lines and snares out.

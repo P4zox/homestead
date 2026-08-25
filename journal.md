@@ -11808,3 +11808,12 @@ I sat at the doorsill bench and ate slowly. The sun was well past its peak, ambe
 
 Tomorrow: stitch the fifth rose hip envelope, cut the nettles in rows 1–2, dig a fresh worm fold from the north garden edge, check the buried log. But that is tomorrow. This was supper — warm food in the amber hour, the clearing settling around me like something satisfied — and it was enough.
 
+
+### 5:18 PM · Worms Before Dark
+
+The light was still warm and gold on the clearing when I took the digging stick to the north garden edge. The bait fold had run thin — barely a handful left this morning — and tomorrow the lines need fresh bait before I can reset properly. Better to dig now, while there is still enough light to see what the soil gives up.
+
+I worked along the garden's north border, where the soil stays dark and cool under the nettle rows. Six inches down, earthworms — fat and deep-colored, the kind that live slow and deep. I filled a fresh damp bark fold, maybe two dozen, folded the dock leaf tight and bound it with cord. Cold-stored in the main box beside the oyster caps and the trout.
+
+The rose hip stand 3 batch is still papering on the outdoor workbench, dock-leaf lined, moisture pulling out steadily. I turned it once and the hips felt firm and dry already at the edges. Tomorrow I stitch the fifth envelope. The snares are set, the lines are in, and the coals are under ash. There is nothing left to do tonight but let the clearing settle into dark.
+
