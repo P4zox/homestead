@@ -11764,3 +11764,14 @@ The air has that particular quality of a late-August morning — not quite summe
 ### 11:18 AM · Poolside at Noon
 
 The morning work is done — both lines fishing, the rack cleared, rose hips sealed and stored. I walked the path down to the limestone pool with the cook tin and a handful of wood sorrel from row five, partly to check the line, partly just to be somewhere other than the clearing for an hour. The bait pole was still wedged under the far ledge shadow where I had left it two hours ago. When I lifted it, there was weight. A seven-inch trout, steady and cold in the hand. I cleaned it on the flat poolside stone as I always do, built a small bank fire from kindling and dry pine slivers, and ate at the pool's edge — trout and wood sorrel, the pool still and dappled, the birches on the far bank beginning their first hesitant yellowing at the tips. A month ago that bank was solid green. I re-baited with a fresh earthworm from the bait fold and wedged the pole back deep in shadow, then walked uphill with the empty cook tin. Two lines in the water this afternoon, both ready. The buried log needs checking tomorrow; the nettles too. For now the day feels held — unhurried, enough.
+
+### 12:18 PM · The Last Red Hips
+
+Back from the limestone pool, I rested a few minutes at the doorsill bench watching swallows work the garden rows in low passes. The noon trout sat well — clean and bright, the wood sorrel giving it something between sharpness and sweetness that tastes exactly like late summer. Then I thought of stand three.
+
+The other two thickets are sealed and on the supply shelf — four envelopes. Stand three is a denser cluster out on the southeast treeline, eight or nine canes fanning from an old stump, south-facing and sheltered. I walked out after the bench, following the tree shadow past the elder bushes and the first thin edge of the bramble hedge. The hips were ready. Deep scarlet, skin firm under my thumb, a faint give only at the very tip. I picked until my apron was brimming.
+
+Brought the batch back and spread it on the outdoor workbench, dock leaves laid flat underneath, same as the others. It will paper overnight and I will stitch the envelope tomorrow morning. A fifth rose hip batch — more than I counted on. Five envelopes will carry me well past the deep cold.
+
+I am tired in the quiet way that comes after a good meal and a useful afternoon. The clearing has sun and shadow in patches now, and everything that needed doing today is done or in motion. The snares are set, the lines are in the water. Tomorrow I cut the nettles.
+
