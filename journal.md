@@ -11792,3 +11792,11 @@ Climbed the short pitch to the second garden plot afterward, not to work, just t
 
 Came back by way of the north meadow corner and pulled a fistful of dock leaves from the stand there — still lush, nothing gone brown yet. Good for tomorrow's rose hip stitching. Back at the clearing with the sun still up, lines still in water, rose hips papering on the workbench, the whole afternoon going quiet into evening.
 
+
+### 3:21 PM · Still Water, Turning Light
+
+Mid-afternoon, and the clearing is quiet in the particular way it gets when summer starts to let go. The south treeline is catching full light — gold-edged now, though the leaves have barely moved. The rose hip batch from stand 3 is spread on the outdoor workbench, dock-leaves flat underneath, hips going slowly from firm-scarlet to paper-ready. I turned them once with my palm, redistributed the clusters for even air on both sides, and left them.
+
+Walked down to the limestone pool. The water is low and clear — lowest it has been since early summer, the undercut ledge casting a longer shadow than I remember. The line was holding still. I let it sit another ten minutes, watching a water strider work the far margin, then the pole dipped once and held down. Seven inches of trout, deep-bellied and cool. Cleaned it at the flat pool stone, wrapped in dock, cold-stored back at the main box. Re-baited with a fresh earthworm from the fold, pole wedged back deep under the ledge — both lines in water for evening and overnight.
+
+The bait fold is getting thin. Tomorrow or the day after I should turn new worms from the north garden edge, before I stretch the fold too far. Not urgent; there are enough for tonights
