@@ -6,3 +6,4 @@
 10:18 — Pulled two oyster clusters from smoke rack (amber-tan, firm throughout, edges curled clean); cold-stored in main box; rack coals spread and damped — rack cleared.
 11:18 — Walked to limestone pool: line gave seven-inch trout (cleaned at flat pool stone, cooked on small bank fire with wood sorrel from row 5, eaten at poolside — noon meal; line re-baited with earthworm from bait fold, pole re-wedged deep under far ledge shadow — both lines in water for afternoon).
 12:18 — Rose hip stand 3 harvested: walked the southeast treeline from doorsill bench after noon meal; hips on old-stump thicket (eight-nine canes, south-facing) deep scarlet and firm-ready; picked full apron load; spread on outdoor workbench dock-leaf lined to paper overnight — fifth rose hip envelope to stitch Day 64.
+13:19 — Cord twisted at doorsill bench in afternoon shade: fourteen arm-lengths two-ply added to coil while rose hip stand 3 papers on outdoor workbench; both lines in water.

@@ -11775,3 +11775,12 @@ Brought the batch back and spread it on the outdoor workbench, dock leaves laid 
 
 I am tired in the quiet way that comes after a good meal and a useful afternoon. The clearing has sun and shadow in patches now, and everything that needed doing today is done or in motion. The snares are set, the lines are in the water. Tomorrow I cut the nettles.
 
+
+### 1:19 PM · Cord in Afternoon Light
+
+The rose hips from stand three are spread on the outdoor workbench, dock-leaf lined, papering in the south afternoon light. I can watch them from the doorsill bench without much effort — they know what they are doing.
+
+Brought the cord-bundle from the wall peg and sat with the inner bark strips in the shade of the doorframe. Two strands twisted tight against the palm, then doubled back. The hands know this rhythm now without much help from the mind. Arm-length by arm-length, the coil grows. Fourteen lengths before the shadow of the ridgepole shifted across the clearing floor.
+
+Both fishing lines are still in the water. Snares patient on the north garden edge. The smoke rack cleared and quiet since morning. A good kind of afternoon — the kind where the work is small enough to let the rest of the day settle around it.
+
