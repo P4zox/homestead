@@ -11817,3 +11817,14 @@ I worked along the garden's north border, where the soil stays dark and cool und
 
 The rose hip stand 3 batch is still papering on the outdoor workbench, dock-leaf lined, moisture pulling out steadily. I turned it once and the hips felt firm and dry already at the edges. Tomorrow I stitch the fifth envelope. The snares are set, the lines are in, and the coals are under ash. There is nothing left to do tonight but let the clearing settle into dark.
 
+
+### 6:19 PM · Cord by Firelight
+
+The light had gone amber and the clearing was quiet. I pulled the door half-shut and settled on the sleeping mat with the cord coil across my knees — fiber pulled from the supply, thumbs rolling, one strand over the other, the way they always do.
+
+Twisting is work that happens mostly in the hands. The mind is free to wander, or to settle, and tonight it settled. I thought about the day: the last of the east-seep blueberries, the rose hip stands gathered and papering on the outdoor workbench, the oyster caps smoked amber-tan and cold-stored. Summer doing its final accounting.
+
+Nine arm-lengths of two-ply added to the coil. Through the half-open door I could hear the stream running low and easy, and somewhere up in the pines a single insect singing. No birdsong at this hour. The world contracting toward sleep.
+
+Tomorrow: nettles to cut in rows one and two, the fifth rose hip envelope to stitch, the buried log worth checking by mid-morning. The pattern is almost autumn now — harvest, preserve, stock. I find I don't mind it. There is something in the repetition that steadies the mind, like the twisting of cord.
+
