@@ -11751,3 +11751,12 @@ On the way back I pulled a fistful of watercress from the side seep below the de
 
 Back at the clearing, the smoke coils steady. Ten minutes to go, maybe a little more. I will sit at the doorsill and wait.
 
+
+### 10:18 AM · Caps Off the Rack
+
+The smoke rack stood patient all morning. I went up to it just past ten — the coals had burned down to a good steady smolder, the way they hold when the green birch catches and settles without rushing. The two oyster clusters had gone amber-tan all the way to their edges, the caps curled just slightly at the rim, firm under a press of the thumb. No soft spots. That warm-earthy smell of smoked mushroom that I have come to know well.
+
+I pulled them gill-side down onto a flat piece of bark and carried them back to the clearing. Spread the coals and damped them — rack cleared and ready for next time. The caps went into the main cold-storage box alongside the trout and the watercress from this morning.
+
+The air has that particular quality of a late-August morning — not quite summer any longer, not yet autumn. The mist in the hollow east of the clearing has begun to thin in the south light. A quiet, productive morning already: lines reset, garden watered, rose hips sealed and shelved, oysters smoked and stored. For now I sit at the doorsill bench a moment, hands still smelling of birch smoke, and let the morning settle.
+
