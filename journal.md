@@ -11784,3 +11784,11 @@ Brought the cord-bundle from the wall peg and sat with the inner bark strips in 
 
 Both fishing lines are still in the water. Snares patient on the north garden edge. The smoke rack cleared and quiet since morning. A good kind of afternoon — the kind where the work is small enough to let the rest of the day settle around it.
 
+### 2:19 PM · Afternoon East Walk
+
+The afternoon sun was running slant across the clearing when I pushed east — eighty paces past the seep draw to check the cache box. The blueberries from the late flush, Day 53, were still there under the weighted bark lid, pressed cool in the dark soil. A good handful left, a little past prime but right. Ate them standing at the seep where the air pools cold even at this hour. The box is empty of them now.
+
+Climbed the short pitch to the second garden plot afterward, not to work, just to walk it. The ten rows I turned all last week have settled into themselves — darker where rain touched, open loam all through, earthworms still threading the surface when I crouched to look. The dock taproot stand at the east edge is gone clean. Standing there in the afternoon with the south-facing slope catching the last warm light and the draw running cold below: it is a good piece of ground. Come spring it will hold a real garden.
+
+Came back by way of the north meadow corner and pulled a fistful of dock leaves from the stand there — still lush, nothing gone brown yet. Good for tomorrow's rose hip stitching. Back at the clearing with the sun still up, lines still in water, rose hips papering on the workbench, the whole afternoon going quiet into evening.
+
