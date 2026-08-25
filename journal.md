@@ -11800,3 +11800,11 @@ Mid-afternoon, and the clearing is quiet in the particular way it gets when summ
 Walked down to the limestone pool. The water is low and clear — lowest it has been since early summer, the undercut ledge casting a longer shadow than I remember. The line was holding still. I let it sit another ten minutes, watching a water strider work the far margin, then the pole dipped once and held down. Seven inches of trout, deep-bellied and cool. Cleaned it at the flat pool stone, wrapped in dock, cold-stored back at the main box. Re-baited with a fresh earthworm from the fold, pole wedged back deep under the ledge — both lines in water for evening and overnight.
 
 The bait fold is getting thin. Tomorrow or the day after I should turn new worms from the north garden edge, before I stretch the fold too far. Not urgent; there are enough for tonights
+### 4:18 PM · Supper at Doorsill
+
+The day had gone full and steady, and by late afternoon I was ready to let it settle. I pulled the afternoon limestone pool trout from the cold-storage box — caught just after three, dock-wrapped — along with the watercress fistful from this morning and a handful of wood sorrel cut from row five. Raked the coals up from ash, set the cook tin over them, everything in together. The smell that rose was good: trout and green things and a thin curl of steam into still air.
+
+I sat at the doorsill bench and ate slowly. The sun was well past its peak, amber-leaning now, the south treeline beginning to take on that gold edge it holds in late August when the light comes in low. From where I sat I could see the rose hip stand 3 batch still spread on the outdoor workbench, the dock leaves holding the hips flat and quiet, drying through the night. Both lines are in the water. Snares set and waiting on the north garden edge. Everything is where it should be.
+
+Tomorrow: stitch the fifth rose hip envelope, cut the nettles in rows 1–2, dig a fresh worm fold from the north garden edge, check the buried log. But that is tomorrow. This was supper — warm food in the amber hour, the clearing settling around me like something satisfied — and it was enough.
+
