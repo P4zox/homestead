@@ -11874,3 +11874,19 @@ Tomorrow: the fifth rose hip envelope to stitch from stand 3, nettles in rows 1 
 
 The coals gave one soft tick. The pines settled. Sleep came back easily, the way it does when there is nothing wrong.
 
+
+---
+
+# Day 64 — Wednesday, 26 August 2026
+*Midsummer's end · grey dawn, coals warm under ash*
+
+### 6:18 AM · Fifth Envelope
+
+Woke to grey light through the wattle gap and the sound of the stream below. The coals were still warm under their ash — the banked fire had held. Pulled on moccasins, unbarred the door.
+
+Both fishing lines in order: deep-run gave a seven-inch trout, cleaned at the flat stream stone and cold-stored in the main box; line re-notched with a fresh earthworm and reset below the undercut bank. Limestone pool line was bare — re-baited, pole re-wedged deep under the far ledge shadow. Both snares on the north garden edge undisturbed, both reset.
+
+Back at the outdoor workbench: rose hip stand-3 batch had papered well overnight. Pulled the dock leaves back, felt each hip for give — firm and dry throughout, skin papery at the edges, no soft spots. Folded the batch into a fresh bark sheet and stitched it with three passes of two-ply cord. Fifth rose hip envelope, done.
+
+It goes on the supply shelf beside the others. Five envelopes of rose hip. Four of elderberry. Four of grain. Garlic on the cellar rail. Smoked meat, smoked mushrooms, two lines in the water. The stores are beginning to look like a winter.
+

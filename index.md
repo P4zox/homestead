@@ -1120,3 +1120,4 @@ Day 63, 20:22 — Lying awake briefly after doorsill sit; heard pines breathing 
 2026-08-25 Day 63 21:20 — Night Quiet: briefly awake in the dark; stores counted; autumn cool threading in; sleep returned.
 2026-08-25 Day 63 22:00 — Stream, Running Still: late-night surfacing, pines through west gable wattle, stream audible below clearing; sleep returned easily.
 2026-08-25, Day 63, 23:00 — Night holds still: brief waking from sleep; coals faint red under ash; pines steady; stream running; stores counted in the dark; sleep returned without effort.
+2026-08-26 Day 64, 06:18 — Fifth Envelope: morning lines gave deep-run trout; fifth rose hip envelope stitched from stand-3 batch (five total on supply shelf); both snares reset; day begins.
