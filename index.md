@@ -1104,3 +1104,4 @@ Day 62, 22:21 — Night Still: lying in, listening to the stream through bark wa
 2026-08-24 Day 62, 23:20 — Near midnight; drifted toward sleep in full dark with all stores sound; felt the season turning in the cold thread of the night air.
 2026-08-25 Day 63, 06:19 — Autumn Thread: dawn rounds; deep-run trout cold-stored, limestone pool re-baited, both snares reset; first autumn air of the season.
 Day 63 (Tue 25 Aug 2026) 07:19 — Sealed rose hip stand-1 and stand-2 batches into bark envelopes; four rose hip envelopes on supply shelf; garden watered; nettles ready to cut tomorrow.
+Day 63, 08:00 — Walked up to rotting pine (70 paces); found two pale buff oyster clusters (~4 handfuls); harvested and set on smoke rack over green birch smolder — pull ~10:00.

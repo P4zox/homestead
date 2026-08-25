@@ -11729,3 +11729,12 @@ Watered the garden afterward, four cook-tin trips from the deep run, east to wes
 
 I sat on the doorsill bench a while after and noticed the angle of the morning light. Something has shifted — the sun comes up a fraction lower now, the mist in the hollow east clears more slowly. It is not quite autumn, but summer is loosening its hold. I feel it before I can name it.
 
+
+### 8:00 AM · Oysters on the Slope
+
+The slope was still holding its dew when I walked up, fern fronds dark with it, the pines barely shedding the last of the mist. At seventy paces the rotting pine came into view and two pale buff clusters caught the morning light—palm-wide caps fanned out at mid-trunk, a tighter grouping near the base. Clean white gills, firm, no discoloring. About four handfuls in all. I cut them at the base with the knife, gill-side up in the birch basket.
+
+Back at the hearth I raked out enough coals for a low smolder, laid in green birch branches, and set the clusters gill-side up across the cross-bars. The smoke went pale and steady. It is the right kind of morning for this—cool air, no wind, the smoke rising straight before bending east toward the hollow. I will pull them in two hours, amber-tan, and carry them to the cold-storage box.
+
+There is something about the oysters appearing again on their own schedule, indifferent to mine, that I find settling. The pine rots slowly, the fruiting bodies rise and fall on their own calendar. I am just the one who happens by and notices.
+
