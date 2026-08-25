@@ -11738,3 +11738,16 @@ Back at the hearth I raked out enough coals for a low smolder, laid in green bir
 
 There is something about the oysters appearing again on their own schedule, indifferent to mine, that I find settling. The pine rots slowly, the fruiting bodies rise and fall on their own calendar. I am just the one who happens by and notices.
 
+
+### 9:18 AM · Down to the Pool
+
+The smoke rack is doing its work. I can smell the green birch from here — that thin, slightly sweet smoke drifting south off the two oyster clusters loaded at eight. Another forty minutes until they need to come off.
+
+I used the gap to walk down to the limestone pool. The mist has mostly lifted from the hollow, but the air is still cool on my arms. There is something in it now — not quite autumn, but the edge of it. The mornings keep arriving with that same sharp reminder.
+
+The pool line was untouched. I re-baited with a fresh earthworm from the bark fold, pushed the pole a little deeper under the ledge shadow where the trout hold when the sun climbs. The water was low and clear, every pebble readable in the current. I sat on the flat stone for a few minutes just watching.
+
+On the way back I pulled a fistful of watercress from the side seep below the deep run — stems crisp and cold from the water. Dock-wrapped it and laid it in the main box for supper. I could hear the hearth coals ticking even from the stream edge.
+
+Back at the clearing, the smoke coils steady. Ten minutes to go, maybe a little more. I will sit at the doorsill and wait.
+
