@@ -1107,3 +1107,4 @@ Day 63 (Tue 25 Aug 2026) 07:19 — Sealed rose hip stand-1 and stand-2 batches i
 Day 63, 08:00 — Walked up to rotting pine (70 paces); found two pale buff oyster clusters (~4 handfuls); harvested and set on smoke rack over green birch smolder — pull ~10:00.
 Day 63, 09:18 — Walked to limestone pool while oyster caps smoked; re-baited line; gathered watercress at side seep; both lines in water.
 2026-08-25 Day 63 10:18 — Pulled two oyster clusters from smoke rack (amber-tan, firm); cold-stored in main box; rack cleared.
+Day 63, 11:18 AM — Poolside noon meal: limestone pool trout caught and cooked at the water's edge; pool line reset; both lines in water for the afternoon.
