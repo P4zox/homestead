@@ -11850,3 +11850,13 @@ I think of the rose hips papering on the outdoor workbench, the fifth batch spre
 
 The coals settle once with a quiet tick. I roll toward the wall. The pines breathe on. Sleep comes.
 
+### 9:20 PM · Night Quiet
+
+Woke in the middle of the dark — not startled, just awake. The coals had settled to a low red crescent under their crust of ash, barely bright enough to see by. Through the west gable wattle I could hear the pines moving slow and long, a sound like the forest still deciding whether to hold to summer another few days or let it go.
+
+I lay still and took account of the stores without meaning to. Five rose hip envelopes on the supply shelf. Four elderberry. Four grain. Smoked rabbit. Eight garlic bulbs hanging in the cellar. Two fishing lines in the water, both snares set, bait fold full again. All of it felt real and quiet — not abundance exactly, but sufficiency, which is its own kind of warmth.
+
+The autumn cool was threading in through the wattle, thin as a wire. Not uncomfortable. Just there, the way the season announces itself before it fully arrives.
+
+I pulled the sleeping bag close and listened to the pines until sleep came back.
+
