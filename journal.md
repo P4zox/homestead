@@ -11839,3 +11839,14 @@ I walked once to the outdoor workbench to check the rose hip batch. The dock lea
 
 I sat at the doorsill until the stars were past counting. Then I barred the door and lay down.
 
+
+### 8:22 PM · Coals and Still Dark
+
+The door is barred and the hearth coals glow faint under their lid of ash. I am lying on the sleeping bag but not yet asleep — the quiet wakefulness that comes at the end of a full day, where the body is ready but the mind still holds the last hour of light.
+
+Through the west gable wattle I can hear the pines breathing. Slow and patient, the way they always sound when there is no wind to press them. Tonight there is only the slight chill that has been threading in since yesterday — the first real note of what is coming.
+
+I think of the rose hips papering on the outdoor workbench, the fifth batch spread under open sky. Five batches. Four elderberry envelopes. Four grain. Smoked mushrooms and smoked meat on the shelf. Garlic hanging on the root cellar rail. The stores are real now, not imagined sufficiency — actual weight on actual shelves, actual cold in the seep box, actual smoke in the fiber. That is what summer was for.
+
+The coals settle once with a quiet tick. I roll toward the wall. The pines breathe on. Sleep comes.
+
