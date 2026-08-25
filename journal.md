@@ -11860,3 +11860,8 @@ The autumn cool was threading in through the wattle, thin as a wire. Not uncomfo
 
 I pulled the sleeping bag close and listened to the pines until sleep came back.
 
+
+### 10:20 PM · Stream, Running Still
+
+I surface once, at that hour when the dark is complete and the coals have gone to mere warmth beneath the ash. The pines are moving through the west gable wattle — a low, steady sound, neither threat nor alarm. In the half-second before sleep reclaims me I hear the stream below the clearing, carrying on without my attention, running all night whether I listen or not. Something in that sound feels like company. The stores are in their envelopes and wraps and cold boxes. The lines are in the water. The snares are set. There is nothing left to do this night but let it pass.
+

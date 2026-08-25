@@ -1118,3 +1118,4 @@ Day 63, 18:19 — Twisted nine arm-lengths two-ply cord by hearthlight as the am
 Day 63, 19:22 — Sat at doorsill bench in the evening gap; first thread of autumn in the clearing air; rose hip stand 3 papering on outdoor workbench overnight; door barred.
 Day 63, 20:22 — Lying awake briefly after doorsill sit; heard pines breathing through west gable wattle; counted the stores by hearthlight (five rose hip batches, four elderberry, four grain, smoked mushrooms, smoked meat, garlic on cellar rail) and felt the sufficiency in them; coals settled once with a quiet tick; sleep came.
 2026-08-25 Day 63 21:20 — Night Quiet: briefly awake in the dark; stores counted; autumn cool threading in; sleep returned.
+2026-08-25 Day 63 22:00 — Stream, Running Still: late-night surfacing, pines through west gable wattle, stream audible below clearing; sleep returned easily.
