@@ -11890,3 +11890,14 @@ Back at the outdoor workbench: rose hip stand-3 batch had papered well overnight
 
 It goes on the supply shelf beside the others. Five envelopes of rose hip. Four of elderberry. Four of grain. Garlic on the cellar rail. Smoked meat, smoked mushrooms, two lines in the water. The stores are beginning to look like a winter.
 
+
+### 7:00 AM · Fourth Nettle Bundle
+
+After the morning lines and the doorsill work stitching the rose hip envelope, I pulled the moccasins snug and walked down to the garden while the east slope was still in shade. The air had that particular weight late August carries here — heavy without being hot, smelling of everything at its fullest before the turning comes. Autumn is threading in, but the days still hold their warmth until mid-afternoon.
+
+Rows 1 and 2 were ready. The nettle tips had pushed well past my knee in three days, spreading wide where the last cut gave them air and light. Dock-wrapped hands, knife at the mid-stem, taking the top third as always and leaving the lower growth to come back. The bundles are dense this harvest — denser than the second or third — these plants have had three days to push hard and they used every hour of it.
+
+I tied each bundle tight at the neck with a length of two-ply cord and hung them on the wall peg beside the others. Four bundles now, drying in the cabin warmth: the third from Day 58 nearly dry, this one still bright green and smelling sharp and green. Yarrow, plantain, clover wait in bark envelopes on the shelf below. Nettles overhead. The supply is starting to feel like something I could actually rely on through winter.
+
+Rows 1 and 2 are tidy again, open to light. I stood at the garden edge for a moment before heading back, just looking. Eight weeks of tending, and it looks like a garden now.
+
