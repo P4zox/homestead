@@ -1115,3 +1115,4 @@ Day 63, 15:21 (Tue 25 Aug 2026) — Afternoon limestone pool trout; rose hip sta
 Day 63, 16:18 — Supper at doorsill: trout, watercress, and wood sorrel cooked over hearthcoals, eaten slow at the bench as south treeline went gold — day done, lines in water, snares set.
 Day 63, 17:18 — Dug fresh earthworms from north garden edge; bait fold refilled (~two dozen, new damp bark fold, cold-stored); rose hip stand 3 papering well overnight; lines and snares out.
 Day 63, 18:19 — Twisted nine arm-lengths two-ply cord by hearthlight as the amber evening settled in; tomorrow: nettles, rose hip envelope, buried log check.
+Day 63, 19:22 — Sat at doorsill bench in the evening gap; first thread of autumn in the clearing air; rose hip stand 3 papering on outdoor workbench overnight; door barred.

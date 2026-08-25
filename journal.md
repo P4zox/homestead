@@ -11828,3 +11828,14 @@ Nine arm-lengths of two-ply added to the coil. Through the half-open door I coul
 
 Tomorrow: nettles to cut in rows one and two, the fifth rose hip envelope to stitch, the buried log worth checking by mid-morning. The pattern is almost autumn now — harvest, preserve, stock. I find I don't mind it. There is something in the repetition that steadies the mind, like the twisting of cord.
 
+
+### 7:22 PM · Doorsill, Autumn Threading
+
+The coals had been banked since before supper, and by seven o'clock the hearthstone was still warm to the back of a hand pressed flat. I pulled the door half-shut — not for cold exactly, but for the comfort of it — and sat on the doorsill bench in the gap between the shelter's heat and the clearing's cooling air.
+
+There's a difference in the night now. The dark still comes gradually and the stars are the same stars, but the air has a reach to it that wasn't there a month ago. Not cold yet. Just longer — like a breath held a moment past the usual pause. The treeline is a solid black mass at the clearing edge, and somewhere in there both fishing lines are in the water and the snares are set on the north garden edge.
+
+I walked once to the outdoor workbench to check the rose hip batch. The dock leaves have gone papery at the edges, which is how they should be. Tomorrow I'll fold them into the fifth envelope and stitch it closed. Five envelopes of rose hips on the supply shelf — more than I had last year, though last year I had no winter behind me yet to know what enough looks like.
+
+I sat at the doorsill until the stars were past counting. Then I barred the door and lay down.
+
