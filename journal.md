@@ -11905,3 +11905,14 @@ Rows 1 and 2 are tidy again, open to light. I stood at the garden edge for a mom
 ### 8:18 AM · Ninth from the Log
 
 The buried log sits twenty paces north, past the first birch. I knew this morning was the right time — the three pins I left four days ago would be ready, or close. I lifted the flat stone, folded back the lid. Three pale cream caps, ivory-domed, edges curled inward, gills clean white — exactly as hoped. I cut them at the stem base one at a time, set them in the bark tray. The log face below was quiet: no fresh pins starting yet. I replaced the lid and weighted the stone, then carried the caps back to the cold-storage box to join the morning trout. On the walk I noticed the air still cool on my face, the birches filtering the pale overcast light, a crow drifting the forest edge without hurrying. Nine harvests now from this one buried log — steady and unhurried as the land itself.
+
+### 9:18 AM · Garden at Half-Nine
+
+The overcast holds the light even — no shadows yet, just a soft pale brightness settling over the clearing. I have been moving since before six and the morning already feels substantial: both lines checked and reset, nettles cut from rows 1 and 2 and tied off to cure, three cream caps out of the buried log. Now I take the cook tin down to the deep run for the garden.
+
+Four trips. The stream is cold against my wrists at each dip. The rows darken in sequence as I pour — east strip first, the garlic rows, their fans wide and firm; then the shadow strip where the wood sorrel has filled edge to edge; then west into the mint and nettles and raspberry canes. The mint runners are still holding at the border stones. I redirect one wayward stem at row 5 and press a flat stone over a runner node that was pushing toward row 4.
+
+The last tinful goes into the far west row, and the soil darkens and settles. All seven rows done.
+
+I stand a moment at the north edge and look at the garden — every plant in its place, the whole plot steady and producing. The fourth nettle bundle hangs drying inside; the cream caps are cold in the box; the grain envelopes and rose hips are on the shelf. A good morning for the middle of summer's end.
+
