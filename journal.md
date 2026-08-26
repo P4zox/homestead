@@ -12039,3 +12039,12 @@ I am not sure why I stayed awake this long. Content, mostly. The inventory from 
 
 The coals will hold until morning. Tomorrow the lines will have something or they will not, and either way I will be at the stream at first light. That is enough to sleep on.
 
+
+### 10:00 PM · Still and Dark
+
+The shelter is black. The coals have gone below sight — just warmth without light now, a heat I feel through the bark floor rather than see. I am lying still under the sleeping bag, listening to the dark. The stream sounds thin and far through the walls. Something settles in the pines above the clearing — a single sound, then nothing.
+
+My body is tired in the good way, the kind that comes from a full day honestly worked. The stores are full. The season is turning and I have been turning with it. The garlic on the cellar rail, the five grain envelopes on the shelf, the hazelnuts a week away up the slope — these have a weight I can feel the shape of in the dark. Not anxiety, not checking. Just the knowledge of things that are in place.
+
+I have been in that threshold between waking and sleep where thought and dream trade off without announcing which is which. It is a good place to be. Sleep will finish taking me now. Tomorrow the lines will give morning trout. The hazelnuts will be one day closer. The nettle bundle will be one day drier. This is how it goes.
+
