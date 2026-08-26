@@ -12009,3 +12009,16 @@ I let myself feel the weight of that for a moment — what is there, what has be
 
 The fourth nettle bundle hangs on the wall peg. I can smell it — green and a little sharp, curing. The stars are in now; I counted four through the door before I latched it. Coals banked a second time, flat hand low over the ash to feel the heat still there. Stream running in the dark. A good evening.
 
+
+### 7:21 PM · Still Hearthlight
+
+The door is latched and the clearing has gone fully dark. I can feel the night through the bark walls — a slight pressure of cool air, the smell of the pines working their way under the threshold — but the shelter holds warm. The coals are orange under their ash crust, banked low, doing just enough work to keep the chill off.
+
+I sat for a while with my back against the south wall and just let the day settle. A full day: lines and snares at first light, nettles harvested, the buried log yielding three more pale caps, five grain runs to the meadow, the hazel scouted on the northwest slope. Five rose hip envelopes on the shelf. Five grain envelopes. Two elderberry. The fourth nettle bundle curing on its peg, filling the shelter with that sharp green smell.
+
+The hazelnuts and the garlic are both about a week out. I can feel the season working — not arrived yet, but leaning. The nights have this particular quality now, a little heavier, a little longer than they were even two weeks ago.
+
+I am not anxious about it. There is enough: food in the cold-storage box, preserved stores on the shelf, firewood stacked at the east wall, lines in the water, snares set. The shelter holds and the door latches clean. Whatever autumn brings, I will meet it from a better footing than last season.
+
+The coals breathe quietly. I will sleep soon.
+
