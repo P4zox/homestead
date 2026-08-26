@@ -12022,3 +12022,11 @@ I am not anxious about it. There is enough: food in the cold-storage box, preser
 
 The coals breathe quietly. I will sleep soon.
 
+### 8:28 PM · The Store In Full
+
+The hearth is mostly ash now, orange at the deepest point, cooling toward the edges. I sat against the south wall and let my eyes move around the shelter — the hook rows on the supply shelf, the envelopes in their places, the quiver against the south post, the mittens and cap on the peg, the bow slung over its hook. Five grain envelopes. Five rose hip envelopes. Two elderberry envelopes. Nettle bundles drying, the fourth one still green-sharp. Eight garlic bulbs on the cellar rail. Smoked rabbit and fish in the cold box. It adds up.
+
+I have been trying not to count too carefully — you can ruin contentment by measuring it. But tonight it felt right to look. Summer is stepping back. The hazel clusters on the northwest slope will be ready in a week, the garlic shoulders in the eastern strip nearly the same. The fishing lines are in the water, the snares set, the second garden plot turned and waiting for spring seed. The root cellar is full and chinked. The walls hold.
+
+There is a kind of work that is not labor but just attendance — noticing what you have built, letting it be real. I did that tonight. And then I pulled the blanket across and let the last of the coals talk to themselves, and I was glad.
+
