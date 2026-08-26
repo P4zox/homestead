@@ -1125,3 +1125,4 @@ Day 64, 07:00 — Harvested nettles rows 1–2 (top-third), tied into fourth bun
 Day 64, 08:18 AM — Buried log ninth harvest: three pale cream caps (ivory-domed, white gills) cut at stem base, cold-stored; log face quiet, no new pins.
 Day 64, 09:18 — Garden watered; all seven rows east to west; mint runner redirected at row 5; garden steady and producing in summer's end.
 Day 64, 10:18 AM — Scouted northwest slope hazel shrubs: three shrubs at mid-slope birch gap, nut clusters full-sized and just turning; ~1 week to ripeness; garlic fans tipping in eastern garden strip.
+2026-08-26 Day 64, 11:18 — Limestone pool trout; noon meal at poolside; garlic fans tipping at shoulders, harvest ~1 week away.

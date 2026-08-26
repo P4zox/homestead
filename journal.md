@@ -11926,3 +11926,12 @@ Standing there in the birch gap, the slope dropping away behind me toward the cl
 
 Came back through the garden and noticed the garlic in the eastern strip is leaning now, the long fans beginning to tip at the shoulders. That is another signal — the plant giving up the season at the tips before the bulb hardens underground. I will let it finish on its own terms before deciding about the harvest.
 
+
+### 11:18 AM · Trout at Midday
+
+The limestone pool gave me a seven-inch trout just before noon. I cleaned it at the flat pool stone — two strokes, tail flicked into the current — and gathered a fistful of wood sorrel from the stream bend. Built a small bank fire from dry sticks, cooked the fish right there on a flat stone propped over the coals. Ate sitting on the warm bank stone with the pool sliding its even sound over the ledge below me and the pines overhead. It is the kind of meal that asks nothing of you.
+
+Line re-baited with earthworm from the bait fold, pole re-wedged deep under the far ledge shadow. Both lines in water.
+
+The garlic question is becoming real. Coming back up from the pool I stopped at the garden and crouched over the eastern strip: the fans are tipping at the shoulders now, tips beginning to dry and brown at the edges. Another week, maybe ten days — I want to pull them in the dry part of the day before autumn rains soften the ground and blur the skins. The hazelnuts are on the same timeline. It is good that both are ripening together; it keeps the mind focused on the same week. I will check the garlic at dawn tomorrow and decide then.
+
