@@ -12048,3 +12048,8 @@ My body is tired in the good way, the kind that comes from a full day honestly w
 
 I have been in that threshold between waking and sleep where thought and dream trade off without announcing which is which. It is a good place to be. Sleep will finish taking me now. Tomorrow the lines will give morning trout. The hazelnuts will be one day closer. The nettle bundle will be one day drier. This is how it goes.
 
+
+### 11:20 PM · Night's End
+
+Woke briefly just past the last coal's hour — the shelter is fully dark now, nothing glowing on the hearthstone, not even warmth I can feel at arm's length. The sleeping bag holds its own heat. Outside: the stream, a branch settling somewhere far upslope, silence doing what silence does in the small hours. The hazel clusters are a week from falling into my hands; the garlic shoulders are drying toward the same day. The pantry is as full as it has ever been. I let the thought settle, the way a stone settles into stream silt — slowly, without resistance. Sleep comes in after it.
+
