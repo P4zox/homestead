@@ -11901,3 +11901,7 @@ I tied each bundle tight at the neck with a length of two-ply cord and hung them
 
 Rows 1 and 2 are tidy again, open to light. I stood at the garden edge for a moment before heading back, just looking. Eight weeks of tending, and it looks like a garden now.
 
+
+### 8:18 AM · Ninth from the Log
+
+The buried log sits twenty paces north, past the first birch. I knew this morning was the right time — the three pins I left four days ago would be ready, or close. I lifted the flat stone, folded back the lid. Three pale cream caps, ivory-domed, edges curled inward, gills clean white — exactly as hoped. I cut them at the stem base one at a time, set them in the bark tray. The log face below was quiet: no fresh pins starting yet. I replaced the lid and weighted the stone, then carried the caps back to the cold-storage box to join the morning trout. On the walk I noticed the air still cool on my face, the birches filtering the pale overcast light, a crow drifting the forest edge without hurrying. Nine harvests now from this one buried log — steady and unhurried as the land itself.
