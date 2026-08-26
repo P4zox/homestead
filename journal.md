@@ -11967,3 +11967,14 @@ On the way back I stopped at the north garden edge and dug a fresh bait fold —
 Standing at the stream bank a moment after, I noticed the sun's angle. It slants differently now than it did a month ago — not cold, not yet, but there's something in the quality of mid-afternoon light that wasn't there in June. Summer still holds the clearing, but I can feel it beginning to reconsider.
 
 That seems right to me, on day 64. Garlic shouldering toward harvest. Hazel clusters swelling at the northwest slope. Five grain envelopes on the shelf, five rose hip envelopes beside them. The root cellar is starting to have the weight of a winter behind it instead of just the hope of one. I walked back up the slope glad of that weight.
+
+### 3:21 PM · Slant Light, Deep Pool
+
+Walked to the limestone pool in the full afternoon heat — the sun lower than it was last month, its angle more southerly, throwing the pool into a longer shadow from the downstream pine than I remember in July. The water still warm at the surface, cold underneath where I wet my forearm checking the line-pole. Seven-inch trout on the earthworm bait, the same spot below the far ledge where they always hold. Cleaned it at the flat pool stone, dock-wrapped, tucked into the main cold-storage box beside the watercress from this morning.
+
+I sat a while after. No hurry back. The far bank still in full light but the shadow reaching well toward the pool center now. Small signs, all pointing the same direction — hazel clusters on the northwest slope tipping tan at their tips, garlic shoulders in the eastern strip beginning to dry, the light itself arriving at a quality I can only call autumn even though August has days left. I sat on the poolside stone and let it settle in without fighting it. The season leans, like a door ajar. I have learned not to push against doors.
+
+Five grain envelopes on the shelf. Five rose hip envelopes. Eight arrows in the quiver. Both lines in the water tonight. Whatever winter wants to be, it will find me better prepared than the last one.
+
+Re-baited the line with a fresh earthworm from the bait fold, re-wedged the pole deep under the far ledge shadow, and walked home through the clearing while the sun still had weight to it.
+
