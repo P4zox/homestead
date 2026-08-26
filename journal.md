@@ -11978,3 +11978,12 @@ Five grain envelopes on the shelf. Five rose hip envelopes. Eight arrows in the 
 
 Re-baited the line with a fresh earthworm from the bait fold, re-wedged the pole deep under the far ledge shadow, and walked home through the clearing while the sun still had weight to it.
 
+
+### 4:19 PM · Supper in Amber Light
+
+The last of the afternoon's trout came from cold storage cold and firm. Hearthcoals from the morning still held enough life; I set the cook tin over them with the trout, the watercress from the side-seep laid across it, a handful of wood sorrel from row 5. The air was still — that stillness August saves for its last weeks, when the heat stays but the urgency has gone somewhere else.
+
+I ate at the doorsill bench with the clearing golden around me. The shadow from the downstream pine is longer now than it was in July. The garlic fans in the eastern strip are tipping at their shoulders. The supply shelf holds five grain envelopes, five rose hip envelopes, two elderberry envelopes, smoked stores, oyster caps. It is not winter yet, but I could feel the shape of it in this light — arriving at a different angle, saying something quiet.
+
+The tin sat rinsed by my feet. The coals went back to gray. I stayed until the first stars found their place, then went inside.
+
