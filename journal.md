@@ -11957,3 +11957,13 @@ An hour in the sun, maybe a little more, and the basket was three-quarters full 
 
 Five grain envelopes now. The shelf is beginning to look like a winter that knows what it is doing. The hazel clusters are tipping tan at one tip; the garlic shoulders are pulling down. Another week and that harvest too will be done. I came back inside and sat for a moment at the doorsill bench in the east gable shadow, hands smelling of rye dust and sun. Quiet afternoon. The lines are in the water. The snares are set. There is nothing pressing right now, and that is its own kind of fullness.
 
+
+### 2:23 PM · Bait and Watercress
+
+The afternoon holds still. I walked down to the cold stream — cook tin at my side, digging stick in hand — following the path worn smooth into the grass over these weeks. The watercress at the side-seep below the deep run was in good condition: stems crisp and cold at the base, dark green against pale stones. I pulled a good fistful, rinsed it in the current, dock-wrapped it, and set it in the main cold-storage box for supper.
+
+On the way back I stopped at the north garden edge and dug a fresh bait fold — two dozen worms from the dark loam between rows 1 and 2 where the soil stays cool and turned. The old fold has been worked hard today; it needed replacing before tonight's lines go overnight. I wrapped the worms in damp dock leaf, cold-stored them beside the watercress.
+
+Standing at the stream bank a moment after, I noticed the sun's angle. It slants differently now than it did a month ago — not cold, not yet, but there's something in the quality of mid-afternoon light that wasn't there in June. Summer still holds the clearing, but I can feel it beginning to reconsider.
+
+That seems right to me, on day 64. Garlic shouldering toward harvest. Hazel clusters swelling at the northwest slope. Five grain envelopes on the shelf, five rose hip envelopes beside them. The root cellar is starting to have the weight of a winter behind it instead of just the hope of one. I walked back up the slope glad of that weight.

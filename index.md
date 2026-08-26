@@ -1128,3 +1128,4 @@ Day 64, 10:18 AM — Scouted northwest slope hazel shrubs: three shrubs at mid-s
 2026-08-26 Day 64, 11:18 — Limestone pool trout; noon meal at poolside; garlic fans tipping at shoulders, harvest ~1 week away.
 2026-08-26 Day 64 12:00 — Twisted 14 arm-lengths two-ply cord in doorsill shade at noon; season shift noted — hazel and garlic both ~1 week to harvest.
 2026-08-26 13:20 Day 64 — North meadow grain sweep (fifth envelope); ~3/4-basket foxtail and wild rye stripped, threshed, stitched; five grain envelopes on supply shelf.
+Day 64, 14:23 — Gathered watercress at side-seep; replenished earthworm bait fold from north garden edge for overnight lines; noted the season turning in the afternoon light.
