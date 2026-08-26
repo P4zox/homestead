@@ -1132,3 +1132,4 @@ Day 64, 14:23 — Gathered watercress at side-seep; replenished earthworm bait f
 Day 64, 15:21 — limestone pool afternoon trout; sat by pool in slant light; season leaning toward autumn; five envelopes each grain and rose hips on shelf
 Day 64, 16:19 — Supper at doorsill bench in amber light; afternoon trout, watercress, wood sorrel cooked in cook tin; coals cooling; first stars; stores counted, season turning in the light.
 Day 64, 17:18 — Evening cord-twisting at hearthstone as light fades to amber-grey; nine arm-lengths two-ply twisted and coiled; coals banked; first star visible above ridge.
+Day 64 · 2026-08-26 · 18:19 — Knife stropped at hearthstone in last light; sat at threshold counting stars; coals banked; door latched; season turning felt in the cool air.

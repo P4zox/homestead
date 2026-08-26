@@ -11998,3 +11998,14 @@ Both lines are in the water. Both snares set. The fourth nettle bundle is drying
 
 I hung the new coil beside the others and banked the coals carefully, then stayed at the door until the second star appeared.
 
+
+### 6:19 PM · Hearthstone, Last Light
+
+The supper tin is rinsed and hung. The cord coil is settled on the shelf. The coals under the banking have gone quiet and orange-dim, and outside the clearing is folding into that particular grey that comes just before the stars take it fully. I sat at the hearthstone with the grey cobble in one hand and the knife in the other and worked the edge by feel and sound — three passes each side, the scrape and hiss that means the bevel is tracking clean. The edge has held well since Day 55; it will hold further. The small ritual of it is settling, even now, nine weeks into this life.
+
+Outside the air carries a chill I do not remember from a month ago. Not cold yet, but the warmth is stepping back from it, and something else is threading through — the same turn that tipped the hazel clusters toward tan and dried the garlic fan-tips in the eastern strip. Both within a week of harvest. Five rose hip envelopes on the shelf. Five grain envelopes. The cold-storage box is as full as I have ever kept it, and the root cellar holds the garlic and the dried mushrooms and the smoked meat in the cool dark below.
+
+I let myself feel the weight of that for a moment — what is there, what has been built. Not to rest on it. Just to know it is real before the work continues. The second garden plot is turned and waiting for spring. The fuel rows stack against the east wall. There is still cord to twist, still snares to mind, still firewood to put by. But tonight the pantry is deep enough that the first proper cold of autumn will not catch me hollow.
+
+The fourth nettle bundle hangs on the wall peg. I can smell it — green and a little sharp, curing. The stars are in now; I counted four through the door before I latched it. Coals banked a second time, flat hand low over the ash to feel the heat still there. Stream running in the dark. A good evening.
+
