@@ -12071,3 +12071,12 @@ I stood a moment at the deep run after the lines were done, watching the current
 
 Day 65. The clearing quiet. A good way to begin.
 
+
+### 7:18 AM · Morning Garden
+
+The dew was still on the leaves when I came round with the cook tin. Four trips from the deep run, east rows to west — garlic fans wide and pale in the strip, wood sorrel crowding the shadow edge to the north, nettles in rows one and two just putting up fresh tips again after yesterday's harvest. The mint is holding at the border stones; I pressed one runner back under a rock at the row-five edge where it was pushing toward the raspberry canes. The laterals on those canes are still vigorous, which is something, this late in the season.
+
+The air this morning has that new quality — not cold yet, but the light comes in lower and more amber, and where the shadows fall across the clearing they hold longer than they did a month ago. I stood at the garden's north edge after the last watering trip and just looked at it for a moment. Eight rows of growing things I put there myself, running on their own now. There is something quietly astonishing in that.
+
+I turned back toward the cabin, the empty cook tin swinging at my side, and thought about the hazel shrubs at the birch-gap. A week, maybe less. The season is threading toward harvest — autumn pressing in slowly, almost tenderly, the way seasons here always do.
+
