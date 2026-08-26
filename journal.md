@@ -11935,3 +11935,14 @@ Line re-baited with earthworm from the bait fold, pole re-wedged deep under the 
 
 The garlic question is becoming real. Coming back up from the pool I stopped at the garden and crouched over the eastern strip: the fans are tipping at the shoulders now, tips beginning to dry and brown at the edges. Another week, maybe ten days — I want to pull them in the dry part of the day before autumn rains soften the ground and blur the skins. The hazelnuts are on the same timeline. It is good that both are ripening together; it keeps the mind focused on the same week. I will check the garlic at dawn tomorrow and decide then.
 
+
+### 12:00 PM · Still Air, Twisted Cord
+
+After the poolside trout — eaten slow on a flat stone, water turning easy below — I walked back through the pines in the full noon warmth. The light fell straight down through the canopy gaps, no angle to it yet, just flat warm brightness and the smell of warmed bark. The stream sound dropped behind me.
+
+I settled on the doorsill bench in the wedge of shade the east gable throws and pulled a good stack of inner bark strips from the bundle. The cord work is its own kind of rest now — hands do what they know; the mind goes where it will. Pull, loop, roll against the thigh, let the twist tighten. Fourteen arm-lengths before the shadow crept a hand-width east.
+
+Something in the season has shifted that I keep trying to name. The light is the same light that came in June, but it leans now — you can see the angle even at noon, the shadows no longer pressed straight underfoot. The hazel clusters on the northwest slope are a week off ripeness. The garlic fans in the eastern strip have gone broad at the shoulder. Nothing urgent, but the undercurrent is different. Summer stepping back; autumn threading in.
+
+I find that steadying. The cord is ready. So is most everything else. Winter will come when it comes.
+
