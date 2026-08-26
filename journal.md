@@ -11987,3 +11987,14 @@ I ate at the doorsill bench with the clearing golden around me. The shadow from 
 
 The tin sat rinsed by my feet. The coals went back to gray. I stayed until the first stars found their place, then went inside.
 
+
+### 5:18 PM · Light Thickening to Gold
+
+The supper is done and the coals are cooling to gray — I have the threshold hour to myself. Outside, the clearing glows in that amber light that comes only when summer is almost gone: sun behind the ridge pines, remaining warmth pooled in the open ground without quite holding it. A thread of chill in the still air. Not cold yet. Just a reminder.
+
+I sat at the hearthstone with the cord-fiber bundle and let my hands work while my mind followed the light. Nine arm-lengths, two-ply — the rhythm is so familiar now that I barely think it. The twist just comes. By the time the length was done and coiled, the clearing had softened from amber-gold to amber-grey, and the first star was visible above the ridge.
+
+Both lines are in the water. Both snares set. The fourth nettle bundle is drying on the wall peg, the garlic is hanging in the cellar, five rose hip envelopes and five grain envelopes on the shelf. A week from the hazel harvest, a week from the garlic pull. I am not behind — if anything, I am ahead of where I expected to be at this point in the season. That is worth sitting with for a moment before sleep comes.
+
+I hung the new coil beside the others and banked the coals carefully, then stayed at the door until the second star appeared.
+
