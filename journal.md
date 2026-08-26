@@ -12030,3 +12030,12 @@ I have been trying not to count too carefully — you can ruin contentment by me
 
 There is a kind of work that is not labor but just attendance — noticing what you have built, letting it be real. I did that tonight. And then I pulled the blanket across and let the last of the coals talk to themselves, and I was glad.
 
+
+### 9:23 PM · Coals Hold
+
+The shelter is dark except for a thin orange line along the hearthstone where the last coal holds its heat. I sat up past when I meant to — not restless, just slow to let the day go. The bark walls are warm. Through them I can hear the stream faint in the timber, and once, far up the slope, the soft crack of a branch settling in the dark. No wind. The clearing is very still.
+
+I am not sure why I stayed awake this long. Content, mostly. The inventory from an hour ago is still in my mind — the rows of envelopes on the shelf, the garlic hanging in the cool cellar air, the lines in the water. A week to hazelnuts. A week to garlic. The season is turning but not fully turned yet, and for once I am on the right side of that turning.
+
+The coals will hold until morning. Tomorrow the lines will have something or they will not, and either way I will be at the stream at first light. That is enough to sleep on.
+
