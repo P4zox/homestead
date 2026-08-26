@@ -11916,3 +11916,13 @@ The last tinful goes into the far west row, and the soil darkens and settles. Al
 
 I stand a moment at the north edge and look at the garden — every plant in its place, the whole plot steady and producing. The fourth nettle bundle hangs drying inside; the cream caps are cold in the box; the grain envelopes and rose hips are on the shelf. A good morning for the middle of summer's end.
 
+### 10:18 AM · Hazel at the Edge
+
+Walked the northwest slope this morning, following the line where the pines thin and the understorey goes quiet — that fringe of mixed scrub I have passed a dozen times without stopping. At mid-slope, where a fallen birch has made a gap in the canopy and the light comes through in a loose spread, I found what I was half-hoping for: three hazel shrubs, wiry and arm-high, tucked in the open ground behind the deadfall. The nut clusters are still green — papery-husked, tight around the shells — but full-sized, and one cluster at eye-level already turning the faintest warm tan at the tip. A week, maybe ten days.
+
+I broke a thin switch from one of the shrubs to test the wood. It bends clean, springy and fine-grained. A good hazel rod is worth knowing: cordage, a basket hoop, a light stake. I left the shrubs undisturbed and made a careful note of the gap, the fallen birch as a landmark, the angle of morning light through the canopy. Nothing taken today — only a promise noted.
+
+Standing there in the birch gap, the slope dropping away behind me toward the clearing, I felt something shift in the air. Not cold exactly, but the way the morning has started pulling back in on itself. The light comes lower already. Summer is not urgent the way it was in the long midsummer evenings; it is starting to wrap up, quietly, the way unhurried things end.
+
+Came back through the garden and noticed the garlic in the eastern strip is leaning now, the long fans beginning to tip at the shoulders. That is another signal — the plant giving up the season at the tips before the bulb hardens underground. I will let it finish on its own terms before deciding about the harvest.
+
