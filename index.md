@@ -1138,3 +1138,4 @@ Day 64, 20:28 — Hearthside inventory by firelight; counted full stores (five g
 2026-08-26 Day 64, 21:23 — Coals Hold: late evening inside shelter; sat awake past intent, listening to the night through bark walls; content with full stores, both lines in water; coals fading to thin orange line; sleep near.
 Day 64, 22:00 — Night stillness; lying in dark shelter, coals below sight, threshold between waking and sleep after a full harvest day.
 Day 64, 23:20 — Night's End: brief waking in fully dark shelter; coals cold; sleeping bag warm; stores full, hazel and garlic a week from harvest; sleep took hold.
+Day 65, Thu 27 Aug 2026, 06:18 — Morning rounds: deep-run trout cold-stored, limestone pool line re-baited, snares reset; first light of Day 65; season visibly threading toward autumn.

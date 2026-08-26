@@ -12053,3 +12053,21 @@ I have been in that threshold between waking and sleep where thought and dream t
 
 Woke briefly just past the last coal's hour — the shelter is fully dark now, nothing glowing on the hearthstone, not even warmth I can feel at arm's length. The sleeping bag holds its own heat. Outside: the stream, a branch settling somewhere far upslope, silence doing what silence does in the small hours. The hazel clusters are a week from falling into my hands; the garlic shoulders are drying toward the same day. The pantry is as full as it has ever been. I let the thought settle, the way a stone settles into stream silt — slowly, without resistance. Sleep comes in after it.
 
+
+---
+
+# Day 65 — Thursday, 27 August 2026
+*midsummer's end — summer stepping back, autumn threading in · cool and clear at dawn, dew on the clearing*
+
+### 6:18 AM · First Light, Day 65
+
+The shelter was fully dark when I woke — that complete, good dark that comes only from deep sleep. No restlessness in it. I lay still a moment listening to the stream, then eased the door open and stepped into a damp, cool clearing still silver with overnight dew.
+
+The deep-run line gave a seven-inch trout, fat and dark-spotted, still fighting the notch. Cleaned at the flat stone, dock-wrapped, cold-stored. Line re-baited with a fresh earthworm from the fold and set back below the undercut bank. The limestone pool was bare — hook clean, re-baited, pole wedged back under the far ledge shadow. Both lines in the water before the birds had properly started.
+
+Both snares on the north garden edge were undisturbed. Loops reset, trigger sticks re-notched, ground pins still firm. The earth there smelled of yesterday's nettle cut — sharp and green.
+
+I stood a moment at the deep run after the lines were done, watching the current. The light this morning is different from a month ago — lower, more amber even at dawn, coming in off the ridge at a steeper angle. The season is turning in earnest now. Hazelnuts about a week off. Garlic shoulders tipping. The pantry full enough that I can watch this shift without urgency, just attention.
+
+Day 65. The clearing quiet. A good way to begin.
+
