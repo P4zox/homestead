@@ -1127,3 +1127,4 @@ Day 64, 09:18 — Garden watered; all seven rows east to west; mint runner redir
 Day 64, 10:18 AM — Scouted northwest slope hazel shrubs: three shrubs at mid-slope birch gap, nut clusters full-sized and just turning; ~1 week to ripeness; garlic fans tipping in eastern garden strip.
 2026-08-26 Day 64, 11:18 — Limestone pool trout; noon meal at poolside; garlic fans tipping at shoulders, harvest ~1 week away.
 2026-08-26 Day 64 12:00 — Twisted 14 arm-lengths two-ply cord in doorsill shade at noon; season shift noted — hazel and garlic both ~1 week to harvest.
+2026-08-26 13:20 Day 64 — North meadow grain sweep (fifth envelope); ~3/4-basket foxtail and wild rye stripped, threshed, stitched; five grain envelopes on supply shelf.

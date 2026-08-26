@@ -11946,3 +11946,14 @@ Something in the season has shifted that I keep trying to name. The light is the
 
 I find that steadying. The cord is ready. So is most everything else. Winter will come when it comes.
 
+
+### 1:20 PM · North Meadow Run
+
+The warmth after noon is still and heavy — the birches bright in full sun, the pines casting short shadows that have barely moved since I last looked up. I took the harvest basket from the supply shelf and walked out through the clearing to the north meadow, moving slow enough to feel the heat rise off the open ground. The grasses have shifted since the Day 61 sweep. Three days of warmth will do that: the foxtail heads hang heavier, the wild rye darker and more willing to come free.
+
+I worked from west to east, stripping each head between my palms, drawing the rye through my fist, letting the grain fall clean into the basket below. The foxtail gave generously. Brome a little lighter than before — the stand is spending itself — but still worth taking. I moved slowly, which is the right speed for this kind of work. There is no hurrying grain without losing half of it.
+
+An hour in the sun, maybe a little more, and the basket was three-quarters full and the best heads were spent. Back at the outdoor workbench I threshed the lot: rubbing heads between my palms, blowing the chaff off with long slow breaths. The grain settled clean into a fresh bark sheet. I folded and stitched it with three passes of two-ply cord and set the fifth envelope on the supply shelf beside the others.
+
+Five grain envelopes now. The shelf is beginning to look like a winter that knows what it is doing. The hazel clusters are tipping tan at one tip; the garlic shoulders are pulling down. Another week and that harvest too will be done. I came back inside and sat for a moment at the doorsill bench in the east gable shadow, hands smelling of rye dust and sun. Quiet afternoon. The lines are in the water. The snares are set. There is nothing pressing right now, and that is its own kind of fullness.
+
