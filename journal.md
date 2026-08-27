@@ -12102,3 +12102,14 @@ On the path home the light came through the birch trunks in long flat beams. Lat
 
 I sat at the doorsill bench when I got back and looked at the clearing for a while, saying nothing to no one.
 
+
+### 10:18 AM · Hazels, Almost
+
+The morning settled into itself. Trout in cold storage, garden watered, breakfast done — mid-morning opened up and asked for nothing urgent. I took it as a chance to look.
+
+Up the northwest slope to the hazel gap. The fallen birch marks it; the three shrubs are there, leaves beginning to bronze at their tips. The nut clusters have fattened since the scout three days ago. Still green, husks tight, but when I pressed one gently it gave a little — something solid inside now. One cluster on the southernmost shrub was more straw than green at its widest point. Five days, I think. Maybe four.
+
+I stood there longer than needed. The light through the birch was amber in a way it was not two weeks ago — that slight lowering of the sun, barely noticed, that changes everything about how the slope looks. The air had that faint must of leaves beginning to release — not fallen yet, just loosening. Autumn threading in, slowly.
+
+Walking back I stopped at the northeast edge and looked down over the clearing: the cabin, the smoke rack, the garden rows dark with water. Everything made. It looked like enough.
+
