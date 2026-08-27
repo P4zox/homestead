@@ -12208,3 +12208,14 @@ I lay back thinking through the next few days: hen-of-the-woods at the marked st
 
 The fire settled to a slow breath. I pulled the cattail mat close and listened to the stream below until my eyes closed.
 
+
+### 9:19 PM · Drifting Off
+
+The hearthcoals are banked low, orange through the gaps in the hearthstone surround. I can hear the stream through the bark walls — steady, indifferent to the hour — and the pines making that dry papery sound they make when the night wind has a little autumn in it.
+
+I am not truly awake. The haws are outside on the workbench, firming in the cool dark. In two days the hen-of-the-woods will be ready at the marked stump; in four the hazels. Everything is waiting exactly where I left it, patient as the land itself. Nothing needs my hands tonight.
+
+I pull the sleeping bag close and let the day go. The whole summer's work is pressed into the walls, into the root cellar, into the cold-storage boxes, into bark envelopes stacked on the supply shelf. It will be there whether I hold it in mind or not. That is the peace of a full store: you can stop thinking.
+
+One fish on each line. Two snares on the run. Coals enough to hold through till dawn. Sleep.
+
