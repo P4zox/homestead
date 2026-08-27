@@ -12166,3 +12166,15 @@ Summer is long here but I can feel it withdrawing. The birch leaves on the upper
 ### 4:18 PM · Supper at the Bench
 
 The trout from the afternoon line check went into the cook tin with the cold-stored watercress and a pinch of wood sorrel, over a low bed of hearthcoals I had kept going since noon. While it simmered I sat in the doorway and let the day settle around me. The light at this hour is long and amber — it cuts flat across the clearing so every grass stem holds a thin gold line along its edge. The birch leaves on the upper slope have gone dry enough that even a light breeze turns them into something like applause: a high papery sound that carries all the way down to the door. I ate at the doorsill bench with the cook tin balanced on the plank beside me, and it was good: the trout firm and clean after a day in cold storage, the cress still a little bitter the way good cress is, the sorrel adding a sour note that cut through everything. The hawthorn haws I gathered this morning are spread on the outdoor workbench, going leathery in the evening air. I turned them over once with my fingers — papery on the outside, still giving under pressure — and decided tomorrow morning is the right time to seal them in bark. Coals banked after supper, both lines set for the night under their banks, snares sitting quiet on the north run. The clearing went still and long-lit and entirely itself.
+### 5:18 PM · Evening Cord, Last Light
+
+After supper the light on the clearing went flat and golden, then the pines took it. I sat in the doorway with the cord coil in my lap and worked by what remained — the sky still pale above the tree-line, the birch on the upper slope catching the last of it. Nine arm-lengths two-ply before the light went out.
+
+Cross-legged on the rush mat by the banked coals then, the cabin quiet around me. The hawthorn haws are papering on the outdoor workbench; I could just hear the dry bark vessel shift when the breeze came. Tomorrow morning I will stitch that envelope. The hen-of-the-woods at the marked stump is two days out at most. Hazels four or five days still. Things at their own pace.
+
+The cord coil is fat and solid on the supply shelf now — weeks of evening work accumulated without my noticing much. Stores deep. Both lines overnight under their banks. Snares on the north run. The kind of evening where the day settles into its tally and comes out even.
+
+The birch leaves sound different than they did a month ago. Drier, more papery. They have made a decision about the season I cannot quite argue with. Autumn is not something that arrives; it is already here, threading into the gaps while summer was not looking. I noticed it today in the angle of the light, in the way the air felt after supper, in the dry-grass smell drifting from the north meadow.
+
+Stretched out on the cattail mat and let the evening come.
+
