@@ -12144,3 +12144,9 @@ The hazel stand is four or five days out. The hen-of-the-woods, maybe two or thr
 
 Finished the coil and tied it off. Fourteen arm-lengths, two-ply, added to the bundle. The shadows have stretched a little east. A trout in cold storage for supper. Everything where it should be.
 
+
+### 2:00 PM · Haws on the Branch
+
+After the cord-twisting I carried my bark vessel south through the clearing and along the east treeline. The afternoon sun was warm but low in that way autumn gives it — not overhead anymore, but coming in at a slant, landing golden on everything it touched. I moved slowly, picking my way along the bramble edge where the forest opens.
+
+The rose hip canes were all quiet, stripped and done. But two-thirds down the treeline, where old hawthorn grows in a cluster against a fallen limestone outcrop, the haws had come in red — deep scarlet clusters, a few nearly purple at the tips, firm and glossy under the light. I filled the bark vessel, two good hand-fills at least. Not a feast, but enough to matter come January. Hawthorn flesh is mealy, the seeds unwelcome, so I wont
