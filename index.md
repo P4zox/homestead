@@ -1152,3 +1152,4 @@ Day 65, 16:18 (Thu 27 Aug 2026) — Supper at the Bench: afternoon trout, waterc
 Day 65, 17:18 — Evening cord-twisting at doorway by last light; nine arm-lengths two-ply; hawthorn haws papering for tomorrow; hen-of-the-woods ~2 days; hazels ~4 days; stores deep; season turning in the birch leaves.
 Day 65, 18:18 — evening by low hearthfire as dark settled; day tallied; haws papering, hen-of-the-woods 2 days out, hazels 4 days; late thrush across the clearing; season turning toward autumn.
 Day 65, 2026-08-27, 19:19 — Stepped outside to check haw tray (firming well); stood under first stars in clearing; felt autumn threading into the cool night air; returned inside, set pine split against hearthstone, lay down on cattail mat.
+2026-08-27 20:24 — Day 65, 8:24 PM — Night Watch: hearthcoals fed; lay half-awake listening to stream; reflected on upcoming hen-of-the-woods and hazel harvests; stores deep; settled toward sleep.

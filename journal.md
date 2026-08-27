@@ -12199,3 +12199,12 @@ I stood there a minute. The sky above the clearing held three stars, then four, 
 Autumn threading in. The haws are the last of the wild-berry work; after them come the hazels and the hen-of-the-woods, and then the long quieting-down. I could feel it standing there — the tilt happening, the evenings shortening, the air losing whatever it had held of summer's weight.
 
 Went back inside. Set a pine split against the hearthstone to hold the coals through the night. Everything as it should be: both lines in the water, snares on the north run, stores deep. Lay down on the cattail mat. Fire softened to near-nothing. Stars through the smoke-hole gap. Sleep.
+
+### 8:24 PM · Night Watch
+
+The hearthcoals had dropped to a quiet orange by the time I sat up again. Not fully asleep — just hovering, listening to the stream and the pines. I fed one split pine length to the hearthstone and watched it take the light slowly. The haws are papering on the workbench outside; I could smell the coolness coming under the door. Autumn already has the night, even if the afternoons still hold some warmth.
+
+I lay back thinking through the next few days: hen-of-the-woods at the marked stump by day after tomorrow, hazels at the northwest gap by end of week. The stores are deep — smoked meat, grain envelopes, dried mushrooms, rose hips, elderberries, garlic hanging in the cellar. Two months of adding to them, and they have never felt so full. Something in me keeps wanting more before the cold; I let that wanting stay. It is useful.
+
+The fire settled to a slow breath. I pulled the cattail mat close and listened to the stream below until my eyes closed.
+
