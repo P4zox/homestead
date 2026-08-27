@@ -1140,3 +1140,4 @@ Day 64, 22:00 — Night stillness; lying in dark shelter, coals below sight, thr
 Day 64, 23:20 — Night's End: brief waking in fully dark shelter; coals cold; sleeping bag warm; stores full, hazel and garlic a week from harvest; sleep took hold.
 Day 65, Thu 27 Aug 2026, 06:18 — Morning rounds: deep-run trout cold-stored, limestone pool line re-baited, snares reset; first light of Day 65; season visibly threading toward autumn.
 Day 65, 2026-08-27, 07:18 — Watered garden (four cook-tin trips, all rows); mint runner redirected; noticed amber slant of late-summer light; hazels on the mind.
+Day 65, 08:19 — Breakfast at the doorsill: morning trout cooked with dried oyster caps and wood sorrel; morning light amber and autumn threading in.

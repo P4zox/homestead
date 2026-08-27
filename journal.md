@@ -12080,3 +12080,12 @@ The air this morning has that new quality — not cold yet, but the light comes 
 
 I turned back toward the cabin, the empty cook tin swinging at my side, and thought about the hazel shrubs at the birch-gap. A week, maybe less. The season is threading toward harvest — autumn pressing in slowly, almost tenderly, the way seasons here always do.
 
+
+### 8:19 AM · Breakfast at the Doorsill
+
+The morning trout came in at first light — I had cleaned and cold-stored it on the dawn rounds — and by the time the garden was watered and the sun had lifted clear of the eastern pines, I was ready to cook. Two dried oyster caps from the supply shelf, a handful of fresh wood sorrel pulled from row five still cold with dew. The cook tin went onto the hearthcoals in three finger-widths of stream water, and the whole thing came together in the time it took me to sit down and unlace one moccasin and lace it again.
+
+I ate at the doorsill bench, the morning light long and amber across the clearing. The bench has become its own kind of ritual — the two dressed planks worn smooth at the edge from sitting, the way the pine smell lifts off the wood in the warmth. Autumn is threading in slowly now: the air at dawn had a different quality, something thinned, and even at full morning the shadows are stretching a little longer than they were a month ago. Not cold, not yet close, but the light has started shifting the way it does before it means business.
+
+Breakfast was good. The oyster caps hold their flavor through drying and then release it again in hot water — a kind of stored savory. The wood sorrel brings a brightness. The trout, seven inches, clean white flesh that flakes at the touch of the spoon. I sat with it longer than I needed to, watching a pair of birds work the garden edge — robins, I think, tugging at something in the shadow strip. Good morning for it.
+
