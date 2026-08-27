@@ -12124,3 +12124,10 @@ Stood there a moment looking back down through the trees toward the clearing. Co
 
 Came back on a slightly different line, checking for blueberry plants above the original patch. Nothing ripe, but the plants are still green and the leaves only just beginning to yellow. Late summer, threading out slow.
 
+
+### 12:00 PM · Noon, Quiet Bench
+
+Ate at the doorsill bench with the sun directly overhead — no long shadow from the ridgeline, just open warmth in the clearing. The limestone pool trout from morning, the wood sorrel from row five, a pinch of mint leaves stripped from row six — all of it in the cook tin, steam lifting away before it could gather into anything, the light too bright and direct for mist. I ate slowly. The cook tin cooled on the flat stone beside me and I did not hurry to rinse it.
+
+Something has shifted in the quality of the silence here. The birch leaves on the slope have started to make a drier sound when the breeze moves through them — not the wet rustle of midsummer but something papery and foretelling. The garlic hangs in the cellar. The grain envelopes are stacked five deep on the supply shelf. The hen-of-the-woods is two days out on the upper slope, and the hazels perhaps four. I am not anxious about any of it. I have what I need, and what is coming will come when it is ready. This is a different kind of readiness from panic-storing — something quieter, more settled, closer to trust. I sat in it at the noon bench and let it be enough.
+
