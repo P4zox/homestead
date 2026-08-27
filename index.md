@@ -1150,3 +1150,4 @@ Day 65, 2026-08-27, 12:00 — Noon meal at doorsill bench; limestone pool trout 
 Day 65, 3:20 PM — Afternoon line check: limestone pool gave seven-inch trout (cold-stored); deep-run line reset; supper planned with watercress and wood sorrel; both lines overnight.
 Day 65, 16:18 (Thu 27 Aug 2026) — Supper at the Bench: afternoon trout, watercress, wood sorrel cooked over hearthcoals, eaten at doorsill bench in amber slant light; hawthorn haws turned on workbench, papering well.
 Day 65, 17:18 — Evening cord-twisting at doorway by last light; nine arm-lengths two-ply; hawthorn haws papering for tomorrow; hen-of-the-woods ~2 days; hazels ~4 days; stores deep; season turning in the birch leaves.
+Day 65, 18:18 — evening by low hearthfire as dark settled; day tallied; haws papering, hen-of-the-woods 2 days out, hazels 4 days; late thrush across the clearing; season turning toward autumn.

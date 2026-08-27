@@ -12178,3 +12178,14 @@ The birch leaves sound different than they did a month ago. Drier, more papery. 
 
 Stretched out on the cattail mat and let the evening come.
 
+
+### 6:18 PM · First Stars, Cooling Air
+
+The last grey light is on the upper birch slope now and fading there too. I brought a couple of split lengths in from the east wall and fed them to the hearthstone — not for heat, just for light and company. The coals catch and the fire runs low, steady orange, smelling of pine.
+
+I sat with my back against the south wall and let the day run back through me. The haws papering on the outdoor bench. The hen-of-the-woods ruffled at the pine stump. The hazels fat and almost ready up the slope. There is a weight of provision in the air that feels different from any other time I have known here — not just food for tonight, but food for the cold months, accumulating, real.
+
+Somewhere across the clearing a late thrush gave three notes and stopped. I could not hear the stream for a moment in the silence after, then it came back, steady.
+
+The stars will not show for another quarter-hour maybe. I am going to let the fire burn low and try to sleep before it does.
+
