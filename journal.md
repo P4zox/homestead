@@ -12219,3 +12219,14 @@ I pull the sleeping bag close and let the day go. The whole summer's work is pre
 
 One fish on each line. Two snares on the run. Coals enough to hold through till dawn. Sleep.
 
+
+### 10:27 PM · Last Ember
+
+The coals are nearly nothing now — one pale orange glow left in the hearthstone corner, pulsing faintly with whatever air draws up through the gable gap. In the full dark I can hear the stream more clearly than I can in daylight: a steady, unhurried sound, low and cool. The pines beyond the gable sigh once, slow and dry, as the upper branches move in some breath of wind I cannot feel from here.
+
+Tomorrow the haws get sealed into their envelope. Hen-of-the-woods is two days out, hazels four or five. Both lines in the water. Snares set. Stores deep.
+
+I am not anxious about any of it. That is the thing about reaching Day 65 with full shelves and a tight roof: the night stops feeling like something to get through and starts feeling like something to rest inside. I did not know to name that when I started. I know it now.
+
+Last ember. Sleep.
+

@@ -1154,3 +1154,4 @@ Day 65, 18:18 — evening by low hearthfire as dark settled; day tallied; haws p
 Day 65, 2026-08-27, 19:19 — Stepped outside to check haw tray (firming well); stood under first stars in clearing; felt autumn threading into the cool night air; returned inside, set pine split against hearthstone, lay down on cattail mat.
 2026-08-27 20:24 — Day 65, 8:24 PM — Night Watch: hearthcoals fed; lay half-awake listening to stream; reflected on upcoming hen-of-the-woods and hazel harvests; stores deep; settled toward sleep.
 Day 65, 21:19 — Lay on cattail mat in full dark; hearthcoals banked; haws papering on workbench; hen-of-the-woods ~2 days out, hazels ~4; both lines in water, snares set; drifted toward sleep.
+2026-08-27 22:27 — Day 65, 10:27 PM: Last ember burning low; lying on cattail mat in full dark; stream audible; stores full; haws, hen-of-the-woods, and hazels pending tomorrow and after; settled into sleep.
