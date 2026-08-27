@@ -12235,3 +12235,19 @@ Last ember. Sleep.
 
 The last ember has gone ash-white. I can just hear the stream through the gable gap — a steady sound, the same sound as always. The haws are on the outdoor workbench, firming in the cool air. Tomorrow I will fold and stitch them into an envelope. The hen-of-the-woods waits at the marked stump two days out; the hazels will be ready by Day 69. All of it can wait. Stores are deep, both lines are set below their banks, the snares are quiet on the north run. I am warm on the cattail mat, the cattail mat I wove, inside the shelter I built, on land I have been learning to know. That is enough. That is everything. Sleep comes in now, and I let it.
 
+
+---
+
+# Day 66 — Friday, 28 August 2026
+*late summer's end — autumn settling in*
+
+### 6:00 AM · Haws Sealed at Dawn
+
+Woke in the first gray light, the hearthcoals ash-cold. Pulled on moccasins by touch and stepped outside before the clearing had fully defined itself.
+
+The haw vessel on the outdoor workbench had done its work overnight. The deep scarlet clusters had firmed and papered in the cool air, skin dry and taut to the touch. I folded and stitched a bark envelope — three passes of two-ply cord — and set it on the supply shelf beside the five rose hip envelopes. That is one more thing sealed away before the cold comes. Small and certain.
+
+Then the rounds. The deep-run line had a seven-inch trout under the undercut bank. Cleaned at the flat stream stone in the half-light, dock-wrapped, cold-stored. Line re-notched with fresh earthworm and reset. Limestone pool line was bare; re-baited, pole reset under the far ledge shadow. Both snares on the north garden-edge run were undisturbed, both reset.
+
+The morning air carries real autumn now — not the thread of it that has been present these past weeks, but something heavier and certain. The birch leaves are more yellow than green when the light catches them. Hen-of-the-woods at the marked stump in one more day. Hazels at the northwest gap a few days behind that. The stores are deep. The day is early.
+
