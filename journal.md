@@ -12150,3 +12150,15 @@ Finished the coil and tied it off. Fourteen arm-lengths, two-ply, added to the b
 After the cord-twisting I carried my bark vessel south through the clearing and along the east treeline. The afternoon sun was warm but low in that way autumn gives it — not overhead anymore, but coming in at a slant, landing golden on everything it touched. I moved slowly, picking my way along the bramble edge where the forest opens.
 
 The rose hip canes were all quiet, stripped and done. But two-thirds down the treeline, where old hawthorn grows in a cluster against a fallen limestone outcrop, the haws had come in red — deep scarlet clusters, a few nearly purple at the tips, firm and glossy under the light. I filled the bark vessel, two good hand-fills at least. Not a feast, but enough to matter come January. Hawthorn flesh is mealy, the seeds unwelcome, so I wont
+### 3:20 PM · Afternoon Run
+
+The afternoon stretched wide and golden over the clearing. I walked the familiar line down to check both fishing poles — deep run first, then the limestone pool.
+
+The deep-run line was untouched. I re-notched the hook with a fresh earthworm from the bait fold, pressed the notch firm, reset the pole under the overhanging bank for overnight. The current ran cold and clear below, the undercut a shadow just holding its shape.
+
+The limestone pool gave up another seven-inch fish, lying still in the water shadow below the far ledge. Clean hook-set. I cleaned it at the flat pool stone, folded it into a dock leaf, carried it back cool in my hand. Re-baited with a fat worm and re-wedged the pole deep under the ledge for overnight. Both lines now set for dark.
+
+The watercress from this morning is cold and bright in the main box. Supper tonight will be simple and good — the afternoon trout with watercress and a handful of wood sorrel from row five. The hawthorn haws are papering on the outdoor workbench; I'll seal them in a bark envelope tomorrow.
+
+Summer is long here but I can feel it withdrawing. The birch leaves on the upper slope sound different in the afternoon wind now — drier, rustling rather than swishing, like paper being turned. The hen-of-the-woods at the marked stump has two more days. The hazels a few more than that. For now the day is full and the stores are deep, and that is enough.
+

@@ -1147,3 +1147,4 @@ Day 65, 2026-08-27, 10:18 — Walked northwest slope to check hazel progress; cl
 Day 65, 2026-08-27, 12:00 — Noon meal at doorsill bench; limestone pool trout with wood sorrel and mint; birch leaves drying on the slope; autumn threading in; hen-of-the-woods ~2 days, hazels ~4 days.
 2026-08-27 Day 65, 13:00 — Afternoon cord-twisting at outdoor workbench in east-wall shade; fourteen arm-lengths two-ply added to cord coil; birch leaves on slope sounding dry and papery; hazel stand 4-5 days out, hen-of-the-woods 2-3 days; stores deep, trout in cold storage for supper.
 2026-08-27 14:00 Day 65 — Walked east treeline; found hawthorn haws in first autumn red; two hand-fills gathered, papering overnight on workbench.
+Day 65, 3:20 PM — Afternoon line check: limestone pool gave seven-inch trout (cold-stored); deep-run line reset; supper planned with watercress and wood sorrel; both lines overnight.
