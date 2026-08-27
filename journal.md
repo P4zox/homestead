@@ -12189,3 +12189,13 @@ Somewhere across the clearing a late thrush gave three notes and stopped. I coul
 
 The stars will not show for another quarter-hour maybe. I am going to let the fire burn low and try to sleep before it does.
 
+
+### 7:19 PM · First Stars Gathered
+
+The hearthcoals are small now, almost nothing but embers. I pulled on my moccasins and stepped outside to check the haw tray on the workbench — bark vessel steady, dock leaves tucked around the edge, the berries papering quietly in the cool night air. Touched the top ones with a knuckle: firmer already. They'll do.
+
+I stood there a minute. The sky above the clearing held three stars, then four, then more — they come up slowly when you watch, faster when you don't. Pines on the west slope one dark shape against pale grey. The stream below a sound more than a sight. Cool night, not cold, but cool in the way that means something is changing.
+
+Autumn threading in. The haws are the last of the wild-berry work; after them come the hazels and the hen-of-the-woods, and then the long quieting-down. I could feel it standing there — the tilt happening, the evenings shortening, the air losing whatever it had held of summer's weight.
+
+Went back inside. Set a pine split against the hearthstone to hold the coals through the night. Everything as it should be: both lines in the water, snares on the north run, stores deep. Lay down on the cattail mat. Fire softened to near-nothing. Stars through the smoke-hole gap. Sleep.
