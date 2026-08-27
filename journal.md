@@ -12230,3 +12230,8 @@ I am not anxious about any of it. That is the thing about reaching Day 65 with f
 
 Last ember. Sleep.
 
+
+### 11:20 PM · Deep Night
+
+The last ember has gone ash-white. I can just hear the stream through the gable gap — a steady sound, the same sound as always. The haws are on the outdoor workbench, firming in the cool air. Tomorrow I will fold and stitch them into an envelope. The hen-of-the-woods waits at the marked stump two days out; the hazels will be ready by Day 69. All of it can wait. Stores are deep, both lines are set below their banks, the snares are quiet on the north run. I am warm on the cattail mat, the cattail mat I wove, inside the shelter I built, on land I have been learning to know. That is enough. That is everything. Sleep comes in now, and I let it.
+
