@@ -12131,3 +12131,16 @@ Ate at the doorsill bench with the sun directly overhead — no long shadow from
 
 Something has shifted in the quality of the silence here. The birch leaves on the slope have started to make a drier sound when the breeze moves through them — not the wet rustle of midsummer but something papery and foretelling. The garlic hangs in the cellar. The grain envelopes are stacked five deep on the supply shelf. The hen-of-the-woods is two days out on the upper slope, and the hazels perhaps four. I am not anxious about any of it. I have what I need, and what is coming will come when it is ready. This is a different kind of readiness from panic-storing — something quieter, more settled, closer to trust. I sat in it at the noon bench and let it be enough.
 
+
+### 1:00 PM · Cord in the Shade
+
+The doorsill bench caught the last of the full noon light while I ate; by the time I rinsed the tin and set it to dry, the east side of the shelter had come into shade. I brought the bark-strip bundle and the cord coil out to the outdoor workbench and sat there.
+
+The east wall of the cabin was warm against my back even through the shade. Birch leaves up on the slope — not the same sound they made a month ago. Dryer, more papery. Every now and then a single leaf would let go and trace a slow spiral down through the light between the trees, landing without a sound in the pine duff.
+
+I worked through fourteen arm-lengths of inner bark, splitting the bundle into even strands, laying them across my knee to twist. The motion goes quiet in you after a while: a turn here, a half-turn, the two strands winding into each other in a steady rhythm. The cord thickens under your fingers. You stop thinking about what you are doing and just do it.
+
+The hazel stand is four or five days out. The hen-of-the-woods, maybe two or three. There is enough food stored to see me well past the first frosts, but I am not ready to stop adding to it. Something in the shortening of the days, in that dry sound the birch leaves make now, keeps me working. Not urgency — more like the pleasure of being ahead of something for once.
+
+Finished the coil and tied it off. Fourteen arm-lengths, two-ply, added to the bundle. The shadows have stretched a little east. A trout in cold storage for supper. Everything where it should be.
+
