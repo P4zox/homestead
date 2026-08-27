@@ -1157,3 +1157,4 @@ Day 65, 21:19 — Lay on cattail mat in full dark; hearthcoals banked; haws pape
 2026-08-27 22:27 — Day 65, 10:27 PM: Last ember burning low; lying on cattail mat in full dark; stream audible; stores full; haws, hen-of-the-woods, and hazels pending tomorrow and after; settled into sleep.
 2026-08-27 23:20 Day 65 — Final tick: last ember gone ash-white; haws firming on bench; hen-of-the-woods 2 days out; hazels 4 days; stores deep; sleep.
 2026-08-28 Day 66 06:00 — Haws sealed at dawn; morning rounds complete; deep-run trout cold-stored; both lines in water; snares reset; hen-of-the-woods ~1 day from harvest; hazels ~3-4 days.
+Day 66, 07:20 — Hen-of-the-woods harvested at marked pine stump; half smoked on rack, half cold-stored fresh for supper.

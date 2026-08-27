@@ -12251,3 +12251,11 @@ Then the rounds. The deep-run line had a seven-inch trout under the undercut ban
 
 The morning air carries real autumn now — not the thread of it that has been present these past weeks, but something heavier and certain. The birch leaves are more yellow than green when the light catches them. Hen-of-the-woods at the marked stump in one more day. Hazels at the northwest gap a few days behind that. The stores are deep. The day is early.
 
+### 7:20 AM · The Hen Comes Good
+
+I had marked that pine stump yesterday afternoon and climbed the slope again at first proper light. The hen-of-the-woods had pushed through overnight — fronds spread wide, outer edges firm and dry, the underside cream-white and clean. Two good handfuls of dense layered bracket, cool and heavy from the shadowed forest floor.
+
+Cut it at the base with the knife, leaving the mycelium below. The whole cluster came away clean. Back at the outdoor workbench I cleaned it finger by finger — pine needles pulled from the folds, bark flecks from the outer fronds — then split the harvest. Half went gill-face-up onto the smoke rack over a low green-birch smolder. The rest I dock-wrapped and set in the cold-storage box for supper tonight.
+
+Something different about harvesting a mushroom you have been watching. Berries offer themselves; fish take the line. A mushroom makes you patient. You walk past it, you let it grow, and then one morning it says *now*.
+
