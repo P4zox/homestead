@@ -12089,3 +12089,16 @@ I ate at the doorsill bench, the morning light long and amber across the clearin
 
 Breakfast was good. The oyster caps hold their flavor through drying and then release it again in hot water — a kind of stored savory. The wood sorrel brings a brightness. The trout, seven inches, clean white flesh that flakes at the touch of the spoon. I sat with it longer than I needed to, watching a pair of birds work the garden edge — robins, I think, tugging at something in the shadow strip. Good morning for it.
 
+
+### 9:18 AM · Pool Walk, Watercress
+
+The morning had that quality of not yet decided — cool air from the stream still holding, but the amber light already pressing in from the south face of the pines, warming the bark siding above the doorsill bench. After breakfast I sat a few minutes with nothing particular to do, just watching the light shift across the garden rows. Then I pulled on the moccasins and walked the path to the limestone pool.
+
+The pole was still wedged under the far ledge shadow where I had set it at dawn. The line ran taut at a gentle angle — something on it, moving slow. I drew the pole back and brought up a seven-inch trout, dark-backed in the deep cold water, clean and firm. I cleaned it at the flat pool stone, dock-wrapped it, and set it in the cold-storage box on the way home. The line I re-baited with an earthworm from the fold and reset deep under the ledge shadow.
+
+At the side-seep below the deep run I cut a fistful of watercress — stems crisp, leaves vivid green, the cold water threading through the root mat. The kind of thing that seems like nothing until you are eating it with a piece of smoked rabbit in the late afternoon and it makes the meal. I dock-wrapped it and carried it back.
+
+On the path home the light came through the birch trunks in long flat beams. Late August light. There is a particular quality to it — not the steep overhead brightness of July, but something longer-reaching, a bit golden at the edges even mid-morning. Autumn threading in, the way the world.md says it, and it is true. The land is still full — garden heavy, stores deep, firewood stacked — but you can feel the angle of the light changing, a few degrees further south each week. I find I am less anxious about it this year. The root cellar has garlic. The supply shelf has grain. The cold-storage box holds fish and mushroom and smoked meat. I have done this before and come through.
+
+I sat at the doorsill bench when I got back and looked at the clearing for a while, saying nothing to no one.
+
