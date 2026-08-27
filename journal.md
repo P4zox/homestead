@@ -12113,3 +12113,14 @@ I stood there longer than needed. The light through the birch was amber in a way
 
 Walking back I stopped at the northeast edge and looked down over the clearing: the cabin, the smoke rack, the garden rows dark with water. Everything made. It looked like enough.
 
+
+### 11:18 AM · Upper Slope Walk
+
+From the hazel gap the slope keeps climbing. I followed it up past the landmark deadfall birch, into thicker pine and a few old birch that lean over each other, their canopies tangled together against the blue. The morning was still cool up there — the sun not yet reaching the north-facing draws — and the air smelled of pine resin and damp soil turning.
+
+I was looking for chanterelles, or anything that might have pushed up in the last rains. Found no new flush where the old chanterelle hollow sits — the carved-out hollow under the leaning birch was quiet, just leaf duff and a few ant trails. But higher, maybe sixty paces above the hazel shrubs, I spotted something worth noting: a patch of what looked like hen-of-the-woods base — the ruffled grey-brown shelf at the root of an old pine stump, flat and wide, perhaps two hand-spans across. I crouched and checked the gills — pale tan, descending cleanly, no slick or sourness to the smell. Not yet at its fullest — the outer lobes still curling inward — but in two or three days this will be a real harvest. I marked the stump: thick moss collar on the north face, two split rounds leaning against the south side from some old clearing work. Easy to find again.
+
+Stood there a moment looking back down through the trees toward the clearing. Could just make out the cabin roof and the smoke rack between the trunks. Everything down there steady, held in mid-morning amber. Up here it felt like the edge of something — the beginning of where the homestead is not yet, but might one day reach.
+
+Came back on a slightly different line, checking for blueberry plants above the original patch. Nothing ripe, but the plants are still green and the leaves only just beginning to yellow. Late summer, threading out slow.
+

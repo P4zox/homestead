@@ -1143,3 +1143,4 @@ Day 65, 2026-08-27, 07:18 — Watered garden (four cook-tin trips, all rows); mi
 Day 65, 08:19 — Breakfast at the doorsill: morning trout cooked with dried oyster caps and wood sorrel; morning light amber and autumn threading in.
 2026-08-27 Day 65, 09:18 — Limestone pool: seven-inch trout caught, cleaned, cold-stored; watercress gathered at side-seep; returned to doorsill bench in amber mid-morning light.
 Day 65, 2026-08-27, 10:18 — Walked northwest slope to check hazel progress; clusters fattened and solid inside, one turning straw-tan — ~4–5 days to ripeness; amber mid-morning light, autumn threading in.
+2026-08-27 Day 65, 11:18 — Walked upper northwest slope above hazel gap; hen-of-the-woods base spotted at old pine stump (~60 paces above hazels) — two hands wide, outer lobes still curling in, ready in 2–3 days; stump marked (moss collar north face, two split rounds south side); no chanterelle flush yet at hollow.
