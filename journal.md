@@ -12364,3 +12364,14 @@ I twisted nine arm-lengths before the light was too dim to judge the cord tensio
 
 The night is quiet. The stream sounds closer in the dark.
 
+
+### 7:19 PM · Resin in, Stores Counted
+
+The south stones had cooled to just warm when I went out to collect the resin fold. The amber pressed soft under my thumb — still pliable enough from the afternoon sun. I folded the bark over, retied the cord, and set it on the shelf beside the pollen vessel.
+
+Then I sat with the low hearthcoals and did what I had not had the quiet for yet today: I counted what is standing in this place. Five rose hip envelopes. Two elderberry. One hawthorn haw, just stitched this morning. Five meadow grain envelopes. Eight garlic bulbs hanging in the cellar. Four dried nettle bundles on wall pegs. Smoked mushrooms, smoked fish, cord in good supply. Cap and mittens and moccasins. A bow and eight arrows.
+
+It does not all fit together into one number. But taken one thing at a time, it is substantial. The summer did its work.
+
+The hazels are one more day. If they crack sweet and pale tomorrow, this summer will feel complete. Tonight the coals are low and orange, both lines are in the water, both snares are set, and the first yellow birch branch on the slope glows in memory. It is enough.
+
