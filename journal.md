@@ -12306,3 +12306,14 @@ Line re-baited and reset. Walked back slow, full of warm fish and the ease of a 
 
 The noon meal still warm in me — trout and wood sorrel at the pool, back against sun-heated limestone — I settled at the outdoor workbench in the south-slant shade. The afternoon was still, just a few late-summer birds calling from the treeline before going quiet. I pulled the bark-strip bundle and began twisting: fourteen arm-lengths of two-ply, the familiar rhythm of tension and walk. My hands know the motion now without thought, which is something I have come to value — the body working while the mind drifts pleasantly nowhere in particular. The hazels at the northwest gap are close, the hen-of-the-woods cold-stored, both lines in the water. This hour the only work needed was cord, and that was enough.
 
+
+### 1:19 PM · Slope Check
+
+Cord-twisting done for a stretch, I set the coil down and walked the slope up to the northwest gap to look at the hazels. Forty paces above the clearing edge, past the fallen birch deadfall — three arm-high shrubs, each cluster swollen and hanging low. I pulled one free and pressed a thumbnail into the tip: firm all the way through, the shell resisting cleanly. But the skin at the base still a faint greenish-tan. Close. Two more days, maybe three.
+
+From that height the whole clearing was visible below — cabin roof, garden strip full in the afternoon light, smoke-rack posts standing quiet. The birches at the top of the slope have put out a first flag of yellow. Not many leaves, not yet — just a forewarning. The light up here leans gold in a way the lower ground does not, a slight quality that says August is nearly finished.
+
+I cracked one nut against the flat deadfall log with a river stone. The meat was pale and solid, faintly sweet on the tongue. The shell let go cleanly — the way a ripe nut does in the last days before it falls on its own. Day 68 or 69 should be harvest; I will bring the birch basket and expect a full morning up here.
+
+Came back down the same path, stepping careful on slope grass, carrying nothing but the good knowledge of what is coming.
+

@@ -1163,3 +1163,4 @@ Day 66, 09:20 — Pulled hen-of-the-woods from smoke rack (amber-tan, firm); bot
 2026-08-28 10:00 Day 66 — Split seasoned pine off-cuts; ~20 rounds added to woodpile under south cabin overhang (firewood winter prep).
 Day 66, 11:00 AM, Fri 28 Aug 2026 — Noon at the Pool: limestone pool seven-inch trout caught, cooked with wood sorrel on small bank fire, eaten at poolside; line re-baited and reset; walked back slow in full midday sun.
 Day 66, 12:18 — Afternoon cord-twisting at outdoor workbench; fourteen arm-lengths two-ply; hazels close; both lines in water.
+2026-08-28 (Day 66, 13:19) — Walked northwest slope to check hazel shrubs; nuts firm and nearly ripe (2 more days); first yellow birch leaves spotted at slope top; harvest expected Day 68–69.
