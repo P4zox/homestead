@@ -12390,3 +12390,7 @@ The lines are in the water. The snares are set. Tomorrow: hazels, then whatever 
 
 I banked the coals a little lower and sat a while longer in the dark, just listening.
 
+
+### 9:22 PM · Night Before Hazels
+
+The clearing is very still. I stepped outside just before sleep to listen — the cricket at the north garden edge is still going, small and steady, and somewhere on the slope an owl moved without a call. The stars are clear. There is a chill now that was not here a week ago: autumn threading through the air. Tomorrow at first light I will walk up to the northwest birch-gap and harvest the hazels. The nuts will be firm in my palm, sweet when I crack one on a stone. I have been waiting for this. Inside, the coals are banked orange-low; the lines are in water, the snares are set. The day earned its rest. I came back inside and did not light the hearthstone again — just the warmth already there. The cricket is still at it as I settle in.
