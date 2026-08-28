@@ -12268,3 +12268,14 @@ I took the cook tin to the stream four times. The garden needed it — soil show
 
 Standing at the north end of the rows with an empty tin, I could see the rack smoke rising past the shelter south gable and dissolving into clear morning air. The days are shortening now — I notice it mostly at the shoulders of the day, a little less light when I first step out, a little quicker dark in the evenings. The stores are deep. The hazels are a few days off. There is still time to bring in what the land offers before it begins to close.
 
+
+### 9:20 AM · Bracket from the Rack
+
+Two hours is enough. I check the smoke rack at 09:20 and the hen-of-the-woods has made its change — grey-brown bracket gone amber, edges curled clean inward, firm when I press with a thumb and spring back slow. No soft spots. The whole cluster holds its shape.
+
+I lift each piece from the crossbar and rest them a moment on the outdoor workbench, letting the last heat breathe out. The coals below are cold already; green birch smolders a long time but leaves little ember. I fold the dried bracket in fresh dock leaves — firm, matte, a faintly smoky smell that sits in the back of the throat the good way — and carry them to the main cold-storage box. The fresh half from this morning is already in there, dock-wrapped and waiting. Now both halves are cold-stored. The rack is cleared; I spread the spent coals and scatter them thin in the damp soil beside the rack. Done.
+
+The morning has a stillness to it now. Garden watered, lines in the water, snares set, hen-of-the-woods off the rack. The hazels at the northwest gap are still three days out. The nettles are pushing fresh tips but not yet ready to cut. There is nothing that needs me this exact hour.
+
+I sit at the doorsill bench with nothing pressing and notice the birds. Quieter in late August than in June — less urgency in the calls, more just presence. The pines across the clearing stand the same as always. The air has the faintest cool thread in it, not cold, just a reminder that summer is not endless. I am glad to sit in it. The stores are deep. The root cellar is hung with garlic, stocked with grain and dried mushrooms and rose hips. There is time.
+

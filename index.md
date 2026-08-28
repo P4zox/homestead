@@ -1159,3 +1159,4 @@ Day 65, 21:19 — Lay on cattail mat in full dark; hearthcoals banked; haws pape
 2026-08-28 Day 66 06:00 — Haws sealed at dawn; morning rounds complete; deep-run trout cold-stored; both lines in water; snares reset; hen-of-the-woods ~1 day from harvest; hazels ~3-4 days.
 Day 66, 07:20 — Hen-of-the-woods harvested at marked pine stump; half smoked on rack, half cold-stored fresh for supper.
 Day 66, 08:18 — Watered garden (four cook-tin trips, all rows darkened); hen-of-the-woods smoldering on rack, pull ~09:20.
+Day 66, 09:20 — Pulled hen-of-the-woods from smoke rack (amber-tan, firm); both halves cold-stored in main box; rack cleared; doorsill rest in late-summer stillness.
