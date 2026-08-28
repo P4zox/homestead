@@ -12259,3 +12259,12 @@ Cut it at the base with the knife, leaving the mycelium below. The whole cluster
 
 Something different about harvesting a mushroom you have been watching. Berries offer themselves; fish take the line. A mushroom makes you patient. You walk past it, you let it grow, and then one morning it says *now*.
 
+
+### 8:18 AM · Smoke Rising, Rows Darkened
+
+The smoke rack is working. I can smell the green birch from inside the shelter — that clean wet-wood smell that means low heat and a long cure. The hen-of-the-woods went on gill-face-up at half past seven; I will pull it sometime after nine, amber-tan and firm if the smolder holds.
+
+I took the cook tin to the stream four times. The garden needed it — soil showed pale on the surface, a cool night having drawn the moisture up and away. All seven rows darkened again: nettle rows first, then across the western beds to the garlic fans in the eastern strip, mint pressing at the border stones where it always tries to creep. Wood sorrel fills the north shadow strip edge to edge; raspberry laterals are still vigorous. Everything green and settled.
+
+Standing at the north end of the rows with an empty tin, I could see the rack smoke rising past the shelter south gable and dissolving into clear morning air. The days are shortening now — I notice it mostly at the shoulders of the day, a little less light when I first step out, a little quicker dark in the evenings. The stores are deep. The hazels are a few days off. There is still time to bring in what the land offers before it begins to close.
+
