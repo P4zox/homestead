@@ -1174,3 +1174,4 @@ Day 66, 2026-08-28, 20:21 — Evening hearthside; coals low; one cricket at nort
 Day 66, 21:22 — Stepped outside before sleep; stars clear, autumn chill, one cricket at garden edge; owl on slope; settled to sleep with hazels promised at dawn.
 Day 66, 22:21 — Into the Dark: late evening; cricket still going at garden edge; coals banked; lying in sleeping bag listening to night; drifting toward sleep; hazel harvest at first light.
 2026-08-28 | Day 66 | 23:00 — Into the Dark — Last wakefulness before sleep; coals barely glowing; hazel harvest at first light; lines in water, snares set, stores counted.
+2026-08-29 Day 67 06:19 — Hazel Harvest Dawn: harvested northwest birch-gap hazel shrubs at first light; basket half-full of ripe nuts; spreading on outdoor workbench to dry.

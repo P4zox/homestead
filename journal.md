@@ -12414,3 +12414,19 @@ The cricket has gone quieter in the last minutes, or perhaps I have — hard to 
 
 The clearing is still. The slope is dark. Autumn has its finger in the air now — you feel it in every breath after the sun is gone, a sharpness that was not there in July. I have been counting the stores quietly: rose hips, elderberries, haws, grain, garlic, dried fish and mushrooms, cord in good supply, winter gear hanging on the pegs. It is a longer list than I had this time last year. That is the whole of it, I think. The day lets go and I let it.
 
+
+---
+
+# Day 67 — Saturday, 29 August 2026
+*Midsummer's end · Cold clear dawn, frost edge in the air*
+
+### 6:19 AM · Hazel Harvest Dawn
+
+I woke to quiet and cold and knew what had to be done first. The sleeping bag was warm but the hazels had been waiting for this morning since yesterday's check — one cracked nut already sweet on the deadfall log, the clusters still full and bowed. I laced my moccasins in the dimness, took the birch harvest basket from its hook by the door, and walked up through the pines before full light had found the clearing.
+
+The birch-gap in the northwest slope appeared pale in the grey dawn. The three hazel shrubs stood small and heavy, their nut clusters hanging low. I worked through each one by feel and by the slow growing light — pulling clusters, testing for the papery give that meant ripe, leaving the few that still held firm and green. The nuts came off cleanly at the stem with a satisfying snap. My basket filled more than halfway: a good harvest, the best this slope will offer before the season closes.
+
+I walked back with the weight of it resting across one arm. The clearing was still dim, the stream audible below, morning star still up. I set the basket on the outdoor workbench and cracked one nut on the flat cobble — the shell parted clean, the meat pale cream and firm, a little sweet. That was enough for the moment.
+
+Now they're spreading on the workbench in the first of the morning sun, drying before I fold them into a bark envelope. One more thing stored. The slope gave well, and I'm glad I promised myself to come at first light.
+
