@@ -12394,3 +12394,16 @@ I banked the coals a little lower and sat a while longer in the dark, just liste
 ### 9:22 PM · Night Before Hazels
 
 The clearing is very still. I stepped outside just before sleep to listen — the cricket at the north garden edge is still going, small and steady, and somewhere on the slope an owl moved without a call. The stars are clear. There is a chill now that was not here a week ago: autumn threading through the air. Tomorrow at first light I will walk up to the northwest birch-gap and harvest the hazels. The nuts will be firm in my palm, sweet when I crack one on a stone. I have been waiting for this. Inside, the coals are banked orange-low; the lines are in water, the snares are set. The day earned its rest. I came back inside and did not light the hearthstone again — just the warmth already there. The cricket is still at it as I settle in.
+
+### 10:21 PM · Into the Dark
+
+The cricket at the north garden edge is still going. I can just hear it through the cabin wall — one steady note, neither urgent nor mournful, just persistent. The coals are low enough that the shelter has gone mostly dark; there is only a faint orange glow from the banked clay hearth, enough to see the rough ceiling timbers, the bark roof sealed close above them.
+
+I am lying in the sleeping bag now, arms by my sides, listening. The owl has not called again since I came in, but the night is doing its usual work: small sounds under the quiet — a branch shifting on the slope, the stream's low constant voice reaching me even here. Autumn's first breath comes through the gable seams not as cold exactly, but as a quality of the dark, a way the air holds itself differently than high summer nights.
+
+Tomorrow the hazels. I have been saying it for three days; now it is truly tomorrow. I will go at first light to beat the squirrels to any cracked ones. The nuts will be warmer by noon — skins slip easier in the heat — but first light is first light, and I have learned to go early.
+
+Stores counted again in the dark: rose hips, elderberries, haws, grain, garlic, dried fish and mushrooms. Not enough yet for the deep cold, but the picture is filling in. By the time first frost comes it will look different.
+
+The cricket keeps going. I let it keep going without me.
+
