@@ -12342,3 +12342,12 @@ Set the fold on the warm south-facing stones near the shelter wall to settle and
 
 The light has gone amber and slanted by the time I walk the north garden edge to check the snares. Both loops hang untouched at their trigger sticks. I reset them with care — the cord is supple, the knot drops cleanly, the trigger sits light. The garden rows are dark with water still from this morning. Nettles sway in a small evening draft coming off the slope. Above the cabin, at the top of the birch bank, one branch catches the low sun and throws a coin of yellow light onto the dark needle floor below it — autumn's first note, plain as anything. I stand there a moment longer than I need to, watching it. Then I come in to make supper.
 
+
+### 5:19 PM · First Taste of Hen
+
+Supper done. I pulled the cold-stored trout and the dock-wrapped watercress from the main box, and with them the smoked hen-of-the-woods from this morning's rack — the first time I have cooked with it. It went into the cook tin with the trout and a handful of wood sorrel over hearthcoals, and in the time it took to carry the tin to the doorsill, the smell had changed: earthier, woodier, something richer than the oysters or chanterelles. The mushroom holds in the heat — firm, a little chewy, almost meaty. I sat at the doorsill bench and ate slowly, watching the amber come off the slope in long flat bands.
+
+The birch branch that turned gold this morning was glowing above the treeline, lit from below. Autumn is not here yet, but it has sent its scout ahead, and I am listening. The root cellar holds garlic. The shelf holds five rose hip envelopes, two elderberry, grain, dried haws. The cold box holds smoked mushrooms and a trout for morning. Both lines are in the water. Both snares are set. Tomorrow the hazels may be ready. There is still warmth in the evening air, but it has an edge now — the kind that means you should be paying attention.
+
+I am paying attention. Tin rinsed. Coals banked. The clearing is quiet.
+
