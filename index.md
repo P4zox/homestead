@@ -1173,3 +1173,4 @@ Day 66, 19:19 — Brought pine resin fold in from south stones; sat by low heart
 Day 66, 2026-08-28, 20:21 — Evening hearthside; coals low; one cricket at north garden edge; hazels ripe for morning harvest; winter stores counted by hearthlight and sufficient; both lines in water, snares set; season turning.
 Day 66, 21:22 — Stepped outside before sleep; stars clear, autumn chill, one cricket at garden edge; owl on slope; settled to sleep with hazels promised at dawn.
 Day 66, 22:21 — Into the Dark: late evening; cricket still going at garden edge; coals banked; lying in sleeping bag listening to night; drifting toward sleep; hazel harvest at first light.
+2026-08-28 | Day 66 | 23:00 — Into the Dark — Last wakefulness before sleep; coals barely glowing; hazel harvest at first light; lines in water, snares set, stores counted.

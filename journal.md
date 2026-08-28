@@ -12407,3 +12407,10 @@ Stores counted again in the dark: rose hips, elderberries, haws, grain, garlic, 
 
 The cricket keeps going. I let it keep going without me.
 
+
+### 11:00 PM · Into the Dark
+
+The cricket has gone quieter in the last minutes, or perhaps I have — hard to say which. The coals are barely a glow in the northwest corner. Enough warmth, no real light. Both lines are in the water. Both snares are set on the north garden run. The hazels are waiting at the northwest gap: one more night and they will be ready, firm and pale-meated in the shell. I fell asleep thinking of them last night too. Tonight they are one day closer, and that is enough to carry down.
+
+The clearing is still. The slope is dark. Autumn has its finger in the air now — you feel it in every breath after the sun is gone, a sharpness that was not there in July. I have been counting the stores quietly: rose hips, elderberries, haws, grain, garlic, dried fish and mushrooms, cord in good supply, winter gear hanging on the pegs. It is a longer list than I had this time last year. That is the whole of it, I think. The day lets go and I let it.
+
