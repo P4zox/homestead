@@ -12337,3 +12337,8 @@ Mid-afternoon and the sun still warm, slanting amber across the clearing. I took
 I am thinking ahead now. Autumn is in the air — the birch at the slope top are losing their first leaves, just a few fluttering down in the still afternoon. The rains will come after the hazels, and after that the sealing work begins: bark gaps, gear that needs waterproofing, the new envelopes before damp sets in. A deep resin supply is not dramatic work, but it is the right work for this hour.
 
 Set the fold on the warm south-facing stones near the shelter wall to settle and soften before evening. Came back inside, stoked the coals a little, sat in the doorway. Both lines in water. Supper waits in the cold box — trout and watercress. The clearing is quiet and gold.
+
+### 4:18 PM · Dusk Rounds, Snares Checked
+
+The light has gone amber and slanted by the time I walk the north garden edge to check the snares. Both loops hang untouched at their trigger sticks. I reset them with care — the cord is supple, the knot drops cleanly, the trigger sits light. The garden rows are dark with water still from this morning. Nettles sway in a small evening draft coming off the slope. Above the cabin, at the top of the birch bank, one branch catches the low sun and throws a coin of yellow light onto the dark needle floor below it — autumn's first note, plain as anything. I stand there a moment longer than I need to, watching it. Then I come in to make supper.
+
