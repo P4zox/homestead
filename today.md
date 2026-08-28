@@ -5,3 +5,4 @@
 09:20 — Hen-of-the-woods pulled from smoke rack: amber-tan throughout, edges curled clean, firm; both halves (rack half + morning cold-store half) now cold-stored in main box; rack cleared, spent coals spread and damped; doorsill rest.
 10:00 — Firewood: split seasoned pine off-cuts (wall-log ends and branch lengths from June felling); ~20 rounds added to stack under south cabin roof overhang. Hands tired; good work.
 11:00 — Limestone pool line: seven-inch trout (cleaned at flat pool stone, cooked on small bank fire with wood sorrel from row 5, eaten at poolside in noon light; line re-baited with earthworm from bait fold, pole re-wedged under far ledge shadow — both lines in water); noon rest against warm limestone.
+12:18 — Afternoon cord-twisting at outdoor workbench in south-slant shade; fourteen arm-lengths two-ply twisted; hazels ~2–3 days at northwest gap; both lines in water; hen-of-the-woods cold-stored.

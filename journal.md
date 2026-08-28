@@ -12301,3 +12301,8 @@ Ate with my back against warm limestone, the fire going slowly to gray ash while
 
 Line re-baited and reset. Walked back slow, full of warm fish and the ease of a morning's work well done.
 
+
+### 12:18 PM · Long Slow Twist
+
+The noon meal still warm in me — trout and wood sorrel at the pool, back against sun-heated limestone — I settled at the outdoor workbench in the south-slant shade. The afternoon was still, just a few late-summer birds calling from the treeline before going quiet. I pulled the bark-strip bundle and began twisting: fourteen arm-lengths of two-ply, the familiar rhythm of tension and walk. My hands know the motion now without thought, which is something I have come to value — the body working while the mind drifts pleasantly nowhere in particular. The hazels at the northwest gap are close, the hen-of-the-woods cold-stored, both lines in the water. This hour the only work needed was cord, and that was enough.
+
