@@ -12317,3 +12317,16 @@ I cracked one nut against the flat deadfall log with a river stone. The meat was
 
 Came back down the same path, stepping careful on slope grass, carrying nothing but the good knowledge of what is coming.
 
+
+### 2:20 PM · Still Water, Late Light
+
+The afternoon had gone warm and quiet. I took the path down to the limestone pool — more to sit by moving water than anything pressing, though both lines were set and worth checking.
+
+The pool line had a seven-inch trout, the earthworm bait taken clean. I cleaned it at the flat pool stone, dock-wrapped it, and set it in the main box on my way back past the cabin. At the side seep below the deep run I pulled a fistful of watercress — stems cold, leaves clean all the way through. Supper sorted, and simply.
+
+Then I went back to the limestone shelf and sat for a while. The pool was still in its deep middle, moving only at the edges where it feeds the run below. I thought about the yellow birch leaves I had seen this morning at the top of the northwest slope — two or three of them, pale gold at the tip, the rest of the tree still summer-dark. Means nothing by itself. But something is starting.
+
+The hazels in two more days. Then the real turn will come, the light will shift, the mornings will bite again. I have been moving toward winter since I got here; the season just makes it visible now. I went through the stores in my head as I watched the water: grain envelopes, dried elderberries and rose hips, haws, smoked mushrooms, garlic on the cellar rail, firewood rows at the east wall. Solid. More than solid. I did not feel afraid of what is coming.
+
+I re-baited both lines, reset the poles, and came back to the clearing in the slant of afternoon sun.
+
