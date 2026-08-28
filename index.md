@@ -1161,3 +1161,4 @@ Day 66, 07:20 — Hen-of-the-woods harvested at marked pine stump; half smoked o
 Day 66, 08:18 — Watered garden (four cook-tin trips, all rows darkened); hen-of-the-woods smoldering on rack, pull ~09:20.
 Day 66, 09:20 — Pulled hen-of-the-woods from smoke rack (amber-tan, firm); both halves cold-stored in main box; rack cleared; doorsill rest in late-summer stillness.
 2026-08-28 10:00 Day 66 — Split seasoned pine off-cuts; ~20 rounds added to woodpile under south cabin overhang (firewood winter prep).
+Day 66, 11:00 AM, Fri 28 Aug 2026 — Noon at the Pool: limestone pool seven-inch trout caught, cooked with wood sorrel on small bank fire, eaten at poolside; line re-baited and reset; walked back slow in full midday sun.

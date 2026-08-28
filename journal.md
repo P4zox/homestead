@@ -12290,3 +12290,14 @@ Not a glamorous task. No one will remark on it. But winter doesn't care about gl
 
 My hands are good and tired. There is something honest about that.
 
+
+### 11:00 AM · Noon at the Pool
+
+The morning's work settled behind me — twenty rounds under the south overhang, hen-of-the-woods cold-stored, garden watered and green, haws stitched shut on the shelf. I leaned the axe against the cabin wall and let my palms rest against the bark for a moment.
+
+I walked to the limestone pool with the cook tin and a fistful of wood sorrel from row five. The deep-run line rode still under the undercut bank — I left it. At the pool, the pole sat easy in the far ledge shadow; when I lifted it I had a seven-inch trout, hook set clean at the lip. I cleaned it at the flat poolside stone, built a small fire from dry sticks on the bank, and cooked the fish with the sorrel right there, no hurry to any of it.
+
+Ate with my back against warm limestone, the fire going slowly to gray ash while the pool ran its quiet course. The hazels at the northwest gap must be three days from ripe, maybe two — I'll know more clearly by tomorrow. The firewood stack under the south overhang is real now: solid and growing. Autumn threads in at the edges, but the midday sun still carries weight, and I let it find me.
+
+Line re-baited and reset. Walked back slow, full of warm fish and the ease of a morning's work well done.
+
