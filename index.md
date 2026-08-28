@@ -1168,3 +1168,4 @@ Day 66, 14:20 — Afternoon limestone pool trout pulled and cold-stored; watercr
 Day 66, 15:20 — Walked treeline to gather pine resin from amber-weeping wounds; bark-fold topped up for autumn sealing work; set on south stones to soften.
 2026-08-28 16:18 — Day 66 — Both snares checked and reset on north garden-edge run (untouched); coin of yellow birch light on needle floor; autumn threading in; supper coming.
 Day 66, 17:19 — Supper of trout, smoked hen-of-the-woods, watercress, wood sorrel; first taste of hen-of-the-woods; coals banked; hazels nearly ready; autumn threading in.
+Day 66, 18:18 — Evening cord-twisting by hearthlight; nine arm-lengths two-ply twisted; first yellow birch branch lit on slope; both lines in water, snares set; hazels one day off.

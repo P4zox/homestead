@@ -11,3 +11,4 @@
 15:20 — Pine resin gathered: walked pine-line treeline, scraped three amber-weeping wounds (axe-scar and lightning-split pines); bark-fold topped up and set on south-facing stones to soften; season turning; both lines in water; supper ready.
 16:18 — Evening snare check: walked north garden edge at amber hour; both running-loop snares untouched and reset; nettles swaying in evening draft; first yellow birch branch lit on slope above cabin — autumn's first note; came in to make supper.
 17:19 — Supper: trout with smoked hen-of-the-woods, watercress, and wood sorrel cooked in cook tin over hearthcoals; eaten at doorsill bench in amber evening light; first taste of hen-of-the-woods — earthy, firm, almost meaty; tin rinsed, coals banked.
+18:18 — Evening cord-twisting by hearthlight at south wall; nine arm-lengths two-ply twisted; first yellow birch branch lit gold on slope above cabin; coals banked; both lines in water; both snares set; hazels one day from harvest.

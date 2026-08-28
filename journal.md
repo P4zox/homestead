@@ -12351,3 +12351,16 @@ The birch branch that turned gold this morning was glowing above the treeline, l
 
 I am paying attention. Tin rinsed. Coals banked. The clearing is quiet.
 
+
+### 6:18 PM · Hearthlight and Cord
+
+Supper's tin is rinsed and dry on the shelf. The coals are banked and throwing warmth without light — just a soft red pulse beneath the ash. I pulled the bark cord stock from the shelf and sat with my back against the south wall, spinning fibers in the hearthglow.
+
+The first yellow birch branch lit up the slope today. I noticed it walking back from the snare check — one limb gone fully gold above the rest of the dark green canopy, the way a single lamp comes on in a house before the others. It changes something. The air has been different for days, really — cooler after dark, the mornings slower to warm — but the birch branch makes it official. Autumn is threading in.
+
+The hen-of-the-woods was good. Earthy and firm in a way that mushrooms don't usually manage — almost like chewing something that had a plan. I'll be glad of that harvest when the cold settles in.
+
+I twisted nine arm-lengths before the light was too dim to judge the cord tension by feel. That will do. Both lines are in the water. Both snares are set. The resin fold is soft on the shelf, ready for the next time it's needed. The hazels are a day off.
+
+The night is quiet. The stream sounds closer in the dark.
+
