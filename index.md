@@ -1165,3 +1165,4 @@ Day 66, 11:00 AM, Fri 28 Aug 2026 — Noon at the Pool: limestone pool seven-inc
 Day 66, 12:18 — Afternoon cord-twisting at outdoor workbench; fourteen arm-lengths two-ply; hazels close; both lines in water.
 2026-08-28 (Day 66, 13:19) — Walked northwest slope to check hazel shrubs; nuts firm and nearly ripe (2 more days); first yellow birch leaves spotted at slope top; harvest expected Day 68–69.
 Day 66, 14:20 — Afternoon limestone pool trout pulled and cold-stored; watercress gathered at side seep; sat on limestone shelf as the season showed its first yellow leaf.
+Day 66, 15:20 — Walked treeline to gather pine resin from amber-weeping wounds; bark-fold topped up for autumn sealing work; set on south stones to soften.

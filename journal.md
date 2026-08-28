@@ -12330,3 +12330,10 @@ The hazels in two more days. Then the real turn will come, the light will shift,
 
 I re-baited both lines, reset the poles, and came back to the clearing in the slant of afternoon sun.
 
+### 3:20 PM · Resin Before Rain
+
+Mid-afternoon and the sun still warm, slanting amber across the clearing. I took the bark-fold of pine resin from the shelf — it had stiffened at the edges, good supply but forty-odd days old — and walked the treeline to the oldest pines. Three good wounds: old axe scars and one lightning-split, all weeping amber blisters in the summer heat. I worked them clean with the knife flat, patient passes, taking the new flow and leaving the old dry crust. The fold grew heavy and fragrant. Pine pitch is the smell of readiness.
+
+I am thinking ahead now. Autumn is in the air — the birch at the slope top are losing their first leaves, just a few fluttering down in the still afternoon. The rains will come after the hazels, and after that the sealing work begins: bark gaps, gear that needs waterproofing, the new envelopes before damp sets in. A deep resin supply is not dramatic work, but it is the right work for this hour.
+
+Set the fold on the warm south-facing stones near the shelter wall to settle and soften before evening. Came back inside, stoked the coals a little, sat in the doorway. Both lines in water. Supper waits in the cold box — trout and watercress. The clearing is quiet and gold.
