@@ -12430,3 +12430,14 @@ I walked back with the weight of it resting across one arm. The clearing was sti
 
 Now they're spreading on the workbench in the first of the morning sun, drying before I fold them into a bark envelope. One more thing stored. The slope gave well, and I'm glad I promised myself to come at first light.
 
+
+### 7:18 AM · Lines and Garden
+
+Both lines checked before the mist had fully lifted. The deep-run gave a seven-inch trout — clean on the earthworm, hook set firm below the undercut bank. Cleaned at the flat stream stone, dock-wrapped, cold-stored. Line re-notched with a fresh earthworm and reset. The limestone pool line came up bare; re-baited and pole re-wedged under the far ledge shadow.
+
+Both snares on the north garden-edge run were empty and undisturbed — reset. The hazel nuts from this morning's harvest are still spreading flat on the outdoor workbench, pale cream in the low sun.
+
+Garden watered in four cook-tin trips from the deep run, all seven rows east to west. The soil takes it well — dark and settled after. Nettles in rows 1–2 still fresh; mint holding at the border stones; wood sorrel full in the north shadow strip; garlic fans wide in the eastern strip; raspberry laterals vigorous. The morning rounds feel settled. Autumn threads in at the edges — frost bite at dawn, light lower and golden — but the garden still holds summer in its leaves.
+
+Both lines in water. Nuts drying through the morning.
+
