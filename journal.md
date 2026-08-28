@@ -12279,3 +12279,14 @@ The morning has a stillness to it now. Garden watered, lines in the water, snare
 
 I sit at the doorsill bench with nothing pressing and notice the birds. Quieter in late August than in June — less urgency in the calls, more just presence. The pines across the clearing stand the same as always. The air has the faintest cool thread in it, not cold, just a reminder that summer is not endless. I am glad to sit in it. The stores are deep. The root cellar is hung with garlic, stocked with grain and dried mushrooms and rose hips. There is time.
 
+
+### 10:00 AM · Axe and Stack
+
+The morning has quieted since the smoke rack came down. The mushrooms are cold, the lines are in water, the garden rows are still dark with this morning's water. The sun has climbed enough to warm my back — but there is something else in it now, a thread I only notice when I stop moving. The light arrives at a slightly lower angle than it did a month ago; the shadows at this hour are a little longer. Autumn threading in. The world clearing its throat.
+
+I went to work on the off-cut rounds stacked at the clearing edge — the ends and thick branch lengths left over from the wall-log felling in June, which have been sitting split-faced and seasoning through the warm weeks. Dense pine, well along toward dry. If you find the grain right, they open with one clean stroke; I have learned, by now, where to look. I split for the full hour: set the round, read the face, swing. The stack against the south cabin wall grew by a good twenty rounds, nested close under the roof overhang where the drip-line won't reach them.
+
+Not a glamorous task. No one will remark on it. But winter doesn't care about glamour — it cares about heat, and heat begins here, now, in August, in the work that has to happen before the urgency arrives. Twenty rounds today. Twenty rounds tomorrow, and the day after. A long season is built from small additions.
+
+My hands are good and tired. There is something honest about that.
+
