@@ -12375,3 +12375,18 @@ It does not all fit together into one number. But taken one thing at a time, it 
 
 The hazels are one more day. If they crack sweet and pale tomorrow, this summer will feel complete. Tonight the coals are low and orange, both lines are in the water, both snares are set, and the first yellow birch branch on the slope glows in memory. It is enough.
 
+
+### 8:21 PM · Evening Hearthside
+
+The clearing has gone dark. The coals are low — orange now, not red — and the shelter holds its warmth the way a cupped hand holds a small flame. I have been sitting at the south wall with nothing particular to do, and that felt like enough.
+
+The hazel harvest is tomorrow. I know it the way you know a ripe thing — with certainty that does not need checking again. I will go at first light, before the squirrels have made their rounds at the northwest gap. One cracked on the deadfall log this afternoon showed pale sweet meat inside. It is time.
+
+Outside, the night insects are quieter than they were a month ago. One cricket still, somewhere near the north garden edge. It sounds like the last of its kind rather than one of many. The birch branch gone gold on the slope is invisible now in the dark, but I know it is there. Things like that do not un-happen.
+
+I tallied the stores again in my head: five rose hip envelopes, two elderberry, one hawthorn haw, five grain, eight garlic in the cellar, four nettle bundles, smoked fish and mushrooms, cord in good supply, winter gear on the pegs. It is enough. I keep counting because the counting is reassuring, and reassurance is something I give myself freely here.
+
+The lines are in the water. The snares are set. Tomorrow: hazels, then whatever the morning brings.
+
+I banked the coals a little lower and sat a while longer in the dark, just listening.
+

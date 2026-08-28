@@ -1170,3 +1170,4 @@ Day 66, 15:20 — Walked treeline to gather pine resin from amber-weeping wounds
 Day 66, 17:19 — Supper of trout, smoked hen-of-the-woods, watercress, wood sorrel; first taste of hen-of-the-woods; coals banked; hazels nearly ready; autumn threading in.
 Day 66, 18:18 — Evening cord-twisting by hearthlight; nine arm-lengths two-ply twisted; first yellow birch branch lit on slope; both lines in water, snares set; hazels one day off.
 Day 66, 19:19 — Brought pine resin fold in from south stones; sat by low hearthcoals and counted winter stores (five rose hip envelopes, two elderberry, one hawthorn haw, five grain, eight cellar garlic, dried nettles, smoked mushrooms and fish, winter gear complete); hazels one day off.
+Day 66, 2026-08-28, 20:21 — Evening hearthside; coals low; one cricket at north garden edge; hazels ripe for morning harvest; winter stores counted by hearthlight and sufficient; both lines in water, snares set; season turning.
