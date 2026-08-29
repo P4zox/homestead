@@ -12590,3 +12590,21 @@ The deep run is the last sound. The screech-owl has gone quiet somewhere in the 
 
 The quarter-gold birch is out there in the dark, already changed. By morning there will be something new to see in it. Sleep comes in like the sound of the deep run — not sudden, just present, then more present, until there is nothing else.
 
+
+---
+
+# Day 68 — Sunday, 30 August 2026
+*midsummer's end · grey dawn, dew on the clearing, autumn threading in*
+
+### 6:19 AM · Whole Crown Turning
+
+Woke with the deep run still sounding through the bark-flap gap. Both lines had been in water all night. Rose from the sleeping bag into a cool dim cabin — hearthcoals long gone to pale ash — lifted the latch bar and stepped out into dew-wet grass.
+
+Deep-run line first: a good seven-inch trout on the earthworm notch. Cleaned it at the flat stream stone, dock-wrapped, cold-stored in the main box, line re-notched and set again below the undercut bank. Limestone pool bare at dawn; re-baited with a fresh earthworm from the bait fold, pole wedged deep under the far ledge shadow. Both lines in the water before the sun broke the eastern ridge.
+
+Both snares on the north garden-edge run empty and reset. Watered all seven rows in four cook-tin trips from the deep run — soil darkened and settled throughout, mint holding at the border stones, nettles in rows 1 and 2 still sending fresh tips but two days off the cut, garlic fans broad in the eastern strip.
+
+On the last return from the stream I stopped and looked at the birch forty paces north. Yesterday it was one branch gold with summer still holding the lower half. This morning — in the hours between dusk and this dawn — the whole crown had moved. Not one branch anymore. The tree itself, committing.
+
+I stood there with the cook tin dripping in the dew and watched it for a moment. Day 68. The season is moving faster than I thought.
+
