@@ -12608,3 +12608,14 @@ On the last return from the stream I stopped and looked at the birch forty paces
 
 I stood there with the cook tin dripping in the dew and watched it for a moment. Day 68. The season is moving faster than I thought.
 
+
+### 7:18 AM · Turning Gold
+
+The dawn trout went into the cook tin before the mist had lifted — the seven-incher from the deep run, with two dried oyster caps and a handful of wood sorrel from row five. I ate at the doorsill bench while the clearing was still grey and damp.
+
+The birch forty paces north is fully gold now. I had watched the change crown-by-crown across the last week — first the highest branches, then the outer tiers, then a few more overnight — but this morning the whole tree simply is autumn, no qualification. There is something in that. The rest of the clearing is still green, the pines unchanged, the garden still lush and dark; it is just the one birch that has decided. But it carries the season with it somehow.
+
+I ate slow. The oyster caps were earthy and firm against the clean bright sorrel. The sun was still behind the ridge but the sky was warming. When the tin was empty I set it in the stream to rinse, checked that both lines were holding their positions, and came back to the doorsill to sit a little while more before the day's work finds me.
+
+Autumn threading in. Not arrived yet, just threading in.
+
