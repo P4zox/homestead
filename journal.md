@@ -12450,3 +12450,14 @@ The trout came out with fresh mint from row 6 and a handful of wood sorrel from 
 
 Both lines are in the water. The snares are set. The garden is watered. The remaining hazelnuts are drying. Autumn is still weeks off in its full arrival, but these small preparations — a nut stored, a line reset, a harvest laid flat to dry — have their own quiet insistence. Something in me counts them without meaning to.
 
+
+### 9:18 AM · Hazels Sealed
+
+Came out to the outdoor workbench at the start of the ninth hour and pressed a thumb into the hazel pile. The skins had dried back to a papery rustle, the nuts firm and clean, no soft spots among them. Three hours of morning sun had done the work.
+
+I folded a length of birch bark across the bench — one of the supply sheets from the shelf — creased the long edges inward, tucked the ends, and began filling it from the pile with cupped palms. The nuts settled together with a dry, good sound. Folded the flap, ran the awl through six holes along the seam, drew three passes of two-ply cord through and knotted off. The pine resin fold was soft from the south stones; a dab tamped into each seam and smoothed flat with a stick. Set the envelope on the outdoor bench to harden a few minutes in the sun, then carried it inside and set it on the supply shelf beside the rose hip envelopes.
+
+The shelf is getting crowded, which is the right kind of problem. Five rose hip envelopes, two elderberry, one hawthorn haw, five grain envelopes, and now one hazel — twelve sealed packages of winter eating, all made from what was already here on this land. I stood in the cool interior for a moment with that thought, then went back out to the bench, which was empty now, ready for the next use.
+
+Both lines in water. Snares set. Garden watered early. The morning has mostly done itself.
+

@@ -1177,3 +1177,4 @@ Day 66, 22:21 — Into the Dark: late evening; cricket still going at garden edg
 2026-08-29 Day 67 06:19 — Hazel Harvest Dawn: harvested northwest birch-gap hazel shrubs at first light; basket half-full of ripe nuts; spreading on outdoor workbench to dry.
 Day 67, 07:18 — Lines and Garden: morning rounds complete; deep-run trout caught; limestone pool bare; garden watered; both snares empty; hazel nuts drying on workbench.
 Day 67, 08:18 — Breakfast: morning deep-run trout cooked with mint and wood sorrel at doorsill bench; six hazelnuts cracked and tasted — first hazel harvest eaten (pale, sweet, firm).
+Day 67, 09:18 — Hazels sealed into bark envelope; supply shelf now holds twelve winter-store packages.
