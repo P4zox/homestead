@@ -12485,3 +12485,11 @@ I stood there a moment before heading back down. The birches above were patient 
 
 Back downslope with nothing carried but the knowing: check again around Day 69. And the light at this hour — south sun through the canopy gap, the whole floor bright before the afternoon shadows come. It was enough to be up there and see it.
 
+### 12:00 PM · Noon by the Pool
+
+Midday came on clear. The clearing held full south light, air warm and still the way late August gets before it starts to pull back. I walked the lower path to the limestone pool to check the line. The pole was riding steady in the ledge shadow. Good sign. I pulled it: seven-inch trout, quick fight, landed clean on the flat stone.
+
+Built a small fire on the bank from the dry sticks cached under the ledge and cooked the fish with a few stems of wood sorrel gathered right at the stream bend. Ate it slow, watching the water run over the smooth stone lip into the deep lower pool. The light down here at noon is its own thing — green-dim and cool even with the sun well overhead. I re-baited the line with a fresh earthworm from the bait fold, wedged the pole back under the far ledge shadow, and made my way back up through the birch gap.
+
+The quarter-gold birch caught my eye again on the return — forty paces north. It seemed more itself in the noon light than it had in morning's slant, the gold sitting steady in the leaves instead of glancing off them. Either it's advanced since I first saw it this morning, or the light is just finding it differently. I stood there a moment and let that be enough: that a birch is going gold, that it's Saturday, that I ate well by the water.
+
