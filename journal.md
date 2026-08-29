@@ -12519,3 +12519,16 @@ Re-baited with a fresh earthworm from the fold, pushed the pole back deep under 
 On the walk back, the birch that has been turning all day was amber too — the quarter-gold crown catching the low sun differently than at noon, warmer, more certain. Only one branch this morning. Then a crown. Now this. The season does not announce itself; you just notice it has already arrived.
 
 Both lines in the water. Supper in the box. The day is quieting toward evening.
+
+### 4:19 PM · Late Walk, Pine Duff
+
+The afternoon tilted from warm to amber while I was not watching. Both lines are set, the trout cold-stored, and there was still an hour before the light fails enough to make supper worth starting. I took a walk north along the treeline — no particular reason, just to move.
+
+I lifted the buried log lid on the way past. The stone came off easily, the bark cool under my hands. Log face quiet: no pins forming yet, just pale mycelium threads and the faint rich smell of inoculated wood. Replaced the lid, reset the stone. Another few days, probably.
+
+At the forest edge the duff is deep and dry — weeks of late-summer sun have left the pine needles crisp and loose. I gathered two good handfuls and carried them back in the harvest basket. They will go on the shelf beside the cattail fluff, dry as tinder can be.
+
+I stood inside the treeline for a while before turning back. The quarter-gold birch is forty paces from the cabin, and from here I could see it whole. The turn is real now — not just one branch but a slow suffusing gold through the upper crown, the lower half still green and holding. The other birches on the slope behind are still entirely summer. This one is ahead of them, or just more honest about what is coming.
+
+The light when I came back out was copper. The clearing glowed. Hard not to stop and just look at it.
+
