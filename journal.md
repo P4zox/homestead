@@ -12509,3 +12509,13 @@ Afternoon warmth settling into the clearing, the air almost still. Took the sout
 
 Came back upslope as the sun leaned west. The quarter-gold birch was catching the afternoon light better than at noon — not just the one branch. The whole crown is beginning to ease into it, the green thinning, the gold spreading slow. Felt the season's hand in it plainly. The cabin was ahead, solid and brown, smoke-smell in the logs from every fire lit. The fishing line arcing bright below toward the pool. Felt more ready for what's coming than I have any right to feel.
 
+
+### 3:18 PM · Pool at Amber
+
+The pool was catching low south light when I came down the slope, the shadow from the far ledge cut across the surface at a long angle. The line came up with a seven-inch trout — good weight, barely any fight after the first turn. I cleaned it at the flat stone, folded it in dock leaf, and tucked it in the cold box beside the morning's catch.
+
+Re-baited with a fresh earthworm from the fold, pushed the pole back deep under the ledge shadow, and stood at the pool edge a moment. The water is low for late August, clear to the bottom where the flat stones lie, a slow drift of current that carries the bait back under the ledge where the fish hold cold. I stood long enough to watch the riffle above the pool go amber.
+
+On the walk back, the birch that has been turning all day was amber too — the quarter-gold crown catching the low sun differently than at noon, warmer, more certain. Only one branch this morning. Then a crown. Now this. The season does not announce itself; you just notice it has already arrived.
+
+Both lines in the water. Supper in the box. The day is quieting toward evening.
