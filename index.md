@@ -1182,3 +1182,4 @@ Day 67, 10:18 AM — Walked downstream from deep run; gathered watercress fistfu
 Day 67, 2026-08-29, 11:00 — Upslope oyster pine check: three small pale pins on near-end flush, not ready; next check ~Day 69.
 Day 67, 12:00 — Noon at limestone pool; seven-inch trout caught and cooked on bank fire with wood sorrel; line re-baited and reset; gold birch at forty paces holds its color.
 2026-08-29 Day 67 13:00 — Cord and Quiet Light: fourteen arm-lengths two-ply cord twisted at doorsill bench in afternoon warmth; first quarter-gold autumn birch held in view; moving toward winter, not bracing for it.
+Day 67, 14:00 — Scouted south slope oaks: three mid-slope trees with green acorns beginning to brown at tips (~1–2 weeks from harvest); location marked (40 paces south of clearing, past flat granite slab, left at dead snag). Quarter-gold birch crown reading further into autumn gold on return.

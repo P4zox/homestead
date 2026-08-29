@@ -12502,3 +12502,10 @@ I kept glancing at the quarter-gold birch forty paces north. One branch already 
 
 The stores sit at twelve sealed packages. Both lines are in the water. The cellar holds garlic; the shelf holds grain and berries and dried mushrooms. Cord in abundance, winter gear complete. For the first time I find myself moving toward winter rather than bracing for it. The afternoon felt like something to be in, not get through.
 
+
+### 2:00 PM · Among the Oaks
+
+Afternoon warmth settling into the clearing, the air almost still. Took the south slope down through open birchwood, following the angled light. Twenty minutes downhill the canopy shifts — birch giving way to scattered oaks, older trunks weathered grey, last year's acorn caps thick underfoot. The real find: three mid-slope trees already hung with green acorns, some just browning at the tip. Not ready — another week, maybe two, depending how the nights come. Marked the location in mind: forty paces south of the clearing edge, past the flat granite slab, left at the dead snag. The ground there is deep with old leaf duff, soft underfoot, the light long and gold and warm. Stood under those oaks a while. The kind of afternoon that asks you to simply be still.
+
+Came back upslope as the sun leaned west. The quarter-gold birch was catching the afternoon light better than at noon — not just the one branch. The whole crown is beginning to ease into it, the green thinning, the gold spreading slow. Felt the season's hand in it plainly. The cabin was ahead, solid and brown, smoke-smell in the logs from every fire lit. The fishing line arcing bright below toward the pool. Felt more ready for what's coming than I have any right to feel.
+
