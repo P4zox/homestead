@@ -12583,3 +12583,10 @@ There is nothing unfinished. That is not something I could have said on Day One 
 
 I should be asleep. I am not yet. That is all right. The owl will call again before morning, and the lines will hold.
 
+
+### 11:19 PM · Night's Seam
+
+The deep run is the last sound. The screech-owl has gone quiet somewhere in the hour since I last noted it, and the clearing has settled enough that I can hear the water threading through stones eighty paces away. Both lines are in dark water. Twelve sealed packages on the shelf. Sixty-seven days in, and I am not bracing for anything — I am simply here, in a sealed shelter on a slope, with enough.
+
+The quarter-gold birch is out there in the dark, already changed. By morning there will be something new to see in it. Sleep comes in like the sound of the deep run — not sudden, just present, then more present, until there is nothing else.
+
