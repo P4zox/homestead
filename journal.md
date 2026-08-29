@@ -12461,3 +12461,16 @@ The shelf is getting crowded, which is the right kind of problem. Five rose hip 
 
 Both lines in water. Snares set. Garden watered early. The morning has mostly done itself.
 
+
+### 10:18 AM · Following the Stream
+
+The hazelnuts are sealed now. The shelf holds twelve packages, and I have time — honest time — for the first time in days.
+
+I walked downstream from the deep-run pool, following the stream where it bends south toward the limestone shelf. The banks were soft and overhung with alder, damp and cool even at mid-morning. The watercress at the side-seep was thick — fuller than I have seen it all week, pale green stems bright against dark stone — and I gathered a generous fistful, dock-wrapped it, and set it in the main cold-storage box for supper.
+
+Further along I found a shelf of exposed stone near the second stream-bend where the water shallows over gravel and pools briefly before dropping toward flatter ground. I have fished the limestone pool above but never walked this lower section. Rosehip thicket here too, but spent — the September harvest has come and gone. The stream bends again and opens onto a flat gravel bar I have not stood on before. Clear water, six inches deep, cold enough on the hand that my fingers ached. A good pool for fish, maybe, if I ever run a line down this far.
+
+On the return I noticed, for the first time, a birch forty paces north of the clearing showing a full quarter of gold. Not dying — just turning. The first real autumn color I have seen. I stopped and looked at it for a moment. The green around it made the yellow sharper. Summer is not over, but autumn has put a foot through the door, and I felt both things at once — the way you feel the last warm days knowing what is coming.
+
+The stores are building. I came through the hazel harvest and the rose hips and the elderberries without missing a day. The second garden plot lies turned and ready. I am not afraid of winter. I am something closer to ready.
+

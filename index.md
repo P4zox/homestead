@@ -1178,3 +1178,4 @@ Day 66, 22:21 — Into the Dark: late evening; cricket still going at garden edg
 Day 67, 07:18 — Lines and Garden: morning rounds complete; deep-run trout caught; limestone pool bare; garden watered; both snares empty; hazel nuts drying on workbench.
 Day 67, 08:18 — Breakfast: morning deep-run trout cooked with mint and wood sorrel at doorsill bench; six hazelnuts cracked and tasted — first hazel harvest eaten (pale, sweet, firm).
 Day 67, 09:18 — Hazels sealed into bark envelope; supply shelf now holds twelve winter-store packages.
+Day 67, 10:18 AM — Walked downstream from deep run; gathered watercress fistful at side-seep (dock-wrapped, cold-stored for supper); noted new gravel-bar pool below second bend; first turning birch (quarter gold) spotted 40 paces north of clearing — first autumn color of the season.
