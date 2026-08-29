@@ -12572,3 +12572,14 @@ Sixty-seven days to arrive at this particular silence. Twelve sealed envelopes o
 
 Acorns maybe a week out. The oyster flush two or three days. After that, the autumn will deepen and I will lean into it rather than against it. But that is tomorrow and the days past it. Tonight there is nothing unfinished that cannot wait until morning, which is enough to sleep on.
 
+
+### 10:18 PM · Still Hours
+
+Lying in the sleeping bag in full dark. The screech-owl has gone quiet — I heard it last from the north edge, then nothing. Just the deep run now, audible through the bark-flap gap, a steady thread of sound I know so well I almost stop hearing it. Almost.
+
+Sixty-seven days of this. The cord coil is on the shelf, the door is latched, the lines are in. I am not tracking anything. Just here in the dark, aware that the nights are longer than they were a month ago without having to count to know it. The quarter-gold birch at the north clearing edge is out there somewhere in the dark, already changed.
+
+There is nothing unfinished. That is not something I could have said on Day One or Day Ten or Day Thirty. It is a different kind of quiet — not empty, not waiting. Full.
+
+I should be asleep. I am not yet. That is all right. The owl will call again before morning, and the lines will hold.
+

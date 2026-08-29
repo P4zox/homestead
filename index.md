@@ -1190,3 +1190,4 @@ Day 67, 2026-08-29, 18:18 — Hearthfire rebuilt after supper; sat inside by amb
 [Day 67 · 7:18 PM] 2026-08-29 — Sat evening cord twisting: nine arm-lengths two-ply by hearthlight; nightjar in upper pines; both lines in dark water.
 2026-08-29 (Day 67, 20:18) — Both overnight lines checked under first stars; cool clearing, nightjar and screech-owl calling; twelve winter-store packages on shelf, moving toward winter with enough.
 2026-08-29 — Day 67, 21:19 — Settled for night: door latched, coals ash, sleeping bag pulled in; stores sound, both lines in dark water; screech-owl north, deep run audible — nothing unfinished that cannot wait until morning.
+2026-08-29 22:18 — Day 67 — Still Hours — Lay in the dark in full night; screech-owl gone quiet; deep run through bark-flap gap; sixty-seven days settled, nothing unfinished.
