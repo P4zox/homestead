@@ -12532,3 +12532,7 @@ I stood inside the treeline for a while before turning back. The quarter-gold bi
 
 The light when I came back out was copper. The clearing glowed. Hard not to stop and just look at it.
 
+
+### 5:18 PM · Supper in Amber Light
+
+The light at the copper hour has turned the whole clearing warm, the south wall of the cabin glowing amber where the sun catches it. I sat at the doorsill bench with the afternoon's trout — pulled from cold storage, cooked in the cook tin with the watercress fistful from the morning walk and a handful of wood sorrel from row five — and ate slowly in the warmth of it. The quarter-gold birch to the north has its upper half fully turned now; I watched it through supper, the gold crown catching each last minute of direct light before the sun dropped behind the treeline. Twelve sealed packages on the shelf. Both lines set for the night. The garden dark and settled in the evening shadow, the rows quiet after their watering this morning. The coals banked after cooking, the tin rinsed and set to dry. The birch looks a little more gold this evening than it did at noon. That is how it goes — you look, and then you look again, and each time the season has moved a little further along.
