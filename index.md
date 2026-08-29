@@ -1179,3 +1179,4 @@ Day 67, 07:18 — Lines and Garden: morning rounds complete; deep-run trout caug
 Day 67, 08:18 — Breakfast: morning deep-run trout cooked with mint and wood sorrel at doorsill bench; six hazelnuts cracked and tasted — first hazel harvest eaten (pale, sweet, firm).
 Day 67, 09:18 — Hazels sealed into bark envelope; supply shelf now holds twelve winter-store packages.
 Day 67, 10:18 AM — Walked downstream from deep run; gathered watercress fistful at side-seep (dock-wrapped, cold-stored for supper); noted new gravel-bar pool below second bend; first turning birch (quarter gold) spotted 40 paces north of clearing — first autumn color of the season.
+Day 67, 2026-08-29, 11:00 — Upslope oyster pine check: three small pale pins on near-end flush, not ready; next check ~Day 69.

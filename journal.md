@@ -12474,3 +12474,14 @@ On the return I noticed, for the first time, a birch forty paces north of the cl
 
 The stores are building. I came through the hazel harvest and the rose hips and the elderberries without missing a day. The second garden plot lies turned and ready. I am not afraid of winter. I am something closer to ready.
 
+
+### 11:00 AM · Upslope, in Still Light
+
+The twelfth winter package was on the shelf by nine-eighteen, the hazelnuts sealed and done. By eleven the clearing had settled into midday quiet — the sun well up, the stream audible through the trees, the outdoor workbench empty in the south light. I thought about the oyster pine upslope, last checked four days ago.
+
+Up the slope at a steady walk — past the granite shelf, past both felling sites, the forest smell resinous and dry under the green. At seventy paces the big rotting pine lay where it always does, half-sunk in the needle floor. Three small pale clusters on the near-end flush: caps thumbnail-sized, white gills barely formed, still tight to the wood. Not ready. Two or three more days. I rested my hand near the far-end section — quiet, no new blush, still resting from the last cut.
+
+I stood there a moment before heading back down. The birches above were patient in that end-of-August way, holding their green carefully, most of them, though one had already turned at forty paces north of the clearing — that quarter-gold crown. Up here the squirrels were moving: a grey one crossed between two beeches without a glance, intent on something. The slope had its own mid-morning quiet, different from the clearing's — deeper, cooler, the canopy taller.
+
+Back downslope with nothing carried but the knowing: check again around Day 69. And the light at this hour — south sun through the canopy gap, the whole floor bright before the afternoon shadows come. It was enough to be up there and see it.
+
