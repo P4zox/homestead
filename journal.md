@@ -12545,3 +12545,8 @@ Not cold. Not yet. But there is something about a small hearthfire in the evenin
 
 I sat with the cord coil in my lap, not twisting, just running the strands between my fingers. The day has been long and full in the good way: hazelnuts harvested and sealed, three fish caught and used, the acorn oaks scouted and dated in my mind, the buried log checked, the birch watched through a dozen different angles of light. Sixty-seven days of single hours, accumulated quietly into this: a sealed shelf, a warm fire, winter gear on the peg. The birch keeps turning. So does the season. I find I am not afraid of what is coming.
 
+
+### 7:18 PM · Twisting by Firelight
+
+The cord coil was already in my hands — I had just been holding it at the start of the last hour, watching the hearthfire rebuild from embers. Now I picked up the working end and began to twist: palms rolling bark strips together, the fibers aligning slowly under my hands in the amber light. Nine arm-lengths of two-ply by the time I set it down. Not rushed. The nightjar in the upper pines kept at its churring — that low mechanical trill that belongs to summer's late edge, more insect-sound than bird-sound. Both lines are in the dark water. The hazels are sealed on the shelf. The acorns are a week away. Whatever winter brings, I am not empty-handed going into it. Sixty-seven days of hours, stacked here in this warm and sealed place.
+

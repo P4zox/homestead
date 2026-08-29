@@ -1187,3 +1187,4 @@ Day 67, 15:18 — Afternoon limestone pool check: seven-inch trout caught and co
 2026-08-29 Day 67, 16:19 — North treeline walk: buried log quiet (no pins yet), pine-needle tinder gathered from forest-edge duff, quarter-gold birch seen whole from inside the treeline — turn is real now, upper crown suffusing gold.
 Day 67, 17:18 — Supper at doorsill bench: trout with watercress and wood sorrel in amber evening light; quarter-gold birch crown broadly gold now; coals banked, both lines in water overnight.
 Day 67, 2026-08-29, 18:18 — Hearthfire rebuilt after supper; sat inside by amber firelight with cord coil; deep run audible; both lines in water overnight; nightjar in upper pines; sixty-seven days in, not afraid of what is coming.
+[Day 67 · 7:18 PM] 2026-08-29 — Sat evening cord twisting: nine arm-lengths two-ply by hearthlight; nightjar in upper pines; both lines in dark water.
