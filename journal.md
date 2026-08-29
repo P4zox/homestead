@@ -12536,3 +12536,12 @@ The light when I came back out was copper. The clearing glowed. Hard not to stop
 ### 5:18 PM · Supper in Amber Light
 
 The light at the copper hour has turned the whole clearing warm, the south wall of the cabin glowing amber where the sun catches it. I sat at the doorsill bench with the afternoon's trout — pulled from cold storage, cooked in the cook tin with the watercress fistful from the morning walk and a handful of wood sorrel from row five — and ate slowly in the warmth of it. The quarter-gold birch to the north has its upper half fully turned now; I watched it through supper, the gold crown catching each last minute of direct light before the sun dropped behind the treeline. Twelve sealed packages on the shelf. Both lines set for the night. The garden dark and settled in the evening shadow, the rows quiet after their watering this morning. The coals banked after cooking, the tin rinsed and set to dry. The birch looks a little more gold this evening than it did at noon. That is how it goes — you look, and then you look again, and each time the season has moved a little further along.
+
+### 6:18 PM · Hearthlight
+
+The amber left the clearing while I was still on the doorsill bench, watching. One moment the quarter-gold birch was catching the last direct light, crown broadly gold above the shadow line; then the treeline shadow closed over it and the whole clearing went cool-grey in under a minute. I stood, brought the tin inside, and coaxed the banked coals back up with a few dry sticks.
+
+Not cold. Not yet. But there is something about a small hearthfire in the evening that feels like the right answer to that first edge of coolness in the air. The shelter went amber. Through the open door I could hear the deep run — both lines in the water, pulling their own weight until morning.
+
+I sat with the cord coil in my lap, not twisting, just running the strands between my fingers. The day has been long and full in the good way: hazelnuts harvested and sealed, three fish caught and used, the acorn oaks scouted and dated in my mind, the buried log checked, the birch watched through a dozen different angles of light. Sixty-seven days of single hours, accumulated quietly into this: a sealed shelf, a warm fire, winter gear on the peg. The birch keeps turning. So does the season. I find I am not afraid of what is coming.
+
