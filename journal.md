@@ -12563,3 +12563,12 @@ Twelve sealed packages on the supply shelf. Winter coming slowly, the way it alw
 
 Back inside. Coals orange under a skin of ash. Let them be.
 
+
+### 9:19 PM · Dark and Settled
+
+The hearthcoals are ash — I will not rebuild them tonight. The door is shut, the latch bar seated in its keeper, and I am inside the sleeping bag on the cattail mat with the night going on without me. The screech-owl is still calling somewhere north, past the first birches. The deep run comes through the bark-flap gap as sound more than air — cool and steady and indifferent, the way water always is.
+
+Sixty-seven days to arrive at this particular silence. Twelve sealed envelopes on the supply shelf: rose hips, elderberry, hawthorn haw, meadow grain, hazel. Garlic hanging in the cellar. Smoked fish and mushrooms in the cold-storage box. Two lines in dark water. The second garden plot turned and resting in the east draw, waiting for spring seed. Winter gear complete — cap, mittens, moccasins, all of it.
+
+Acorns maybe a week out. The oyster flush two or three days. After that, the autumn will deepen and I will lean into it rather than against it. But that is tomorrow and the days past it. Tonight there is nothing unfinished that cannot wait until morning, which is enough to sleep on.
+
