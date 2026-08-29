@@ -12550,3 +12550,16 @@ I sat with the cord coil in my lap, not twisting, just running the strands betwe
 
 The cord coil was already in my hands — I had just been holding it at the start of the last hour, watching the hearthfire rebuild from embers. Now I picked up the working end and began to twist: palms rolling bark strips together, the fibers aligning slowly under my hands in the amber light. Nine arm-lengths of two-ply by the time I set it down. Not rushed. The nightjar in the upper pines kept at its churring — that low mechanical trill that belongs to summer's late edge, more insect-sound than bird-sound. Both lines are in the dark water. The hazels are sealed on the shelf. The acorns are a week away. Whatever winter brings, I am not empty-handed going into it. Sixty-seven days of hours, stacked here in this warm and sealed place.
 
+
+### 8:18 PM · Dark Water, Stars
+
+Stepped outside to check both lines before letting the fire die down. The clearing was noticeably cooler than yesterday evening — the sky had cleared to a deep blue-black, the first stars hard and bright, the Milky Way faint but there if I held still and looked.
+
+The deep-run line held taut at the notch, bowing where it touched the current. The limestone pool pole was steady under the far ledge shadow. I pressed each with a finger — tension good, no tangle. Both secure.
+
+I stayed longer than the errand asked for. The nightjar was still calling in the upper pines. Somewhere further north, a small owl answered. The quarter-gold birch was just a dark shape against the pale northern horizon — no color now, only form — but I knew which tree it was.
+
+Twelve sealed packages on the supply shelf. Winter coming slowly, the way it always does. Not bracing for it. Walking toward it with enough.
+
+Back inside. Coals orange under a skin of ash. Let them be.
+
