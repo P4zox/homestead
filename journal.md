@@ -12441,3 +12441,12 @@ Garden watered in four cook-tin trips from the deep run, all seven rows east to 
 
 Both lines in water. Nuts drying through the morning.
 
+
+### 8:18 AM · First Taste of Hazels
+
+The nuts are still spread across the outdoor workbench, cream-pale in the strengthening morning light. I turned them over with my palm — most are firm and dry already, the way hazels dry fast in late-summer air. I cracked six on the flat cobble while the morning trout cooked: each gave with a clean snap, the meat pale and faintly sweet, a little richer than the one I tasted at harvest. Good. The kind of good that is also a relief.
+
+The trout came out with fresh mint from row 6 and a handful of wood sorrel from row 5 — the mint cuts through the fat of the fish in a way dried herbs never quite manage. Ate it at the doorsill bench in the low morning sun, the long pine shadows just beginning to pull back from the clearing. The mist has cleared. The stream is loud and clear.
+
+Both lines are in the water. The snares are set. The garden is watered. The remaining hazelnuts are drying. Autumn is still weeks off in its full arrival, but these small preparations — a nut stored, a line reset, a harvest laid flat to dry — have their own quiet insistence. Something in me counts them without meaning to.
+
