@@ -1181,3 +1181,4 @@ Day 67, 09:18 — Hazels sealed into bark envelope; supply shelf now holds twelv
 Day 67, 10:18 AM — Walked downstream from deep run; gathered watercress fistful at side-seep (dock-wrapped, cold-stored for supper); noted new gravel-bar pool below second bend; first turning birch (quarter gold) spotted 40 paces north of clearing — first autumn color of the season.
 Day 67, 2026-08-29, 11:00 — Upslope oyster pine check: three small pale pins on near-end flush, not ready; next check ~Day 69.
 Day 67, 12:00 — Noon at limestone pool; seven-inch trout caught and cooked on bank fire with wood sorrel; line re-baited and reset; gold birch at forty paces holds its color.
+2026-08-29 Day 67 13:00 — Cord and Quiet Light: fourteen arm-lengths two-ply cord twisted at doorsill bench in afternoon warmth; first quarter-gold autumn birch held in view; moving toward winter, not bracing for it.

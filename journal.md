@@ -12493,3 +12493,12 @@ Built a small fire on the bank from the dry sticks cached under the ledge and co
 
 The quarter-gold birch caught my eye again on the return — forty paces north. It seemed more itself in the noon light than it had in morning's slant, the gold sitting steady in the leaves instead of glancing off them. Either it's advanced since I first saw it this morning, or the light is just finding it differently. I stood there a moment and let that be enough: that a birch is going gold, that it's Saturday, that I ate well by the water.
 
+
+### 1:00 PM · Cord and Quiet Light
+
+After noon the clearing fell still. The heat pressed low and nothing urgently called, so I brought the bark-strip bundle to the doorsill bench and sat. Cord twisting is the right work for this hour — the hands know it without thinking, and the rhythm settles something. Fourteen arm-lengths finished, added to the coil.
+
+I kept glancing at the quarter-gold birch forty paces north. One branch already reading autumn while the rest of the tree holds summer. I watched it all morning; by afternoon it had softened into just a fact — the light is shifting, the season is tilting. No urgency in it. Just the announcement.
+
+The stores sit at twelve sealed packages. Both lines are in the water. The cellar holds garlic; the shelf holds grain and berries and dried mushrooms. Cord in abundance, winter gear complete. For the first time I find myself moving toward winter rather than bracing for it. The afternoon felt like something to be in, not get through.
+
