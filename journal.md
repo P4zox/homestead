@@ -12744,3 +12744,12 @@ The stream sounds like it always has. Sleep comes in from the edges.
 
 Woke once in the deep dark — not sharply, just surfaced enough to hear the stream below and the door holding on its latch. Coals were ash-grey, dead cold at center. Both lines somewhere in the dark water. The screech-owl had stopped. Nothing was wrong; the night was only itself, quiet and unbroken. I did not get up. I lay still and listened until the stream was all there was, and let sleep take me back.
 
+
+### 11:18 PM · Deep Night, Still
+
+Woke once more in the deep dark — not sharply, just drifting up through the quiet. The stream was audible through the door planks, steady and low. Latch bar holding. No wind at all. The screech-owl that called from the east pines at dusk has gone quiet now, and there is nothing but the water sound and the dark. Coals will be cold by now, not even warmth above the ash-grey heap.
+
+Lay a moment and counted things in their order the way you do in the dark: acorns in roughly a week; second hen-of-the-woods flush three days or so; oyster check tomorrow at the marked pine; buried log quiet until Day 70 or 71; twelve sealed winter packages on the shelf; both lines in water; both snares set and empty at last check. Everything placed. Nothing loose.
+
+It was enough. Pulled the sleeping bag closer and let the count dissolve. Tomorrow is its own hour. Sleep came back easily.
+
