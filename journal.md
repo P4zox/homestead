@@ -12753,3 +12753,17 @@ Lay a moment and counted things in their order the way you do in the dark: acorn
 
 It was enough. Pulled the sleeping bag closer and let the count dissolve. Tomorrow is its own hour. Sleep came back easily.
 
+
+---
+
+# Day 69 — Monday, 31 August 2026
+*Midsummer's end — summer stepping back, autumn threading in · clear dawn, mist lifting*
+
+### 6:00 AM · Dawn Rounds, Last August
+
+The last morning of August. Mist still in the hollow, stream bright below it. The deep-run line was waiting with a seven-inch trout — cleaned at the flat stone, dock-wrapped, cold-stored, re-notched and reset. The limestone pool was bare; re-baited and back under the far ledge shadow. Both snares on the north garden run empty; both reset. Four cook-tin trips to water the garden, all seven rows east to west, the soil taking it slowly in the cool air.
+
+Then up to the oyster pine at seventy paces. Six days since the last harvest — today was the day to look. The flush was there: two clusters, pale buff caps just opening, white gills clean, a good three or four handfuls together. Cut at the stem base, loaded gill-side up on the smoke rack over a slow green birch smolder. They'll be amber-tan and firm in a couple of hours.
+
+Standing at the smoke rack in the early light, thinking: tomorrow the month turns. The acorns are about a week away. The hen-of-the-woods will come back in another day or two. The buried log is building under its stone. The shelf holds twelve sealed envelopes. Both lines are in the water. I have more than I started with, and the real work of autumn is just beginning.
+
