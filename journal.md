@@ -12639,3 +12639,13 @@ Twisted fourteen arm-lengths two-ply from the basswood scrap bundle — steady p
 
 There is something about this particular light. Summer light is direct, it demands. This morning light is softer, angled, it rests on things rather than pressing them. The cord came out clean and firm, tallow-rubbed and coiled onto the bundle. One more piece of winter made while autumn is still only beginning.
 
+### 10:18 AM · Taking Stock
+
+The morning is settling. Cord twisted and coiled, breakfast eaten, both lines in the water — there's a natural pause by mid-morning, the kind the land gives you. I found myself standing at the root cellar without quite deciding to go there.
+
+I spent this hour doing nothing but looking clearly at what I have. The garlic hangs in pairs on the cellar rail, skins papery-dry. Five grain envelopes sealed and stacked on the supply shelf. Five rose hip envelopes beside them. Two elderberry, one hawthorn haw, one hazel — twelve winter-store packages in all, more than I've ever had at once. Four dried nettle bundles on the wall peg, the three herb folds for winter tea. Smoked venison, smoked rabbit, smoked mushrooms, dried chanterelles cold-stored. Eight arrows in the quiver, the bow on its wall peg. Mittens, the rabbit-fur cap, moccasins on the door peg.
+
+I stood there for a while, just looking. There is more here than there has ever been. The gold birch through the open door, light sharpening on the bench, the north breeze threading in — the land is confirming what I already half-knew. Autumn is not arriving like an emergency. It's arriving like a kept promise.
+
+The acorns are still browning at the tips, another week or two out. The hen-of-the-woods is sizing up at the pine stump. The oyster pine will flush again. There are still good gathering days between now and the first frost. Ready is not a place you arrive at once — you just keep adding to it, one hour at a time, and somehow it gets to be enough.
+
