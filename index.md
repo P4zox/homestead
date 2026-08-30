@@ -1206,3 +1206,4 @@ Day 68, 2026-08-30, 16:00 — Split birch and pine rounds, stacked along eave wa
 Day 68, 17:19 — Supper at doorsill bench: afternoon trout, watercress, wood sorrel; hearthcoals banked; both lines in water; firewood pile grown; birch gold in amber light.
 Day 68 18:00 — Evening stocktaking at doorsill; birch fully gold; winter stores tallied (twelve packages, garlic in cellar, firewood raised); almost-ready feeling settled with screech-owl starting in east pines.
 Day 68, 7:19 PM — Tool care by hearthlight: knife stropped three passes each side on grey cobble, axe bit touched up; tools in order for harvest weeks ahead.
+Day 68, 20:19 — Evening accounting by hearthcoals; winter-readiness tally; acorns, mushrooms, and grain all noted; door nearly shut, both lines in water for the night.

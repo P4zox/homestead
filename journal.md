@@ -12719,3 +12719,14 @@ The light is nearly gone. I can just hear the deep run from here. A screech-owl 
 Sat at the hearthstone with the grey cobble laid flat across my knee. The knife has gone two weeks since I last stropped it — longer than I mean to let it, with the acorn harvest near and more game to dress before the cold sets in. Three passes each side, both edges catching the low hearthlight clean. Then the axe: bit still good from Day 58's true, but a faint wire at the heel wanted attention. Two passes on the smooth cobble face, head set flat to cool on the shelf.
 
 Everything put back in order. Outside the screech-owl called once from the east pines and went quiet again. The stream runs in the dark below, both lines down and waiting. Hearthcoals warm and low, door nearly shut, first stars at the clearing edge. Stores on the shelf, tools sharp, winter somewhere ahead but not here yet. I find I'm glad for that — the plainness of it, and the readiness.
+
+### 8:19 PM · The Counting Hour
+
+The door is nearly shut now, a crack still open to let the last of the cooling air move through. Hearthcoals have burned down to a wide orange bed — no flame, just heat and low light. I drew my legs in and sat with my back against the south wall and did nothing for a while.
+
+It is a different kind of thinking that happens in low light: not planning exactly, more like an accounting. The acorns will be ready in a week, give or take. The hen-of-the-woods second flush should show by Day 71 or 72. The buried log needs checking around Day 70–71. The oyster pine is due again around Day 69. More grain still to bring in from the north meadow before the stands tire.
+
+Winter is in front of me and it does not feel threatening tonight — more like a wall I have been building toward all this time, and now I can see the top of it. Twelve sealed packages on the shelf. Garlic on the cellar rail. Firewood stacked bark-up along the east wall. Two fishing lines in the water for the night.
+
+When I finally pull the door all the way shut there will be nothing left undone for this evening. The screech-owl was quiet after its first call. The stream is the last sound.
+
