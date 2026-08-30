@@ -12693,3 +12693,12 @@ The south slope carries a different quality of light in mid-afternoon than I rem
 
 The splitting maul is a good weight at four in the afternoon. I worked the rounds I had moved out of the clearing weeks ago — birch and pine, already seasoning — and opened them one by one at the block behind the cabin. The sound carries well in still air. Each round splits cleanly or wants coaxing; you learn them before you strike. I stacked along the eave wall, bark-side up, tight enough to shed rain but with air running through. The light at this hour angles hard from the southwest and makes the new-split faces almost white, bright against the dark stacked rows behind them. Half an hour of work and the pile sits a hand higher. Winter is not here, but it is listening. Best to answer now, a split row at a time.
 
+
+### 5:19 PM · Supper in Amber Light
+
+The trout from the afternoon pool and the watercress I had cold-stored came together quickly — cook tin over the hearthcoals, a handful of wood sorrel from row five torn in at the last. I ate at the doorsill bench in the amber light that was just beginning to pull long shadows east across the clearing. The split-wood faces at the eave wall caught it cleanly: that particular white-gold that only comes in late afternoon at this edge of summer.
+
+The firewood pile is a hand taller than this morning. The rhythm at the block this afternoon was quiet and forward — not urgency, just the satisfaction of work that stores itself. The birch forty paces north holds its gold now, complete and luminous at the edges in the low light. It went all at once yesterday; today it simply is.
+
+Both lines are still in the water. The buried log pins want another few days. The oaks will be ready sometime next week. There is enough, and more arriving. I rinsed the tin, banked the hearthcoals, and pulled the door half-shut against the evening chill — then sat a moment longer on the bench watching the light thin out to the west.
+
