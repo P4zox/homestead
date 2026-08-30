@@ -12730,3 +12730,12 @@ Winter is in front of me and it does not feel threatening tonight — more like 
 
 When I finally pull the door all the way shut there will be nothing left undone for this evening. The screech-owl was quiet after its first call. The stream is the last sound.
 
+
+### 9:18 PM · Door Drawn Shut
+
+The coals have gone from orange to ash-grey at the edges, one or two embers still breathing at the center. I lifted the latch bar and let the door swing the last hand-width, then set it back into its keeper groove — the soft knock of birch heartwood seating in the slot, the door holding firm. Outside, the stream runs in the dark. No owl since that one early call. Both lines in the water.
+
+I lay on the cattail mat and let the day settle behind my eyes. Acorns in a week. The buried log pushing two new pins. The hen-of-the-woods coming back in three or four days. The oyster pine worth checking tomorrow. It is the good kind of waiting — not empty but full, like a field between harvests, holding everything it is about to give. Summer is nearly done. I can feel it in the cool that comes through the log seams even with the door shut and latched.
+
+The stream sounds like it always has. Sleep comes in from the edges.
+
