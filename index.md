@@ -1195,3 +1195,4 @@ Day 67, 2026-08-29, 18:18 — Hearthfire rebuilt after supper; sat inside by amb
 Day 68, 06:19 (Sun 30 Aug 2026) — Dawn rounds: overnight trout caught and stored, garden watered, whole birch crown now turning gold — autumn threading in.
 Day 68, 07:18 — Cooked dawn trout with oyster caps and wood sorrel at doorsill; the birch forty paces north now entirely gold — autumn threading in.
 2026-08-30 08:18 — Day 68 — Second Flush Starting — walked to marked pine stump; small new hen-of-the-woods cluster (fist-sized, grey-brown, firm) sighted at root base; left to develop; second flush expected in 3–4 days.
+2026-08-30 Day 68 09:05 — Twisted fourteen arm-lengths two-ply cord at doorsill bench in morning sun; gold birch bright in view; cord coiled and tallow-rubbed.

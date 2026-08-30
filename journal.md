@@ -12630,3 +12630,12 @@ I find myself counting things at this hour of the season: twelve sealed packages
 
 Both fishing lines still in the water. I will check the limestone pool closer to noon.
 
+
+### 9:05 AM · Morning Cord, Gold Light
+
+Sat at the doorsill bench after the stump check with the cord bundle in my lap. The birch forty paces out is fully committed now — every leaf pressing into gold, the whole crown a bright steady lamp against the dark pine line behind it. I could see it from the bench without turning my head, just there at the edge of my eye the whole time I worked.
+
+Twisted fourteen arm-lengths two-ply from the basswood scrap bundle — steady pull, counter-roll, the rhythm comes without thinking now. The sun climbs enough to find the bench and warm the wood under me. A light north breeze keeps it from being hot. Quiet morning. Both lines in water somewhere downstream, the limestone pool patient in its shadow.
+
+There is something about this particular light. Summer light is direct, it demands. This morning light is softer, angled, it rests on things rather than pressing them. The cord came out clean and firm, tallow-rubbed and coiled onto the bundle. One more piece of winter made while autumn is still only beginning.
+
