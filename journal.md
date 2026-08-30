@@ -12619,3 +12619,14 @@ I ate slow. The oyster caps were earthy and firm against the clean bright sorrel
 
 Autumn threading in. Not arrived yet, just threading in.
 
+
+### 8:18 AM · Second Flush Starting
+
+The mist is mostly gone now, just a thin bright thread of it caught in the birch hollow. The gold birch — that one tree forty paces north I have been watching for days — is fully turned. I can see the whole crown from the doorsill, a clean bell of gold against the dark pine ridgeline. It happened overnight. That is how autumn arrives here: you watch and nothing seems to move, then you wake and it is done.
+
+I walked out south past the granite shelf to check the marked pine stump. The hen-of-the-woods I cut two mornings ago left the mycelium clean at the base, undisturbed. And this morning there is the start of a new cluster — barely fist-sized, nested tight against the roots on the northwest side where the soil stays cool and shadowed. Grey-brown, firm to a finger, the little fronds just beginning to curl outward. I left it without touching. Another three or four days and there will be a full second flush worth cutting and smoking.
+
+I find myself counting things at this hour of the season: twelve sealed packages on the shelf, five rose hip envelopes, five grain envelopes, hazelnuts, elderberries, dried nettles, smoked mushrooms. There is a weight to it that summer does not quite give. Summer is abundance that wants eating now; autumn is that same abundance insisting on being kept. I am learning to hear the difference — learning to let a small flush sit and grow rather than take it small just because I can.
+
+Both fishing lines still in the water. I will check the limestone pool closer to noon.
+
