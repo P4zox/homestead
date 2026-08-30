@@ -12675,3 +12675,12 @@ Through the open door the birch stands fully gold. The light breeze from the nor
 
 I don't need more cord — the bundle is long past any shortage — but twisting settles something the turning season unsettles. The acorns are browning. The hen-of-the-woods is waiting at the pine stump. The maple at the pool tipped bronze at noon. This hour at the bench is the quiet between recognizing what's coming and the work of meeting it.
 
+
+### 2:19 PM · Poolside Afternoon Sun
+
+The afternoon had gone still by the time I walked down to the limestone pool — the north breeze that had been cutting through all morning quit sometime after noon, and the sun lay warm and unbroken across the slope. The pool was bright in it, green-deep along the far bank where the ledge undercuts. The pole was undisturbed; I lifted it and felt the weight before I saw the fish — a seven-inch trout, cold from the shadow water, clean on the earthworm. I cleaned it at the flat stone, dock-wrapped it, tucked it for the cold-storage box.
+
+On the walk back I stopped at the side-seep below the deep run. The watercress there was full and dark, stems cool and crisp in the shadow of the low bank. A fistful pulled and rinsed in the current, wrapped in dock leaf for tonight. Both lines re-baited and set, the pole wedged back deep under the far ledge shadow.
+
+The birch forty paces north was the same when I crossed back into the clearing — whole crown gold, the same as morning. Afternoon still generous with its light. Autumn is threading in at the edges but the day has not let go yet.
+

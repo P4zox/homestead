@@ -1200,3 +1200,4 @@ Day 68, 10:18 AM — Taking stock: root cellar and supply shelf inventoried in l
 Day 68, 11:19 AM — Limestone pool noon check; seven-inch trout cooked at poolside on small bank fire with wood sorrel; maple upstream beginning to bronze; both lines reset.
 Day 68, 12:18 — Buried log noon check: two new cream-white pins (thumbnail-sized, not yet ready); lid and stone replaced — next check ~Day 70-71.
 2026-08-30 13:18 — Day 68, 1:18 PM: Afternoon cord twisting at doorsill bench; fourteen arm-lengths two-ply from basswood scrap, tallow-rubbed; birch fully gold through the open door; both lines in water; quiet between the season's recognition and the work of meeting it.
+Day 68, 14:19 — Poolside afternoon check; seven-inch limestone pool trout cold-stored; watercress gathered for supper.
