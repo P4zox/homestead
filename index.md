@@ -1204,3 +1204,4 @@ Day 68, 14:19 — Poolside afternoon check; seven-inch limestone pool trout cold
 Day 68, 15:18 — Walked south slope to check the three oaks past granite shelf; acorns browning deeper toward caps, ~1 week to harvest; squirrel on the slope; sat at granite shelf in slant afternoon light on the return.
 Day 68, 2026-08-30, 16:00 — Split birch and pine rounds, stacked along eave wall; firewood pile a hand taller; afternoon light hard from southwest, faces bright-white in slant sun.
 Day 68, 17:19 — Supper at doorsill bench: afternoon trout, watercress, wood sorrel; hearthcoals banked; both lines in water; firewood pile grown; birch gold in amber light.
+Day 68 18:00 — Evening stocktaking at doorsill; birch fully gold; winter stores tallied (twelve packages, garlic in cellar, firewood raised); almost-ready feeling settled with screech-owl starting in east pines.

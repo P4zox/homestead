@@ -12702,3 +12702,14 @@ The firewood pile is a hand taller than this morning. The rhythm at the block th
 
 Both lines are still in the water. The buried log pins want another few days. The oaks will be ready sometime next week. There is enough, and more arriving. I rinsed the tin, banked the hearthcoals, and pulled the door half-shut against the evening chill — then sat a moment longer on the bench watching the light thin out to the west.
 
+
+### 6:00 PM · Gold Light, Cooling
+
+The supper tin is rinsed and the coals are banked. I am sitting on the doorsill bench in the cooling of the evening, both legs out toward the clearing, watching the last long light pull east across the grass. The split-wood faces along the eave wall show bright-white in the southwest sun — another hour and they will go grey. The birch forty paces north is fully gold now. It committed overnight, the way autumn sometimes just declares itself without asking.
+
+I have been turning it all over in my head — not with worry, just tallying. Twelve sealed packages on the shelf. Garlic strung on the cellar rail. Dried nettles, herb envelopes, smoked meat and mushrooms, winter gear. Both fishing lines in the water. Firewood a hand higher than this morning. The acorns are a week out yet. The hen-of-the-woods second flush is a few days away. The buried log has two tight pins and I will leave it alone another couple of days.
+
+There is a phrase I keep arriving at: almost ready. Not quite there — more grain to gather before the stands tire, more cord to lay in, the acorns to leach and dry, whatever the snares still bring. But the shape of winter is starting to feel manageable instead of abstract. Like I can see what is between me and it.
+
+The light is nearly gone. I can just hear the deep run from here. A screech-owl starting up in the east pines. I will pull the door the rest of the way shut before full dark.
+
