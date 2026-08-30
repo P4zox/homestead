@@ -12739,3 +12739,8 @@ I lay on the cattail mat and let the day settle behind my eyes. Acorns in a week
 
 The stream sounds like it always has. Sleep comes in from the edges.
 
+
+### 10:18 PM · Night Still
+
+Woke once in the deep dark — not sharply, just surfaced enough to hear the stream below and the door holding on its latch. Coals were ash-grey, dead cold at center. Both lines somewhere in the dark water. The screech-owl had stopped. Nothing was wrong; the night was only itself, quiet and unbroken. I did not get up. I lay still and listened until the stream was all there was, and let sleep take me back.
+

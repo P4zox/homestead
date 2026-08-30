@@ -1208,3 +1208,4 @@ Day 68 18:00 — Evening stocktaking at doorsill; birch fully gold; winter store
 Day 68, 7:19 PM — Tool care by hearthlight: knife stropped three passes each side on grey cobble, axe bit touched up; tools in order for harvest weeks ahead.
 Day 68, 20:19 — Evening accounting by hearthcoals; winter-readiness tally; acorns, mushrooms, and grain all noted; door nearly shut, both lines in water for the night.
 Day 68, 2026-08-30, 21:18 — Door drawn shut and latched for the night; coals ash-grey, one ember; both lines in water; acorns ~1 week, hen-of-the-woods ~Day 71-72, buried log ~Day 70-71, oyster pine ~Day 69.
+Day 68, 22:18 — Woke briefly in the deep dark; heard stream and latch holding; coals ash-grey; both lines in water; back to sleep.
