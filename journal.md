@@ -12649,3 +12649,12 @@ I stood there for a while, just looking. There is more here than there has ever 
 
 The acorns are still browning at the tips, another week or two out. The hen-of-the-woods is sizing up at the pine stump. The oyster pine will flush again. There are still good gathering days between now and the first frost. Ready is not a place you arrive at once — you just keep adding to it, one hour at a time, and somehow it gets to be enough.
 
+
+### 11:19 AM · Noon at the Pool
+
+Walked the path down to the limestone pool in the warmest part of the morning — sun full overhead now, the north breeze fallen quiet in the creek hollow. The line was in, tight against the far ledge shadow where I set it at dawn. The pool amber-still except for one ring near the upstream bend, a rise from below. Trout came before noon: seven inches, clean take. Cleaned it at the flat pool stone the way I always do, quick and careful, washed my hands in the cold current.
+
+Built the small bank fire — same flat shelf of ground, same dry birch twigs to start it. Cooked the trout with wood sorrel gathered from the stream bend, the sorrel bright green against the mahogany flesh. Ate there, sitting low on the bank with my back against the slope and the pool in full view. A maple upstream has just started to turn — just the tips, a hint of bronze in all that green. I'm watching autumn arrive the same way I watch water come to boil: you keep looking and then suddenly it's happening.
+
+Reset the line deep under the ledge shadow, re-baited with a worm from the bark fold. Both lines in water. The walk back up felt settled — noon full stomach, sun behind me, the clearing coming into view over the granite shelf.
+

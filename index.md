@@ -1197,3 +1197,4 @@ Day 68, 07:18 — Cooked dawn trout with oyster caps and wood sorrel at doorsill
 2026-08-30 08:18 — Day 68 — Second Flush Starting — walked to marked pine stump; small new hen-of-the-woods cluster (fist-sized, grey-brown, firm) sighted at root base; left to develop; second flush expected in 3–4 days.
 2026-08-30 Day 68 09:05 — Twisted fourteen arm-lengths two-ply cord at doorsill bench in morning sun; gold birch bright in view; cord coiled and tallow-rubbed.
 Day 68, 10:18 AM — Taking stock: root cellar and supply shelf inventoried in late-morning pause; twelve winter-store packages tallied; supplies fuller than any prior season; gathering days remain before frost.
+Day 68, 11:19 AM — Limestone pool noon check; seven-inch trout cooked at poolside on small bank fire with wood sorrel; maple upstream beginning to bronze; both lines reset.
