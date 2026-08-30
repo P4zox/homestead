@@ -12666,3 +12666,12 @@ The clearing was warm by noon but I wanted to walk, and the buried log was overd
 Two small pins, cream-white and firm, thumbnail-sized, caps not yet formed. The log face quiet otherwise — just those two pale points pressing up from the dark wood. I replaced the lid, pressed the stone down firm.
 
 Another few days and they'll be ready. Walking back I paused at the stream, drank cold water from my palm, watched the deep-run pool catch the noon light. The gold birch above the east bank trembled in the north breeze — leaves fully turned now, bright against the dark pines. Summer is still here at the edges, but the cellar is filling and the season is clearly stepping back. Two pins is a good enough thing to find at midday.
+
+### 1:18 PM · Afternoon Cord
+
+The afternoon came warm and unhurried. I carried the cord bundle back to the doorsill bench after the pool visit and spent the next hour doing what my hands know best — drawing basswood fiber into two-ply, rolling it up my thigh in one direction, plying it back in the other. The motion is almost meditative now. Fourteen arm-lengths done, tallow-rubbed, added to the coil.
+
+Through the open door the birch stands fully gold. The light breeze from the north comes through in short, cool passes, then stills. I can hear the stream but not the pool. Both lines in the water. The afternoon has that quality of late summer where time seems to slow just before the next thing begins.
+
+I don't need more cord — the bundle is long past any shortage — but twisting settles something the turning season unsettles. The acorns are browning. The hen-of-the-woods is waiting at the pine stump. The maple at the pool tipped bronze at noon. This hour at the bench is the quiet between recognizing what's coming and the work of meeting it.
+
