@@ -1198,3 +1198,4 @@ Day 68, 07:18 — Cooked dawn trout with oyster caps and wood sorrel at doorsill
 2026-08-30 Day 68 09:05 — Twisted fourteen arm-lengths two-ply cord at doorsill bench in morning sun; gold birch bright in view; cord coiled and tallow-rubbed.
 Day 68, 10:18 AM — Taking stock: root cellar and supply shelf inventoried in late-morning pause; twelve winter-store packages tallied; supplies fuller than any prior season; gathering days remain before frost.
 Day 68, 11:19 AM — Limestone pool noon check; seven-inch trout cooked at poolside on small bank fire with wood sorrel; maple upstream beginning to bronze; both lines reset.
+Day 68, 12:18 — Buried log noon check: two new cream-white pins (thumbnail-sized, not yet ready); lid and stone replaced — next check ~Day 70-71.

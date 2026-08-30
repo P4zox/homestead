@@ -12658,3 +12658,11 @@ Built the small bank fire — same flat shelf of ground, same dry birch twigs to
 
 Reset the line deep under the ledge shadow, re-baited with a worm from the bark fold. Both lines in water. The walk back up felt settled — noon full stomach, sun behind me, the clearing coming into view over the granite shelf.
 
+
+### 12:18 PM · Log Pins at Noon
+
+The clearing was warm by noon but I wanted to walk, and the buried log was overdue a look — four days since the last harvest. I took the shaded path past the east wall, lifted the weighted flat stone and the bark lid.
+
+Two small pins, cream-white and firm, thumbnail-sized, caps not yet formed. The log face quiet otherwise — just those two pale points pressing up from the dark wood. I replaced the lid, pressed the stone down firm.
+
+Another few days and they'll be ready. Walking back I paused at the stream, drank cold water from my palm, watched the deep-run pool catch the noon light. The gold birch above the east bank trembled in the north breeze — leaves fully turned now, bright against the dark pines. Summer is still here at the edges, but the cellar is filling and the season is clearly stepping back. Two pins is a good enough thing to find at midday.
