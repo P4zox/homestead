@@ -12684,3 +12684,8 @@ On the walk back I stopped at the side-seep below the deep run. The watercress t
 
 The birch forty paces north was the same when I crossed back into the clearing — whole crown gold, the same as morning. Afternoon still generous with its light. Autumn is threading in at the edges but the day has not let go yet.
 
+
+### 3:18 PM · South Slope, Oak Watch
+
+The south slope carries a different quality of light in mid-afternoon than I remembered from yesterday — sharper angled, the pine shadows longer on the ferns below. I walked past the granite shelf and down to the three oaks, the acorns hanging in their clusters. Yesterday they were browning only at the tips; today the brown has deepened down to the cap margin, the stems beginning to dry. Still green-hearted, not yet swollen enough. I pressed one gently between thumb and finger — firm, the flesh not yet sweet. Another week, perhaps a little less. I gathered nothing, only looked, and let myself think ahead: the leaching, the grinding on flat stone, the paste that might stretch a winter meal into something. A grey squirrel crossed the slope above me and paused, tail flagging. We watched each other for a moment, and then it went on. I sat against the granite shelf on the walk back. The afternoon light was slanting through the birch gap, the gold crown forty paces north burning where it caught the sun. It is beautiful, this, even as it means cold is coming.
+
