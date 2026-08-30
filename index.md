@@ -1202,3 +1202,4 @@ Day 68, 12:18 — Buried log noon check: two new cream-white pins (thumbnail-siz
 2026-08-30 13:18 — Day 68, 1:18 PM: Afternoon cord twisting at doorsill bench; fourteen arm-lengths two-ply from basswood scrap, tallow-rubbed; birch fully gold through the open door; both lines in water; quiet between the season's recognition and the work of meeting it.
 Day 68, 14:19 — Poolside afternoon check; seven-inch limestone pool trout cold-stored; watercress gathered for supper.
 Day 68, 15:18 — Walked south slope to check the three oaks past granite shelf; acorns browning deeper toward caps, ~1 week to harvest; squirrel on the slope; sat at granite shelf in slant afternoon light on the return.
+Day 68, 2026-08-30, 16:00 — Split birch and pine rounds, stacked along eave wall; firewood pile a hand taller; afternoon light hard from southwest, faces bright-white in slant sun.
