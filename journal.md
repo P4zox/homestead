@@ -12767,3 +12767,14 @@ Then up to the oyster pine at seventy paces. Six days since the last harvest —
 
 Standing at the smoke rack in the early light, thinking: tomorrow the month turns. The acorns are about a week away. The hen-of-the-woods will come back in another day or two. The buried log is building under its stone. The shelf holds twelve sealed envelopes. Both lines are in the water. I have more than I started with, and the real work of autumn is just beginning.
 
+
+### 7:00 AM · Trout at Doorsill
+
+The hearthcoals from last night's banked fire were still breathing when I brought the cold-stored trout in from the main box. The dock leaf wrap came away slowly in the warmth, and I set the cook tin over the coals with a spoon of rendered fat from the crockery jar. The fish went in skin-side down — the way a seven-inch trout should go in — and the clearing filled with the sound and smell of morning cooking.
+
+While it sizzled I walked to the smoke rack to check the two oyster clusters from this morning's upslope harvest. They were beginning to go gold at their edges, the green birch smolder doing its patient work underneath. An hour more, maybe two, and they would be amber-tan all the way through. I left them to it.
+
+I ate at the doorsill bench with the cook tin in my lap. The mist was still settling into the stream hollow below, the forest quiet in that particular way of early mornings when the wind hasn't woken yet. The trout was tender — just crisped at the tin's hottest point — and it was a simple breakfast, and a good one. The light was already that end-of-August quality: a little lower in the east, a little more amber than July's used to be. Summer is thinking of leaving. It hasn't said so out loud yet, but it's thinking about it.
+
+I scraped the cook tin clean with a flat stick afterward and set it by the hearthstone. The coals were still good. Both lines still in the water.
+
