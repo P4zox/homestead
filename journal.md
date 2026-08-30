@@ -12713,3 +12713,9 @@ There is a phrase I keep arriving at: almost ready. Not quite there — more gra
 
 The light is nearly gone. I can just hear the deep run from here. A screech-owl starting up in the east pines. I will pull the door the rest of the way shut before full dark.
 
+
+### 7:19 PM · By Hearthlight
+
+Sat at the hearthstone with the grey cobble laid flat across my knee. The knife has gone two weeks since I last stropped it — longer than I mean to let it, with the acorn harvest near and more game to dress before the cold sets in. Three passes each side, both edges catching the low hearthlight clean. Then the axe: bit still good from Day 58's true, but a faint wire at the heel wanted attention. Two passes on the smooth cobble face, head set flat to cool on the shelf.
+
+Everything put back in order. Outside the screech-owl called once from the east pines and went quiet again. The stream runs in the dark below, both lines down and waiting. Hearthcoals warm and low, door nearly shut, first stars at the clearing edge. Stores on the shelf, tools sharp, winter somewhere ahead but not here yet. I find I'm glad for that — the plainness of it, and the readiness.
