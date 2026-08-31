@@ -1219,3 +1219,4 @@ Day 69, 08:00 — Pulled smoked oyster mushrooms off rack (amber-tan, firm, dry 
 Day 69, 12:00 — Noon rest at doorsill bench; cooked and ate last morning trout; reflected on birch leaf-curl and coming autumn; stores solid; thinking now in longer winter arcs.
 [2026-08-31 13:00] Day 69 — Walked upslope to scout forest; two resin-rich pines marked, hen-of-the-woods almost ready at old oak, six birches showing leaf-curl; north roof corner noted for pre-winter bark weight; returned with mental map.
 2026-08-31 14:00 — Day 69 — Reinforced north cabin roof corner: four bark strips added, double-layered and pegged with split pine pins; moss cleared, wood sound beneath — corner sealed before wet season.
+2026-08-31 15:00 · Day 69 — Afternoon lines pulled (deep-run: 6-in trout caught, stored); dry moss bundle gathered from stream-bank for chinking stock; cold-storage three trout + smoked oyster mushrooms + watercress.

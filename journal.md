@@ -12857,3 +12857,16 @@ I stepped back to the garden edge and looked up at it. It reads the same as the 
 
 Both lines still down at stream and pool. Afternoon holds warm.
 
+
+### 3:00 PM · August's last afternoon
+
+The afternoon has its own quietness — different from morning's anticipation, softer than midday's stillness. I walked the stream with both lines in mind.
+
+The deep-run pole was bowing when I reached it. A six-inch trout on the hook — clean and healthy, pale belly. I cleaned it at the flat stone, dock-wrapped, and set it in the main cold-storage box. The hook got a fresh earthworm, the pole reset below the undercut bank in the same shadow it knows.
+
+Limestone pool: bare, worm untouched. I left it in place. Some hours the stream gives and some it does not. I am learning not to read too much into the empty ones.
+
+On the walk back I stopped at the stream-bank stones where the moss grows thick in the open air. The sun has dried some patches to a dense, firm mat — exactly the kind useful for chinking if any gaps open before winter. I pulled a good bundle and carried it back, set it on the flat stones at the south wall to finish drying. It will keep for weeks.
+
+Cold-storage now holds three trout, the smoked oyster mushrooms, the watercress. The last day of August, and the larder is building toward something real. September starts tomorrow. I can feel it coming — a small change in the light, a shade cooler in the shadows. Not winter yet. But the stream knows.
+
