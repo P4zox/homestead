@@ -12979,3 +12979,18 @@ Watered the garden in three trips from the deep run. The garlic fans are wide, t
 
 Stood at the cabin door after the last trip with the cook tin empty in my hand, looking at the clearing in the early September light. Sixty-nine days of this. The land looks different now than it did in June — not just what I have built on it, but the land itself, the angle of the light, the colour in the birch leaves beginning to turn. I notice things I could not have noticed before, because I was not here long enough to have a before.
 
+
+### 7:00 AM · Buried Log Wakes
+
+The limestone pool line was quiet when I checked it — worm untouched, line slack. The hen-of-the-woods hung on the smoke rack above a low birch smolder, already darkening at the edges, the smell of smoke and earth starting to work its way into the flesh.
+
+I had been meaning to check the buried log. I put that oak section down nearly three weeks ago — split it lengthwise, set it face-down in the shaded draw east of the garden, half-buried in the cool damp soil, weighted with a flat stone. The idea was plain: give the soil fungi a point of entry, see if anything would take.
+
+I lifted the stone and turned the log back.
+
+The underside was dark and close-smelling, the way good damp wood gets. And there at both cut ends — a faint white bloom: mycelium threads, thin as spider silk, tracing the grain of the oak into the wood. Not mushrooms yet, not for another week or two. But something had found it. The wood was alive.
+
+I set the log back exactly as it was, pressed the sides tight against the soil, laid the stone back over it. It wants more time, and time is one thing I have. I will not look again until nearly Day 84.
+
+September's first full morning feels quieter than August's last. The smoke rack turns slowly in the east breeze. Somewhere up in the pines, a woodpecker is already at its long slow work.
+

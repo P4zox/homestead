@@ -1229,3 +1229,4 @@ Day 69, 18:18 — Cooked last cold-stored trout with watercress at the hearthsto
 2026-08-31 22:00 Day 69 — Sat by dying hearthcoals on last night of August; sleeping bag drawn close; listened to the stream; felt sixty-nine days of work; latched door, both lines in water, settling into sleep.
 Day 69, 23:00 — last waking hour of August; coals cooling to embers, door latched, September in the morning.
 Day 70, 2026-09-01, 06:00 — First of September: revived coals; 6-in trout on deep-run line; hen-of-the-woods harvested at old oak shelf (firm, white gills, cap two-hands wide); set on smoke rack over green birch smolder; garden watered; September arrived overnight.
+2026-09-01 07:00 Day 70 — Buried log check: early mycelium threads confirmed at oak section in shaded east draw; recheck ~Day 84.
