@@ -1215,3 +1215,4 @@ Day 69, 07:00 — Breakfast: cooked cold-stored 7-in trout in cook tin over hear
 Day 69, 08:00 — Pulled smoked oyster mushrooms off rack (amber-tan, firm, dry through); sealed in bark sheeting; stored in main cold-storage box — five handfuls dried down added to shelf.
 2026-08-31 09:00 Day 69 — checked both lines; deep-run 6-in trout caught, cleaned, dock-wrapped, cold-stored in main box; limestone pool line bare but reset; first birch leaf-curl noted at stream bank — autumn threading in.
 2026-08-31 10:00 Day 69 — Limestone pool line took a 5-in trout mid-morning (shadow reached far ledge); watercress gathered from shallows; both lines reset and in water.
+2026-08-31 Day 69 11:00 — Splitting firewood (pine rounds, lean-to stack); first birch leaf-curl noted — winter prep begins in earnest.

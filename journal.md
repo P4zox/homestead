@@ -12811,3 +12811,14 @@ I stood a minute at the pool edge and looked downstream. The birch leaf-curl I h
 
 Watercress grew thick in the shallows just below the pool. I pulled a double handful — stems crisp, leaves dark green and peppery — and carried it back in my hat. Something to eat fresh at midday or alongside the smoked mushrooms come evening. The season is still full enough to give freely, but I find myself counting, as I always do when the first leaf turns.
 
+
+### 11:00 AM · Splitting Before Cold
+
+The birch leaf-curl I saw at the stream this morning has been sitting with me ever since I came back up to the clearing. One leaf — curled just at the tip, not yellow yet, only starting to turn. But I know what it means. Summer is releasing its hold, slowly and without ceremony, the way it always does here. The sign is small. The thing it points to is not.
+
+I spent the late morning at the woodpile. Split three rounds of downed pine I had hauled up from the south edge last week — good clean splits, the wood dry on the inside, pale and almost sweet-smelling when the maul opened it. A few knots slowed me down, but nothing that patience and a second strike did not solve. Stacked them bark-side up in the lean-to corner of the wood shed so they will shed rain if any comes. The stack is growing. Not enough yet for a full winter, but noticeably more than yesterday.
+
+Afterward I rested with my back against the fresh-split pile and let the sun be on my face for a few minutes. The clearing was quiet — just the stream sound carrying up, and somewhere on the far slope a woodpecker working a dead birch in short bursts. Both fishing lines still in the water. The cold-storage box is holding well: two trout from this morning, the smoked oyster mushrooms, the watercress in its damp fold. I have food, I have fire, I have walls that hold.
+
+The leaf on the stream bank is only a reminder to keep working steadily. Which I was already going to do.
+
