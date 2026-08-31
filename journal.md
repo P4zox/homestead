@@ -12961,3 +12961,21 @@ Sixty-nine days. It is strange to hold that number in the dark. I came here with
 
 Sleep comes easy when the work is done.
 
+
+---
+
+# Day 70 — Tuesday, 1 September 2026
+*early autumn · cool September dawn, coals revived, hen-of-the-woods cut at old oak shelf*
+
+### 6:00 AM · First of September
+
+Woke before full light with September on my face through the door gap — a different cool than August, sharper, coming in from the north slope rather than off the stream. The coals were still faintly alive when I opened them with a stick, and three pine splinters brought a small fire back without trouble.
+
+Checked the deep-run line first, as always. A six-inch trout, heavy in the grey light, hook set clean behind the jaw. I cleaned it at the flat stone and slid it into the cold box. Both lines re-baited and reset before the morning had fully arrived.
+
+Then the walk I had been holding in mind since yesterday afternoon: eighty paces upslope to the old oak shelf where the hen-of-the-woods had been almost ready. It was ready. The lobe firm and springy, gills white and dry, the whole cap the size of two hands pressed together. I cut it clean at the stem — one pull of the paring knife — and wrapped it in a dock leaf for the walk back. Set it whole on the smoke rack over a very low green birch smolder, the kind that draws out moisture slowly without cooking it through. It will take most of the morning.
+
+Watered the garden in three trips from the deep run. The garlic fans are wide, the nettles still not quite ready to cut, the wood sorrel full and green in the shadow strip. Everything continuing in its own time. September is here and the garden does not argue with it.
+
+Stood at the cabin door after the last trip with the cook tin empty in my hand, looking at the clearing in the early September light. Sixty-nine days of this. The land looks different now than it did in June — not just what I have built on it, but the land itself, the angle of the light, the colour in the birch leaves beginning to turn. I notice things I could not have noticed before, because I was not here long enough to have a before.
+
