@@ -12952,3 +12952,12 @@ I did not plan to sit this long. I was going to sleep. But the firelight held me
 
 September comes without ceremony. I will pull the lines at dawn and see what the deep run gave us overnight. Then hen-of-the-woods, then whatever the day asks. That is how it always starts. I latched the door. Both lines are in the water. The cabin holds warm and close around me, and I am glad to sleep inside it.
 
+
+### 11:00 PM · Into September
+
+I let the fire go. The coals are deep orange now, barely breathing, and I have stopped adding wood — the heat in the logs themselves will hold until morning. The sleeping bag is pulled to my chin. Outside, the stream runs in the dark, both lines still in the water. The door is latched. There is nothing left to do.
+
+Sixty-nine days. It is strange to hold that number in the dark. I came here with almost nothing. Tonight I have a roof that sheds rain, a woodpile I cannot see the top of, cold-storage with three trout and smoked mushrooms, and a hen-of-the-woods waiting for me at the old oak shelf when the light comes. Tomorrow is September. That means something — the turn is real now, the air already different. But tonight I am only grateful.
+
+Sleep comes easy when the work is done.
+
