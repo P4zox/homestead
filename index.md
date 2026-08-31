@@ -1222,3 +1222,4 @@ Day 69, 12:00 — Noon rest at doorsill bench; cooked and ate last morning trout
 2026-08-31 15:00 · Day 69 — Afternoon lines pulled (deep-run: 6-in trout caught, stored); dry moss bundle gathered from stream-bank for chinking stock; cold-storage three trout + smoked oyster mushrooms + watercress.
 2026-08-31 16:00 Day 69 — collected pine resin from two marked upslope pines; stored in lean-to shelf for waterproofing and fire-starting
 Day 69, 17:00 — Checked both lines at stream in late amber light; deep-run yielded 5-in trout (cold-stored); limestone pool bare but left in; hen-of-the-woods at oak shelf almost ready — one more day.
+Day 69, 18:18 — Cooked last cold-stored trout with watercress at the hearthstone; ate at doorsill bench as the sun set on August's final evening; both lines left in water overnight; cold-storage now three trout + smoked oyster mushrooms + watercress.

@@ -12892,3 +12892,15 @@ On the walk back I stopped at the old oak shelf. The hen-of-the-woods was close 
 
 Four trout in the cold box now, the smoked oysters beside them, watercress. The woodpile is eave-high on the lean-to side. The dry moss bundle cures at the south wall. The evening feels earned.
 
+### 6:18 PM · August's Last Supper
+
+The sun is dropping behind the treeline and the light has gone amber, long and slow across the clearing. I pulled one of the cold-stored trout from the main box — a nice six-inch fish from this morning's deep-run line — and unwrapped it at the hearthstone. The hearth had banked coals from midday; I fed in three pine splits and waited for the heat to build.
+
+Cooked it simple: fat in the cook tin, skin-side down, a handful of the fresh watercress laid over the top in the last half-minute so it wilted just enough to eat. I carried the tin out to the doorsill bench and ate there, watching the last of August dissolve into the west.
+
+It is a strange thing, the last day of a month. Nothing changes at midnight — the birches will still show their leaf-curl tomorrow, the stream will run cold as it already does — but there is something in knowing that August is ending, that the summer I woke into on this land is drawing its last long breath. I have been here sixty-nine days. I came with almost nothing. Tonight I ate a fat trout with greens I gathered myself, from a hearth I built, on a bench I shaped with my own hands, in front of a cabin that did not exist two months ago.
+
+I sat there long after the meal was done, tin in my lap, watching the light go pink, then lilac, then grey. Both lines still in the water; I'll leave them overnight and pull them at dawn. The hen-of-the-woods will be ready in the morning. The resin is stored. The woodpile is eave-high. The moss is drying.
+
+August gave me footing. I wonder what autumn will ask of me.
+
