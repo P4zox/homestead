@@ -12789,3 +12789,14 @@ Once they cooled enough to handle I sealed them in bark sheeting with a twist of
 
 Both lines still in the water. August ends today. I noticed the morning light sitting lower than it did a month ago — longer shadows across the eastern garden rows, the pines reaching further over the garlic strip. It will keep doing that, all the way to the short days. I find I do not mind it. The shelf is fuller than it was at this point last year, and I know how to read what the land still has to give before the cold comes.
 
+
+### 9:00 AM · The End of August
+
+The mist had pulled back from the stream by the time I walked down to check the lines. The water was dark and clear — you could see the stones at the bottom of the deep run, each one distinct. Both poles still wedged firm, their lines dipping into the current.
+
+The deep-run line gave first: a six-inch trout, bright and cold, thrashing once when I lifted it clear. I cleaned it on the flat stone, wrapped it in dock leaves, tucked it into the main box beside the sealed oyster packages. Re-notched the hook with the last of the morning earthworms from the bait fold, reset below the undercut bank.
+
+The limestone pool line had nothing — the worm still on, a little pale, swaying in the slow current near the far ledge shadow. I left it. The fish, if any were moving, would find it.
+
+I stood there a moment in the thin morning light, the stream sound filling in around me. Late August has a particular quality — summer still in the air but something underneath already turning. The birch leaves above the bank had not changed color yet, but the oldest ones showed a slight curl at the edges I had not noticed two weeks ago. First hint of autumn threading in. I noted it and walked back to the clearing.
+
