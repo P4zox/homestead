@@ -12870,3 +12870,14 @@ On the walk back I stopped at the stream-bank stones where the moss grows thick 
 
 Cold-storage now holds three trout, the smoked oyster mushrooms, the watercress. The last day of August, and the larder is building toward something real. September starts tomorrow. I can feel it coming — a small change in the light, a shade cooler in the shadows. Not winter yet. But the stream knows.
 
+
+### 4:00 PM · Resin, Late Afternoon
+
+The afternoon sun was angling west and the air upslope held that pine-warm quality it gets on late summer days. I took the flat bark scraper and two folded birch pieces and walked back to the double-bent birch, finding the two resin-rich pines I had scouted this morning.
+
+Both trees showed what I had hoped for: bead-lines of hardened amber along old seam cracks, and one slow weep at a long-healed branch scar on the second pine — stickier, fresher, the kind that holds its grip even in cold. I worked steadily, lifting beads with the scraper edge into one folded bark tray, then moved to the dark seep on the second tree. Came home with a palm-sized lump of mixed resin sealed in bark and a second tray of dry crumbled resin good for kindling-catching.
+
+Stored both trays in the lean-to shelf beside the bark and chinking supplies. Resin has earned its place in every winter I have ever imagined here: sealing bark seam gaps, waterproofing the north corner patchwork I laid this morning, catching a fire in wet weather when nothing else wants to take. Having some set aside in August means I will not be scraping half-frozen bark in November.
+
+Passed both lines on the way back. Poles steady, both still in water. Cold-storage holds three trout and the smoked mushrooms. The day has given well.
+
