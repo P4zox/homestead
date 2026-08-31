@@ -12881,3 +12881,14 @@ Stored both trays in the lean-to shelf beside the bark and chinking supplies. Re
 
 Passed both lines on the way back. Poles steady, both still in water. Cold-storage holds three trout and the smoked mushrooms. The day has given well.
 
+
+### 5:05 PM · Lines in Late Sun
+
+Five o'clock and the light was going amber through the pine gaps — that hour when the stream turns copper and everything settles into a long quiet. I went down to pull both lines before the evening closed in.
+
+The deep-run gave up a five-inch trout: clean, firm. Cleaned it at the flat stone, dock-wrapped it, added it to the cold box. Re-notched the hook with a fresh earthworm from the bait fold, reset the pole below the undercut bank where the current cups in under the clay. The limestone pool line was bare but the worm still fresh — just the shadow timing off through the afternoon. Left it in place.
+
+On the walk back I stopped at the old oak shelf. The hen-of-the-woods was close but not quite — lifted a lobe and it sprang back, gills white inside. Tomorrow morning, maybe. You learn when to wait and not push it.
+
+Four trout in the cold box now, the smoked oysters beside them, watercress. The woodpile is eave-high on the lean-to side. The dry moss bundle cures at the south wall. The evening feels earned.
+
