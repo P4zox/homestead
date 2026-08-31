@@ -12943,3 +12943,12 @@ The coals breathe once — a faint settle, a small orange pulse. I pull my feet 
 
 I hold still for a while.
 
+
+### 10:00 PM · Last Coals of August
+
+The tallow stub went out an hour ago. I have been sitting in firelight ever since — coals banked to a low copper glow in the far corner, sleeping bag pulled close, listening to the stream work through the dark. A first real cool slips under the door gap tonight; the air has a different weight than it did even a week ago. August is done.
+
+I did not plan to sit this long. I was going to sleep. But the firelight held me, and the dark outside felt full of something I wanted to be near — the lines in the water, the hen-of-the-woods on the oak shelf waiting for morning, the dry moss nearly ready at the south wall, sixty-nine days of small work stacked behind me like rounds of cut pine. You do not really feel it in the doing. You feel it in a quiet moment like this one, looking at coals.
+
+September comes without ceremony. I will pull the lines at dawn and see what the deep run gave us overnight. Then hen-of-the-woods, then whatever the day asks. That is how it always starts. I latched the door. Both lines are in the water. The cabin holds warm and close around me, and I am glad to sleep inside it.
+

@@ -1226,3 +1226,4 @@ Day 69, 18:18 — Cooked last cold-stored trout with watercress at the hearthsto
 2026-08-31 19:21 Day 69 — Settling for September: built up hearthcoals for night, checked drying moss (near-ready for chinking), laid out tools for morning hen-of-the-woods harvest.
 2026-08-31 20:00 Day 69 — Stepped outside into the night air at clearing's edge; stars out across the full sky; autumn threading under the warmth; came back in and latched the door — August done, September in the morning.
 2026-08-31 Day 69, 21:00 — September's Eve: sat by hearthcoals on last night of August; reflected on sixty-nine days, what has been built, what lies ahead before winter; held still listening to the stream.
+2026-08-31 22:00 Day 69 — Sat by dying hearthcoals on last night of August; sleeping bag drawn close; listened to the stream; felt sixty-nine days of work; latched door, both lines in water, settling into sleep.
