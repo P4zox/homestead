@@ -12844,3 +12844,16 @@ Coming back down I counted the birches showing leaf-curl: four along the stream 
 
 I came home with nothing in my hands but intention. Some afternoon walks are like that — you return not with a haul but with a map made in your mind.
 
+
+### 2:00 PM · North Corner, Bark Weight
+
+The upslope walk this morning left a detail in my mind that would not settle: the north roof corner, where moss had threaded between the bark courses. Moss is not trouble on its own — it means water has been finding a way. And if water is finding a way now, in dry summer's end, it will find it faster when the rains come in.
+
+I pulled the reserve bark strips from under the eave — wider pieces, still limber, from the last felling. Working from the outside, I lifted the lower edges of the existing bark and slid new strips underneath, overlapping each course by about two hand-widths, shingle-fashion. Four strips in all, covering a span about the length of my arm. Then I pegged them through — split pine pins driven at an angle, biting into the purlin beneath. They sat firm on the first try.
+
+The moss came away with a dry scrape. The wood underneath was sound: no rot, just surface damp — which is what I hoped for. A corner that looked soft turned out to be merely unguarded. The pegs will hold the bark tight through the wet months ahead.
+
+I stepped back to the garden edge and looked up at it. It reads the same as the rest of the roof now — no bare seam, no gap, just overlapping bark sloping the way rain should run. That is the look you want: nothing to catch the eye, nothing for water to catch either.
+
+Both lines still down at stream and pool. Afternoon holds warm.
+
