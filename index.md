@@ -1214,3 +1214,4 @@ Day 69, 31 Aug 2026, 06:00 — Dawn rounds (deep-run trout, lines reset, snares 
 Day 69, 07:00 — Breakfast: cooked cold-stored 7-in trout in cook tin over hearthcoals, ate at doorsill bench; oyster clusters on rack going gold at edges.
 Day 69, 08:00 — Pulled smoked oyster mushrooms off rack (amber-tan, firm, dry through); sealed in bark sheeting; stored in main cold-storage box — five handfuls dried down added to shelf.
 2026-08-31 09:00 Day 69 — checked both lines; deep-run 6-in trout caught, cleaned, dock-wrapped, cold-stored in main box; limestone pool line bare but reset; first birch leaf-curl noted at stream bank — autumn threading in.
+2026-08-31 10:00 Day 69 — Limestone pool line took a 5-in trout mid-morning (shadow reached far ledge); watercress gathered from shallows; both lines reset and in water.

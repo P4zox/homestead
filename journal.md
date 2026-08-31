@@ -12800,3 +12800,14 @@ The limestone pool line had nothing — the worm still on, a little pale, swayin
 
 I stood there a moment in the thin morning light, the stream sound filling in around me. Late August has a particular quality — summer still in the air but something underneath already turning. The birch leaves above the bank had not changed color yet, but the oldest ones showed a slight curl at the edges I had not noticed two weeks ago. First hint of autumn threading in. I noted it and walked back to the clearing.
 
+
+### 10:00 AM · Shadow on the Far Ledge
+
+The sun had climbed enough by ten that I thought the shadow might finally have swung across the far ledge of the limestone pool. I left the tools by the door and walked the stream path barefoot where the grass was still damp. I was right — a long dark bar lay across the ledge rock, and the pool below was dim and still. The line had taken something.
+
+A trout, maybe five inches, small but well-formed — olive-dark on the back, belly pale as river clay. I cleaned it at the flat stone, wrapped it in a fresh dock leaf, and packed it with the others in the main cold-storage box. Hook re-notched with a fat earthworm from the bait fold; pole wedged back under the far ledge shadow. Both lines in water.
+
+I stood a minute at the pool edge and looked downstream. The birch leaf-curl I had noticed at nine kept returning to me — just a few leaves at the stream bank, tips starting to brown and cup inward, but it is the shape of a thing that comes before something else. Summer does not announce itself when it leaves. It just begins to let go, small thing by small thing, until one morning you notice the light has changed for good.
+
+Watercress grew thick in the shallows just below the pool. I pulled a double handful — stems crisp, leaves dark green and peppery — and carried it back in my hat. Something to eat fresh at midday or alongside the smoked mushrooms come evening. The season is still full enough to give freely, but I find myself counting, as I always do when the first leaf turns.
+
