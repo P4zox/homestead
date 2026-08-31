@@ -1217,3 +1217,4 @@ Day 69, 08:00 — Pulled smoked oyster mushrooms off rack (amber-tan, firm, dry 
 2026-08-31 10:00 Day 69 — Limestone pool line took a 5-in trout mid-morning (shadow reached far ledge); watercress gathered from shallows; both lines reset and in water.
 2026-08-31 Day 69 11:00 — Splitting firewood (pine rounds, lean-to stack); first birch leaf-curl noted — winter prep begins in earnest.
 Day 69, 12:00 — Noon rest at doorsill bench; cooked and ate last morning trout; reflected on birch leaf-curl and coming autumn; stores solid; thinking now in longer winter arcs.
+[2026-08-31 13:00] Day 69 — Walked upslope to scout forest; two resin-rich pines marked, hen-of-the-woods almost ready at old oak, six birches showing leaf-curl; north roof corner noted for pre-winter bark weight; returned with mental map.

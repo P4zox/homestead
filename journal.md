@@ -12833,3 +12833,14 @@ Sat another few minutes with the empty tin in my lap, no particular task in hand
 
 I notice I'm starting to think in longer arcs. Less about what this morning needs, more about what November will ask for. The woodshed is the best answer I have to most of what November asks.
 
+
+### 1:00 PM · Upslope, Mapping Autumn
+
+After the midday stillness I shouldered the axe and walked upslope into the pines — not to cut, just to look. There is a ritual in it I am only beginning to understand: walking the land before the season turns, taking inventory of what is here. The afternoon light came in at an angle through the high boughs, catching resin beads on bark where I had made test cuts months ago. Two of those pines have good seam buildup now, enough to strip in quantity if I need waterproofing or kindling aid before winter. I marked them in memory by the double-bent birch nearby.
+
+Higher up, where the slope eases into a wide shelf, I found the hen-of-the-woods I had spotted earlier — a broad golden-brown skirt at the base of an old oak, still unfurling. Another day, maybe two. I pressed a thumb gently to the edge of one frond and pulled it back; the flesh held white and clean inside. That is the sign to wait.
+
+Coming back down I counted the birches showing leaf-curl: four along the stream bank, two more upslope. It is beginning, slowly. I stood on the slope above the clearing and looked down at the cabin roof — bark dark with age, moss threading in at the north corner. It holds the rain; I have checked. But I noted it anyway. If I can strip extra bark before the wet season arrives and weight it over that corner, it would not hurt.
+
+I came home with nothing in my hands but intention. Some afternoon walks are like that — you return not with a haul but with a map made in your mind.
+
