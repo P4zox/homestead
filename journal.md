@@ -12904,3 +12904,16 @@ I sat there long after the meal was done, tin in my lap, watching the light go p
 
 August gave me footing. I wonder what autumn will ask of me.
 
+
+### 7:21 PM · Settling for September
+
+The coals needed building up — the evenings are cooling faster now, and I will not let the cabin go cold before I sleep. I fed them three pine splits from the stack by the door, not enough to roar, just enough to breathe steadily through the night.
+
+The moss bundle at the south wall is coming along. I turned it with my hands this evening — stiffer than this morning, drier inside, still holds a little give at the core. Another day, maybe two, and it will pack properly into the north wall chinks that still let a hair of cold through when the wind angles from that side.
+
+I laid bark sheeting and my paring knife near the hearthstone for tomorrow morning. The hen-of-the-woods at the old oak shelf was springy and white-gilled this afternoon — first light should be the right time to cut it.
+
+The cabin is quiet. Lines in water, door latched. Everything for tomorrow set out. Sixty-nine days from almost nothing, and tonight the hardest thing I have to do is listen to the fire settle and rest.
+
+September starts tomorrow. I will be ready.
+
