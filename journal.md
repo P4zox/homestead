@@ -12917,3 +12917,14 @@ The cabin is quiet. Lines in water, door latched. Everything for tomorrow set ou
 
 September starts tomorrow. I will be ready.
 
+
+### 8:00 PM · August's Last Dark
+
+Stepped outside at eight to let the evening in for a moment. The air had that particular quality of late August — warm enough to be pleasant, but with something colder underneath, a message from the weeks ahead. Stars were out in force across the clearing. I stood at the edge of the treeline long enough for my eyes to adjust.
+
+From out here the cabin looked like something real. A dark shape against the pines with one small amber glow at the smoke-hole — the hearthcoals doing their quiet work. I have made a thing that gives back warmth. That is not nothing.
+
+The stream sound carried up through the night air, steady as it always is. Both lines down there, doing their work in the dark. Tomorrow the hen-of-the-woods. September in the morning. I am more ready for autumn than I have ever been for anything.
+
+Came back in and latched the door. Stood by the hearthstone a minute with my hands near the coals before lying down. August done. The land and I, still standing.
+

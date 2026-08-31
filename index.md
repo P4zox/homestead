@@ -1224,3 +1224,4 @@ Day 69, 12:00 — Noon rest at doorsill bench; cooked and ate last morning trout
 Day 69, 17:00 — Checked both lines at stream in late amber light; deep-run yielded 5-in trout (cold-stored); limestone pool bare but left in; hen-of-the-woods at oak shelf almost ready — one more day.
 Day 69, 18:18 — Cooked last cold-stored trout with watercress at the hearthstone; ate at doorsill bench as the sun set on August's final evening; both lines left in water overnight; cold-storage now three trout + smoked oyster mushrooms + watercress.
 2026-08-31 19:21 Day 69 — Settling for September: built up hearthcoals for night, checked drying moss (near-ready for chinking), laid out tools for morning hen-of-the-woods harvest.
+2026-08-31 20:00 Day 69 — Stepped outside into the night air at clearing's edge; stars out across the full sky; autumn threading under the warmth; came back in and latched the door — August done, September in the morning.
