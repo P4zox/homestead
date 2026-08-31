@@ -1212,3 +1212,4 @@ Day 68, 22:18 — Woke briefly in the deep dark; heard stream and latch holding;
 2026-08-30 23:18 — Day 68 — Woke in deep dark at nearly midnight; stream audible, latch holding, everything in order; back to sleep.
 Day 69, 31 Aug 2026, 06:00 — Dawn rounds (deep-run trout, lines reset, snares checked, garden watered); oyster pine at ~70 paces: two clusters harvested and on smoke rack; last morning of August.
 Day 69, 07:00 — Breakfast: cooked cold-stored 7-in trout in cook tin over hearthcoals, ate at doorsill bench; oyster clusters on rack going gold at edges.
+Day 69, 08:00 — Pulled smoked oyster mushrooms off rack (amber-tan, firm, dry through); sealed in bark sheeting; stored in main cold-storage box — five handfuls dried down added to shelf.

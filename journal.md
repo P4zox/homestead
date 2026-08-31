@@ -12778,3 +12778,14 @@ I ate at the doorsill bench with the cook tin in my lap. The mist was still sett
 
 I scraped the cook tin clean with a flat stick afterward and set it by the hearthstone. The coals were still good. Both lines still in the water.
 
+
+### 8:00 AM · Smoke Rack, Pulled
+
+The mushrooms were ready at eight. Two hours on low green birch smolder — I could smell it before I reached the rack: that deep, sweet-smoke smell that says done, not almost. Each cluster had gone amber-tan at the edges, the caps curled and firmed, gills dry all the way through. I pulled them by hand, turned each piece over — no soft spots, no pale wet patches — and set them on a dock leaf to cool.
+
+While they rested I nudged the smolder apart with a stick, let the coals breathe down. No need to keep it going. The work was done.
+
+Once they cooled enough to handle I sealed them in bark sheeting with a twist of dried grass — two bundles, roughly five good handfuls dried down. Carried them to the main box and set them beside the sealed packages on the shelf. The box smelled of smoke and earth when I lifted the lid. Good smell. Autumn smell.
+
+Both lines still in the water. August ends today. I noticed the morning light sitting lower than it did a month ago — longer shadows across the eastern garden rows, the pines reaching further over the garlic strip. It will keep doing that, all the way to the short days. I find I do not mind it. The shelf is fuller than it was at this point last year, and I know how to read what the land still has to give before the cold comes.
+
