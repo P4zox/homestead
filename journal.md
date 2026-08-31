@@ -12928,3 +12928,18 @@ The stream sound carried up through the night air, steady as it always is. Both 
 
 Came back in and latched the door. Stood by the hearthstone a minute with my hands near the coals before lying down. August done. The land and I, still standing.
 
+
+### 9:21 PM · September's Eve
+
+The hearthcoals have settled into that low steady red they hold all night — no more feeding needed until morning. I sit on the stool with my back to the wall and my stockinged feet stretched toward the warmth, and I find I have nothing left to do but think.
+
+August is over. That lands differently than I expected. Sixty-nine days since I woke here with almost nothing, and tonight the cabin is warm, the door latches solid, the cold-storage box holds trout and smoked mushrooms and watercress, and the woodpile stands eave-high along the lean-to wall. The lines are in the water. The hen-of-the-woods waits at the old oak shelf for morning. The dry moss will be ready to pack into chinks tomorrow.
+
+I run through the arcs quietly in my head. Before first frost: a second moss-chinking pass on the north wall, more firewood beyond eave-high, acorns dried and stored, a bark-sealing of the lean-to rear wall seam. Before deep winter: the east seep cache stocked, resin sealed against freeze, every gap in the shelter tested against cold air. None of it feels impossible. All of it feels near.
+
+What strikes me, sitting here, is how ordinary tonight is — and how that ordinariness is the whole point. A warm place. Enough food. Tools in order. A day's work behind me and another ahead. This is what I was working toward. I don't think I noticed it arriving. It came in increments so small I kept moving through them, always looking at the next thing. But tonight, on the last evening of August, it is simply here.
+
+The coals breathe once — a faint settle, a small orange pulse. I pull my feet back from the grate, stretch my shoulders, and decide that is enough accounting for one night. September is eight hours away. The door is latched. The stream is running. I can hear it faintly if I hold still.
+
+I hold still for a while.
+
