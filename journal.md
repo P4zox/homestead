@@ -12822,3 +12822,14 @@ Afterward I rested with my back against the fresh-split pile and let the sun be 
 
 The leaf on the stream bank is only a reminder to keep working steadily. Which I was already going to do.
 
+
+### 12:00 PM · Noon Rest, Line Still
+
+The two lines are in and nothing to do for them until the afternoon shadow creeps back under the far ledge. I took the smaller of this morning's trout from the cold box, cooked it quick in the tin over a few hearthcoals — fat crisped, skin gone amber. Ate sitting on the doorsill bench in full noon sun, the stream audible down the slope, the clearing gone still and bright.
+
+Three pine rounds is a modest morning of splitting, but the lean-to corner is visibly fuller than it was. I keep coming back to that birch leaf-curl — one leaf on the stream bank, edges rolling in, bleached almost translucent at the tip. August always makes you believe the warmth is permanent. The leaf says otherwise.
+
+Sat another few minutes with the empty tin in my lap, no particular task in hand. That felt unfamiliar at first, then right. The hen-of-the-woods at the marked stump wants another day or two. The acorns are a week out, maybe less now. Stores are solid: smoked mushrooms, three dock-wrapped trout in the cold box, watercress still damp in its fold.
+
+I notice I'm starting to think in longer arcs. Less about what this morning needs, more about what November will ask for. The woodshed is the best answer I have to most of what November asks.
+
