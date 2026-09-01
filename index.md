@@ -1236,3 +1236,4 @@ Day 70, 2026-09-01, 06:00 — First of September: revived coals; 6-in trout on d
 Day 70, 2026-09-01, 11:00 — Walked south to oak ridge; acorn clusters heavy and green, caps tight, ~1 week from drop; three best trees marked; pool line still bare.
 Day 70, 12:00 — Tested grey clay seam downstream; good workability; palm-sized sample collected, dock-wrapped at hearthside bench; test fire planned Day 71.
 2026-09-01 Day 70 13:00 — processed birch bark for cordage stock on doorsill bench; September light different from August
+2026-09-01 (Day 70, 14:00) — Limestone pool line check: sixth trout cold-stored; sat at poolside in September afternoon light.

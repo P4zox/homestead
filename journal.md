@@ -13058,3 +13058,12 @@ By the time the first section was done I had enough for a good bundle — twelve
 
 September sits differently in the light. Not less bright — if anything more direct — but something in the quality has changed from August. The heat doesn't press the way it did. I sat a moment with the knife across my lap and just looked at the clearing: woodpile solid under the lean-to eave, smoke rack cleared and waiting, lines in the water. Garden doing its quiet work. It came over me, briefly, that I have done a lot here. Not pride exactly — more like relief. The land starts to look like a life.
 
+
+### 2:00 PM · Poolside at Two
+
+Around two in the afternoon I walked down to the limestone pool to check the line I had left since morning. The September light was different from August's — still warm on my shoulders, but the angle had changed, coming in sidelong now, hitting the alder leaves in a way that showed their green thinning toward yellow at the edges. I noticed that without meaning to.
+
+The line was taut when I lifted it. Five inches of brown trout, deeper-bodied than this pool usually gives, hook neat in the corner of its jaw. I cleaned it at the flat stone, rinsed my hands in the cool run, dock-wrapped the fish and carried it back to the box. Six trout in cold-storage now.
+
+I reset the line with a fresh earthworm and sat on the bank a while, back against the big alder, watching the pool. The current was clear all the way to the pale stones at the bottom. There is a particular quiet in the early afternoon that I have come to rely on — not rest exactly, more like the day pausing to take stock. I was not trying to do anything. Just there, watching the light shift on water, listening to the stream work its way downstream without me.
+
