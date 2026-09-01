@@ -1239,3 +1239,4 @@ Day 70, 12:00 — Tested grey clay seam downstream; good workability; palm-sized
 2026-09-01 (Day 70, 14:00) — Limestone pool line check: sixth trout cold-stored; sat at poolside in September afternoon light.
 Day 70, 15:00 — south slope foraging: hawthorn haws (2 envelopes) and rosehips (2 envelopes) gathered; limestone pool line checked, bare hook, reset with fresh earthworm.
 2026-09-01 Day 70 16:00 — Supper Before Dark: limestone pool line bare (worm reset), trout pulled from cold storage and cooked on hearthstones with wilted watercress; supper eaten on doorsill bench as September afternoon light went gold.
+2026-09-01 Day 70 17:00 — Evening Lines, Night Set: limestone pool line reset with fresh worm; deep-run left as overnight set; hearthcoals banked with two pine logs; doorsill bench at dusk.
