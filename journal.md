@@ -13148,3 +13148,17 @@ September. Acorns in a week. Clay to fire tomorrow. The log inoculated and waiti
 
 Sleep comes easy when the work has been honest.
 
+
+---
+
+# Day 71 — Wednesday, 2 September 2026
+*early autumn · cold and clear*
+
+### 6:00 AM · Cold Hearth, Good Line
+
+Woke before the stars had fully left — the smoke-hole showed grey, nothing more. The coals were gone. Not banked, not warm: cold ash, cold stone. I had expected warmth still and found nothing, so I started from scratch: char cloth from the tin, pine shavings from the corner pile, careful breaths. The first catch of flame was small. I nursed it until it held.
+
+Both lines first, while the fire climbed. The deep-run line pulled back with weight — a nine-inch brown trout, thick across the back, the kind that holds all night in fast water. Cleaned at the flat stone, dock-wrapped, to cold storage. Line reset with a fresh earthworm below the undercut bank. The limestone pool line was bare, worm taken clean; new worm under the ledge stone, left in the still water.
+
+Back to the cabin, fire going properly now. The grey clay ball sat on the bench exactly where I had left it — I had almost forgotten how much I was looking forward to this. Today I fire a test pinch in the embers. If it holds, I will start building a vessel. September is not August: the morning air has an edge now, a real one, the kind that reminds you winter is thinking about you from somewhere far but not so far.
+
