@@ -13027,3 +13027,14 @@ Checked the limestone pool line on the way back. Empty hook, worm still pale and
 
 A heavy pantry for the first morning of September. That is a good way to begin.
 
+
+### 11:00 AM · Acorn Ridge Walk
+
+Made my way south after the mid-morning work — up through the open ground to where the oak ridge catches more sun than the rest of the slope. The acorns are still full-green and firm, most of them a good week from ready, but the trees are heavy with them. I walked between four or five of the largest, turned a few fallen caps underfoot, checked the clusters: good color, caps tight, no early shriveling, no weevil sign on the shells. A week and they will start letting go on their own.
+
+I marked the three most productive trees in memory — two on the eastern end of the ridge, one pulled back against a mossy sandstone shelf. Come back with the birch-bark trays when the moment is right.
+
+Stood awhile on the ridge looking down at the clearing. September light is different. It comes at a flatter angle, hits things sideways — the cabin roof, the woodpile — and goes pale gold rather than white. The birches at the forest edge are still fully green, but a few leaf tips have already gone early yellow. The season is reading its own handwriting.
+
+Back at the stream, checked the limestone pool line: bare hook, worm intact, left it in.
+
