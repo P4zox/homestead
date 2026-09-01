@@ -1232,3 +1232,4 @@ Day 70, 2026-09-01, 06:00 — First of September: revived coals; 6-in trout on d
 2026-09-01 07:00 Day 70 — Buried log check: early mycelium threads confirmed at oak section in shaded east draw; recheck ~Day 84.
 2026-09-01 08:00 — Day 70: Limestone pool line yielded seven-inch brown trout (five in cold storage); hen-of-the-woods on smoke rack, turned once, edges darkening, four hours remaining.
 2026-09-01 09:00 — Day 70 — gathered fresh watercress from deep run; spotted grey clay seam in stream bank (potential vessel material, Day 71 prospect)
+2026-09-01 10:00 — Day 70 — Pulled hen-of-the-woods from smoke rack; bark-sealed and cold-stored in main box; limestone pool line bare, left in.

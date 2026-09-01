@@ -13016,3 +13016,14 @@ On the way back I noticed where the bank had sloughed after the last rains — a
 
 A good quiet morning. Smoke threading upward, line still in the pool, the clearing easy and unhurried.
 
+
+### 10:00 AM · Mushroom Off the Rack
+
+The hen-of-the-woods came off the smoke rack just past ten, nearly four and a half hours over the green birch smolder. I pressed a thumb to the center lobe and it held its shape — leather-amber outside, gills pale as bone on the underside, the whole cap weighing almost nothing compared to what I carried in from the oak shelf at dawn. That is how it is supposed to feel.
+
+I laid out two lengths of bark, folded the mushroom in, cinched the bundle tight with a bark cord tie. Into the main cold-box it went, alongside the five trout. The rack stands empty now, crossbars clean. I splashed a cook-tin of water across the hearth pad and pushed the char back from the edges — the pad rang clear underfoot, no cracks.
+
+Checked the limestone pool line on the way back. Empty hook, worm still pale and patient. Left it in.
+
+A heavy pantry for the first morning of September. That is a good way to begin.
+
