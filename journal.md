@@ -13093,3 +13093,12 @@ I pulled the hazel nut envelope from the supply shelf. A week of gathering acros
 
 It is a small thing. But cracking hazelnuts by firelight with a warm cabin around me and five trout in the cold-storage box and both lines out in the water — that felt like something close to ease. September started this morning. Winter is still weeks off. Tonight I have enough.
 
+
+### 7:00 PM · Line and Fire
+
+Stepped outside once into full September dark — stars thick above the pines, the air suddenly cool after the hearthside warmth. The stream sounded loud in the stillness. Went to the limestone pool: line taut and still, worm seated. Left it. That pool holds a fish or two in the dark hours; if it takes, I will find it come morning alongside whatever the deep-run yields.
+
+Came back in quickly and latched the door. Sat on the packed-earth floor and twisted a length of bark cord by firelight — nothing particular needed, but hands want something to do when the mind is turning over a full day. First of September. Hen-of-the-woods cold-stored, five trout, hazelnuts cracked and sweet, grey clay resting at the hearthside bench, both lines in water, birch bark bundle on the supply shelf. Acorns in a week. Winter still distant but no longer unthinkable — the season is turning toward it now, one quiet degree at a time.
+
+The fire settled into coals. I banked the ash over them, checked the door bar, and lay down in the sleeping bag. The clearing will take care of itself tonight.
+
