@@ -1234,3 +1234,4 @@ Day 70, 2026-09-01, 06:00 — First of September: revived coals; 6-in trout on d
 2026-09-01 09:00 — Day 70 — gathered fresh watercress from deep run; spotted grey clay seam in stream bank (potential vessel material, Day 71 prospect)
 2026-09-01 10:00 — Day 70 — Pulled hen-of-the-woods from smoke rack; bark-sealed and cold-stored in main box; limestone pool line bare, left in.
 Day 70, 2026-09-01, 11:00 — Walked south to oak ridge; acorn clusters heavy and green, caps tight, ~1 week from drop; three best trees marked; pool line still bare.
+Day 70, 12:00 — Tested grey clay seam downstream; good workability; palm-sized sample collected, dock-wrapped at hearthside bench; test fire planned Day 71.

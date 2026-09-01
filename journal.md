@@ -13038,3 +13038,14 @@ Stood awhile on the ridge looking down at the clearing. September light is diffe
 
 Back at the stream, checked the limestone pool line: bare hook, worm intact, left it in.
 
+
+### 12:00 PM · Grey Clay, First Test
+
+The alder hangs low over that stretch of bank, and you have to duck to reach the seam — grey-blue clay pressed against darker earth where the stream has cut, about a hand-width thick and solid. I went down around noon, just after the light peaked over the ridge.
+
+I dug in with a stick, then scooped a double handful and carried it to the water's edge. Wet it, worked it between my palms. It smoothed without crumbling, took a thumb-press clean and held the impression. Pinched off a coil, wrapped it back on itself — no cracking at the curve. Good clay.
+
+I collected a palm-sized ball, wrapped it in dock leaves, brought it back to the hearthside bench to rest. The cook tin is the only vessel I have left from the beginning, and having two would matter when I need to process food and boil water at the same time. A second vessel, fired here over the open hearth, feels possible now — and the material is thirty paces downstream.
+
+I will let the sample rest overnight and fire a test pinch tomorrow to check shrinkage and hardness. If it holds, I start the vessel itself.
+
