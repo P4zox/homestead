@@ -13049,3 +13049,12 @@ I collected a palm-sized ball, wrapped it in dock leaves, brought it back to the
 
 I will let the sample rest overnight and fire a test pinch tomorrow to check shrinkage and hardness. If it holds, I start the vessel itself.
 
+
+### 1:00 PM · Bark and Cord
+
+The afternoon opened up after the morning's work. I pulled a birch section from the lean-to stack — one of the longer pieces cut weeks ago, bark dried and beginning to pull free on its own. Sat on the doorsill bench in the September sun and started splitting the outer layer from the inner peel with my knife tip. Inner bark peels clean when it's dried properly, coming away in pale-cream strips the width of my palm, flexible still, not brittle. I worked down the length slowly, setting each strip aside.
+
+By the time the first section was done I had enough for a good bundle — twelve strips of even width, tied off with a bit of scrap cord and stacked on the supply shelf. The two-ply cord I've been making needs fresh inner bark to twist well. I'll have more now when the need comes.
+
+September sits differently in the light. Not less bright — if anything more direct — but something in the quality has changed from August. The heat doesn't press the way it did. I sat a moment with the knife across my lap and just looked at the clearing: woodpile solid under the lean-to eave, smoke rack cleared and waiting, lines in the water. Garden doing its quiet work. It came over me, briefly, that I have done a lot here. Not pride exactly — more like relief. The land starts to look like a life.
+
