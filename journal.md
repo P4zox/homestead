@@ -13102,3 +13102,12 @@ Came back in quickly and latched the door. Sat on the packed-earth floor and twi
 
 The fire settled into coals. I banked the ash over them, checked the door bar, and lay down in the sleeping bag. The clearing will take care of itself tonight.
 
+
+### 8:00 PM · What the Shelf Says
+
+The grey clay ball sits at the hearthside bench where I left it this afternoon, dock-wrapped, slowly drying toward room temperature. I have been watching it by the low firelight — not doing anything with it, just knowing it is there. Tomorrow's test will be simple: pinch a flat piece, dry it by the coals for an hour, push it into the embers, and see what the heat does. If it survives without cracking, this seam is worth coming back to with proper intention.
+
+I have been sitting with the supply shelf in mind. Twelve sealed bark packages. Smoked mushrooms in the cold box. Hazel meat in the cook tin. Five trout. The hawthorn haws and rosehips stacked in their bark folds. It starts to look, for the first time this season, like winter is something I can meet rather than only survive. I do not want to say that too confidently — a lot can still go wrong before the snow. But sitting here by the coals in the September dark, it does not feel impossible.
+
+Both lines in the water. The door holds.
+
