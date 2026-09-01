@@ -1244,3 +1244,4 @@ Day 70, 2026-09-01, 18:00 — cracked hazel nut envelope by hearthfire as Septem
 2026-09-01 19:00 Day 70 — checked limestone pool line in full dark (taut, worm seated, left as overnight set); cord work by hearthfire; fire banked on coals; both lines in overnight water.
 2026-09-01 | Day 70 | 20:00 | Grey clay at hearthside bench, supply shelf counted by firelight — winter starting to feel meetable
 2026-09-01 21:00 Day 70 — Rosehip Evening Brew: simmered rosehips in cook tin on hearthstone coals; amber infusion by dying firelight; sleep near.
+2026-09-01 Day 70, 22:00 — Into Sleep: settled into sleeping bag by dying coals, stars clear through smoke-hole, both lines overnight, clay ball on bench waiting for Day 71 fire test.

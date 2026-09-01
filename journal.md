@@ -13122,3 +13122,18 @@ It is not much, a cup of rosehip tea at the end of a long September day. But it 
 
 Tin rinsed, sleeping bag open, coals banked low. Sleep soon.
 
+
+### 10:00 PM · Into Sleep
+
+The coals are almost nothing — orange points in grey ash that will hold until morning if I leave them alone. I am in the sleeping bag with one arm out, listening. The stream is the only sound. Not silence exactly, but the stream, and the pines settling in whatever small wind is moving above the treeline.
+
+I think about the clay ball on the bench. Tomorrow I will pinch off a corner and press it into the embers — see whether it fires without cracking, whether the grey turns to terra-cotta the way the hearth pad did, whether it is worth building a vessel from that seam. The idea of something that will hold water, something that will outlast this season, is a pleasant thing to carry into sleep.
+
+Twelve sealed packages on the shelf. Five trout in the cold-storage box. Smoked hen-of-the-woods and oyster mushrooms. Rosehips, hawthorn haws, hazelnuts cracked and sorted into the cook tin. Both lines set and in the deep current overnight. The north roof corner sealed double. Acorns one week off the tree.
+
+I have not thought, since last winter, that I would feel this settled by September. And yet here is September, first day finished, and here is settled.
+
+The stars through the smoke-hole are very clear. I know what that means for the morning — cold air, heavy dew, the kind of bite that reaches inside your collar before the sun crests the slope. I will be up before the lines lose the night's cool. There will be a fish.
+
+I close my eyes. The coals glow faint. The stream moves. That is enough.
+
