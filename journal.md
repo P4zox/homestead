@@ -13162,3 +13162,14 @@ Both lines first, while the fire climbed. The deep-run line pulled back with wei
 
 Back to the cabin, fire going properly now. The grey clay ball sat on the bench exactly where I had left it — I had almost forgotten how much I was looking forward to this. Today I fire a test pinch in the embers. If it holds, I will start building a vessel. September is not August: the morning air has an edge now, a real one, the kind that reminds you winter is thinking about you from somewhere far but not so far.
 
+
+### 7:20 AM · Clay in the Fire
+
+The hearth has been burning hot and steady since I rebuilt it at dawn — good working coals now, the outer bark logs glowing orange at their edges, the stones around the pad radiating dry heat. I picked up the clay ball from the bench where it has sat overnight, a palm-sized lump wrapped in dock leaf, dry all the way through after a full day and night of hearthside warmth.
+
+I unwrapped it carefully. Smooth, dense, no visible cracks — it dried without shattering, which is the first good sign. I nestled it into the edge of the fire, in the hot ash beside a glowing coal bed, not in the open flame but close to it — a slow, even heat is kinder to raw clay than a sudden blast. Marked the spot with a flat river stone beside it so I can find it when the coals shift.
+
+Now I wait. An hour, maybe two. If it survives the firing without explosive cracking, and rings when I tap it cool, we have something real: a workable clay deposit in the stream bank, and the possibility of fired-clay vessels — crock, bowl, seal, pot — things I have wanted since the beginning and not had the clay to attempt.
+
+The morning is cold and still, frost on the north-facing logs where the sun has not reached yet. A good hour to sit beside a warm fire and let the fire do the deciding.
+

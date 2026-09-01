@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:00 — Fire rebuilt from cold ash; deep-run line yielded nine-inch brown trout (cleaned at flat stone, dock-wrapped, cold-stored — six trout total in main box); deep-run line reset with fresh earthworm below undercut bank; limestone pool line bare (worm taken), reset with fresh earthworm under ledge stone; clay ball on hearthside bench waiting for this morning's fire test.
+07:20 — Clay ball unwrapped and placed in hot ash edge of hearthfire for firing test; marked with flat river stone; monitoring for cracking; result expected ~09:00.
