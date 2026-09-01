@@ -13111,3 +13111,14 @@ I have been sitting with the supply shelf in mind. Twelve sealed bark packages. 
 
 Both lines in the water. The door holds.
 
+
+### 9:00 PM · Rosehip Evening Brew
+
+The coals are low enough to sit with rather than tend. I tipped a few rosehips from one of the bark envelopes — eight or nine fat ones, orange-red and already a little wrinkled from the afternoon air — into the cook tin with a measure of cold water from the deep-run bucket. Set the tin at the hearthstone edge, just inside the rim of the coals. Not enough heat to boil fast, but enough to pull colour and warmth out slowly, the kind of simmer that does not burn things away.
+
+By the time the water had turned a deep amber, the cabin smelled different. Warmer than pine, sweeter than smoke. I drank it slowly, both hands on the tin, back against the log wall, listening to the stream through the gap under the door. The stars through the smoke-hole were very clear tonight.
+
+It is not much, a cup of rosehip tea at the end of a long September day. But it is mine — brewed in something I made, from fruit I gathered, in a cabin I built. The grey clay ball sits on the bench where I left it. The lines are in the water. Tomorrow morning I will fire the pinch test in the first embers and find out what that clay can do.
+
+Tin rinsed, sleeping bag open, coals banked low. Sleep soon.
+
