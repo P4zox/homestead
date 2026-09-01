@@ -13071,3 +13071,12 @@ I reset the line with a fresh earthworm and sat on the bank a while, back agains
 ### 3:00 PM · Haws and Rosehips
 
 The south slope track in afternoon light — I went looking for haws and came back with more than I expected. Two thorn trees near the ridge had heavy clusters, dark red and fat from a dry August. The rose hips on the clearing edge were bright orange, some gone soft at the blossom end. Fingers stained burgundy by the time I had four envelopes worth: two hawthorn, two rosehip, bark-folded and tied. On the way back I checked the limestone pool line — bare hook, worm gone. Reset it with a fresh earthworm from the mossy overhang, dropped it back under the ledge. Nothing caught every hour; the line waiting is enough. Came home through alder shadow and sat the doorsill bench while the sun moved west across the clearing. September on the slope feels different than August — the light is sideways and the air is already thinking about cool.
+
+### 4:18 PM · Supper Before Dark
+
+The limestone pool line had gone slack — worm still on, the fish wiser than that. I unhooked the bait and tucked it back under the ledge stone, coiled the line over my thumb. Tomorrow.
+
+Back at the hearth, I pulled one of the dock-wrapped trout from the main cold-storage box and unwrapped it on the flat stone. The coals were good — orange and steady, no smoke. I laid the fish directly on the hearthstones beside the embers and let it sear. A handful of watercress went into the cook tin with just enough stream water to wilt in the radiant heat.
+
+The smell drifted through the open doorway into the afternoon. I sat on the doorsill bench while it finished, watching September light go long and gold through the alder stand. Clay sample at the bench end, birch strips stacked on the supply shelf, woodpile full under the lean-to eave — everything in its place. I ate facing the clearing, the light warm and slow, first evening cool just starting in the air. The day had given plenty. It was enough to sit with that.
+
