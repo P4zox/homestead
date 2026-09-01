@@ -13005,3 +13005,14 @@ Five trout in the main box now. The limestone pool line is reset with a fresh ea
 
 Birch smoke threading up through still air. The world smells like autumn already — cold stone, damp leaf, something faintly sweet from the pine above. A good morning to be moving slowly and getting things right.
 
+
+### 9:00 AM · Watercress, Clay Prospect
+
+The mushroom looked good at its three-hour mark — outer lobes amber and darkening, edges beginning to curl and dry, gills still ivory but losing their freshness. I turned it once more and fed four green birch chips under the smolder to keep the temperature steady. It will want another hour or two. The fire is patient and so am I.
+
+With the rack tending itself for a while, I followed the deep run downstream to where the bank opens and the current slows. The watercress grows thick there in the shallows, dark green and vivid, standing in cold water that comes off the slope. September light hits differently than August — more oblique, longer shadows even at mid-morning, a quality to it that makes everything look slightly considered. I cut a double handful with the paring knife, taking well above the root so it will come back, and carried it up in a birch-bark tray. Cold-stored two good portions beside the trout.
+
+On the way back I noticed where the bank had sloughed after the last rains — a grey clay seam showing just below the surface, dense and plastic-looking, the kind that holds shape when you press it. I marked the spot in my mind: about thirty paces downstream from the fishing flat, where the big alder leans. I have been thinking about a second small vessel, something to keep cool water near the seep cache instead of hauling the cook tin back and forth. Tomorrow, with the digging stick.
+
+A good quiet morning. Smoke threading upward, line still in the pool, the clearing easy and unhurried.
+
