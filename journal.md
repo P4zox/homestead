@@ -13084,3 +13084,12 @@ The smell drifted through the open doorway into the afternoon. I sat on the door
 ### 5:00 PM · Evening Lines, Night Set
 
 The September sun is angled now, a long gold stripe across the clearing and up into the alder stand. After supper I walked down to the limestone pool — hook bare, worm still seated on the point. I reset it with a fresh earthworm tucked under the ledge stone and left it. Then up to the deep-run to check the second line: sitting taut in the current, hook down under the undercut bank where the water undercuts and eddies slow. That one I left as an overnight set, no disturbance. Back at the cabin I laid two pine logs across the hearthcoals and banked the ash around them — low and slow for the evening, a few hours of warmth radiating. The grey clay sample sits at the hearthside bench, dock-wrapped and patient. Tomorrow the test pinch goes into the fire and I will learn what the clay can do. Tonight there is nothing urgent left. The first September evening is coming on cool and clear, alder leaves at the forest edge going half-gold already. I am sitting on the doorsill bench listening to the stream, the ridge darkening above the tree line.
+
+### 6:00 PM · Hazelnuts by Firelight
+
+The two pine logs I laid on the coals at five have caught properly now. I could see the glow from outside — orange through the door crack, draught pulling steady — so I came inside before the dark settled all the way in. The clearing goes quickly this time of year. Weeks ago the light held until nearly eight; now by half past six there is a real dusk pressing down from the ridge.
+
+I pulled the hazel nut envelope from the supply shelf. A week of gathering across three separate rounds, and this is what it comes to: one palm-sized parcel of crinkled nuts, shells mottled grey-brown, good weight in the hand. I sat on the split-log stool by the hearth and cracked them one by one against the flat hearthstone — a sharp knock, then peel. Most had good meat inside, ivory and faintly sweet. A few were hollow, shells rattling dry. I sorted the sound ones into the cook tin, discarded the duds into the ash.
+
+It is a small thing. But cracking hazelnuts by firelight with a warm cabin around me and five trout in the cold-storage box and both lines out in the water — that felt like something close to ease. September started this morning. Winter is still weeks off. Tonight I have enough.
+
