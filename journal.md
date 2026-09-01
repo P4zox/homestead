@@ -12994,3 +12994,14 @@ I set the log back exactly as it was, pressed the sides tight against the soil, 
 
 September's first full morning feels quieter than August's last. The smoke rack turns slowly in the east breeze. Somewhere up in the pines, a woodpecker is already at its long slow work.
 
+
+### 8:00 AM · Pool Line, Smoke Check
+
+The smoke rack has been going two hours now. I went to it first — the green birch still smoldering well, barely a flame, just a fine white thread of smoke rising through the rack slats. The hen-of-the-woods is already transformed at the edges: outer lobes drying and darkening from pale grey-brown to something richer, the white gills gone ivory. I turned it once with the fork, careful not to split the thicker interior lobe. Four or five hours left at least. I fed a few more chips of green birch under the coals to hold the smolder steady.
+
+Then down to the limestone pool. The line had been in since before dawn, worm still on. I walked the bank in the cool shadow of the ledge — the water there is always a degree colder than the open run, stays clear even after rain. One small ring at the surface where something had moved. When I lifted the line, weight: a brown trout, not large, seven inches, but fat and deep-colored the way ledge fish are. Bled it at the bank, cleaned it on the flat stone, rinsed it in the cold current. Dock-wrapped and cold-stored.
+
+Five trout in the main box now. The limestone pool line is reset with a fresh earthworm, set back under the ledge to fish through the morning.
+
+Birch smoke threading up through still air. The world smells like autumn already — cold stone, damp leaf, something faintly sweet from the pine above. A good morning to be moving slowly and getting things right.
+
