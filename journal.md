@@ -13137,3 +13137,14 @@ The stars through the smoke-hole are very clear. I know what that means for the 
 
 I close my eyes. The coals glow faint. The stream moves. That is enough.
 
+
+### 11:00 PM · Deep Into Sleep
+
+The fire has settled past ash-glow — just a faint warmth left in the hearthpad now, the kind you feel more than see. The clay ball sits patient on the hearthside bench, waiting for tomorrow's first embers. Both lines are in the water: the deep-run set below the undercut bank, the limestone pool line resting under the ledge stone. The stream speaks steadily through the door planks.
+
+I do not need to think tonight. Twelve sealed packages on the shelf. Five trout cold-stored. Rosehip infusion still faint in the air. The smoke-hole holds a small square of stars, still and clear.
+
+September. Acorns in a week. Clay to fire tomorrow. The log inoculated and waiting beneath its flat stone. All of it is fine. All of it will keep until morning.
+
+Sleep comes easy when the work has been honest.
+
