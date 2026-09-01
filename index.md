@@ -1237,3 +1237,4 @@ Day 70, 2026-09-01, 11:00 — Walked south to oak ridge; acorn clusters heavy an
 Day 70, 12:00 — Tested grey clay seam downstream; good workability; palm-sized sample collected, dock-wrapped at hearthside bench; test fire planned Day 71.
 2026-09-01 Day 70 13:00 — processed birch bark for cordage stock on doorsill bench; September light different from August
 2026-09-01 (Day 70, 14:00) — Limestone pool line check: sixth trout cold-stored; sat at poolside in September afternoon light.
+Day 70, 15:00 — south slope foraging: hawthorn haws (2 envelopes) and rosehips (2 envelopes) gathered; limestone pool line checked, bare hook, reset with fresh earthworm.

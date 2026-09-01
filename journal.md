@@ -13067,3 +13067,7 @@ The line was taut when I lifted it. Five inches of brown trout, deeper-bodied th
 
 I reset the line with a fresh earthworm and sat on the bank a while, back against the big alder, watching the pool. The current was clear all the way to the pale stones at the bottom. There is a particular quiet in the early afternoon that I have come to rely on — not rest exactly, more like the day pausing to take stock. I was not trying to do anything. Just there, watching the light shift on water, listening to the stream work its way downstream without me.
 
+
+### 3:00 PM · Haws and Rosehips
+
+The south slope track in afternoon light — I went looking for haws and came back with more than I expected. Two thorn trees near the ridge had heavy clusters, dark red and fat from a dry August. The rose hips on the clearing edge were bright orange, some gone soft at the blossom end. Fingers stained burgundy by the time I had four envelopes worth: two hawthorn, two rosehip, bark-folded and tied. On the way back I checked the limestone pool line — bare hook, worm gone. Reset it with a fresh earthworm from the mossy overhang, dropped it back under the ledge. Nothing caught every hour; the line waiting is enough. Came home through alder shadow and sat the doorsill bench while the sun moved west across the clearing. September on the slope feels different than August — the light is sideways and the air is already thinking about cool.
