@@ -13301,3 +13301,14 @@ I sit with a loose bundle of bark cord and work through the knots by hand, tight
 
 At this hour there is nothing I must do. Tomorrow the pot fires; the acorns will be ready in a few days; the fish lines are in the water doing their quiet work. I am warm and the door is latched. Everything that needed doing today got done.
 
+
+### 9:23 PM · Coals Down, Sleep
+
+The fire is down to coals now, properly banked — three embers nested at the center, covered in a thin crust of ash. No more wood tonight. They will hold until dawn, and tomorrow I will bring them up again for the pot firing.
+
+One final look at the clay pot before settling in. It sits on its smooth river stone, undisturbed, cool to the touch and firm. Walls even, neck true, base flat. I can feel it is ready — not soft anymore, not brittle yet, just waiting. Tomorrow it goes into the fire proper. I have been patient with it.
+
+The wind has stilled. Even the pines are quiet. One star visible through the gap in the bark roof, and the darkness outside the door is complete. The cabin holds its warmth; the log walls and bark roof are doing exactly what they were built for.
+
+These are the best minutes of a long day: everything done, every decision behind me, both lines set in the stream, door latched, bar in keeper. Nothing left but to let the day go. I am lying down now. Tomorrow — the firing. Tonight — this quiet.
+

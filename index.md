@@ -1261,3 +1261,4 @@ Day 71, 17:19 — Clay pot reached leather-hard stage; lines walked at dusk; dee
 2026-09-02 Day 71 18:18 — Cooked and ate cold-store trout on doorsill bench at dusk; clay pot drying quiet by hearthfire; both lines set; stars out, door barred for the night.
 2026-09-02 19:21 Day 71 — rosehip infusion on doorsill bench; door cracked to night stars; owl called once from the pines; clay pot drying quiet; both lines overnight in current; coals banked for dawn.
 2026-09-02 Day 71 20:22 — Evening by hearthfire; clay pot checked and drying steady (firing tomorrow); loose cord bundle tidied by lamplight; wind through pines; all quiet within.
+Day 71, 21:23 — Settled for sleep: coals banked, clay pot cool and firm on its stone, ready for tomorrow morning's first firing; wind stilled, cabin warm and quiet.
