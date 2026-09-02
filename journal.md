@@ -13186,3 +13186,12 @@ Home to the fire by half past eight. The clay ball sits undisturbed at the hot-a
 
 The birch-tops on the slope above are yellowing at their edges now, noticeably more than last week. September settling itself in, leaf by leaf.
 
+
+### 9:18 AM · Clay Fires True
+
+Just before nine I nudged the clay ball from the ash edge with a split stick. It had been sitting in the hot coals for nearly two hours — long enough. The surface had gone pale, a dusty buff-grey, and when I set it on the flat hearthstone and tapped it once with my thumbnail it rang clean. Not loud, but firm — the same sound the hearth pad makes when I knock it. No cracks in the surface, no slumping, no bubbling. It held its shape exactly.
+
+I turned it over in my hands. Harder than sun-dried clay, lighter in color than when it went in, slightly gritty from the ash-dust coating. Grey clay from the stream bank, fired in a wood-ash bed: it works. That stretch of bank downstream of the fishing flat holds more material than I tested — plenty within easy reach.
+
+A bowl is possible now. A crock, a simple lid, something to hold water or store dried goods. I won't rush to build an open-fire kiln today — the firewood and focus belong elsewhere this September morning. But the ball goes on the supply shelf as proof, and the knowledge goes somewhere useful in my chest: this land offers what it takes to make vessels. That matters for winter more than I've let myself think about yet.
+
