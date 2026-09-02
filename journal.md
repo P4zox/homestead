@@ -13275,3 +13275,7 @@ Back at the cabin the hearthfire was down to a low sustained orange. I fed it tw
 
 Dinner will be a dock-wrapped trout from the cold-storage box, opened and cooked over the coals. Simple. The evening has that early-autumn stillness where you do not need anything complicated.
 
+
+### 6:18 PM · Trout by Firelight
+
+I unwrapped the dock-wrapped trout from the cold-store box as the last grey light left the clearing. The fish was still firm, the dock leaf holding a faint river smell. I set it on a flat hearthstone over the coals, skin-side down, and waited until it crisped before turning it once. Ate slow on the doorsill bench while the sky went from pale blue-grey to deep indigo overhead and the first stars found their places. The clay pot sat a careful step back from the fire in the near-dark — it has the look of something becoming. Walls sound, neck true, the slow warmth doing its work. By the time the bone was clean, the clearing had gone fully quiet except for the stream and the low tick of the fire. I fed two more pine sticks to the coals and settled the door bar into its keeper. Both lines are in the water. The pot is drying. The stars are out. A long day, and a good supper to end it.
