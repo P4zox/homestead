@@ -13240,3 +13240,14 @@ The fire wants one more stick to keep the warmth even. I added it and sat a mome
 ### 2:21 PM · South Slope, Slow Light
 
 The clay pot rests on its hearthstone without a crack in it — a satisfying sight to leave behind. Hearthfire down to warm embers; nothing to tend hard. I walked south into the slope, through the high grass first, then up into the oaks. The acorn caps are filling in well, still pale green and holding tight, but close. Another five or six days. I stood under the largest oak for a while and watched a nuthatch work the bark in quick spiraling arcs, indifferent to me entirely. The afternoon light has changed in a way I can feel now — still bright and warm but lower, the shadows longer than they were in July. On the way back I found three late chanterelles at the base of a birch, tucked under leaf duff where the ground keeps its damp. Small but sound. Ate two of them there, trail-warm, and carried the third home wrapped in a dock leaf. The pot when I returned: smooth, no cracks, drying well. Another day of patience, maybe two.
+
+### 3:18 PM · Chanterelle in the Embers
+
+The afternoon has gone quiet. The clay pot sits on its river stone where I set it at eleven — I checked it just now, running a thumb lightly along the curve of one side. It is firm and warm, drying true. I turned it a quarter-turn so the cooler face catches the hearthglow, then fed in a few small sticks to keep the embers honest without raising a full blaze.
+
+The chanterelle from the south slope — still wrapped in dock leaf in the corner of the lean-to — I sliced it in half and laid the two pieces face-down on the flat hearthstone at the fire edge. They hissed softly. After a few minutes the edges browned and curled slightly and gave off that low, woodsy smell that is one of the better things I know. I ate them slowly, sitting on the doorsill bench with the afternoon light angled long across the clearing.
+
+It was a small meal. I was not even particularly hungry. But the chanterelle felt like something worth honouring — last of the season, perhaps, or near to it. I did not want to hold it until evening when it would have softened and lost whatever it was. Eating it now, in the slant sun, in the quiet, was right.
+
+The pot continues to dry. The lines are in the water. The acorns still need their five or six days. The afternoon holds — gentle, tilting toward its end, the air carrying the first faint smell of real autumn.
+
