@@ -1259,3 +1259,4 @@ Day 71, 15:18 — Cooked the last late chanterelle on the hearthstone; clay pot 
 Day 71, 16:18 — Walked both lines in golden afternoon light; deep-run bare and re-baited; limestone pool intact; four trout visible in pool; clay pot turned, drying true; hearthfire low; cool clear evening coming.
 Day 71, 17:19 — Clay pot reached leather-hard stage; lines walked at dusk; deep-run reset, limestone pool intact; pine fed to hearthfire; trout supper from cold-store planned.
 2026-09-02 Day 71 18:18 — Cooked and ate cold-store trout on doorsill bench at dusk; clay pot drying quiet by hearthfire; both lines set; stars out, door barred for the night.
+2026-09-02 19:21 Day 71 — rosehip infusion on doorsill bench; door cracked to night stars; owl called once from the pines; clay pot drying quiet; both lines overnight in current; coals banked for dawn.

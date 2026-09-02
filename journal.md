@@ -13279,3 +13279,16 @@ Dinner will be a dock-wrapped trout from the cold-storage box, opened and cooked
 ### 6:18 PM · Trout by Firelight
 
 I unwrapped the dock-wrapped trout from the cold-store box as the last grey light left the clearing. The fish was still firm, the dock leaf holding a faint river smell. I set it on a flat hearthstone over the coals, skin-side down, and waited until it crisped before turning it once. Ate slow on the doorsill bench while the sky went from pale blue-grey to deep indigo overhead and the first stars found their places. The clay pot sat a careful step back from the fire in the near-dark — it has the look of something becoming. Walls sound, neck true, the slow warmth doing its work. By the time the bone was clean, the clearing had gone fully quiet except for the stream and the low tick of the fire. I fed two more pine sticks to the coals and settled the door bar into its keeper. Both lines are in the water. The pot is drying. The stars are out. A long day, and a good supper to end it.
+
+### 7:21 PM · Stars Through the Door
+
+I cracked the door a hand-width and looked out. The clearing was all shadow and starlight — the Milky Way faint but present, the pines black against it. The air came in cold and clean, the way autumn air does when the day's warmth is finally gone.
+
+I took a rose hip envelope from the supply shelf and steeped the hips in the cook tin with water drawn from the fire-edge of the coals. The infusion deepened to amber while I sat on the doorsill bench, one side warm from the hearth, the other side cool from the open door. That balance is its own kind of comfort.
+
+The clay pot sat quiet and warm just back from the heat, not quite a pot yet — still deciding. Tomorrow morning I'll feed the fire and find out what it has become. For now there was nothing to do but sit with the cup and let the night be what it was. No wind at all. An owl called once from the dark pines, then went silent.
+
+I thought about the fishing lines somewhere in the current below, two thin threads in moving water. I thought about the trout in the cold box. I thought about the first of September and now the second of it and how the season is counting down in small ways — the light a little lower each day, the mornings a little harder to leave.
+
+I drank the infusion slowly. When the cup was empty I latched the door and banked two coals to the center — enough warmth for dawn, when I'll check the lines and learn what the river decided overnight.
+
