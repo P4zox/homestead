@@ -13206,3 +13206,7 @@ Carrying everything back up the bank was awkward — clay is heavy and the trays
 
 Sitting with it now, deciding what to make first. A small closed pot feels right — not large, nothing ambitious. A vessel that can sit in ash coals and hold broth without cracking. If the clay fires true again in bulk, everything follows from there.
 
+
+### 11:18 AM · Clay, First Shaping
+
+I wedged the grey clay on a flat bark mat near the hearthfire — folding and pressing it against itself, working out any air pockets, until it felt uniform and smooth beneath my palms. Then I began pinching: thumbs into the center of a flattened ball, coaxing the walls up slowly, turning the form in my hands. The clay is softer than I expected, almost willing. I am building thick walls — a finger's width — because thick is forgiving and a first pot in ash coals is already a gamble. The shape that is emerging is a rounded bottom, nearly a sphere, with a narrow neck — small enough to nestle in glowing ash and hold a cup of broth. I worked steadily, circling the form, tapping the base flat against the bark mat. It is sitting now on a smooth river stone near the hearthside, out of direct heat but catching the warmth, beginning its slow dry. Weeks before it is fired. But it is a pot now, or the beginning of one, which is different from knowing I could make one.

@@ -1251,3 +1251,4 @@ Day 70, 2026-09-01, 23:00 — Deep into sleep; ash coals spent, both lines overn
 2026-09-02 Day 71 08:18 — Lines Before Nine: deep-run worm taken overnight (re-baited, re-set); small brown from limestone pool returned to water; clay ball in ash undisturbed, no cracking — test at 09:00.
 Day 71 (2026-09-02, Wed) 09:18 — Clay ball tested in hot ash: fired solid, no cracks, rings when tapped; grey stream clay confirmed viable for future vessels.
 2026-09-02 10:18 — Day 71 — Collected clay from stream bank in working quantity (4-5 lbs); began clay vessel project in earnest.
+Day 71, 11:18 — First clay broth pot pinch-formed and set to dry hearthside (rounded base, narrow neck, finger-thick walls).
