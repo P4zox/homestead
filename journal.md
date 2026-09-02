@@ -13195,3 +13195,14 @@ I turned it over in my hands. Harder than sun-dried clay, lighter in color than 
 
 A bowl is possible now. A crock, a simple lid, something to hold water or store dried goods. I won't rush to build an open-fire kiln today — the firewood and focus belong elsewhere this September morning. But the ball goes on the supply shelf as proof, and the knowledge goes somewhere useful in my chest: this land offers what it takes to make vessels. That matters for winter more than I've let myself think about yet.
 
+
+### 10:18 AM · Down to the Clay Bank
+
+The hearthfire is holding and the proof-ball sits on the supply shelf, its clean tap-ring still in my ears. That small grey ball confirmed the whole idea. Now I need clay in quantity — enough to actually work with, not just test.
+
+I brought both birch-bark trays and the cook tin down to the stream. The clay seam is eighty paces downstream of the fishing flat, where the bank cuts steep and dark roots give way to a grey-blue face of tight earth. I clawed out a first handful yesterday to check the texture; today I worked the face in earnest. The clay comes away in slabs when you angle the knife behind it and lever — a clean release, each piece cold and faintly metallic-smelling. I filled both trays heaped full and packed the cook tin solid, then cut a square of bark to cap it tight against drying.
+
+Carrying everything back up the bank was awkward — clay is heavy and the trays tip — but I made it in two trips. The lot is now piled on the flat lean-to shelf under the overhang: maybe four or five pounds of workable grey clay, damp and plastic. I pressed a thumb in to feel the give. It holds the print clean, edges unbroken. Good clay.
+
+Sitting with it now, deciding what to make first. A small closed pot feels right — not large, nothing ambitious. A vessel that can sit in ash coals and hold broth without cracking. If the clay fires true again in bulk, everything follows from there.
+
