@@ -1254,3 +1254,4 @@ Day 71 (2026-09-02, Wed) 09:18 — Clay ball tested in hot ash: fired solid, no 
 Day 71, 11:18 — First clay broth pot pinch-formed and set to dry hearthside (rounded base, narrow neck, finger-thick walls).
 Day 71 · 2026-09-02 · 12:18 PM — Midday fishing lines walked: six-inch brown caught and eaten fresh at noon with watercress; doorsill bench meal in full sun; clay pot slow-drying hearthside; both lines reset.
 Day 71, 13:00 — Processed birch inner-bark bundle into ~8 armspans two-ply cord hearthside; clay pot checked, drying undisturbed.
+Day 71, 14:21 — Walked south slope; oaks ~5-6 days from acorn drop; found three late chanterelles at birch base (ate two, one brought home); clay pot drying steady, no cracks.

@@ -13236,3 +13236,7 @@ By the time I tied off the last length, I had perhaps eight armspans of usable t
 
 The fire wants one more stick to keep the warmth even. I added it and sat a moment longer before the afternoon moves me toward whatever comes next.
 
+
+### 2:21 PM · South Slope, Slow Light
+
+The clay pot rests on its hearthstone without a crack in it — a satisfying sight to leave behind. Hearthfire down to warm embers; nothing to tend hard. I walked south into the slope, through the high grass first, then up into the oaks. The acorn caps are filling in well, still pale green and holding tight, but close. Another five or six days. I stood under the largest oak for a while and watched a nuthatch work the bark in quick spiraling arcs, indifferent to me entirely. The afternoon light has changed in a way I can feel now — still bright and warm but lower, the shadows longer than they were in July. On the way back I found three late chanterelles at the base of a birch, tucked under leaf duff where the ground keeps its damp. Small but sound. Ate two of them there, trail-warm, and carried the third home wrapped in a dock leaf. The pot when I returned: smooth, no cracks, drying well. Another day of patience, maybe two.
