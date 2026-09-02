@@ -13251,3 +13251,16 @@ It was a small meal. I was not even particularly hungry. But the chanterelle fel
 
 The pot continues to dry. The lines are in the water. The acorns still need their five or six days. The afternoon holds — gentle, tilting toward its end, the air carrying the first faint smell of real autumn.
 
+
+### 4:18 PM · Golden Hour Lines
+
+The light has shifted — that sideways, amber kind that makes the pines look bronzed and the stream surface catch fire. I walked out to both lines in it, moving slow without thinking about it, the way you do when the light quietly asks you to.
+
+The deep-run line: bare again. Whatever took the worm left clean, no fuss. Re-baited with a fat earthworm from the alder-moss stones and tucked the hook back under the undercut bank where the current eddies. The limestone pool line was intact — worm untouched, angle still right. Left that one as it was.
+
+On the way back the birches threw long shadows east. I stood in one for a moment watching the pool. The trout hold very still in this kind of light — you can see them as darker shapes against the pale gravel, barely moving, four of them suspended in the current with almost no effort. Remarkable, that stillness.
+
+Back at the cabin the clay pot turned another quarter-turn on its drying stone. Still no cracks. The neck stayed true, the base has not slumped. Another day at least before I risk a fire on it, but it is coming along better than I hoped. Each check I trust it a little more.
+
+Hearthfire tended low. The evening is coming in cool and clear — good for the pot, good for sleeping. Both lines will go overnight as usual. September settling in; that particular quality of light announcing itself each afternoon now, a little lower, a little more amber than yesterday.
+
