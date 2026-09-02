@@ -13321,3 +13321,21 @@ Stirred once in the dark — not quite awake, not quite dreaming. The coals held
 ### 11:20 PM · Night's Full Still
 
 Night holds full dark now. The coals are ash-covered and steady — I can feel their warmth from here without looking. The clay pot sits patient on its river stone, walls cool and firm in the dark, waiting for morning and its first fire. Wind has stilled in the pine crowns. The clearing is quiet the way only deep night is quiet — no owl, no branch-creak, just the breath of the shelter and the slow tick of cooling wood. Tomorrow I fire the pot. I will sleep until then.
+
+---
+
+# Day 72 — Thursday, 3 September 2026
+*early autumn · clear, cold morning*
+
+### 6:18 AM · First Pot Firing
+
+The morning opened cold and clear — frost-breath at the door crack when I lifted the bar and looked out. Three embers still alive under the ash, as I had hoped. I folded dry birch bark over them, added thin pine splits, and let the flame rebuild before doing anything else.
+
+The clay pot sat on its river stone exactly where I had left it: walls even, neck true, surface pale and dry to the touch. After finding the clay seam downstream, test-firing the proof ball, and spending all of yesterday pinching this small vessel into shape and letting it cure through the night — today felt significant. Today the pot either passes or cracks, and there is no middle answer.
+
+I let the shelter warm for ten minutes, then eased the pot to the ash edge of the hearthfire. Not into the coals — not yet. Wet clay holds moisture deeper than the surface shows, and the first phase has to be slow. I turned it a quarter-turn every few minutes and watched the surface shift from grey toward something lighter, more settled. No cracking. No hiss of steam. By half past six the pot was simply warming, quietly, held in the fire's perimeter heat.
+
+I will let it sit there through the morning and feed the fire gradually. By midday I can move it closer to the flame. By afternoon, if all holds, it will be resting in the coals themselves.
+
+Small, brown, and mine.
+
