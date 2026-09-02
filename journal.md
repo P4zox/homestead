@@ -13223,3 +13223,16 @@ The limestone pool line was bare when I swung by — worm taken in the night, no
 
 An hour of midday ease. The pot will need more days. Everything else is holding.
 
+
+### 1:00 PM · Bark into Cord
+
+The clay pot sits on its smooth river stone where I left it after the noon meal, and from where I settle near the hearth I can watch it without staring. The afternoon light has come fully overhead now; the breeze is still, the fire is low, and there is a clean kind of quiet to the clearing.
+
+I pulled the bundle of birch inner-bark strips from the supply shelf — twelve strips, each a forearm length, cream-white on the inner face and still carrying some give in the fibres. The work is simple enough to do without much thought: split each strip lengthwise with the knife, dampen the halves in a tin of cold water, then twist them against each other into two-ply cord. The hands remember the motion almost before the mind does.
+
+I worked through all twelve strips steadily — no rushing, no idling either, just the even rhythm of twist and feed. The clay pot did not crack. Every few minutes I glanced at it; it was always the same: dull grey, sitting patient, pulling its moisture slowly toward the surface the way clay does when it cures right. A good sign.
+
+By the time I tied off the last length, I had perhaps eight armspans of usable two-ply cord added to the stock — not a dramatic gain, but the kind of steady gain that matters when November comes and everything you meant to prepare turns out to need tying. I coiled it and set it back on the shelf beside the existing bundle. The birch strips are gone, but what they were is still here in a different form.
+
+The fire wants one more stick to keep the warmth even. I added it and sat a moment longer before the afternoon moves me toward whatever comes next.
+
