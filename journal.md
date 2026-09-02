@@ -13173,3 +13173,16 @@ Now I wait. An hour, maybe two. If it survives the firing without explosive crac
 
 The morning is cold and still, frost on the north-facing logs where the sun has not reached yet. A good hour to sit beside a warm fire and let the fire do the deciding.
 
+
+### 8:18 AM · Lines Before Nine
+
+The clay ball has been in the hot ash since 07:20, and I will not know anything from it until nine. So I took the better part of this hour and walked the lines.
+
+The deep-run line had gone slack. Something had taken the worm clean off overnight and moved on — not uncommon under that undercut bank with so much current pushing through. I re-baited with a thick earthworm from under the mossy stone near the alder clump and lowered it back to the same spot, feeling the loop-snag catch against the root. Good set. The water was running fast this morning, green-clear, a little higher than yesterday — the mountains must have had rain in the night.
+
+The limestone pool line was still hung properly under the ledge shadow. As I crouched to check the tension, the tip pulled. I let it play a moment, then lifted: a small brown, barely five inches, wild-spotted and indignant. Not worth keeping. I worked the hook free with my thumbnail and held it in the current a moment until it steadied, then it slipped back under the ledge stone and was gone. There is something satisfying in that — a caught thing returned, the pool unchanged, the line back waiting.
+
+Home to the fire by half past eight. The clay ball sits undisturbed at the hot-ash edge — no cracks visible, no slumping. The fire has been pulling well all morning, the hearth walls radiating steady heat. I will let it sit another half hour and then rake it carefully out to test it. If this grey clay holds — no cracking, rings when tapped — I will have a local material worth building on.
+
+The birch-tops on the slope above are yellowing at their edges now, noticeably more than last week. September settling itself in, leaf by leaf.
+

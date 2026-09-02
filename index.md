@@ -1248,3 +1248,4 @@ Day 70, 2026-09-01, 18:00 — cracked hazel nut envelope by hearthfire as Septem
 Day 70, 2026-09-01, 23:00 — Deep into sleep; ash coals spent, both lines overnight, clay ball on bench, stars through smoke-hole, sleep comes easy.
 2026-09-02 Day 71 06:00 — Cold dawn; hearth rebuilt from ash; nine-inch deep-run trout cold-stored; both lines reset; clay ball awaiting fire test.
 2026-09-02 Day 71 07:20 — Clay in the Fire: grey clay ball placed in hearthfire coals for firing test; watching for a workable local clay source.
+2026-09-02 Day 71 08:18 — Lines Before Nine: deep-run worm taken overnight (re-baited, re-set); small brown from limestone pool returned to water; clay ball in ash undisturbed, no cracking — test at 09:00.

@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:00 — Fire rebuilt from cold ash; deep-run line yielded nine-inch brown trout (cleaned at flat stone, dock-wrapped, cold-stored — six trout total in main box); deep-run line reset with fresh earthworm below undercut bank; limestone pool line bare (worm taken), reset with fresh earthworm under ledge stone; clay ball on hearthside bench waiting for this morning's fire test.
 07:20 — Clay ball unwrapped and placed in hot ash edge of hearthfire for firing test; marked with flat river stone; monitoring for cracking; result expected ~09:00.
+08:18 — Walked both fishing lines: deep-run worm taken overnight, re-baited with fat earthworm from alder moss stone, reset under undercut bank; limestone pool line yielded a small five-inch brown, hook worked free, fish released; fire tended on return; clay ball at ash edge undisturbed — no cracking, no slumping — monitoring until 09:00 test.
