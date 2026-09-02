@@ -13292,3 +13292,12 @@ I thought about the fishing lines somewhere in the current below, two thin threa
 
 I drank the infusion slowly. When the cup was empty I latched the door and banked two coals to the center — enough warmth for dawn, when I'll check the lines and learn what the river decided overnight.
 
+
+### 8:22 PM · Firelight, Late Hour
+
+The cabin is all warm dark now. One stick laid across the coals pulls the fire up — not a blaze, just enough light to work by — and the clay pot sits in its chosen corner, pale and still in the red glow. I touch the wall with one finger: cool, even, no sign of cracking at the base where I half-expected it. Tomorrow morning, if the coals run hot enough, I will try the first firing.
+
+I sit with a loose bundle of bark cord and work through the knots by hand, tightening and trimming frayed ends until the bundle is tidy. Small work. My hands know how to do it without much asking from me. Wind has picked up a little through the pines — a low sound that comes and goes but is not cold, just the forest settling. The owl has gone quiet. The Milky Way was brilliant when I looked last, that kind of sky that makes the world feel enormous and well-ordered at once.
+
+At this hour there is nothing I must do. Tomorrow the pot fires; the acorns will be ready in a few days; the fish lines are in the water doing their quiet work. I am warm and the door is latched. Everything that needed doing today got done.
+
