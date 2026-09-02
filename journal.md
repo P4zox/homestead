@@ -13210,3 +13210,16 @@ Sitting with it now, deciding what to make first. A small closed pot feels right
 ### 11:18 AM · Clay, First Shaping
 
 I wedged the grey clay on a flat bark mat near the hearthfire — folding and pressing it against itself, working out any air pockets, until it felt uniform and smooth beneath my palms. Then I began pinching: thumbs into the center of a flattened ball, coaxing the walls up slowly, turning the form in my hands. The clay is softer than I expected, almost willing. I am building thick walls — a finger's width — because thick is forgiving and a first pot in ash coals is already a gamble. The shape that is emerging is a rounded bottom, nearly a sphere, with a narrow neck — small enough to nestle in glowing ash and hold a cup of broth. I worked steadily, circling the form, tapping the base flat against the bark mat. It is sitting now on a smooth river stone near the hearthside, out of direct heat but catching the warmth, beginning its slow dry. Weeks before it is fired. But it is a pot now, or the beginning of one, which is different from knowing I could make one.
+
+### 12:18 PM · Midday Catch, Eaten Fresh
+
+The morning's work was in the pot — or rather, in the pot drying patiently on its smooth stone by the hearth. I've been careful all morning not to stoke the fire too hard, keeping it to a low amber breath so the heat does not crack the clay before it's ready. The pot sits there cooling-slow, and every time I pass I study it for the hairline fault that never seems to come. Good clay.
+
+Noon felt like a reasonable time to walk the lines. The day was bright and the breeze had died down to almost nothing — one of those early-September middays that feel like summer forgot to go. I took the path down through the alder stand to the deep-run first. The line was alive: a six-inch brown trout, hooked clean, bright-sided and fat. I cleaned it at the flat stone and carried it back still damp, bait reset under the undercut bank.
+
+I cooked it over hearthcoals — no tin, just laid across two split sticks set into the clay hearth, skin-side down until it crisped. Handful of watercress from cold-storage alongside. Ate sitting on the doorsill bench in the full sun, feet on the threshold, the clearing stretching out quiet ahead of me. The pot drying inside, the fire holding steady behind me, a good fish in my stomach.
+
+The limestone pool line was bare when I swung by — worm taken in the night, no catch. I re-baited and reset it under the ledge stone. Both lines working again.
+
+An hour of midday ease. The pot will need more days. Everything else is holding.
+
