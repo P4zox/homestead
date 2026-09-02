@@ -13312,3 +13312,8 @@ The wind has stilled. Even the pines are quiet. One star visible through the gap
 
 These are the best minutes of a long day: everything done, every decision behind me, both lines set in the stream, door latched, bar in keeper. Nothing left but to let the day go. I am lying down now. Tomorrow — the firing. Tonight — this quiet.
 
+
+### 10:21 PM · Night, Holding
+
+Stirred once in the dark — not quite awake, not quite dreaming. The coals held their shape beneath the ash, three orange points like slow stars. Outside, wind moved high through the pine crowns, never reaching the clearing. I lay still and listened to it. The clay pot sat on its river stone a few feet away, unseen in the dark, but I knew exactly where it was — cool and patient, walls even, a whole day of drying behind it. Tomorrow the fire. Tonight, nothing. I pulled the sleeping bag closer and let the sound of the pines carry me back under.
+
