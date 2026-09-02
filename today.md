@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Hearthfire rebuilt from three banked embers (birch bark, thin pine splits); clay pot lifted from river stone — walls even, neck true, surface pale and dry; eased to ash edge of hearthfire for first firing; turning quarter-turn every few minutes; no cracking, no steam; fire feeding gradually; full coal-bed firing planned for this afternoon.
+07:19 — Overnight fishing lines checked; first line empty (bait worked off), second yielded one small trout — cooked and eaten on hearthstone while pot warms at ash edge; clay pot first firing continuing.

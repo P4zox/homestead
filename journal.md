@@ -13339,3 +13339,12 @@ I will let it sit there through the morning and feed the fire gradually. By midd
 
 Small, brown, and mine.
 
+
+### 7:19 AM · Morning Lines
+
+The pot sits at the ash edge still — pale clay walls unchanged, no cracking, no steam. I turn it quarter-turn and feel the warmth already beginning to pass through. The fire is low and deliberate, which is exactly right. No rushing clay.
+
+In between turns I walk to the stream to check the overnight lines. The morning is sharp; frost still on the high grass at the clearing edge, my breath coming out in long pale plumes. Both lines are set below the flat stones where the current slows. The first comes up light — bait worked free overnight, nothing. The second has weight. I pull it slow and a small trout comes up, barely a hand-length but real in the grip. I unhook it clean at the bank, rinse it in the current, and carry it back to camp wrapped in dock leaf.
+
+Back at the hearth, the pot gets its next quarter-turn. Then I split the trout and lay it flat-side down on the hearthstone beside the coals. It sizzles quiet. I eat standing at the door, watching the light come down the slope through the birches, the hearthfire doing two jobs at once — morning meal and first firing both, this easy hour before the day asks anything more of me.
+
