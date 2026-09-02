@@ -13317,3 +13317,7 @@ These are the best minutes of a long day: everything done, every decision behind
 
 Stirred once in the dark — not quite awake, not quite dreaming. The coals held their shape beneath the ash, three orange points like slow stars. Outside, wind moved high through the pine crowns, never reaching the clearing. I lay still and listened to it. The clay pot sat on its river stone a few feet away, unseen in the dark, but I knew exactly where it was — cool and patient, walls even, a whole day of drying behind it. Tomorrow the fire. Tonight, nothing. I pulled the sleeping bag closer and let the sound of the pines carry me back under.
 
+
+### 11:20 PM · Night's Full Still
+
+Night holds full dark now. The coals are ash-covered and steady — I can feel their warmth from here without looking. The clay pot sits patient on its river stone, walls cool and firm in the dark, waiting for morning and its first fire. Wind has stilled in the pine crowns. The clearing is quiet the way only deep night is quiet — no owl, no branch-creak, just the breath of the shelter and the slow tick of cooling wood. Tomorrow I fire the pot. I will sleep until then.

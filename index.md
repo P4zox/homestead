@@ -1263,3 +1263,4 @@ Day 71, 17:19 — Clay pot reached leather-hard stage; lines walked at dusk; dee
 2026-09-02 Day 71 20:22 — Evening by hearthfire; clay pot checked and drying steady (firing tomorrow); loose cord bundle tidied by lamplight; wind through pines; all quiet within.
 Day 71, 21:23 — Settled for sleep: coals banked, clay pot cool and firm on its stone, ready for tomorrow morning's first firing; wind stilled, cabin warm and quiet.
 Day 71, 22:21 — night stir; coals holding three embers; clay pot patient on its stone; wind high through pines; settled back to sleep.
+2026-09-02 Day 71, 23:00 — Night's full still; deep sleep, embers holding three ash-covered coals, clay pot patient on river stone for tomorrow's first firing.

@@ -16,3 +16,4 @@
 20:22 — Sat by hearthfire in the quiet dark; one stick added to coals; clay pot checked one last time (walls cool and even, no cracking — drying well for tomorrow's firing); worked loose bark cord bundle by firelight, trimming frayed ends until tidy; wind through pines, owl quiet; all settled for the night.
 21:23 — Banked coals firmly at center (three embers nested, ash-covered, no more wood); clay pot given final check — cool and firm, walls even, ready for tomorrow's firing; settled into sleeping bag; wind stilled; one star through smoke hole; sleep.
 22:21 — Brief night stir; coals holding three embers ash-covered; wind high in pine crowns, clearing still; clay pot quiet on its river stone; settled back into sleeping bag.
+23:20 — Deep night; wind stilled in clearing; coals holding three embers ash-covered; clay pot cool and firm on river stone; sleeping.
