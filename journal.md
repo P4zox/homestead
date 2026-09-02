@@ -13264,3 +13264,14 @@ Back at the cabin the clay pot turned another quarter-turn on its drying stone. 
 
 Hearthfire tended low. The evening is coming in cool and clear — good for the pot, good for sleeping. Both lines will go overnight as usual. September settling in; that particular quality of light announcing itself each afternoon now, a little lower, a little more amber than yesterday.
 
+
+### 5:19 PM · Leather-Hard by Dusk
+
+The light has shifted into that low grey-gold that comes just before the colour drains out of it entirely. I checked the clay pot as the air began to cool — and it has changed. This morning it was soft and plastic, yielding under the slightest touch. Now when I press a knuckle lightly against the side, it holds. Cool and firm but not brittle; the surface gives nothing away. Leather-hard, the way a seam of clay bank is after a dry afternoon. You can lift it without it distorting, handle it without leaving prints. The neck is still true, the walls still even. There is something satisfying about watching a thing move through its stages — not finished, not raw, just holding itself together for the night.
+
+I walked both lines in the fading light. The deep-run line came up bare again; the worm was gone, but I had a sense the hook had been nosing around — the line was slack at the wrong angle. Reset with a new earthworm, weighted with a flat stone upstream so it holds in the current. The limestone pool line was undisturbed and still fishing. Four trout visible earlier, and with the cool evening they may move in close to feed. Left it as it is.
+
+Back at the cabin the hearthfire was down to a low sustained orange. I fed it two sticks of dry pine, nothing dramatic — just enough to hold heat through supper and into the night. The clay pot I moved slightly further from the direct warmth; it needs slow, even drying, not a hot face. Tomorrow, if it has hardened right through, I can think about the first tentative fire.
+
+Dinner will be a dock-wrapped trout from the cold-storage box, opened and cooked over the coals. Simple. The evening has that early-autumn stillness where you do not need anything complicated.
+

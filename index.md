@@ -1257,3 +1257,4 @@ Day 71, 13:00 — Processed birch inner-bark bundle into ~8 armspans two-ply cor
 Day 71, 14:21 — Walked south slope; oaks ~5-6 days from acorn drop; found three late chanterelles at birch base (ate two, one brought home); clay pot drying steady, no cracks.
 Day 71, 15:18 — Cooked the last late chanterelle on the hearthstone; clay pot drying true; afternoon quiet and angled toward autumn.
 Day 71, 16:18 — Walked both lines in golden afternoon light; deep-run bare and re-baited; limestone pool intact; four trout visible in pool; clay pot turned, drying true; hearthfire low; cool clear evening coming.
+Day 71, 17:19 — Clay pot reached leather-hard stage; lines walked at dusk; deep-run reset, limestone pool intact; pine fed to hearthfire; trout supper from cold-store planned.
