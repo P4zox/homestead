@@ -1271,3 +1271,4 @@ Day 72, 09:18 — clay pot firing progressing (orange-cream color at lower walls
 2026-09-03 10:19 Day 72 — turned clay pot (quarter-turns, lower walls amber-cream); coal bed deepening; sorting birch bark strips on doorsill bench for acorn harvest basket
 Day 72, 11:18 — Clay pot eased fully onto coal bed; walls amber-cream top to base, tap drier and higher; midday full firing approaching; bark strips sorted for harvest basket.
 Day 72, 12:18 — Clay pot first firing complete: rang true at midday coal bed; eased to ash edge for slow cooling; bark basket assembly begun on doorsill bench.
+2026-09-03 13:19 — Day 72 — Bark basket weaving on doorsill bench; pot cooling on ash edge; basket bottom forming, two sessions to finish.

@@ -13399,3 +13399,12 @@ But I think it held. The walls came through fifteen hours of warming without a s
 
 Sat on the doorsill bench afterward and began the basket. Wide bark strips for the warp, laid flat and crossed; narrow strips to lash them. The hands need something to do while the pot cools. The acorn harvest is two days out now, and I want a deep basket ready for it. A basket and a pot — by this evening I might have both.
 
+
+### 1:19 PM · Basket Taking Shape
+
+The pot sits cooling on the ash edge — two green sticks propped under its belly, the firelight low and patient. I can hear it tick faintly now and then as it contracts, and I leave it to its work.
+
+On the doorsill bench the basket is coming along. Wide warp strips laid crosswise first, their ends trimmed square and tucked flat; then the narrow lashing strips threaded over and under in a plain weave, each pass tamped down with my thumb before the next. Birch bark is stiff and wants to split if you hurry it, so I work one strip at a time, wetting the underside lightly with a finger dipped in the cook tin water. The weave tightens with moisture, then holds when it dries. I can feel the bottom taking form — firm, about the width of both palms together, the right size to carry a good load of acorns without flexing.
+
+The afternoon light falls at a long angle across the clearing. The woods are quiet. A single chickadee worked the birch edge earlier and went wherever chickadees go. I keep weaving, a slow rhythm of over-under, tamp, wet, over-under. The acorn oaks on the south slope are waiting. The basket is not finished — maybe two more sessions — but it is real now, a thing that holds its own shape when I set it down.
+
