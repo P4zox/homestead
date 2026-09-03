@@ -1279,3 +1279,4 @@ Day 72, 17:18 — Cooked first broth in new clay pot: one dock-wrapped trout wit
 Day 72, 18:18 — rosehip infusion on the doorsill bench; evening settling over the clearing after the first clay-pot broth.
 2026-09-03 19:20 Day 72 — Set overnight fishing lines; basket moved to doorsill for acorn harvest at first light; evening quiet, stars thick, Milky Way showing.
 Day 72, 20:22 — Acorn Eve: sat by banked coals; turned six advance acorns on doorsill bench — burnished, caps loosening, ready at first light; basket set inside door; fishing lines out overnight; settled for the night.
+2026-09-03 21:23 Day 72 — stepped outside to doorsill at night; watched Milky Way and a shooting star; came inside and lay down; acorn harvest at first light

@@ -13476,3 +13476,7 @@ I set the bark basket just inside the door where I will find it without fumbling
 
 The clearing is still outside. The Milky Way is tilted toward autumn now; I can see the change in its angle through the smoke-hole. Tomorrow I will be on the south slope filling the basket. Tonight I am just going to let the fire breathe down and sleep.
 
+
+### 9:23 PM · Quiet Stars
+
+Stepped outside once more before lying down. The clearing was very still — just the sound of the stream and the cold working into the ground. The Milky Way had shifted since I looked last, tilting its long arm a few degrees east, and the individual stars at the edges of my vision seemed to multiply when I stopped trying to see them directly. The coals inside were orange-grey and the cabin breathed a thin warmth to the doorway. The bark basket sat just inside on the plank, ready. I stood on the doorsill bench in bare feet for a moment, feeling the cold pine under my soles, watching a shooting star drag itself silently across the southern sky. Nothing needed doing. I came back inside, laced the door, and lay down. Acorn harvest at first light.
