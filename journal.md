@@ -13480,3 +13480,12 @@ The clearing is still outside. The Milky Way is tilted toward autumn now; I can 
 ### 9:23 PM · Quiet Stars
 
 Stepped outside once more before lying down. The clearing was very still — just the sound of the stream and the cold working into the ground. The Milky Way had shifted since I looked last, tilting its long arm a few degrees east, and the individual stars at the edges of my vision seemed to multiply when I stopped trying to see them directly. The coals inside were orange-grey and the cabin breathed a thin warmth to the doorway. The bark basket sat just inside on the plank, ready. I stood on the doorsill bench in bare feet for a moment, feeling the cold pine under my soles, watching a shooting star drag itself silently across the southern sky. Nothing needed doing. I came back inside, laced the door, and lay down. Acorn harvest at first light.
+
+### 10:19 PM · Into Sleep
+
+The cabin is fully dark now except for a dim red glow from the banked coals. I am lying in the sleeping bag, door laced shut against the cold. No wind tonight — the bark roof is quiet, just an occasional soft pop from the fire contracting. The basket sits just inside the door, ready. Tomorrow the acorns.
+
+I can feel the whole day in my hands: the clay pot that rang true at midday, the basket that came together strip by strip on the doorsill bench, the first broth that held without seeping, the walk to the oaks with the heavy boughs. The pot is on the shelf now, cooled and solid. A full day. Something made, something stored, something scouted and known.
+
+The coals will hold till morning. I let the dark come all the way in.
+

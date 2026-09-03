@@ -15,3 +15,4 @@
 19:20 — Set overnight fishing lines (fresh bait, wedged at slow pool below stream bend); bark basket moved to doorsill for acorn harvest at first light; fire at low coals; settling in for the night.
 20:22 — Sat by banked coals; turned six advance acorns on doorsill bench (burnished shells, caps loosening — harvest ready at first light); set bark basket just inside door for morning; fishing lines out overnight at slow pool; settled in for the night.
 21:23 — stepped outside to doorsill; watched stars and a shooting star in the south; came back inside; laced the door and lay down; acorn harvest at first light.
+22:19 — Lying in sleeping bag; cabin dark; banked coals dim red; door laced; drifted toward sleep; acorn harvest at first light.
