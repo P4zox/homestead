@@ -13408,3 +13408,14 @@ On the doorsill bench the basket is coming along. Wide warp strips laid crosswis
 
 The afternoon light falls at a long angle across the clearing. The woods are quiet. A single chickadee worked the birch edge earlier and went wherever chickadees go. I keep weaving, a slow rhythm of over-under, tamp, wet, over-under. The acorn oaks on the south slope are waiting. The basket is not finished — maybe two more sessions — but it is real now, a thing that holds its own shape when I set it down.
 
+
+### 2:22 PM · Sides Rising
+
+The afternoon had gone quiet and golden by the time I bent the first warp strip upward. The basket bottom lay in my lap — palm-width, maybe a shade wider, the weave tamped close enough that I had to ease the last few narrow lashing strips through with a thumbnail. That tightness pleased me.
+
+Bending the warp ends up is slower work than laying the base. Each strip needs coaxing — too much force and the birch bark splits along a grain line, too little and the bend won't hold its angle. I keep a small bark cup of water beside me and wet each warp end before turning it: a few seconds of patience, then it arcs cleanly and holds. Three or four fingers of wall now, running straight and even all the way around.
+
+The clay pot is still cooling on the ash edge. I can hear it from the bench — an occasional tick as the walls contract, the fired clay settling into itself. That sound, quiet and intermittent, feels like a good report from across the yard. It rang true at noon and it is resting now. So am I, more or less: back against the doorpost, sun on my knees, hands moving.
+
+Acorn harvest in two days. The basket will be ready.
+
