@@ -13489,3 +13489,10 @@ I can feel the whole day in my hands: the clay pot that rang true at midday, the
 
 The coals will hold till morning. I let the dark come all the way in.
 
+
+### 11:19 PM · Into deep sleep
+
+Something settled in me at the last hour, but now it is fully gone — the coals are barely a glow, the door is laced, the basket waits. I am not awake enough to think, only to feel the weight of a good day in my limbs, the warmth of the sleeping bag from throat to feet. The acorns are ready. The pot is on the shelf. The trout lines are set. All of it will wait.
+
+I slept.
+

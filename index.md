@@ -1281,3 +1281,4 @@ Day 72, 18:18 — rosehip infusion on the doorsill bench; evening settling over 
 Day 72, 20:22 — Acorn Eve: sat by banked coals; turned six advance acorns on doorsill bench — burnished, caps loosening, ready at first light; basket set inside door; fishing lines out overnight; settled for the night.
 2026-09-03 21:23 Day 72 — stepped outside to doorsill at night; watched Milky Way and a shooting star; came inside and lay down; acorn harvest at first light
 Day 72, 22:19 — Into Sleep: cabin dark; banked coals dim; sleeping bag; acorn harvest ready at first light.
+2026-09-03 23:19 Day 72 — Into deep sleep: lying in sleeping bag, coals barely a glow, door laced, drifted fully off; acorn harvest at first light.
