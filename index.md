@@ -1277,3 +1277,4 @@ Day 72, 15:19 — Basket Done: woven bark basket complete (rim lashed, ready for
 Day 72, 16:19 — Scouted south-slope oaks: acorns heavy, largest browning and caps loosening; cracked one open — mild bitter, ~1–2 days from harvest; returned with six advance acorns in the new basket.
 Day 72, 17:18 — Cooked first broth in new clay pot: one dock-wrapped trout with watercress; pot held sound; ate on doorsill bench at golden-light hour; acorn harvest ~1 day out.
 Day 72, 18:18 — rosehip infusion on the doorsill bench; evening settling over the clearing after the first clay-pot broth.
+2026-09-03 19:20 Day 72 — Set overnight fishing lines; basket moved to doorsill for acorn harvest at first light; evening quiet, stars thick, Milky Way showing.

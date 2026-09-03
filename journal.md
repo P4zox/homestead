@@ -13460,3 +13460,10 @@ The evening is coming on fast the way September evenings do. The clearing has go
 
 Tomorrow or the day after, the acorns will be ready. The basket is hung and waiting. I've got a good run of days behind me now — the pot fired, the basket woven, the broth cooked and held. There's a particular satisfaction in a string of tasks that actually closes. Each one was the next one; none of them was the wrong one. The clearing is noticeably quieter than it was at midsummer — fewer birds, the stream the loudest thing. I'm glad to sit in it.
 
+
+### 7:20 PM · Lines Out, Stars Up
+
+The clearing has gone fully dark now, the last pale light faded from the western tree line. Stars are thick overhead — the Milky Way beginning its autumn lean, tilted a little more each night toward winter. I pulled my jacket on and walked the two fishing lines down to the stream. Baited each with a worm fragment from the damp soil near the east seep, wedged the sticks firm at the bank, let the lines draw out into the slow pool below the bend. Both hold taut. If the trout are moving tonight I should have something by morning.
+
+Back at the cabin I moved the bark basket to the doorsill — ready to carry south at first light when the acorn harvest begins. The day has been full: pottery firing, broth, the scout walk, the rosehip infusion. Strange how much can happen and still leave the evening feeling quiet. The pot sits on the shelf behind me, cool and solid. Still a little remarkable — clay from the stream bank, fire from the hearth, and now a vessel I can cook in. Fire is banked low coals. The cabin is warm enough. Tomorrow the acorns; tonight, sleep.
+

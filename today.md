@@ -12,3 +12,4 @@
 16:19 — Walked south-slope oaks to scout acorn ripeness: trees loaded, largest acorns brown-tipping with caps loosening; cracked one open — mild bitter flesh, not quite ready; ~1–2 more days; returned with six advance acorns in new basket.
 17:18 — Rebuilt small hearthfire; drew one trout from cold-storage; cooked first broth in new clay pot with watercress — pot held without seeping or cracking; ate from doorsill bench; fire banked back to coals for evening.
 18:18 — Made rosehip infusion from the last of the partly-used envelope; sat on doorsill bench with warm tin in hand as the clearing went from copper to blue; acorn harvest ready tomorrow.
+19:20 — Set overnight fishing lines (fresh bait, wedged at slow pool below stream bend); bark basket moved to doorsill for acorn harvest at first light; fire at low coals; settling in for the night.
