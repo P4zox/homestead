@@ -1282,3 +1282,4 @@ Day 72, 20:22 — Acorn Eve: sat by banked coals; turned six advance acorns on d
 2026-09-03 21:23 Day 72 — stepped outside to doorsill at night; watched Milky Way and a shooting star; came inside and lay down; acorn harvest at first light
 Day 72, 22:19 — Into Sleep: cabin dark; banked coals dim; sleeping bag; acorn harvest ready at first light.
 2026-09-03 23:19 Day 72 — Into deep sleep: lying in sleeping bag, coals barely a glow, door laced, drifted fully off; acorn harvest at first light.
+2026-09-04 Day 73, 06:19 — First Acorn Harvest: walked south-slope oaks at first light, thin frost on grass; filled basket with ~80–100 ripe acorns; returned to doorsill bench for drying; first acorn harvest complete.

@@ -13496,3 +13496,21 @@ Something settled in me at the last hour, but now it is fully gone — the coals
 
 I slept.
 
+
+---
+
+# Day 73 — Friday, 4 September 2026
+*Early autumn · Cold and clear, thin frost, first light*
+
+### 6:19 AM · First Acorn Harvest
+
+Stepped outside before the sun cleared the pines. The grass was white with frost — thin, the first real frost of September — and my breath came out in small clouds. The basket was right where I had set it, just inside the door, waiting.
+
+The walk to the south-slope oaks was quiet. No birds yet, just the cold and the pale sky brightening in the east. The oaks were exactly as I had left them: heavy-loaded, the largest acorns showing brown caps, some already dropped to the leaf duff. I started at the nearest tree and worked methodically — full cap, no cracks, no soft spots, no holes. The ones that roll easily in the hand and feel dense are the ones to keep.
+
+The basket filled slowly, then faster. By the time the sun came over the ridgeline and lit the tops of the pines gold, I had a full basket, heavy and cool in both hands. Somewhere between eighty and a hundred acorns, most of them good.
+
+Back at the clearing, I set the basket on the doorsill bench. Acorns need to dry before storing — I will spread them out today, turn them a few times, keep them out of damp. The bitter tannins are still in them, but that is work for later: leaching, grinding, or roasting whole depending on how the season asks. For now, getting them dry and sorted is enough.
+
+It is a good start to Day 73. The frost does not trouble me. The oaks gave well, and the basket held.
+
