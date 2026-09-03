@@ -13419,3 +13419,12 @@ The clay pot is still cooling on the ash edge. I can hear it from the bench — 
 
 Acorn harvest in two days. The basket will be ready.
 
+
+### 3:19 PM · Basket Done
+
+The basket is finished. I worked through the afternoon on the doorsill bench with the low sun warm on my shoulder, lashing the last few courses over-under and tamping each pass tight. The warp ends reached the rim even, which surprised me — I had worried the bends would come out lopsided, but the wetting held them pliant enough to cooperate. I folded each end down over the top course and lashed the rim twice around with a narrow strip of birch inner bark, knotted at the back seam where the overlap sits out of sight. Gave it a shake. Nothing loose.
+
+The pot had gone quiet on the ash edge by then — no more ticking. I picked it up in both hands: cool all the way through, smooth-walled, amber-cream to the base, a solid ring when I tapped the side with one finger. The first pot I have made and fired myself. I set it on the cabin shelf beside the rosehip envelopes and stood there a moment looking at it.
+
+Basket went up on the supply peg. Acorns in two days.
+
