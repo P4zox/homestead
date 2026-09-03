@@ -1267,3 +1267,4 @@ Day 71, 22:21 — night stir; coals holding three embers; clay pot patient on it
 2026-09-03 Day 72 06:18 — First Pot Firing — hearthfire rebuilt; clay pot moved to ash edge for first firing; warming slowly with quarter-turn rotations; no cracking; full coal-bed firing planned for afternoon.
 2026-09-03 07:19 — Day 72 — Overnight fishing line check; one small trout caught and eaten at hearthstone while clay pot first firing continues at ash edge.
 2026-09-03 Day 72, 08:19 — tended clay pot firing; pot eased hand's breadth nearer to coal edge after two hours in ash; no cracks; fire fed with split pine; full coal-bed firing target for midday.
+Day 72, 09:18 — clay pot firing progressing (orange-cream color at lower walls, no cracks); cord-twisting on doorsill bench; east seep cache checked — all cold-storage sound; acorn harvest in ~3 days, planning bark basket.

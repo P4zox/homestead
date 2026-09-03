@@ -13357,3 +13357,14 @@ The morning is cold and still. The frost that was on the high grass when I rose 
 
 By midday the coals should be deep enough. Then the pot goes in fully, and we find out what it becomes.
 
+
+### 9:18 AM · Cord and Coal
+
+Crouched by the fire just past nine and turned the pot — the lower walls have shifted from ash-grey to a faint orange-cream, the first blush of heat working through the clay. No cracks anywhere. I fed in three more splits and a fat pine knot to push the coal bed deeper; full heat wants to arrive around midday.
+
+With nothing useful in hovering, I took the doorsill bench and a bundle of birch inner bark and set to cord-twisting. The east light lay warm across the planks and the work is quiet — split a strip, twist it taut, splice in the next. Good thinking time. The smoke runs thin and blue from the hearthfire, which is what you want to see.
+
+Walked the eighty paces to the east seep cache around half-nine: trout cold and firm in their dock wrappings, smoked mushrooms holding, watercress still bright and upright. All sound. Back at the fire before ten to tend the coals.
+
+Three more days before the south oaks are ready. I will want bark trays or a woven basket to carry the acorn haul — the firing takes this afternoon, and tomorrow might be the right time to begin a weave.
+
