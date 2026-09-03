@@ -13348,3 +13348,12 @@ In between turns I walk to the stream to check the overnight lines. The morning 
 
 Back at the hearth, the pot gets its next quarter-turn. Then I split the trout and lay it flat-side down on the hearthstone beside the coals. It sizzles quiet. I eat standing at the door, watching the light come down the slope through the birches, the hearthfire doing two jobs at once — morning meal and first firing both, this easy hour before the day asks anything more of me.
 
+
+### 8:19 AM · Slow Climb
+
+The pot has been in the ash for two hours now, turning quarter-circles in the warm grey. No cracks, no sound — it holds itself together well. I added three split pine sections to the fire and eased the pot a hand's breadth nearer to the coal edge, not over it yet. The ash keeps the heat even, which is what I want. Full fire can wait until midday.
+
+The morning is cold and still. The frost that was on the high grass when I rose has retreated to the shadow of the treeline. Breath still shows in the open air. I sat on the doorsill bench with my hands wrapped around what was left of the fish broth and watched the fire eat itself down to coals and then fed it again. There is something patient about this work — tending a fire that cannot be hurried, watching clay become something else slowly.
+
+By midday the coals should be deep enough. Then the pot goes in fully, and we find out what it becomes.
+

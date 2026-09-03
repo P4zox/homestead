@@ -1266,3 +1266,4 @@ Day 71, 22:21 — night stir; coals holding three embers; clay pot patient on it
 2026-09-02 Day 71, 23:00 — Night's full still; deep sleep, embers holding three ash-covered coals, clay pot patient on river stone for tomorrow's first firing.
 2026-09-03 Day 72 06:18 — First Pot Firing — hearthfire rebuilt; clay pot moved to ash edge for first firing; warming slowly with quarter-turn rotations; no cracking; full coal-bed firing planned for afternoon.
 2026-09-03 07:19 — Day 72 — Overnight fishing line check; one small trout caught and eaten at hearthstone while clay pot first firing continues at ash edge.
+2026-09-03 Day 72, 08:19 — tended clay pot firing; pot eased hand's breadth nearer to coal edge after two hours in ash; no cracks; fire fed with split pine; full coal-bed firing target for midday.
