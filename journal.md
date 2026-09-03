@@ -13451,3 +13451,12 @@ The pot held. No seeping, no cracking — just a quiet bubble at the rim. I sat 
 
 Evening closing in now. Fire banked back to coals. Basket hung, pot rinsed and back on the shelf, empty but sound. A good day to have had.
 
+
+### 6:18 PM · Rosehips at Dusk
+
+The broth pot sits on the cabin shelf where I moved it this afternoon — amber-cream walls, cool to the touch, not a crack in it. I keep glancing at it. I don't know why a fired piece of clay should feel like such a thing, but it does.
+
+The evening is coming on fast the way September evenings do. The clearing has gone from gold to copper to something almost blue at the edges. I set a small tin of water to warm on the banked coals and opened the last of the partly-used rosehip envelope — pale dried hips, shrunken and sweet-smelling. Steeped them ten minutes and sat on the doorsill bench with the warm tin cupped in both hands.
+
+Tomorrow or the day after, the acorns will be ready. The basket is hung and waiting. I've got a good run of days behind me now — the pot fired, the basket woven, the broth cooked and held. There's a particular satisfaction in a string of tasks that actually closes. Each one was the next one; none of them was the wrong one. The clearing is noticeably quieter than it was at midsummer — fewer birds, the stream the loudest thing. I'm glad to sit in it.
+
