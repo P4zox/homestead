@@ -13428,3 +13428,16 @@ The pot had gone quiet on the ash edge by then — no more ticking. I picked it 
 
 Basket went up on the supply peg. Acorns in two days.
 
+
+### 4:19 PM · South Slope Walk
+
+The basket hangs on the supply peg, still a little soft at the rim. The clay pot sits on the shelf — amber-cream, solid as anything I've made here. Both of them finished in a single day. I let that sit with me on the doorsill bench for a few minutes before I stood up and walked.
+
+South slope in the late afternoon. Four hundred paces through cooling bracken, the grass already going from green to gold at the stem. The oaks are loaded — every crown heavy, clusters of acorns packed tight against the branch bark. Most are still green-capped, but the tips of the largest ones are browning, and in three of the biggest clusters the caps are beginning to loosen at the base.
+
+I shook a low branch. Six came down. Plump, sound, round-ended. I cracked one open against a root — the meat was white and bitter, which is right for now. I'll need to leach them in the cold-box for days before they're worth cooking. But bitter is nearly-ready. The flesh wasn't astringent enough to make my mouth seize; it was almost mild. Maybe one more day, maybe two.
+
+I put the six in the new basket and carried them home. The basket holds them well — they settle into the weave without catching, and the bottom is solid. I hung it back on the peg. A small trial run. The basket works.
+
+The light is going golden at the tree line. I'll bank the fire and sit on the doorsill a while before evening.
+

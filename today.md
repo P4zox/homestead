@@ -9,3 +9,4 @@
 13:19 — Bark basket weaving on doorsill bench — warp strips laid crosswise, narrow lashing strips woven over-under, each pass tamped and wetted; basket bottom taking shape (palm-width, firm); pot cooling on ash edge; ~two more sessions to finish basket.
 14:22 — Continued bark basket weaving — warp ends bent upward for sides; wetted each strip before bending to prevent splits; walls now three–four fingers high, straight and even; pot still cooling on ash edge with occasional tick as clay contracts.
 15:19 — Bark basket complete: last courses lashed, warp ends folded and rim bound twice with birch inner bark; fired clay pot cooled to ambient, moved from ash edge to cabin shelf; basket hung on supply peg for acorn harvest (~2 days).
+16:19 — Walked south-slope oaks to scout acorn ripeness: trees loaded, largest acorns brown-tipping with caps loosening; cracked one open — mild bitter flesh, not quite ready; ~1–2 more days; returned with six advance acorns in new basket.

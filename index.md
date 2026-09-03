@@ -1274,3 +1274,4 @@ Day 72, 12:18 — Clay pot first firing complete: rang true at midday coal bed; 
 2026-09-03 13:19 — Day 72 — Bark basket weaving on doorsill bench; pot cooling on ash edge; basket bottom forming, two sessions to finish.
 2026-09-03 Day 72 14:22 — Bark basket sides rising; warp ends bent upward, walls three–four fingers high and even; fired clay pot cooling on ash edge, ticking as it contracts.
 Day 72, 15:19 — Basket Done: woven bark basket complete (rim lashed, ready for acorn harvest); fired clay pot cooled and moved to shelf.
+Day 72, 16:19 — Scouted south-slope oaks: acorns heavy, largest browning and caps loosening; cracked one open — mild bitter, ~1–2 days from harvest; returned with six advance acorns in the new basket.
