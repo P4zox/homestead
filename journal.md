@@ -13379,3 +13379,12 @@ So I'm sitting on the doorsill bench with a lap full of birch bark strips, sorti
 
 I think about the pot a lot. How it began as cold wet clay pulled from the stream bank, shaped by thumb and forefinger into something that could hold heat and liquid both. If this firing goes clean, I'll have a vessel for the winter — something to make broth in without the flat hearthstone or the cook tin. That matters more than it might sound.
 
+
+### 11:18 AM · Coal Heat Rising
+
+The fire has been eating pine knots and split sections all morning, building the coal bed I have been after. The pot sits at the edge of the flame now, walls amber-cream from top to base — the color is right, the surface no longer looks raw. I tapped it gently at the eleven-hour mark: still the thud of unfired clay, but drier and higher in pitch, noticeably closer. Midday is the target, and midday is nearly here. I eased it another half-hand forward onto the coal bed, letting the heat come up fully through the base.
+
+The clearing smells of pine resin and hot clay together, a good smell. Between checks I have been working the bark strips — getting a feel for the weave. Wide strips for the warp, narrow for the weft. A basket takes shape in the mind before it takes shape in the hands, and the acorns will be ready in two or three days. I want the basket waiting when they are.
+
+Everything is patient this morning. The pot heats. The coals deepen. I wait and tend.
+
