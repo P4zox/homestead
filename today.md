@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:19 — Walked south-slope oaks at first light; thin frost on the grass; took basket and harvested acorns — full-capped, dense, uncracked; basket full (~80–100 acorns) by the time the sun cleared the pines; returned to clearing, set basket on doorsill bench to begin drying; first acorn harvest complete.
+07:00 — Rebuilt hearthfire from banked coals (birch shards, two branches — came back without argument); sorted first acorn harvest on doorsill bench — ~75 sound (firm, uncracked, caps tight) spread in single layer to continue drying; handful discarded (pin-holes, soft spots, one cracked face); frost off grass by time sorting done.

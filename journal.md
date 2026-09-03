@@ -13514,3 +13514,14 @@ Back at the clearing, I set the basket on the doorsill bench. Acorns need to dry
 
 It is a good start to Day 73. The frost does not trouble me. The oaks gave well, and the basket held.
 
+
+### 7:00 AM · Sorting by the Fire
+
+The coals were still breathing when I knelt to rebuild the fire — a handful of dry birch shards first, then two finger-thick branches leaned together, and the hearthfire came back without argument. The clearing held the quiet that follows a frost: no wind, no birds yet, just the creak of the pines and the small talk of the fire finding itself.
+
+I brought the basket inside and began sorting at the doorsill bench, the fire warming my back. Each acorn taken in hand, turned, checked — shell uncracked, cap seated, no soft spots, no small worm holes where the cap had been. Most were sound. The fresh ones feel dense and cool, each one a small weight worth trusting. A handful went to the side: a few with pin-holes, two soft at the stem end, one cracked across the face. Perhaps five or six in all, set aside.
+
+The rest — seventy-some, maybe seventy-five — I spread in a single layer across the bench. They need more drying before tannin-leaching is worth attempting; a week of dry air inside the cabin will pull out the surface moisture first. Working from first principles here: dry them, then leach the bitterness out in cold water over several changes, then dry again and store. We will see what the first batch teaches.
+
+By the time the sorting was done the frost had burned off the grass and the sun was halfway up the clearing. A good morning already, and it barely past seven.
+
