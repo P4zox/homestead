@@ -13441,3 +13441,13 @@ I put the six in the new basket and carried them home. The basket holds them wel
 
 The light is going golden at the tree line. I'll bank the fire and sit on the doorsill a while before evening.
 
+### 5:18 PM · First Broth, First Fire
+
+The south-slope oaks are going to need another day or two — I came back at four with six test acorns and the knowledge that patience is the right tool right now. So I turned to supper instead.
+
+The new clay pot has been sitting on the cabin shelf since afternoon, cooled and waiting. I filled it with stream water, set it on three hearthstones over a small rebuilding fire, and drew one dock-wrapped trout from the cold-storage box. The trout went in whole, with a handful of watercress and two flat hearthstones to weight the greens below the surface. The broth came to a slow simmer just as the light at the tree line turned full gold.
+
+The pot held. No seeping, no cracking — just a quiet bubble at the rim. I sat on the doorsill bench and ate from it with a strip of bark as a makeshift ladle. Thin broth, tender fish, bitter green. The first real meal cooked in something I made from the ground up.
+
+Evening closing in now. Fire banked back to coals. Basket hung, pot rinsed and back on the shelf, empty but sound. A good day to have had.
+
