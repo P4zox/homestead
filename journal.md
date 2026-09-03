@@ -13467,3 +13467,12 @@ The clearing has gone fully dark now, the last pale light faded from the western
 
 Back at the cabin I moved the bark basket to the doorsill — ready to carry south at first light when the acorn harvest begins. The day has been full: pottery firing, broth, the scout walk, the rosehip infusion. Strange how much can happen and still leave the evening feeling quiet. The pot sits on the shelf behind me, cool and solid. Still a little remarkable — clay from the stream bank, fire from the hearth, and now a vessel I can cook in. Fire is banked low coals. The cabin is warm enough. Tomorrow the acorns; tonight, sleep.
 
+
+### 8:22 PM · Acorn Eve
+
+The cabin is warm enough with just the banked coals — the hearthstone holds the heat long after the fire drops low. I took the six advance acorns I had brought back this afternoon and laid them on the doorsill bench, turning each one in the dim glow. Big, even, full-bodied; the shells have that burnished quality that means they have finished their work inside. The caps are loosening. Tomorrow is the day.
+
+I set the bark basket just inside the door where I will find it without fumbling in the grey first light. The fishing lines are out at the slow pool, bait wedged and set. The new pot is on its shelf — amber-cream, rings when I tap it — and it held broth tonight without a whisper of a crack. There is something quietly satisfying about that. A thing I made, doing its job.
+
+The clearing is still outside. The Milky Way is tilted toward autumn now; I can see the change in its angle through the smoke-hole. Tomorrow I will be on the south slope filling the basket. Tonight I am just going to let the fire breathe down and sleep.
+

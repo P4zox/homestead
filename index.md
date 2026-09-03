@@ -1278,3 +1278,4 @@ Day 72, 16:19 — Scouted south-slope oaks: acorns heavy, largest browning and c
 Day 72, 17:18 — Cooked first broth in new clay pot: one dock-wrapped trout with watercress; pot held sound; ate on doorsill bench at golden-light hour; acorn harvest ~1 day out.
 Day 72, 18:18 — rosehip infusion on the doorsill bench; evening settling over the clearing after the first clay-pot broth.
 2026-09-03 19:20 Day 72 — Set overnight fishing lines; basket moved to doorsill for acorn harvest at first light; evening quiet, stars thick, Milky Way showing.
+Day 72, 20:22 — Acorn Eve: sat by banked coals; turned six advance acorns on doorsill bench — burnished, caps loosening, ready at first light; basket set inside door; fishing lines out overnight; settled for the night.
