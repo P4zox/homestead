@@ -13368,3 +13368,14 @@ Walked the eighty paces to the east seep cache around half-nine: trout cold and 
 
 Three more days before the south oaks are ready. I will want bark trays or a woven basket to carry the acorn haul — the firing takes this afternoon, and tomorrow might be the right time to begin a weave.
 
+
+### 10:19 AM · Potter's Watch
+
+The fire has found its depth now. An hour ago it was still young — lively, shooting flame between the pine splits. Now it has settled into itself: a thick orange coal bed humming low under a crust of pale ash, heat rising without drama. I can feel its reach from three feet back.
+
+The pot is where it needs to be. I eased it another half-hand toward the coal edge this hour — slowly, with a forked stick, pausing to watch. It sits in the radiance now, lower walls gone fully amber-cream, the rim still pale. I turn it every ten minutes or so, quarter-turns, patient. When I tap it with a finger it still gives a dull thud rather than the clean ring of fired clay. Midday, I think. Maybe a little after.
+
+So I'm sitting on the doorsill bench with a lap full of birch bark strips, sorting them by width while I watch the fire. The acorn harvest on the south-slope oaks is maybe three days out, and I need a carry-basket — something deep enough to hold a good weight without splitting. The strips from last week's birch are still supple, workable. I set the narrow ones aside for lashing; keep the broad ones for the basket body. It's good work to hold in the hands while waiting. The fire does not need anything from me right now except attention.
+
+I think about the pot a lot. How it began as cold wet clay pulled from the stream bank, shaped by thumb and forefinger into something that could hold heat and liquid both. If this firing goes clean, I'll have a vessel for the winter — something to make broth in without the flat hearthstone or the cook tin. That matters more than it might sound.
+
