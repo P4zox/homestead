@@ -13388,3 +13388,14 @@ The clearing smells of pine resin and hot clay together, a good smell. Between c
 
 Everything is patient this morning. The pot heats. The coals deepen. I wait and tend.
 
+
+### 12:18 PM · First Ring
+
+Noon came and brought what I had been waiting for. I picked up a stick and gave the pot a tap where it sat on the coal bed — walls glowing amber in the fire's heat — and it rang. Not the dull thud of clay, not the hollow knock of leather-hard earth, but a clean note that held in the air a half-second before fading. I went very still. That sound means something. It means the clay has changed.
+
+I used two green sticks to ease the pot back from the coals to the ash edge — slowly, no sudden moves; a fast temperature drop is how you lose what you have just made. It will sit there cooling through the afternoon, then off the fire entirely before evening. Tomorrow morning I will know for certain whether it held.
+
+But I think it held. The walls came through fifteen hours of warming without a single crack, the color is even amber-cream from lip to base, and the ring was true — as clean as the test ball I fired two days ago. I have been telling myself not to count it until it cools, because clay can surprise you in the last step. The ring is a good sign, though. The best I could have asked for at midday.
+
+Sat on the doorsill bench afterward and began the basket. Wide bark strips for the warp, laid flat and crossed; narrow strips to lash them. The hands need something to do while the pot cools. The acorn harvest is two days out now, and I want a deep basket ready for it. A basket and a pot — by this evening I might have both.
+

@@ -1270,3 +1270,4 @@ Day 71, 22:21 — night stir; coals holding three embers; clay pot patient on it
 Day 72, 09:18 — clay pot firing progressing (orange-cream color at lower walls, no cracks); cord-twisting on doorsill bench; east seep cache checked — all cold-storage sound; acorn harvest in ~3 days, planning bark basket.
 2026-09-03 10:19 Day 72 — turned clay pot (quarter-turns, lower walls amber-cream); coal bed deepening; sorting birch bark strips on doorsill bench for acorn harvest basket
 Day 72, 11:18 — Clay pot eased fully onto coal bed; walls amber-cream top to base, tap drier and higher; midday full firing approaching; bark strips sorted for harvest basket.
+Day 72, 12:18 — Clay pot first firing complete: rang true at midday coal bed; eased to ash edge for slow cooling; bark basket assembly begun on doorsill bench.
