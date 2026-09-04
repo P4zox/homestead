@@ -13682,3 +13682,8 @@ Back inside: latch bar down. Sleeping bag around my shoulders. Coals giving thei
 
 I think most evenings: not a bad life. Most nights I believe it.
 
+
+### 9:22 PM · Night Sounds, Sleep Close
+
+Lying in the sleeping bag, not quite under yet. The coals hold their orange glow — I can see it between the logs, a soft pulse, no flicker. The forest is loud in the way it gets when everything else is still: frogs at the stream margin, something small moving in the brush east of the garden bench, an owl once and then silence. The clay bowl sits ready at the hearth edge. The acorns are in their cold eddy, leaching slow in the dark. The spoon hangs on the peg. Cold storage is as full as it has ever been. I let the inventory run through my mind not from worry but from something closer to gratitude — and then I let it go, and listen to the frogs instead, and feel the warmth of the coals against the far wall, and drift.
+
