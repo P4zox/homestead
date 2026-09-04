@@ -16,3 +16,4 @@
 20:22 — Checked hearthfire coals (orange glow persisting under ash — no flint needed at first light); pressed clay bowl at lowest wall — fully dry throughout; shifted bowl slightly closer to retained heat for overnight; latch bar confirmed; retired to sleeping bag.
 21:22 — Lying in the sleeping bag, half-awake to frog-song and the glow of banked coals; let the day's work settle in mind with gratitude — clay bowl ready to fire, acorns leaching, cold storage full — then drifted toward sleep.
 22:19 — Fully asleep; coals settled to dark embers; frogs still audible through bark wall; clay bowl dry and waiting at hearth edge; latch bar down; deep rest.
+23:18 — Sleeping deep; coals fully dark; frogs still calling; clay bowl dry at hearth edge; acorns leaching in stream eddy; nothing left undone; settled into rest.

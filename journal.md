@@ -13694,3 +13694,8 @@ I do not think I was ever truly awake again after the last check. The frogs at t
 
 Sleep is the one thing the homestead does not ask much of — only that I give it back completely. Tonight I am giving it back.
 
+
+### 11:18 PM · Still Deep Night
+
+The frog-song is still threading through the bark wall when I surface briefly — not quite awake, just aware of the cold pressing down and the fire fully out now. The sleeping bag is warm enough. The clay bowl sits at the hearth edge. The acorns are in the stream. There is nothing undone, no thread left hanging. I let the thought go and sink back into the dark. The night holds steady. Tomorrow will come when it comes.
+
