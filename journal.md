@@ -13575,3 +13575,16 @@ The clay pot stands on the shelf behind me — amber-cream, sound. It has been t
 
 The fishing lines have been set since morning. The afternoon will bring a check, probably another fish. For now the fire holds low coals, the bowl turns gently dry, and I am full.
 
+
+### 12:19 PM · Forest Edge Forage
+
+The clearing was still in the early afternoon — hearthfire holding low coals, the clay bowl turning pale at its rim, acorns lined along the doorsill bench soaking in the warmth. A good hour to walk without purpose.
+
+I took the bark basket and headed east along the tree line, then curled north along the slope above the garden bench. The sun came through the pines in slanted blocks and the air had that particular quality it gets in early September: sharp enough to notice, warm enough not to mind. The forest smelled of damp soil and something faintly fermented — the year tipping over.
+
+Near a mossy birch log, half-sunk, I found chanterelles. Not many — a scattered cluster, small-capped and golden, none of them past their best. I cut them close to the base with the knife and laid them in the basket stem-side down. A double handful, maybe a little more. Further along the slope, where the canopy opens and elder shrubs cluster at the bench edge, I found elderberries ripe and heavy on the branch — small dark clusters, several pounds worth in reach. I stripped the ripest ones onto a folded piece of bark, folded it closed, and tucked it inside the basket.
+
+I did not push deeper in. The light was already moving toward afternoon angle and the fishing lines would want checking before long. I came back along the stream, rinsed the chanterelles in slow water, and set them in the cold-storage main box beside the trout. The elderberries I laid on a clean bark tray on the supply shelf — they will dry or go into a reduction, I have not decided yet.
+
+The bowl sat at the hearth edge, calm and pale. The acorns had not moved.
+
