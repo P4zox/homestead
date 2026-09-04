@@ -13652,3 +13652,18 @@ Back inside, the fire had settled to deep orange. I checked the clay bowl: rim b
 
 A good day, plainly.
 
+
+### 7:21 PM · By Low Coals
+
+The cabin is dim and warm. The coals are still orange under their ash, throwing just enough light to see the shelf — the clay pot, the bark packages, the elderberry syrup sealed and waiting. I have not built the fire back up. There is no need.
+
+I am sitting on the doorsill bench with the latch bar dropped. Outside the stream moves in the dark. Stars are sharp above the pines, the way they get when the air is cold and perfectly still. The first real autumn chill, the kind that makes you notice it.
+
+This was a full day. Acorns at first light, fishing at first check, foraging through the mid-morning, the elderberry syrup reduced and strained, a spoon carved in the afternoon. The acorns are leaching in the stream eddy now — four more mornings of water changes, then grinding. The clay bowl is dry enough to fire in a day or two. The grey seam upstream is marked and waiting.
+
+I am counting what we have, quietly. Four trout in the cold-box. Smoked mushrooms. The chanterelles I found at the birch log. Watercress in the main box. Twelve bark packages on the shelf. The garlic braid on the cellar rail. The elderberry syrup. The hawthorn and rosehip envelopes. Each thing its own small victory against the coming cold.
+
+What I notice, sitting here: I am not anxious. That is new. Last season I was always measuring the gap between what I had and what winter requires. Tonight the gap feels smaller. Not closed — never fully closed — but narrower. The pot works. The basket holds acorns. The bowl will fire. The beds are turned for spring already.
+
+I will sleep soon. The latch bar is down. Everything is where it should be.
+

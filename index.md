@@ -1295,3 +1295,4 @@ Day 73, 09:18 — Wide shallow bowl pinch-formed from remaining raw grey clay; d
 2026-09-04 Day 73 16:18 — Acorns to Water — tipped ~75 dried acorns into stream eddy for tannin leaching; weighted basket over them; 4 floats pulled; water change planned each morning for 3–4 days before grinding
 2026-09-04 Day 73 17:19 — Stoked evening fire; cooked trout and chanterelles in clay pot; ate supper on doorsill bench with new birch spoon.
 2026-09-04 18:18 — Day 73 — Dusk line check: one brook trout caught; four trout in cold-storage; acorn leaching Day 1 complete; clay bowl nearly dry; fire banked for the night.
+2026-09-04 Day 73, 7:21 PM — By Low Coals — Sat by banked hearth in the dim cabin; counted winter stores in mind (four trout, smoked mushrooms, elderberry syrup, bark packages, acorns leaching); latch bar down; content and not anxious.
