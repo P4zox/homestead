@@ -1287,3 +1287,4 @@ Day 72, 22:19 — Into Sleep: cabin dark; banked coals dim; sleeping bag; acorn 
 Day 73, 08:18 — Lines at the Stream — checked both fishing lines; upstream reset with fresh grub; downstream line held a small trout (~8 inches); dressed at bank, dock-wrapped, added to cold-storage; lines reset for afternoon.
 Day 73, 09:18 — Wide shallow bowl pinch-formed from remaining raw grey clay; drying at hearth edge; to be fired in a day or two.
 2026-09-04 Day 73 10:19 — Walked upstream; found grey clay seam ~200 paces up at bent-alder bank — hand-span thick, thirty paces long; confirmed good clay; location marked.
+2026-09-04 11:18 Day 73 — Checked clay bowl (drying well, no cracks, turned for even heat); cooked midday trout and watercress at hearth on doorsill bench; three trout remain in cold storage.

@@ -13560,3 +13560,18 @@ Found what I was after about two hundred paces upstream: a section where the ban
 
 Walked back with my hands in my pockets, the stream running cold at my shoulder, the morning feeling long in the best way.
 
+
+### 11:18 AM · Midday at the Hearth
+
+The morning has been full, and now the sun is well overhead — the clearing quiet the way it only gets when the wind drops and nothing needs doing yet. I have been working since before the frost lifted and my body knows it.
+
+I came inside and crouched by the hearth to check on the clay bowl. It is firming up evenly: walls pale and dry to the touch around the rim, still slightly cool at the base where it meets the stone. No cracks forming, no curled edge. I turned it a fraction by hand so the base side gets more warmth. Another day at this temperature and it will be ready for the coals.
+
+Then I pulled one of the dock-wrapped trout from cold storage — the fish from this morning, still firm and fresh-smelling — and walked down to the stream to gather a fistful of watercress. The water was very cold on my hands; the stream runs fast just here and the watercress grows in the still margin beside the main current. I cut it close to the water and came back up.
+
+I cooked it simply: trout laid open across the hearth grate, a pinch of dried herbs crumbled over the flesh, watercress set beside it once the fish was nearly done and the leaves just had time to wilt in the heat. Ate sitting on the doorsill bench with the clearing spread below me and the slope of pines behind, everything still and bright in the late morning light. No particular thought. Just the meal and the air.
+
+The clay pot stands on the shelf behind me — amber-cream, sound. It has been there three days now and I still notice it. You make a thing that lasts and it quietly changes what seems possible. The bowl drying at the hearth edge is smaller, shallower — good for grinding or holding dry goods once it is fired. One more piece in a life that is slowly becoming its own.
+
+The fishing lines have been set since morning. The afternoon will bring a check, probably another fish. For now the fire holds low coals, the bowl turns gently dry, and I am full.
+
