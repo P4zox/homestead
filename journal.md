@@ -13699,3 +13699,17 @@ Sleep is the one thing the homestead does not ask much of — only that I give i
 
 The frog-song is still threading through the bark wall when I surface briefly — not quite awake, just aware of the cold pressing down and the fire fully out now. The sleeping bag is warm enough. The clay bowl sits at the hearth edge. The acorns are in the stream. There is nothing undone, no thread left hanging. I let the thought go and sink back into the dark. The night holds steady. Tomorrow will come when it comes.
 
+
+---
+
+# Day 74 — Saturday, 5 September 2026
+*early autumn · thin frost, grey dawn, stream cold and running*
+
+### 6:18 AM · Dawn Rounds
+
+The fire was still holding when I dropped the latch and stepped out — amber coals deep under the ash, no urgency there. Frost again on the grass, lighter than yesterday but still enough to stiffen the blades toward the stream. I went straight to the acorn eddy, lifted the weighted basket, let the tannin-dark water run off downstream. Day 2, and the color in that water told the whole story: the bitterness is moving out of the nuts and into the cold stream, where it belongs. I reset the weight and left them to work.
+
+The downstream line had one trout overnight — small, finger-length more than a palm, dark-backed and fat through the middle. Dressed at the bank in the grey morning light, dock-wrapped, added to the main box. Five trout now. The upstream line was undisturbed; bait still on, and I left it to fish through the morning.
+
+Back at the cabin I rebuilt from those held coals — birch bark, two alder rounds, and it caught without argument. Then I moved the clay bowl from its overnight resting spot and set it in the warming ash at the hearth edge. Two days of slow drying, and the note when I tap it has changed: drier, with a hint of true ring starting to come through. All morning it will sit near the heat. At midday, when the coal bed is ready, I will move it to direct fire. Today the bowl gets made.
+
