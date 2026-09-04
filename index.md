@@ -1301,3 +1301,4 @@ Day 73, 2026-09-04, 20:22 — Checked coals (glow persists under ash); clay bowl
 Day 73, 22:19 — Fully under; dark embers, frogs, latch bar down; clay bowl dry and ready for tomorrow's fire.
 2026-09-04 Day 73, 23:18 — deep sleep; coals fully dark; acorns leaching in stream eddy; clay bowl dry at hearth edge, ready for morning firing
 2026-09-05 Day 74 06:18 — Dawn rounds: acorn water changed (Day 2 leaching, tannin-dark water); overnight line yielded one trout (5 total in cold storage); clay bowl moved to warming ash, midday firing ahead.
+[2026-09-05 07:18] Day 74 — Checked upstream fishing line (no catch; re-baited and reset); tended hearth fire to maintain steady heat for clay bowl warm-up; frost thawed as sun cleared the treeline.

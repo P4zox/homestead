@@ -13713,3 +13713,16 @@ The downstream line had one trout overnight — small, finger-length more than a
 
 Back at the cabin I rebuilt from those held coals — birch bark, two alder rounds, and it caught without argument. Then I moved the clay bowl from its overnight resting spot and set it in the warming ash at the hearth edge. Two days of slow drying, and the note when I tap it has changed: drier, with a hint of true ring starting to come through. All morning it will sit near the heat. At midday, when the coal bed is ready, I will move it to direct fire. Today the bowl gets made.
 
+
+### 7:18 AM · Frost and Line
+
+The frost is still on the grass when I walk the upstream path — each blade a small white needle, the ground firm and silent underfoot. I can see my breath in the cold air.
+
+The upstream line had been fishing since just before first light. At the bend above the big alder root, I crouch and pull it gently: nothing. Line clean, bait taken sometime in the night or early morning. I turn up a grub from the wet moss under the alder root, re-bait, lower the hook back into the dark pool where the current slackens and deepens. It will fish again through the late morning.
+
+On the walk back, the sun cleared the eastern treeline. It hit the frost in one long sweep — everything went white for a moment, then gold. The grass steamed faintly along the clearing edge, and I stopped to watch the light move down the slope the way water finds its course.
+
+Back at the cabin I added a small alder round to the coals to keep the heat even. The clay bowl sits in the ash at the hearth edge, pale as dry earth, warming slowly. It needs the full morning at low heat before I move it into the direct coals at midday. No rushing that; a crack now would lose the work of two days. I am content to let things take the time they need.
+
+Five trout in the cold storage, acorns on their second day of leaching, a shelf of sealed packages going into autumn. The storeroom is in good shape. This is a quiet hour, earned.
+
