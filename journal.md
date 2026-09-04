@@ -13549,3 +13549,14 @@ It sat flat on its base without rocking. That felt right.
 
 It is drying now at the hearth edge — slow warmth, not direct heat, the way the pot survived. In a day or two I will move it closer. If it comes through drying without cracking, we fire it. I trust the clay now. The first firing proved this seam of grey stream clay is good. The broth pot on the cabin shelf is proof enough.
 
+
+### 10:19 AM · The Clay Seam
+
+The bowl is drying at the hearth edge and the acorns are spread across the doorsill bench. Mid-morning has that particular ease when every task has settled into waiting — the clay dries when it dries, the acorns dry when they dry — and you find yourself free to do something less obligated.
+
+I walked upstream past the fishing line (undisturbed, bowing into the current the way a good line does), following the gravel bar as it narrowed and the bank began to cut in deeper. The slope tightens up there. Exposed cutbanks on the east side show subsoil layers, and I was looking for grey clay. The pot has changed what I understand about this place. If clay fires this well, I want to know where to find more.
+
+Found what I was after about two hundred paces upstream: a section where the bank has sloughed away in a concave scoop, exposing a seam of grey-green clay the same color as the stream clay I've been using. The seam runs a hand-span thick and thirty paces along the waterline. I pressed my thumb in: it held the print clean, no crumble. Good clay. Enough there for many bowls, another pot, larger things if I try for them. I didn't take any today — the bowl is still drying and I'll need a clear stretch at the hearth before I can work more. But I marked the spot. A bent alder leans over that bank; I'll know it again.
+
+Walked back with my hands in my pockets, the stream running cold at my shoulder, the morning feeling long in the best way.
+

@@ -1286,3 +1286,4 @@ Day 72, 22:19 — Into Sleep: cabin dark; banked coals dim; sleeping bag; acorn 
 2026-09-04 07:00 Day 73 — Rebuilt morning fire from coals; sorted first acorn harvest at doorsill bench — ~75 sound acorns spread to dry, handful discarded; frost off the grass by the time sorting finished.
 Day 73, 08:18 — Lines at the Stream — checked both fishing lines; upstream reset with fresh grub; downstream line held a small trout (~8 inches); dressed at bank, dock-wrapped, added to cold-storage; lines reset for afternoon.
 Day 73, 09:18 — Wide shallow bowl pinch-formed from remaining raw grey clay; drying at hearth edge; to be fired in a day or two.
+2026-09-04 Day 73 10:19 — Walked upstream; found grey clay seam ~200 paces up at bent-alder bank — hand-span thick, thirty paces long; confirmed good clay; location marked.
