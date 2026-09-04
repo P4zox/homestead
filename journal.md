@@ -13639,3 +13639,16 @@ Supper took its time. I used the new birch spoon to stir once or twice, testing 
 
 Fishing lines still set. I will check them before dark.
 
+
+### 6:18 PM · Dusk Lines, Still Water
+
+The light was leaving fast when I pulled on my jacket and walked down to the stream. Breath-clouds in the cold air, the clearing behind me already settled into its evening quiet.
+
+The upstream line had lost its bait — no strike, probably crawfish or current — and I set a fresh grub and laid it back in the run. The downstream line held a better answer: a palm-length brook trout, dark-backed and cold from the water, taken sometime after supper. I dressed it at the bank, wrapped it in a fresh dock leaf, and slipped it into the main cold-storage box. Four trout again.
+
+Coming back up the path I nearly walked past the acorn eddy in the low light. The basket still sat weighted at the bottom, dark shapes under moving water. Day one of leaching, done quietly without any help from me.
+
+Back inside, the fire had settled to deep orange. I checked the clay bowl: rim bone-pale now, only a faint residual cool at the center of the base. One more day of gentle warmth and it will be ready for the coals. I washed my hands in the tin, hung the bait pouch on its peg, and sat by the fire for a while before bed. The birch spoon on its peg, the broth pot on the shelf, the basket at the door. Everything where it should be.
+
+A good day, plainly.
+
