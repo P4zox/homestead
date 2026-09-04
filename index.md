@@ -1291,3 +1291,4 @@ Day 73, 09:18 — Wide shallow bowl pinch-formed from remaining raw grey clay; d
 2026-09-04 Day 73 12:19 — Forest Edge Forage — walked forest edge east and north; found chanterelles at birch log and ripe elderberries on slope; both to cold storage and supply shelf.
 2026-09-04 13:18 Day 73 — Afternoon line check; brook trout on downstream line; cold-storage now four trout; lines reset.
 2026-09-04 14:21 — Day 73 — Elderberry reduction: simmered and strained ripe clusters to dark syrup, sealed on supply shelf; clay bowl rim near-dry.
+2026-09-04 15:20 Day 73 — Carved a birch-branch spoon on the doorsill bench; handle pegged for hanging, bowl scooped clean and smooth — first proper eating spoon for the clay pot.

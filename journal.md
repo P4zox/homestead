@@ -13608,3 +13608,10 @@ I crushed the softened berries against the tin wall with a smooth stick, then le
 
 While the reduction simmered I checked the clay bowl drying at hearth edge. The rim is nearly white now, pale and dry to the touch; the base still carries a faint coolness. One more day of drying, then fire. I turned it a quarter-turn for even drying and left it there.
 
+
+### 3:20 PM · Spoon from the Birch
+
+Split a straight birch branch mid-afternoon — thumb-thick, no knots in the working length. The knife found the grain easily and followed it. I roughed out the bowl first with broad scooping cuts, leaving the walls thick for now, then worked the handle down to a flat oval that sits comfortably in the palm. The bowl took the most time: slow half-moon strokes, turning the piece often, checking depth by pressing a fingertip inside. The inside curved cleanly in the end, no ridges. I smoothed both faces by dragging the blade flat and rounding the rim edge with the spine of the knife. The handle tapers just enough to hang from a peg by a bark loop I tied at the butt end.
+
+I worked on the doorsill bench in the low sun with the acorns drying beside me. The bowl is going to be useful — there is no other way to eat broth from a clay pot without burning yourself or tipping it, and I have been spooning it out with a birch-bark scrap since the pot was finished, which works but feels unfinished. The spoon changes that. Small things that fit the hand make a place feel more like a place.
+
