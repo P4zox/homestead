@@ -1298,3 +1298,4 @@ Day 73, 09:18 — Wide shallow bowl pinch-formed from remaining raw grey clay; d
 2026-09-04 Day 73, 7:21 PM — By Low Coals — Sat by banked hearth in the dim cabin; counted winter stores in mind (four trout, smoked mushrooms, elderberry syrup, bark packages, acorns leaching); latch bar down; content and not anxious.
 Day 73, 2026-09-04, 20:22 — Checked coals (glow persists under ash); clay bowl fully dry throughout; shifted bowl to retained heat; retired to sleeping bag; Day 73 fully settled.
 2026-09-04 21:22 Day 73 — Night Sounds, Sleep Close — lying in the sleeping bag, half-awake to frog-song and the glow of banked coals; let the day's inventory run through the mind with gratitude, then released it to sleep.
+Day 73, 22:19 — Fully under; dark embers, frogs, latch bar down; clay bowl dry and ready for tomorrow's fire.
