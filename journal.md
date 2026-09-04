@@ -13626,3 +13626,16 @@ Cold water pulls tannins slower but cleaner, and I am not in a hurry. I will cha
 
 The fishing lines are still set. I will check them at dusk.
 
+
+### 5:19 PM · Supper by the Coals
+
+The light went sideways through the pine tops around five and I decided supper was the right work for this hour. I knelt at the hearth and coaxed the low coals back up — birch bark first, then two split alder rounds set close together — and they caught without much argument. The clearing went quiet in that particular late-afternoon way, all sound softened, the air holding onto the last warmth before it starts its slow give.
+
+I took one of the dock-wrapped trout from the cold-storage box and unwrapped it on the flat stone. The flesh was cold and clean. I put it in the clay pot with a little stream water, a few dried herb crumbles, and most of the chanterelles — they had been in cold storage since this morning and looked exactly right, still bright gold, still firm. Set the pot on the hearthstone where the heat was even.
+
+While it cooked I sat on the doorsill bench and watched the fire. The clay bowl is still drying at the hearth edge, pale and slowly firming. Tomorrow or the next day it will be ready for its first firing. There is something good about having two vessels now — one already proven, one still becoming.
+
+Supper took its time. I used the new birch spoon to stir once or twice, testing the broth. The chanterelles opened and released their smell, earthy and faintly sweet, and the trout broke apart gently in the water. I ate it all from the pot on the doorsill bench, watching the clearing go dim and the stream sound rise as the air cooled. The spoon fit well in the hand.
+
+Fishing lines still set. I will check them before dark.
+
