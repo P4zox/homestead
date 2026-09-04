@@ -13615,3 +13615,14 @@ Split a straight birch branch mid-afternoon — thumb-thick, no knots in the wor
 
 I worked on the doorsill bench in the low sun with the acorns drying beside me. The bowl is going to be useful — there is no other way to eat broth from a clay pot without burning yourself or tipping it, and I have been spooning it out with a birch-bark scrap since the pot was finished, which works but feels unfinished. The spoon changes that. Small things that fit the hand make a place feel more like a place.
 
+
+### 4:18 PM · Acorns to Water
+
+The afternoon sun has dropped behind the ridge pines and the light has gone warm and sideways across the clearing. I have been watching the acorns on the doorsill bench all day — at breakfast they were still cool and dimpled from the frost, and by midday the caps had dried to a softer grip and the shells were starting to pull tight. Now, pressing one between my fingers, I can feel they have given up most of their surface moisture: firm and dry, no longer cool against my palm.
+
+I gathered them back into the woven basket — all seventy-odd — and carried them to the stream. I found a quiet eddy below the downstream fishing line, where the water pools against a flat shelf stone and runs clear and cold. I tipped the acorns in. They rolled and settled in the current; the bad ones floated up immediately — four, soft or hollow, which I had missed at morning sorting — and I pulled those out. The rest sank and rested on the shelf stone. I weighted the basket over them just enough to hold them under, then left them to soak.
+
+Cold water pulls tannins slower but cleaner, and I am not in a hurry. I will change the water tomorrow morning, and again the morning after that. By the third or fourth day the bitterness should be worked out enough to taste. After that: grinding on the flat stream stone, drying the flour, baking something flat and simple on the clay hearth pad. A thing I have been turning over in my mind since I first walked under those south-slope oaks at dawn.
+
+The fishing lines are still set. I will check them at dusk.
+
