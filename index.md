@@ -1289,3 +1289,4 @@ Day 73, 09:18 — Wide shallow bowl pinch-formed from remaining raw grey clay; d
 2026-09-04 Day 73 10:19 — Walked upstream; found grey clay seam ~200 paces up at bent-alder bank — hand-span thick, thirty paces long; confirmed good clay; location marked.
 2026-09-04 11:18 Day 73 — Checked clay bowl (drying well, no cracks, turned for even heat); cooked midday trout and watercress at hearth on doorsill bench; three trout remain in cold storage.
 2026-09-04 Day 73 12:19 — Forest Edge Forage — walked forest edge east and north; found chanterelles at birch log and ripe elderberries on slope; both to cold storage and supply shelf.
+2026-09-04 13:18 Day 73 — Afternoon line check; brook trout on downstream line; cold-storage now four trout; lines reset.

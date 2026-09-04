@@ -13588,3 +13588,12 @@ I did not push deeper in. The light was already moving toward afternoon angle an
 
 The bowl sat at the hearth edge, calm and pale. The acorns had not moved.
 
+
+### 1:18 PM · Line in the Current
+
+Walked to the stream at the hour's edge, where the afternoon light has reached the water in bright panels and the cold runs through the stones quiet as thought. The downstream line was taut — a brook trout, nine inches, copper-bellied, working against the current. Lifted it out with both hands. Dressed it at the bank the way I do now, quickly and without ceremony, dock-wrapped it and walked it back to the cold-storage main box. Four trout now.
+
+The upstream line sat still, bait intact. Left it be and reset both lines for the evening.
+
+Came back through the clearing with the sun now fully over the cabin and everything warm and open — the acorns spread on the doorsill bench catching afternoon light, the elderberries on the shelf quiet in the dark, the clay bowl at the hearth edge turning slow and even. The afternoon is long and unhurried. I sat on the doorsill bench a few minutes before coming back inside, just watching the light move across the clearing. Days like this feel like something being given.
+
