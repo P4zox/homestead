@@ -13525,3 +13525,14 @@ The rest — seventy-some, maybe seventy-five — I spread in a single layer acr
 
 By the time the sorting was done the frost had burned off the grass and the sun was halfway up the clearing. A good morning already, and it barely past seven.
 
+
+### 8:18 AM · Lines at the Stream
+
+The frost is long gone by the time I pull on my jacket and head down to the stream. The morning has settled into itself — sun angled low through the pines, light still thin and gold, the clearing quiet behind me. I carry the line kit by habit, though I am only checking what I set yesterday.
+
+The first line, upstream near the root overhang, has nothing. The bait was nibbled clean overnight. I work a fresh grub from under a mossy stone a few paces away, reset the hook, and let the line settle back into the current. The second line, downstream where the channel narrows and slows behind the gravel bar, has weight on it.
+
+A small trout — maybe eight inches, deep-bellied — has taken the hook cleanly and tired itself against the line. I bring it in without rush, dispatch it quickly, and set it on a clean piece of bark. The stream moves past. I stand there a moment longer than I need to. Mornings like this, cold and still, with something to show for yesterday's work, are the ones I want to remember.
+
+I dress the fish at the bank, dock-wrap it carefully, and carry it back to the cold-storage box. The lines are reset and will fish through the afternoon. Four trout in the box now, plus the smoked mushrooms, plus the watercress — the pantry is holding well as autumn deepens.
+
