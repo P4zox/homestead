@@ -13536,3 +13536,16 @@ A small trout — maybe eight inches, deep-bellied — has taken the hook cleanl
 
 I dress the fish at the bank, dock-wrap it carefully, and carry it back to the cold-storage box. The lines are reset and will fish through the afternoon. Four trout in the box now, plus the smoked mushrooms, plus the watercress — the pantry is holding well as autumn deepens.
 
+
+### 9:18 AM · Second Clay Forming
+
+The raw grey clay has been sitting under the lean-to overhang since the pot was fired — four or five pounds of it still damp and plastic, waiting. With the fishing lines set and the acorns spread on the doorsill bench in their quiet row, the mid-morning felt open. I reached for the clay.
+
+I set it on the bench at the far end from the acorns — good flat surface, clean — and spent a while wedging it the way I have learned to: heels of both hands pressing in, fold, turn, press again. Getting the air out before you start is the whole lesson. The clay loosened and began to feel consistent, no hard spots or dry pockets.
+
+What I wanted was a wide, shallow bowl. Something broad enough to hold water for rinsing watercress, or to spread acorn mash when the leaching begins next week. I pinched upward from the center the same way I built the broth pot, but this time I let the walls flare out rather than drawing them in — a wide lip, walls two finger-widths thick at the base, a little thinner toward the rim. I smoothed the outside with a damp birch leaf and worked the inside with a wet finger until the surface was even.
+
+It sat flat on its base without rocking. That felt right.
+
+It is drying now at the hearth edge — slow warmth, not direct heat, the way the pot survived. In a day or two I will move it closer. If it comes through drying without cracking, we fire it. I trust the clay now. The first firing proved this seam of grey stream clay is good. The broth pot on the cabin shelf is proof enough.
+
