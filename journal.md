@@ -13597,3 +13597,14 @@ The upstream line sat still, bait intact. Left it be and reset both lines for th
 
 Came back through the clearing with the sun now fully over the cabin and everything warm and open — the acorns spread on the doorsill bench catching afternoon light, the elderberries on the shelf quiet in the dark, the clay bowl at the hearth edge turning slow and even. The afternoon is long and unhurried. I sat on the doorsill bench a few minutes before coming back inside, just watching the light move across the clearing. Days like this feel like something being given.
 
+
+### 2:21 PM · Elderberry Reduction
+
+The afternoon sun is still strong over the clearing — the kind of warm, angled light that will not last much longer into September. I brought the bark tray of elderberries in from the supply shelf and sat on the doorsill bench to sort through them. My fingers stained dark immediately, that blue-black that elderberries always carry. A few loose stems and any soft berries went to the side; everything firm and plump went into the cook tin with a cup of stream water.
+
+The hearthfire was already holding low coals from the midday meal, so I set the tin on the grate and let it come up slow. No hurry with elderberries — the juice runs easily once the skins split. When the first bubbles came, the smell changed the whole clearing: dark, sweet, a little sharp, something almost ferrous underneath that feels serious in the way autumn feels serious.
+
+I crushed the softened berries against the tin wall with a smooth stick, then let the mass simmer down to half its volume, watching for the moment the liquid clings and falls in slow drops. The reduction came out thick and very dark — nearly black-purple, sweet-tart with a long astringent finish. I strained it through a handful of dry grass to catch seeds and stem bits, then poured it into a small pine-bark cup to cool and set. Once it stiffened I sealed it in a bark envelope and set it on the supply shelf with the other winter stores. It is not much in volume — not even a full cup — but it is dense and will keep a long time, and elderberry syrup has its uses when the cold comes in hard and the chest tightens.
+
+While the reduction simmered I checked the clay bowl drying at hearth edge. The rim is nearly white now, pale and dry to the touch; the base still carries a faint coolness. One more day of drying, then fire. I turned it a quarter-turn for even drying and left it there.
+
