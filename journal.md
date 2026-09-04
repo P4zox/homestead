@@ -13667,3 +13667,18 @@ What I notice, sitting here: I am not anxious. That is new. Last season I was al
 
 I will sleep soon. The latch bar is down. Everything is where it should be.
 
+
+### 8:22 PM · Coals Checked, Sleep
+
+The coals held. I lifted the ash edge with a stick — a small orange eye still glowing underneath, fist-sized, persistent. Enough to bring back in the morning with a few birch curls; no flint needed. Good.
+
+The clay bowl sat at the hearthstone edge. I pressed my fingertip to its lowest wall, where warmth takes longest to reach: not cold, not damp. The whole form dry now, not just the rim. Another day — or the morning after — and it will be ready for the coal bed.
+
+Outside, full dark and still. I stood at the door a moment before dropping the bar, just long enough to look up. Stars very sharp tonight, the way they get in cold, motionless air. No wind in the pines. The stream carried steadily from below — indifferent, doing what it does.
+
+I noted the morning list in passing: change the acorn water at first light. Watch the western sky — those afternoon clouds may bring rain by Day 75 or 76. Split more tinder before any wet arrives. The bowl might be ready to warm by then.
+
+Back inside: latch bar down. Sleeping bag around my shoulders. Coals giving their last heat into the cabin. It is quiet and enclosed and mine.
+
+I think most evenings: not a bad life. Most nights I believe it.
+
