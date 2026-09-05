@@ -13866,3 +13866,14 @@ Tallow is the other gap. I have none, which means no fat for candle use, nothing
 
 The knife edge came back sharp — catches a thumbnail cleanly, holds a fine scratch. I cleaned the stone and set both back on the shelf. The fire is low but alive. Enough.
 
+
+### 9:18 PM · Night, and Still
+
+The coals are barely breathing — a soft orange glow where the alder piece rests against the birch log at the back of the hearth. I cannot see the far wall of the cabin, just that faint warmth. I am in the sleeping bag now, door latched, knife back on its peg.
+
+It is very quiet. The clearing sometimes creaks at night — a pine settling, a branch shifting in still air — but tonight there is none of that. Just the low hiss of banked ash and whatever I am carrying into sleep.
+
+I found myself going over the shelf in my head again: the two clay vessels, the sealed packages, the six trout in cold storage, the garlic braid on the cellar rail, the acorns still leaching in the stream eddy — three more days before they are ready to grind. It is a lot, considered all at once. I do not think I would have said that two months ago.
+
+Tomorrow I will think about the wattle daub, the tallow gap, the work the coming weeks ask for. Tonight there is nothing left to do but let the dark do its work. Eyes closing on their own.
+
