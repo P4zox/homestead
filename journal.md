@@ -13855,3 +13855,14 @@ I am not worried. I am looking at a gap and calculating what it takes to fill it
 
 The coals will hold till dawn. I will sleep soon.
 
+
+### 8:18 PM · Stone and Firelight
+
+The knife was getting a flat edge — I had noticed it this morning when I cleaned the trout, but let it wait for evening. I found a smooth river stone from the supply shelf and sat close to the coals with the blade angled against it, working the edge in slow strokes. The scrape of steel on stone filled the cabin. It is a good sound when the day is done.
+
+I was thinking about the wattle panels as I worked. They did their job through summer, but wattle alone will not hold out a deep frost — a clay-straw daub would seal them properly, and I have the grey seam two hundred paces upstream waiting. The mix is simple: clay, dry grass, water — press it in and let it cure through the dry days still left. If I can do both panels in a week, maybe two sessions each, the cabin will be properly sealed before cold settles in hard.
+
+Tallow is the other gap. I have none, which means no fat for candle use, nothing to seal bark seams before they start to wick moisture. I have not seen deer sign in weeks, but the stream-bottom edge of the forest might hold something come dawn. That is tomorrow's problem, not tonight's.
+
+The knife edge came back sharp — catches a thumbnail cleanly, holds a fine scratch. I cleaned the stone and set both back on the shelf. The fire is low but alive. Enough.
+
