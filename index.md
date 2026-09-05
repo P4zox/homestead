@@ -1318,3 +1318,4 @@ Day 74, 20:18 — Sharpened knife by firelight; planned clay daub for wattle pan
 2026-09-05 Day 74 21:18 — Night, and Still — settled into sleeping bag, coals banked, quiet reflection on full stores and work ahead; drifting toward sleep
 2026-09-05 22:18 Day 74 — Night Settles: woke once briefly to a sound at the treeline; lay still, nothing repeated; coals still glowing; pulled sleeping bag tighter and returned to sleep.
 Day 74, 23:18 — Night holds still; coals low behind ash, cabin warm; sleeping soundly.
+2026-09-06 Day 75, 06:18 — Dawn rounds: overnight line gave one trout (now seven in cold storage); acorn water changed (Day 3 leaching, bitterness easing); fire rebuilt from banked coals; clear frosty morning.

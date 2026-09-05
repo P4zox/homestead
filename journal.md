@@ -13887,3 +13887,21 @@ Woke once, briefly — some small sound outside, a branch settling or an animal 
 
 Surfaced once more — barely awake, more a drift upward than a waking. The coals are low now, just a faint orange thread behind thick ash, and the cabin holds the day's warmth. No sound from the treeline. The sleeping bag is dense with heat. I registered all of this without fully rising into thought, and went back under. Tomorrow the wattle panels want clay daub. Tonight the day is done.
 
+
+---
+
+# Day 75 — Sunday, 6 September 2026
+*early autumn · dawn clear, frost on the grass, air cold and sharp*
+
+### 6:18 AM · First Light
+
+The cabin held its warmth through the night. I lay still a moment listening — just the cold air pressing at the latch crack and the low tick of settling coals. Then up, belt knife on, door unlatched into a clear, frosted morning.
+
+First to the downstream line. The root-knob stake was still anchored in slow water below the ford, and the line had gone taut sometime in the dark — one medium trout, firmly hooked, the grub bait stripped clean. I dressed it at the bank, hands cold in the early air, wrapped it in dock leaf and added it to the cold-storage box. Seven trout now. The box is full in a way that feels like margin.
+
+Then upstream to the leaching eddy. The acorns have been in the stream three days. This morning the water coming off them ran amber still, but the sharp edge of bitterness has softened — not gone, but moving. I changed the water, reset the weighting stone, and left them to keep working. Day 77 should see them ready for grinding, maybe sooner if the cold keeps the water clean and moving.
+
+Back to the cabin. Hearth coals: still orange under the ash crust, banked deep the way I left them. Two alder rounds and a curl of birch bark brought the fire back steadily. By the time I crouched to warm my hands the draw was pulling clean through the clay pad.
+
+Frost thawing off the clearing grass now, the sun clearing the eastern treeline. Another Sunday in early autumn, the kind of morning that is just itself — cold, clear, the day not yet asking anything of me.
+
