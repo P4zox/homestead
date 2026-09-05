@@ -13726,3 +13726,14 @@ Back at the cabin I added a small alder round to the coals to keep the heat even
 
 Five trout in the cold storage, acorns on their second day of leaching, a shelf of sealed packages going into autumn. The storeroom is in good shape. This is a quiet hour, earned.
 
+
+### 8:18 AM · Peeling the Birch
+
+The frost is fully off the grass by the time I step back out with the knife. The clay bowl sits in its ash cradle warming steadily — it will not be ready for direct heat until midday, not before. The fishing line is set and will wait. That gives me a good clear window.
+
+I take the upstream path again, past the bent-alder bank where the grey clay seam runs, and push a little further into the birch stand. These trees are old enough that the bark peels in wide, papery sheets. I am after the inner bark — the thin pale layer underneath the white outer — which splits into long even strips and makes the strongest cord. I work along four trees, careful not to ring any of them: a narrow window of outer bark first with the knife edge, then the inner bark prizes off in long pale peels. The work is quiet and meditative. Birch sap has mostly retreated for the season, so the bark releases cleanly without tearing.
+
+Half an hour of work gives me a good bundle — maybe thirty usable strips, each a forearm long. I carry them back to the clearing and lay them flat on the smoke rack crossbars so they dry straight and even in the cool morning air. This sun and this breeze should have them ready for twisting in a few hours.
+
+Back at the cabin I feed two small alder rounds to the coals and check the bowl. A careful palm-hover above it: warm, good, not yet hot. The hearth stones are holding steady. Everything moving at its own pace this morning, and that is fine.
+
