@@ -16,3 +16,4 @@
 20:18 — Sharpened belt knife on river stone by firelight; thought through what the wattle panels need before hard frost (clay-straw daub from the grey seam upstream — a few sessions of work); noted the tallow gap for tomorrow; knife edge back sharp, stone cleaned, fire tended low.
 21:18 — Settled into sleeping bag; door latched, coals banked low; lay quiet in the dark going over the shelf in memory — two clay vessels, six trout, sealed packages, garlic braid, acorns in the stream; eyes closing; drifting toward sleep.
 22:18 — Woke once briefly — a sound at the treeline (branch or animal passing); lay still, nothing repeated; coals still glowing orange at door edge; pulled sleeping bag tighter, returned to sleep.
+23:18 — Surfaced briefly to consciousness once more, not fully awake; coals low, just faint orange behind thick ash; cabin warm; no sound from outside; sleeping bag dense with heat; returned to sleep.

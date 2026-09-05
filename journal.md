@@ -13882,3 +13882,8 @@ Tomorrow I will think about the wattle daub, the tallow gap, the work the coming
 
 Woke once, briefly — some small sound outside, a branch settling or an animal passing at the treeline. Lay still and listened. Nothing repeated. The coals were a dull orange glow through the gap at the door edge; the cabin smelled of wood smoke and drying bark. Pulled the sleeping bag tighter and let my eyes close again. Whatever it was, it passed. The night is quiet and I am glad of it.
 
+
+### 11:18 PM · Night Holds Still
+
+Surfaced once more — barely awake, more a drift upward than a waking. The coals are low now, just a faint orange thread behind thick ash, and the cabin holds the day's warmth. No sound from the treeline. The sleeping bag is dense with heat. I registered all of this without fully rising into thought, and went back under. Tomorrow the wattle panels want clay daub. Tonight the day is done.
+
