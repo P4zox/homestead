@@ -13790,3 +13790,14 @@ The birch strips on the smoke rack have stiffened noticeably through the morning
 
 The afternoon is warm and still. Upstream line is still fishing. The oaks on the south slope are beginning to show that loose, tired look they get just before the acorns give easily. I am content to stand watch and let the fire do its patient work.
 
+
+### 2:00 PM · Bowl from the Fire
+
+Two hours into direct heat and the clay bowl has come through. I crouched beside the hearth and looked long at it — walls gone a deep, even terracotta-red top to base, no pale patches, no cracking along the pinch seams. I slid two split-pine sticks under the rim and drew it slowly out of the coal bed, set it on a flat hearth stone six inches from the fire's edge where it can cool without shocking. It sat there steaming faintly in the still afternoon air.
+
+When the surface cooled enough to test, I tapped the wall with a fingernail — it rang hollow and clean, the same sound the broth pot gave when it came right. Two fired bowls now, both true. I moved the broth pot to the right side of the shelf and set a space beside it for the new one when it finishes cooling.
+
+The birch strips on the smoke rack are ready. I ran my thumb down one — stiff, dry, color shifted from green to a pale tawny brown, springs back when bent. I pulled a dozen strips from the rack and coiled them loosely on the doorsill bench. Cord-twisting this evening after supper, with the upstream line still fishing and the bowl resting.
+
+The afternoon holds. It is the good kind of afternoon — things moving at their own pace, and you moving at yours.
+
