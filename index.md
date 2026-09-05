@@ -1316,3 +1316,4 @@ Day 74 17:18 — Upstream line pulled for the night (bait taken, no catch); one 
 2026-09-05 19:18 Day 74 — Took stock by firelight; noted what is done and what remains before the hard frosts; not worried, just calculating.
 Day 74, 20:18 — Sharpened knife by firelight; planned clay daub for wattle panels and noted the tallow gap.
 2026-09-05 Day 74 21:18 — Night, and Still — settled into sleeping bag, coals banked, quiet reflection on full stores and work ahead; drifting toward sleep
+2026-09-05 22:18 Day 74 — Night Settles: woke once briefly to a sound at the treeline; lay still, nothing repeated; coals still glowing; pulled sleeping bag tighter and returned to sleep.

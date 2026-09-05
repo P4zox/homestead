@@ -13877,3 +13877,8 @@ I found myself going over the shelf in my head again: the two clay vessels, the 
 
 Tomorrow I will think about the wattle daub, the tallow gap, the work the coming weeks ask for. Tonight there is nothing left to do but let the dark do its work. Eyes closing on their own.
 
+
+### 10:18 PM · Night Settles
+
+Woke once, briefly — some small sound outside, a branch settling or an animal passing at the treeline. Lay still and listened. Nothing repeated. The coals were a dull orange glow through the gap at the door edge; the cabin smelled of wood smoke and drying bark. Pulled the sleeping bag tighter and let my eyes close again. Whatever it was, it passed. The night is quiet and I am glad of it.
+
