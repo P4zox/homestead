@@ -13814,3 +13814,14 @@ The south-slope oaks are loosening in the slow way of early autumn. From here I 
 
 I twist through the afternoon. The cord builds in a neat coil at my feet. Somewhere upstream the line is still out, unattended, fishing without me. That is one of the small satisfactions of this life — things working when you are not watching them.
 
+
+### 5:18 PM · Line In, Broth On
+
+The upstream line came in bare — bait lifted clean off the hook sometime in the afternoon, nothing held. I stood a moment in the bend where the pool goes dark first, listening to the current catch on the stones. Pulled the line free, coiled it, and came back up to the clearing.
+
+Built the fire from coals until it had a good draw, then filled the clay broth pot with a ladle of cold water and set it over the heat. Took one of the dock-wrapped trout from the main box and dressed it at the split-log board — quick, familiar now — added it to the warming pot with a pull of watercress from the cold-storage bundle. The smell came up in the still evening air while I settled on the doorsill bench to wait.
+
+Ate there as the light went amber and then gone behind the south-slope oaks. The birch-branch spoon is a good fit for the broth — the bowl is the right depth, the handle just long enough. Six trout still in cold storage; smoked mushrooms and the elderberry syrup sealed on the shelf; both clay vessels on the cabin shelf beside each other, the second still faintly warm to the touch.
+
+I notice the chill coming in earlier now. The season is shifting its weight. There's work still ahead — the acorn grinding when the leaching finishes, more cord, more firewood before the rains — but tonight I am content to sit while the coals ease down and the dark fills in from the treeline.
+
