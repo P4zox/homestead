@@ -1305,3 +1305,4 @@ Day 73, 22:19 — Fully under; dark embers, frogs, latch bar down; clay bowl dry
 Day 74, 08:18 — harvested birch inner bark (~30 strips, laid flat on smoke rack to dry); clay bowl warming steadily in hearth ash toward midday firing.
 2026-09-05 09:18 Day 74 — Checked upstream fishing line at deep pool bend (bait intact, trout spotted); sat on doorsill bench in warming autumn sun; birch bark strips drying on rack; clay bowl warming toward midday firing.
 2026-09-05 Day 74 10:18 — hearth tended through mid-morning; clay bowl approaching midday direct-heat firing; birch strips drying on smoke rack
+2026-09-05 Day 74 11:18 — Upstream line checked: one good trout caught, dressed and added to cold storage; fire built high with four alder rounds for midday clay bowl firing.

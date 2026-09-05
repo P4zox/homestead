@@ -13759,3 +13759,14 @@ The birch strips on the smoke rack are still soft at the center but losing their
 
 Outside, the morning is exactly the kind that makes me glad to be here. Clear blue, sun angled and sharp but no longer cold. The stream sound carries. The oaks on the south slope are loosing a leaf or two in the breeze — no color yet, just the first looseness of grip.
 
+
+### 11:18 AM · Line Pulled, Coals Built
+
+The upstream path is still soft — frost-thaw moisture sitting in the moss at root bases, cold in the shade of the pines. I came around the alder bend and the line at the deep pool was taut and alive; a good trout, not small, had taken the bait sometime in the last hour and was holding quiet in the current when I arrived. I lifted it out hand-over-hand, dressed it at the bank on a flat stone, dock-wrapped it, and carried it back under my arm.
+
+Fed the fire four alder rounds when I got home — stacked them high over the coals, aiming for a deep red bed by noon. The clay bowl is still at the hearth edge where I left it, pale and chalky now, walls uncracked through the whole morning warm-up. When the coal bed is right, I will nudge the bowl in with a stick and let it sit directly on the heat. That is the moment the whole day has been bending toward.
+
+The birch strips on the smoke rack are drier than they were this morning — some have begun to curl and stiffen at the edges, losing their greenness. By mid-afternoon they should be ready for cord-twisting.
+
+Out on the south slope the oaks look loose. Leaves still holding, but only just — the kind of looseness that arrives before the real fall. Noon will come warm. I will fire the bowl in it.
+
