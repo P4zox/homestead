@@ -13838,3 +13838,20 @@ I sat on the doorsill bench and did not do anything in particular. The south slo
 
 Day 74. Clay bowl done. Six trout in the box. Acorns leaching. Cord on the rack. A good day, honestly, from the frost-stiff grass at dawn through to this still evening. I am going in soon.
 
+
+### 7:18 PM · Firelight Accounting
+
+Inside now, the door latched, the cabin holding warmth from the coals banked deep along the back wall. Outside there is nothing — that particular silence of a clear, windless autumn night.
+
+I pulled out the last few birch strips out of habit and sorted them by width on the floor. But what I found myself doing was just looking at the shelf. The two fired clay vessels side by side, the broth pot and the wide bowl, both terracotta-red and ringing true. The twelve sealed winter-store packages. The garlic braid on the cellar rail. The elderberry syrup envelope. Six trout in the cold box.
+
+Seventy-four days. I can count what I have now, and the count is real: a cabin that holds, a roof that sheds rain, a door that latches, a fire I can coax from banked coals every morning. Cold storage that actually keeps. A smoke rack, a working hearth, a garden plot turned and waiting for spring seed.
+
+The acorns are in the stream, tannin leaching out day by day — ready to grind into meal around Day 77 if the cold water keeps doing its work. The buried log should fruit in a few weeks, if I placed it right. The south slope oaks could yield another basket before the nuts begin to drop on their own.
+
+What is not done: I am out of tallow, and long dark winter evenings need light. The wattle panels would take clay daub well before the hard frosts arrive — moss and clay pressed into the gaps would hold the cold out better than bark seal alone. Not urgent. Not forgotten either.
+
+I am not worried. I am looking at a gap and calculating what it takes to fill it. That is a different feeling from fear, and I notice the difference.
+
+The coals will hold till dawn. I will sleep soon.
+

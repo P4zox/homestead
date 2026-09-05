@@ -1313,3 +1313,4 @@ Day 74, 12:18 — Noon clay bowl firing begun: bowl moved from warming ash to di
 Day 74, 16:18 — cord-twisting session on doorsill bench; dozen birch strips into ~8 armspans two-ply cord; cord stock healthy; upstream line still set for evening
 Day 74 17:18 — Upstream line pulled for the night (bait taken, no catch); one trout cooked as evening broth with watercress; ate on doorsill bench at dusk; six trout remain in cold storage.
 2026-09-05 18:18 Day 74 — Set downstream fishing line for overnight; banked hearth coals deep for night; sat on doorsill bench watching first stars appear over eastern treeline; no wind, clearing warm and still.
+2026-09-05 19:18 Day 74 — Took stock by firelight; noted what is done and what remains before the hard frosts; not worried, just calculating.
