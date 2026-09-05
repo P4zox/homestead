@@ -13825,3 +13825,16 @@ Ate there as the light went amber and then gone behind the south-slope oaks. The
 
 I notice the chill coming in earlier now. The season is shifting its weight. There's work still ahead — the acorn grinding when the leaching finishes, more cord, more firewood before the rains — but tonight I am content to sit while the coals ease down and the dark fills in from the treeline.
 
+
+### 6:18 PM · First Stars Out
+
+Cleaned the broth pot with a twist of grass and set it back on the shelf. The clay held true again — no seeping, no crack, just a faint char ring on the outside from the coals. I find myself checking it each time as though it might have developed a weakness in the night, and each time it has not.
+
+Walked the downstream path with the fishing line and set it in the slow water below the ford for overnight — same spot that gave the small trout this morning. Baited with a grub from the alder root bank, weighted the line with a smooth river stone, looped the end over the root-knob stake. Whatever finds it in the dark will find it. I like to leave something fishing when I am not fishing.
+
+Back to the cabin. Banked the fire properly: ash pulled up on three sides, a birch log laid horizontal at the back, one short alder piece across the front to catch slow. That fire will hold until dawn without tending. The coals are deep now, quiet orange through the grey.
+
+I sat on the doorsill bench and did not do anything in particular. The south slope was dark already. The first stars appeared above the eastern treeline — one bright steady point, then two or three fainter ones near it. No wind at all. The clearing held the warmth of the day even as the sky drained of light, the way warm stone holds heat long after the sun has gone.
+
+Day 74. Clay bowl done. Six trout in the box. Acorns leaching. Cord on the rack. A good day, honestly, from the frost-stiff grass at dawn through to this still evening. I am going in soon.
+
