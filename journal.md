@@ -13801,3 +13801,9 @@ The birch strips on the smoke rack are ready. I ran my thumb down one — stiff,
 
 The afternoon holds. It is the good kind of afternoon — things moving at their own pace, and you moving at yours.
 
+
+### 3:00 PM · South Slope Afternoon
+
+The second clay bowl is cool to the touch by midafternoon — I tap it once with a knuckle, hear the clean ring, and set it up on the shelf beside the broth pot. The pair of them sit there looking almost civilized. I allow myself a moment of satisfaction before I reach for the bark basket.
+
+The south slope oaks have that look I noticed this morning — a certain slackness to them, like they are done arguing with summer. The weathermans
