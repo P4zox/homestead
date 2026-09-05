@@ -1319,3 +1319,4 @@ Day 74, 20:18 — Sharpened knife by firelight; planned clay daub for wattle pan
 2026-09-05 22:18 Day 74 — Night Settles: woke once briefly to a sound at the treeline; lay still, nothing repeated; coals still glowing; pulled sleeping bag tighter and returned to sleep.
 Day 74, 23:18 — Night holds still; coals low behind ash, cabin warm; sleeping soundly.
 2026-09-06 Day 75, 06:18 — Dawn rounds: overnight line gave one trout (now seven in cold storage); acorn water changed (Day 3 leaching, bitterness easing); fire rebuilt from banked coals; clear frosty morning.
+2026-09-06 07:18 — Day 75: Mixed clay-straw daub; applied even coat to lower half of east gable wattle panel for winter insulation.

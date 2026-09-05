@@ -13905,3 +13905,14 @@ Back to the cabin. Hearth coals: still orange under the ash crust, banked deep t
 
 Frost thawing off the clearing grass now, the sun clearing the eastern treeline. Another Sunday in early autumn, the kind of morning that is just itself — cold, clear, the day not yet asking anything of me.
 
+
+### 7:18 AM · Daub on Wattle
+
+The frost was still melting off the grass when I started. After the dawn rounds and the fire rebuilt, I let the cabin warm a little before going back out. By seven the sun had come far enough over the eastern treeline to throw long gold light across the clearing — still cold, but dry and clear, the kind of morning that makes you want to use it.
+
+I carried the cook tin and bark basket down to the clay seam at the bent-alder bank, two hundred paces upstream. The clay is good there — grey and dense, a hand-span thick, thirty paces along the bank. I scooped out a full tin load and a basket alongside. On the way back I pulled handfuls of dried grass from the meadow edge — stiff dead stems, the kind that does not rot quickly. Back at the clearing I worked clay and grass together in the cook tin with a measured pour of water, adding stems in bunches until the mix held shape without slumping and did not crack when pressed thin.
+
+The east gable wattle catches the downstream wind. Even chinked with moss and bark it lets cold move through when the air sharpens. I pressed the first daub in with both hands, working it into the stake weave, smoothing it outward at the surface. The warmth from my palms helped it adhere. I worked bottom to top, filling gaps the moss had not reached, building an even coat across the lower half of the panel.
+
+Good work. Slow, methodical, satisfying — the kind that asks nothing but patience and gives you something real when you step back to look.
+
