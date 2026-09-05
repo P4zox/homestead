@@ -13770,3 +13770,12 @@ The birch strips on the smoke rack are drier than they were this morning — som
 
 Out on the south slope the oaks look loose. Leaves still holding, but only just — the kind of looseness that arrives before the real fall. Noon will come warm. I will fire the bowl in it.
 
+
+### 12:18 PM · Bowl to Fire
+
+Noon came on clean and certain. I had fed the hearth through mid-morning until the coals were deep and even — a proper coal bed, not just flame, the kind that holds heat steady without surging. The clay bowl had been sitting at the hearth edge all morning in warming ash, turning from pale raw grey to a dull chalky white as the moisture drove out slowly. I crouched low and looked at it closely: walls uncracked, rim level, the pinch-marks softened to faint ripples under the surface. It was ready.
+
+I moved it with two flat sticks — no hands now, the clay far too warm — nudging it off the ash shelf and into the direct coal bed. Coals banked on three sides, three alder rounds set low so the flames lick around rather than over the bowl. It settled in without protest, no crack, no pop. Just the quiet of something finally in the place it has been heading toward all morning.
+
+I have stepped back to a crouch at the chopping block, watching from a few paces. Clay fires in its own time. I have been patient with this bowl — pinch-formed slowly, dried slowly, warmed slowly. That patience usually carries through. I will tend the rounds and not crowd the fire. By mid-afternoon I will know what kind of pot I have made.
+
