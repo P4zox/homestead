@@ -13748,3 +13748,14 @@ I sat on the doorsill bench for a while afterward. The sun is getting warmer as 
 
 The clay bowl will go to direct heat at midday. The acorns are leaching quietly in their eddy. The bark strips will dry by afternoon. Everything is moving at its own pace today, and that is enough.
 
+
+### 10:18 AM · Tending toward noon
+
+The fire has been on my mind all morning — not as worry, but as something to hold. I have been feeding it at intervals, alder rounds on birch-bark coals, keeping the draw steady without pushing it too fast. The clay bowl has been sitting in warm ash since first light, and by now its grey is deepening toward a dry, almost chalky pale. That is the color it should have before it goes into direct heat.
+
+I crouched at the hearth this hour and watched the surface closely. No cracks along the rim; the pinch-marks from forming it still readable, faintly. The walls are thinner on one side than I would like, but I have fired worse and had it hold. Noon is two hours away. I will push the coals higher around the bowl then and let the fire do the rest.
+
+The birch strips on the smoke rack are still soft at the center but losing their wet greenness. By evening they should twist into decent cord. No hurry — the rack will keep them.
+
+Outside, the morning is exactly the kind that makes me glad to be here. Clear blue, sun angled and sharp but no longer cold. The stream sound carries. The oaks on the south slope are loosing a leaf or two in the breeze — no color yet, just the first looseness of grip.
+
