@@ -13806,4 +13806,11 @@ The afternoon holds. It is the good kind of afternoon — things moving at their
 
 The second clay bowl is cool to the touch by midafternoon — I tap it once with a knuckle, hear the clean ring, and set it up on the shelf beside the broth pot. The pair of them sit there looking almost civilized. I allow myself a moment of satisfaction before I reach for the bark basket.
 
-The south slope oaks have that look I noticed this morning — a certain slackness to them, like they are done arguing with summer. The weathermans
+The south slope oaks have that look I noticed this morning — a certain slackness to them, like they are done arguing with summer. The weathermans### 4:18 PM · Afternoon Cord
+
+The bench is warm from the sun and solid under me — same two pine planks I dressed and pegged to the threshold almost fifty days ago. I pull the first birch strip from the coil, hold one end between my teeth, and begin. The inner bark has that faint sweet smell when it is fresh-dry, still a little pale at the center. By the third strip my fingers find their rhythm: roll one strand forward on my thigh, keep the other pinned, let them lock around each other as I advance along the length.
+
+The south-slope oaks are loosening in the slow way of early autumn. From here I can watch the light move across the upper leaves — still green but paler now, the season showing at the edges. Seven trout in the cold box, a second clay bowl on the shelf, the acorns weighted in the eddy. The week has been good.
+
+I twist through the afternoon. The cord builds in a neat coil at my feet. Somewhere upstream the line is still out, unattended, fishing without me. That is one of the small satisfactions of this life — things working when you are not watching them.
+

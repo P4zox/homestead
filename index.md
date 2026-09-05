@@ -1310,3 +1310,4 @@ Day 74, 12:18 — Noon clay bowl firing begun: bowl moved from warming ash to di
 2026-09-05 13:18 — Day 74 — Tended clay bowl firing at one-hour mark; bowl walls turning biscuit-red, no cracks; birch bark strips near cord-readiness on smoke rack.
 2026-09-05 Day 74 14:00 — Clay bowl pulled from firing (two hours direct heat, rings true, terracotta-red throughout); birch strips dry and staged for cord-twisting this evening.
 2026-09-05 Day 74 15:00 — gathered south-slope acorns; upstream trout to cold storage (seven total); leaching batch extended
+Day 74, 16:18 — cord-twisting session on doorsill bench; dozen birch strips into ~8 armspans two-ply cord; cord stock healthy; upstream line still set for evening
