@@ -13737,3 +13737,14 @@ Half an hour of work gives me a good bundle — maybe thirty usable strips, each
 
 Back at the cabin I feed two small alder rounds to the coals and check the bowl. A careful palm-hover above it: warm, good, not yet hot. The hearth stones are holding steady. Everything moving at its own pace this morning, and that is fine.
 
+
+### 9:18 AM · Upstream, Mid-Morning
+
+The birch strips I laid out at sunrise are still pale and damp where they rest across the smoke rack crossbars — not ready to work yet. The clay bowl sits in its bed of warming ash at the hearth edge, holding heat the way new clay does before it has been properly seasoned: dutifully, a little tentatively. I left it undisturbed and walked the upstream path to the fishing line.
+
+The stream is running low for September, clearer than it was in summer. I could see the bed stones through the water where it ran shallow before the deep pool bend. The line was angled well in the current — bait intact, undisturbed. I stood in the cold shade of the bank alder and watched for a few minutes. A small trout held near the bottom of the pool, barely moving, just balancing in the flow. We looked at each other across the water in the way fish and people sometimes do. I left the line set and came back.
+
+I sat on the doorsill bench for a while afterward. The sun is getting warmer as it climbs — not summer-warm, but warm enough that the cold edge of the morning turns pleasant rather than sharp. The birch stand on the slope has that first autumn color along the leaf margins: not yellow yet, more a muted green-gold you would miss if you were not looking for it. I am looking for it now.
+
+The clay bowl will go to direct heat at midday. The acorns are leaching quietly in their eddy. The bark strips will dry by afternoon. Everything is moving at its own pace today, and that is enough.
+
