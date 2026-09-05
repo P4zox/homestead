@@ -1307,3 +1307,4 @@ Day 74, 08:18 — harvested birch inner bark (~30 strips, laid flat on smoke rac
 2026-09-05 Day 74 10:18 — hearth tended through mid-morning; clay bowl approaching midday direct-heat firing; birch strips drying on smoke rack
 2026-09-05 Day 74 11:18 — Upstream line checked: one good trout caught, dressed and added to cold storage; fire built high with four alder rounds for midday clay bowl firing.
 Day 74, 12:18 — Noon clay bowl firing begun: bowl moved from warming ash to direct coal-bed heat; three alder rounds feeding steady; watching from clearing.
+2026-09-05 13:18 — Day 74 — Tended clay bowl firing at one-hour mark; bowl walls turning biscuit-red, no cracks; birch bark strips near cord-readiness on smoke rack.

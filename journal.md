@@ -13779,3 +13779,14 @@ I moved it with two flat sticks — no hands now, the clay far too warm — nudg
 
 I have stepped back to a crouch at the chopping block, watching from a few paces. Clay fires in its own time. I have been patient with this bowl — pinch-formed slowly, dried slowly, warmed slowly. That patience usually carries through. I will tend the rounds and not crowd the fire. By mid-afternoon I will know what kind of pot I have made.
 
+
+### 1:18 PM · Fire Holds Steady
+
+An hour into the bowl firing. I walked back to the hearth from the clearing edge and crouched to look. The pale chalky grey is gone — the walls have deepened to a warm biscuit color, slightly reddened at the base where the coals press closest. No cracking. The surface seems to be contracting slowly, pulling tight around its shape.
+
+I added two alder rounds to the south side of the fire to keep the heat even, then banked a little extra ash against the back face of the bowl where it had been getting more air than the rest. It is sitting quietly now, coals orange-red and low around it. A faint smell of hot clay rises with the smoke — not unpleasant. The first clay pot fired harder and came out amber-cream; this bowl is receiving heat more steadily, and I think it will hold.
+
+The birch strips on the smoke rack have stiffened noticeably through the morning. I pulled one end and it snapped back clean — not the limp damp thing it was at dawn. Another hour or two and they will be ready for cord-twisting.
+
+The afternoon is warm and still. Upstream line is still fishing. The oaks on the south slope are beginning to show that loose, tired look they get just before the acorns give easily. I am content to stand watch and let the fire do its patient work.
+
