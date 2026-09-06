@@ -14094,3 +14094,14 @@ The upstream fishing line gave one small trout. I dressed it at the bank, added 
 
 The fire was easy to rebuild — the alder round had held through the night, a low steady pulse of orange, and two birch-bark curls and a fresh split caught immediately. Standing at the hearth with the fire coming back, I could feel the frost beginning to lift off the clearing. Good start to a Monday. Better than I had expected.
 
+
+### 7:19 AM · Finding the Flush
+
+The frost had let go of the clearing grass by the time I stepped back out, but the south slope stays in shadow until near eight and the pines down there still wore it. I went with a bark tray and no particular agenda — just to move, to look, to see what the cold nights had brought.
+
+I walked the snare line first. All three loops quiet, sitting neat as I had left them this morning. Then I took the left fork, where the trail drops through a stand of birch and alder into the shadowed hollow at the slope's foot. That hollow holds moisture even in dry spells, and I have found mushrooms there before.
+
+An old birch has been rotting on the ground there for at least two seasons. I checked it on a guess, and the north face had a good flush of oysters — pale, shelf-shaped, spreading four hands across the shaded wood. Prime, just past opening. I harvested the cluster clean, leaving the base to fruit again, then moved along the slope to a mossy alder stump I had passed a dozen times before. Two smaller clusters there, same stage. Both came off onto the tray.
+
+Came back to the clearing with more than I expected. I split the harvest: the larger clusters laid across the smoke rack to begin drying through the day; the smallest kept aside fresh for tonight's pot. It felt like the right kind of luck — the slope giving something back after the hard work of the past weeks.
+
