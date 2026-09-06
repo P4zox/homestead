@@ -14076,3 +14076,21 @@ The alder round still breathes — a slow orange pulse I can see through closed 
 
 Somewhere in the last half-hour the thinking let go. Dawn has snares to check, acorn water to change, a line to pull. Tonight those are only words. The dark has everything now.
 
+
+---
+
+# Day 76 — Monday, 7 September 2026
+*early autumn · cold clear dawn, frost on clearing grass, sun at east treeline*
+
+### 6:18 AM · First Catch
+
+The frost was still thick on the grass when I lifted the latch bar and stepped out into the clearing. Monday. The stream was running fast and loud, the air sharp enough to catch in the chest. I went south first, working through pine needles and frost-stiff grass toward the bramble where I had set the three snares yesterday afternoon.
+
+The first two loops were empty — untouched, loops still open, bait sticks undisturbed. I almost expected all three to be nothing; it was only the first night. But the third snare, at the bend where the run narrowed to a hand-width between two roots, had held. A small grey rabbit, stilled overnight in the loop. I reset the snare, carried the rabbit back to the clearing, and dressed it at the edge of the lean-to — quick work in the cold, fur laid flat on the bark shelf to dry, carcass wrapped in dock leaves and added to the cold-storage box beside the trout.
+
+Then to the stream. The acorn basket was right where I had left it, weighted under the cold eddy water. I lifted it out and poured the water off — dark amber, smelling faintly of tannin but noticeably less bitter than yesterday. Day five of leaching. One more change, maybe two, and they will be ready to grind. I set the basket back, weighted the flat stone over it, and let the stream keep doing its patient work.
+
+The upstream fishing line gave one small trout. I dressed it at the bank, added it to cold storage. Eight trout now, plus the rabbit, plus smoked mushrooms in bark-sealed packages.
+
+The fire was easy to rebuild — the alder round had held through the night, a low steady pulse of orange, and two birch-bark curls and a fresh split caught immediately. Standing at the hearth with the fire coming back, I could feel the frost beginning to lift off the clearing. Good start to a Monday. Better than I had expected.
+

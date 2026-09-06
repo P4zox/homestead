@@ -1336,3 +1336,4 @@ Day 75, 19:18 — Shelf inventory by firelight; hazelnut tray moved close to coa
 Day 75, 21:18 — Lying in dim cabin, fire banked, listening to stream and hazelnuts settling, drifting toward sleep.
 Day 75, 22:19 — Embers and Dark — lay in sleeping bag in sealed cabin; fire on banked alder round; hazelnuts cooling silent on tray; final hour before sleep.
 Day 75, 23:18 — Full dark; thinking let go; hazelnuts quiet; stream steady; sleeping.
+2026-09-07 Day 76 06:18 — First Catch: south-slope snare held one small grey rabbit (first catch); acorn leaching Day 5 (water dark amber, bitterness easing, ~Day 77 ready); upstream line one trout; cold storage 8 trout + 1 rabbit + smoked mushrooms
