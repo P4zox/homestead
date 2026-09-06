@@ -13934,3 +13934,14 @@ I made it through the lower third before the tray was mostly spent. The base is 
 
 Another clay trip this afternoon. The west gable will be sealed before the week is out.
 
+
+### 10:18 AM · West Gable Sealed
+
+Walked back to the bent-alder bank — two hundred paces through dew-damp grass, the sun properly warm now at my back. The grey clay seam sat cool and heavy under the overhang, just as I left it. Filled the cook tin, pressed the lid down, carried it back on one hip.
+
+Mixed the daub on the lean-to step: a splash of water from the stream bucket, worked in by hand until the mix held shape without slumping. The west gable wattle took the clay readily — tight weave, the stakes holding each band as I pressed upward from where the lower third ended. Palm-width bands, dragged smooth before moving on. The sun was well clear of the treeline by the time I reached the top.
+
+Stepped back and looked at the cabin from outside — north wall, east gable, south wall, west gable. Roof tight. Walls solid. Both gable ends sealed grey and smooth. No light through anywhere I could see. The shelter is as finished as I know how to make it right now.
+
+Stood there for a moment. Let it be what it is: a cabin, properly closed, going into autumn. That is enough.
+
