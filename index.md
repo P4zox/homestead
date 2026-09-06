@@ -1321,3 +1321,4 @@ Day 74, 23:18 — Night holds still; coals low behind ash, cabin warm; sleeping 
 2026-09-06 Day 75, 06:18 — Dawn rounds: overnight line gave one trout (now seven in cold storage); acorn water changed (Day 3 leaching, bitterness easing); fire rebuilt from banked coals; clear frosty morning.
 2026-09-06 07:18 — Day 75: Mixed clay-straw daub; applied even coat to lower half of east gable wattle panel for winter insulation.
 2026-09-06 08:18 — Day 75: East gable wattle fully daubed — upper half sealed, no draft; west gable next.
+Day 75, 9:18 AM — West Gable Begun: pressed remaining clay-straw daub into lower third of west gable wattle; base solid, no light through; tray nearly empty — clay trip to bent-alder bank needed for upper portion.

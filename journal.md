@@ -13923,3 +13923,14 @@ The sun was well up by eight and the clearing dry — good conditions for the up
 
 The lower daub from yesterday was already light at the edges — drying fast in this autumn sun. The west gable still waits, and I estimate one more clay load from the bent-alder bank will be enough to finish it. But finishing one gable all the way through felt like something. The cabin is tighter now than it was at dawn.
 
+
+### 9:18 AM · West Gable Begun
+
+The east gable dried fast this morning in the cold air — I pressed my palm to it one last time before turning to the west side and it held firm, clay-smooth, no give. Two sessions to seal the east panel completely; I will take that.
+
+The bark tray of remaining daub sat at the west gable corner. I crouched to look at the wattle: tightly woven, stakes solid, but the weave had dried unevenly compared to the shaded east side — afternoon light hits this face all summer. I worked a little water back into the tray mix and began pressing the clay-straw fill in from the base, section by section, dragging my palm smooth after each load.
+
+I made it through the lower third before the tray was mostly spent. The base is in and solid; no light comes through what I have covered. But the upper two-thirds wait. I will need another clay load from the bent-alder bank — one full cook-tin worth — before I can close the rest. I set the tray down and walked inside for a drink of water, let the mid-morning sun move a little further across the clearing.
+
+Another clay trip this afternoon. The west gable will be sealed before the week is out.
+
