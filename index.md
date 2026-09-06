@@ -1325,3 +1325,4 @@ Day 75, 9:18 AM — West Gable Begun: pressed remaining clay-straw daub into low
 2026-09-06 Day 75 10:18 — West Gable Sealed: both cabin gables fully daubed with clay-straw mix; shelter sealed complete.
 2026-09-06 11:18 Day 75 — Noon Line Pulled: upstream line yielded one fat trout; dressed at bank, added to cold storage (now eight trout); reset line; birch yellowing advanced on east slope; cabin confirmed fully sealed from outside view.
 2026-09-06 Day 75 12:00 — Midday rest on doorsill bench; broth and smoked mushroom; autumn confirmed, shelter fully sealed.
+2026-09-06 Day 75 13:19 — Set three loop snares on south slope at animal runs; tallow gap unmet, watching for small game at dawn

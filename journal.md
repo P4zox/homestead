@@ -13964,3 +13964,12 @@ That felt like enough for a Sunday morning: line pulled, fish in storage, shelte
 Both gables are sealed. The shelter is closed — every gap, every crack — and I know it now the way you know something only after you have finished it. I carried the broth pot to the hearth at noon, warmed it over the coals, and ate sitting on the doorsill bench with the clay bowl in my lap and a few cold strips of smoked oyster mushroom on the side. Sun came straight over the ridge and lay flat on the cleared ground. The birch to the east are properly yellow now, not just hinting at it. Autumn arrived while I was daubing, and I almost missed it.
 
 I sat there long enough to feel it — not the cold, not yet, but the change underneath the warmth: the light at a lower angle, the air carrying something older than summer. Eight trout in cold storage. Acorns in the eddy, leaching. Both gables solid and pale in the sun. The afternoon belongs to nothing in particular. I am letting it.
+
+### 1:19 PM · Snares on the South Slope
+
+After the noon rest, the afternoon felt too open to let pass without purpose. Both gables sealed, eight trout cold-stored, acorns leaching in the stream — the shelter work is done, and now the gaps in provision show more clearly. The one that keeps surfacing: no animal fat in store. No tallow. As winter tightens I will want rendered fat for the lamp and for working wood and leather. The search has been passive until now.
+
+I took a length of two-ply bark cord and walked the south slope in the early afternoon sun. The grass there has dried to straw at the base, and I could read it better than I expected: a run of flattened stems cutting diagonally through a dense patch of bramble, a wider depression where something had crouched. Rabbit or hare, most likely. I set three loop snares — low to the ground, loop open a handspan wide, positioned at the narrowest bend of each run — and staked each cord to a root pin with enough give for the loop to slip free clean. Covered the immediate ground around each stake with dry needles and loose bark so the disturbance would fade before dusk.
+
+I do not know that anything will come. Snares are patience, not certainty. But the south slope now has three set eyes on it, and I will check them at dawn.
+
