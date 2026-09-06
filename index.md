@@ -1329,3 +1329,4 @@ Day 75, 9:18 AM — West Gable Begun: pressed remaining clay-straw daub into low
 Day 75, 14:18 — Found grinding stones at upstream stream bend (grey-green gneiss flat stone + round hand cobble); set on hearth to warm and dry; ready for acorn grinding ~Day 77.
 Day 75, 15:18 — Hazelnuts found at west slope rocky outcrop; three shrubs harvested, nuts spread on bark tray by hearth to dry — oil and winter warmth.
 Day 75, 16:18 — Cord-twisting on doorsill bench in afternoon light; remaining birch inner-bark strips from smoke rack twisted into ~7–8 armspans two-ply cord; strip stock exhausted; clearing gold with advancing birch yellowing.
+2026-09-06 17:18 Day 75 — Autumn Supper, Laid: trout and watercress poached in clay pot; ate on doorsill bench in last sun; birch stand amber, clearing going quiet.

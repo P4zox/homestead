@@ -14007,3 +14007,12 @@ An hour's work added seven or eight armspans of tight two-ply cord to the coil o
 The clearing was lit warmly while I worked. The birch yellowing has spread to the near stand — a dozen more trees now edged with gold. The hazel harvest today still gives me a quiet satisfaction, the weight of the nuts in the shirt hem, the solid snap as they break from the husk. Small plenty, but certain.
 
 Coals are well banked. I'll pull a trout from cold storage before dark and put it slow over the coals.
+
+### 5:18 PM · Autumn Supper, Laid
+
+Pulled one dock-wrapped trout from the cold box and set it near the hearth to rest while I rebuilt the fire from afternoon coals — two birch-round splits, a dry alder limb laid across for long steady heat. The clay pot went on with water from the cook tin; I added watercress from the main box, a fat clove of garlic pulled from the braid on the cellar rail, and a few hawthorn haws from their shelf envelope for sweetness. The broth came to a slow roll and I laid the fillet in, let it poach gently, the cabin filling with the smell of fish and garlic and green water.
+
+Ate from the wide shallow bowl on the doorsill bench in the last of the sun. The birch stand to the east had gone bright amber — every leaf a small coal, the light going sideways and warm. The hazelnuts were releasing their oil-scent from the drying tray. The grinding stone sat warm and dry on the hearth. Both gables pale and solid behind me, the latch bar seated in its keeper.
+
+A full day. I stayed on the bench longer than I needed to, just watching the clearing go quiet. Seven trout still in cold storage, acorns two or three days from flour, snares on the south slope, cord stock good. The tallow gap stays open but the nut stores are building — and the late-afternoon light coming through a sealed cabin door is reason enough to sit still for a while.
+
