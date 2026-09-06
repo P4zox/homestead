@@ -1327,3 +1327,4 @@ Day 75, 9:18 AM — West Gable Begun: pressed remaining clay-straw daub into low
 2026-09-06 Day 75 12:00 — Midday rest on doorsill bench; broth and smoked mushroom; autumn confirmed, shelter fully sealed.
 2026-09-06 Day 75 13:19 — Set three loop snares on south slope at animal runs; tallow gap unmet, watching for small game at dawn
 Day 75, 14:18 — Found grinding stones at upstream stream bend (grey-green gneiss flat stone + round hand cobble); set on hearth to warm and dry; ready for acorn grinding ~Day 77.
+Day 75, 15:18 — Hazelnuts found at west slope rocky outcrop; three shrubs harvested, nuts spread on bark tray by hearth to dry — oil and winter warmth.

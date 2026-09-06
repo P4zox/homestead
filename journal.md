@@ -13986,3 +13986,12 @@ Carried both back and set them on the hearth stone to warm and dry. Tomorrow I w
 
 The south slope had that late amber quality through the birches on the way back. Both snare runs still quiet and undisturbed from what I could see at the treeline. Tomorrow at dawn I'll check them properly.
 
+
+### 3:18 PM · West Slope, Hazelnuts
+
+The afternoon was mine after midday's work — gables sealed, stones drying on the hearth, snares staked in. I walked west.
+
+The pine slope has a rocky break in it, maybe eighty paces out, where boulders pushed through the needle floor and the trees step back. I'd glanced that way before without stopping. Today I followed the ground all the way out and found what I'd half-hoped for: three hazel shrubs clustered at the break, growing toward the gap light. The nuts were past turning — papery husk tips split, the shells hard inside. I worked through all three shrubs slowly, pulling clusters, filling my shirt hem and folding it into a carrying cradle.
+
+They're small nuts, some still green at the base, but heavy with oil. I brought back a full load and spread them across a flat bark tray near the hearth edge to begin drying. They'll cure in a few days. This doesn't close the tallow gap exactly — I still want rendered fat for lamp and cold-weather use — but hazelnuts eaten through winter, cracked a handful at a time, add real warmth to lean meals. With acorns coming ready around Day 77 and now hazelnuts drying beside the hearth, the nut stores are building into something worth counting on.
+
