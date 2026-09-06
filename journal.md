@@ -13916,3 +13916,10 @@ The east gable wattle catches the downstream wind. Even chinked with moss and ba
 
 Good work. Slow, methodical, satisfying — the kind that asks nothing but patience and gives you something real when you step back to look.
 
+
+### 8:18 AM · East Gable, Sealed
+
+The sun was well up by eight and the clearing dry — good conditions for the upper reach. I brought the small stool out from the lean-to and balanced it on the lean-to planks to get level with the top half of the east gable wattle. The daub from yesterday had stiffened overnight on the bark tray; I worked a little water back into it and it came right again. Pressing into the upper stake weave went slowly because my arms tired at the angle, but the mix packed well — no slumping, no dropping. I dragged a wet palm over each finished section and the surface skinned smooth. When I stepped back and looked, both halves of the east gable were the same dull grey-brown, and for the first time no light came through at that end. I pressed a hand flat against the panel and felt no draft. It holds.
+
+The lower daub from yesterday was already light at the edges — drying fast in this autumn sun. The west gable still waits, and I estimate one more clay load from the bent-alder bank will be enough to finish it. But finishing one gable all the way through felt like something. The cabin is tighter now than it was at dawn.
+
