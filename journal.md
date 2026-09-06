@@ -14040,3 +14040,14 @@ I pressed my palm to the east gable panel: solid, warm from the day retained hea
 
 Outside through the open door, the birch stand has gone to silhouette. The stream is audible if I hold still. Two alder rounds on the fire; door left a crack ajar against the cooling air. Tomorrow: dawn snares, acorn water Day 5, upstream line. The grinding stones wait warm on the hearth stone. Day 77 comes close.
 
+
+### 8:18 PM · Fire Banked
+
+The hazelnuts are nearly all dry now — I slid the last damp ones from the tray edge to the centre and set the whole tray back from the coals. They will finish on their own heat through the night. The fire I raked into a low star, the largest alder round set on its flat edge at the front so the coal bed holds slow and even under it. The door I closed and dropped the latch bar — I heard it settle into the keeper groove, firm and sure, same sound it has made every night since I fitted it. The door holds; the shelter holds.
+
+Stood a moment in the dark of the cabin before my eyes adjusted. The hearth light came up slowly — ember glow on the log walls, the clay pots catching orange on their shoulders, the supply shelf a row of shadows. Everything there. Everything dry, sealed, counted. I ran over the morning in my mind: snares on the south slope will need checking at first light, the acorn eddy for its fifth water change, the upstream line. Day 77 the acorns should be ready to grind, and the stones are waiting warm on the hearth.
+
+I pulled the sleeping bag from the wall hook and spread it near the fire. Outside, the stream sounds clear and close through the log walls. The clearing is dark and still — no wind, no animal noise. Just the fire and the cold seeping through the chinks by the door, exactly where you would expect it to be.
+
+Enough for today. Sleep soon.
+

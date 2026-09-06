@@ -1332,3 +1332,4 @@ Day 75, 16:18 — Cord-twisting on doorsill bench in afternoon light; remaining 
 2026-09-06 17:18 Day 75 — Autumn Supper, Laid: trout and watercress poached in clay pot; ate on doorsill bench in last sun; birch stand amber, clearing going quiet.
 Day 75 (2026-09-06) 18:18 — Turned hazelnuts by hearthfire, moving damp ones to tray edges; grinding stones warm and ready; fire rebuilt; stock in order heading into night.
 Day 75, 19:18 — Shelf inventory by firelight; hazelnut tray moved close to coals; both gables pressed and confirmed sealed; stream audible, clearing dark, two alder rounds on fire.
+2026-09-06 (Day 75, 20:18) — Banked fire for overnight, settled hazelnuts to finish drying; door latched, sleeping bag spread near hearth — day done, shelter sealed.
