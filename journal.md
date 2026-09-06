@@ -13945,3 +13945,16 @@ Stepped back and looked at the cabin from outside — north wall, east gable, so
 
 Stood there for a moment. Let it be what it is: a cabin, properly closed, going into autumn. That is enough.
 
+
+### 11:18 AM · Noon Line Pulled
+
+Both gables sealed and the cabin standing closed behind me — with no daub left to press and no urgent task in front of me, I walked the upstream path to pull the fishing line before noon. The light was good on the water: a slow golden slant through the birch, the ground still cold in the bank shadow even with the sun well up.
+
+The line came up with one trout — smallish but fat in the belly, a sign that the fish are feeding well before the cold deepens. I bled it at the bank, dressed it clean, wrapped the fillets in dock leaf, tucked them beside the others in the cold-storage box. The box inside held a satisfying cold; I lowered the bark lid and weighted it. Reset the line with a fresh grub from under a flat bank stone.
+
+Walking back through the birch, I saw that the yellowing had moved further since yesterday — two or three more trees fully turned, the rest carrying the change at their tops. Autumn is not approaching. It is here, and I am standing in the middle of it.
+
+The cabin from the east: both gables pale with fresh daub, the bark roof unbroken, the ridgeline straight. I sat on the doorsill bench and lifted the latch bar, dropped it, lifted it again — clean and solid. A complete shelter, sealed going into the season that will test every gap.
+
+That felt like enough for a Sunday morning: line pulled, fish in storage, shelter confirmed sound. The afternoon can be quieter.
+
