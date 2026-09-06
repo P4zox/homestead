@@ -1334,3 +1334,4 @@ Day 75 (2026-09-06) 18:18 — Turned hazelnuts by hearthfire, moving damp ones t
 Day 75, 19:18 — Shelf inventory by firelight; hazelnut tray moved close to coals; both gables pressed and confirmed sealed; stream audible, clearing dark, two alder rounds on fire.
 2026-09-06 (Day 75, 20:18) — Banked fire for overnight, settled hazelnuts to finish drying; door latched, sleeping bag spread near hearth — day done, shelter sealed.
 Day 75, 21:18 — Lying in dim cabin, fire banked, listening to stream and hazelnuts settling, drifting toward sleep.
+Day 75, 22:19 — Embers and Dark — lay in sleeping bag in sealed cabin; fire on banked alder round; hazelnuts cooling silent on tray; final hour before sleep.

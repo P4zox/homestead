@@ -14060,3 +14060,12 @@ The stream is audible. It always is, once the clearing goes quiet enough to let 
 
 Both gables sealed, fire held, seven trout in cold storage, hazelnuts drying. There is nothing left to do tonight but rest. I pull the sleeping bag closer and let my eyes drift shut.
 
+
+### 10:19 PM · Embers and Dark
+
+The alder round holds its heat slowly, sending up no flame — just a steady amber pulse that catches the log wall when my eyes half-open and then lets it go dark again. The hazelnuts on the tray are quiet now; an hour ago they clicked and settled; now they rest in whatever shape the warmth left them. I can hear the stream through the walls, steady and low, the same sound it makes in every season and every hour of the night.
+
+I am tired in the good way — the kind that comes from a full day with something to show for it. Both gables sealed and solid. Grinding stones warming on the hearth stone. The snares set on the south slope. The hazel lode remembered. Tomorrow will find its own work, the same as today did.
+
+The cabin holds its warmth. The door holds. I am in my sleeping bag with the fire going slow behind me, and there is nothing left to do tonight but let the dark finish closing in.
+
