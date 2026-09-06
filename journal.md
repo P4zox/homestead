@@ -14016,3 +14016,16 @@ Ate from the wide shallow bowl on the doorsill bench in the last of the sun. The
 
 A full day. I stayed on the bench longer than I needed to, just watching the clearing go quiet. Seven trout still in cold storage, acorns two or three days from flour, snares on the south slope, cord stock good. The tallow gap stays open but the nut stores are building — and the late-afternoon light coming through a sealed cabin door is reason enough to sit still for a while.
 
+
+### 6:18 PM · Turning Hazelnuts
+
+The supper bowl is rinsed and back on the shelf, and the clearing has gone from amber to a cooler rose-grey as the sun dropped behind the pines. I pulled the door mostly shut against the evening chill but left it cracked — still light enough out and I am not quite ready to close the day.
+
+The hazelnuts on the bark tray needed turning. I crouched by the hearth and rolled each one a quarter-turn with my fingers, feeling for any still damp in the groove where the husk sat. Most are coming along — shells clicking dry and hollow as I tumble them. A few in the center of the pile were still cool and dense; I spread those to the edges where the warmth moves more freely. The whole tray smells of new autumn: dry leaves, nut oil, something almost sweet.
+
+The grinding stones were warm to the touch on the hearth stone. I lifted the flat gneiss, turned it, set it back. Smooth underside, slightly dished in the center from whatever wore it long before I found it. Ready when the acorns are ready — and the acorns are nearly there.
+
+Seven trout in cold storage, gables sealed, cord stocked, hazelnuts curing. The snares are sitting quiet on the south slope. I can feel the list coming together the way it does when a season turns — not finished, never quite finished, but the right things in the right places, one by one.
+
+I rebuilt the fire with two alder rounds and sat with the warmth a while. Tomorrow the acorn water comes off another day amber. Day 77 is looking real.
+

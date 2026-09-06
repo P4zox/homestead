@@ -1330,3 +1330,4 @@ Day 75, 14:18 — Found grinding stones at upstream stream bend (grey-green gnei
 Day 75, 15:18 — Hazelnuts found at west slope rocky outcrop; three shrubs harvested, nuts spread on bark tray by hearth to dry — oil and winter warmth.
 Day 75, 16:18 — Cord-twisting on doorsill bench in afternoon light; remaining birch inner-bark strips from smoke rack twisted into ~7–8 armspans two-ply cord; strip stock exhausted; clearing gold with advancing birch yellowing.
 2026-09-06 17:18 Day 75 — Autumn Supper, Laid: trout and watercress poached in clay pot; ate on doorsill bench in last sun; birch stand amber, clearing going quiet.
+Day 75 (2026-09-06) 18:18 — Turned hazelnuts by hearthfire, moving damp ones to tray edges; grinding stones warm and ready; fire rebuilt; stock in order heading into night.
