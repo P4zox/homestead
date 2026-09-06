@@ -16,3 +16,4 @@
 20:18 — Fire Banked: slid remaining damp hazelnuts to tray centre, moved tray back from coals; raked hearth to low star and set alder round on flat edge for slow overnight burn; dropped latch bar on door — shelter sealed; pulled sleeping bag near hearth; reviewed dawn tasks (snares on south slope, acorn water Day 5, upstream line); settled in for sleep.
 21:18 — Night Stillness: lay in sleeping bag in dim cabin; listened to stream through log walls and hazelnuts cooling on tray; fire held on banked alder round; drifted toward sleep.
 22:18 — Night settled: lay in sleeping bag in sealed cabin; alder round steady amber in hearth; hazelnuts silent on tray; stream audible through log walls; final hour before sleep.
+23:18 — Full Dark: lying in sleeping bag in sealed cabin; thinking let go; alder round a slow ember pulse; hazelnuts quiet on tray; stream steady through log walls; fully asleep.

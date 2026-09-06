@@ -14069,3 +14069,10 @@ I am tired in the good way — the kind that comes from a full day with somethin
 
 The cabin holds its warmth. The door holds. I am in my sleeping bag with the fire going slow behind me, and there is nothing left to do tonight but let the dark finish closing in.
 
+
+### 11:18 PM · Full Dark
+
+The alder round still breathes — a slow orange pulse I can see through closed eyelids. The hazelnuts have gone quiet on the tray. The stream is steady through the log walls, indifferent and even.
+
+Somewhere in the last half-hour the thinking let go. Dawn has snares to check, acorn water to change, a line to pull. Tonight those are only words. The dark has everything now.
+
