@@ -13995,3 +13995,15 @@ The pine slope has a rocky break in it, maybe eighty paces out, where boulders p
 
 They're small nuts, some still green at the base, but heavy with oil. I brought back a full load and spread them across a flat bark tray near the hearth edge to begin drying. They'll cure in a few days. This doesn't close the tallow gap exactly — I still want rendered fat for lamp and cold-weather use — but hazelnuts eaten through winter, cracked a handful at a time, add real warmth to lean meals. With acorns coming ready around Day 77 and now hazelnuts drying beside the hearth, the nut stores are building into something worth counting on.
 
+
+### 4:18 PM · Bench Work, Autumn Light
+
+The afternoon has grown quiet around the work of the day. Both gables sealed, the line pulled, grinding stones warming on the hearth, hazelnuts laid out to dry — the shelter feels properly closed for the first time, sealed end to end, and I find myself with no urgent task calling.
+
+I pulled the remaining birch inner-bark strips from the smoke rack and carried them to the doorsill bench. The sun sits low enough now to angle gold across the clearing. I worked steadily — splitting each strip lengthwise along the grain, letting the curl tell me where to split, then twisting two half-strips against one another between thumb and palm, pausing to press the cord against my knee. The rhythm is almost thoughtless once it starts.
+
+An hour's work added seven or eight armspans of tight two-ply cord to the coil on the supply peg. Not a dramatic count but a healthy one. The snares will need replacing if they hold through a few days; this stock earns its place.
+
+The clearing was lit warmly while I worked. The birch yellowing has spread to the near stand — a dozen more trees now edged with gold. The hazel harvest today still gives me a quiet satisfaction, the weight of the nuts in the shirt hem, the solid snap as they break from the husk. Small plenty, but certain.
+
+Coals are well banked. I'll pull a trout from cold storage before dark and put it slow over the coals.
