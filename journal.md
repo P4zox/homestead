@@ -14029,3 +14029,14 @@ Seven trout in cold storage, gables sealed, cord stocked, hazelnuts curing. The 
 
 I rebuilt the fire with two alder rounds and sat with the warmth a while. Tomorrow the acorn water comes off another day amber. Day 77 is looking real.
 
+
+### 7:18 PM · Shelf by Firelight
+
+At half past seven the clearing is dark between the pines, and the cabin is the only warm thing in it. I moved the hazelnut tray closer to the coals — outer ring nearly dry now, shells hollow-clicking when I roll them in my palm; the damp centre ones still need another hour at the tray edge.
+
+Then I just stood at the supply shelf by firelight, touching things. The twelve sealed bark packages. The haw and rosehip envelopes, four of each. The elderberry reduction. The two clay pots, smooth and cool on their flat board. There is something in the counting of what is there — not anxiety, the opposite. The supplies are real. They will hold.
+
+I pressed my palm to the east gable panel: solid, warm from the day retained heat, and not a breath of outside air. Same on the west. Both ends sealed. The daub went in today and now the shelter is genuinely closed — every gap I have spent weeks thinking about, filled.
+
+Outside through the open door, the birch stand has gone to silhouette. The stream is audible if I hold still. Two alder rounds on the fire; door left a crack ajar against the cooling air. Tomorrow: dawn snares, acorn water Day 5, upstream line. The grinding stones wait warm on the hearth stone. Day 77 comes close.
+
