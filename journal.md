@@ -14051,3 +14051,12 @@ I pulled the sleeping bag from the wall hook and spread it near the fire. Outsid
 
 Enough for today. Sleep soon.
 
+
+### 9:18 PM · Warm Dark, Still
+
+Eyes open in the dark — not restless, just awake the way a person sometimes is after a full day. The cabin is almost entirely unlit. The fire is banked to one alder round and the glow from the firebox gap is dim amber, just enough to make shapes of things: the supply shelf, the two clay pots sitting side by side, the hazelnut tray at the edge of the hearthstone. I can hear the hazelnuts cooling and settling, the shells giving small ticks as they firm up. There is a faint smell of straw and clay coming from the daubed gable walls.
+
+The stream is audible. It always is, once the clearing goes quiet enough to let it through. The log walls carry sound differently at night — each tick and creak of the cooling timbers cleaner, more considered. Outside will be cold now. I do not need to check; I know it from the chill that edged in before I dropped the latch bar. In here it is just warm enough.
+
+Both gables sealed, fire held, seven trout in cold storage, hazelnuts drying. There is nothing left to do tonight but rest. I pull the sleeping bag closer and let my eyes drift shut.
+
