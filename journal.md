@@ -13958,3 +13958,9 @@ The cabin from the east: both gables pale with fresh daub, the bark roof unbroke
 
 That felt like enough for a Sunday morning: line pulled, fish in storage, shelter confirmed sound. The afternoon can be quieter.
 
+
+### 12:00 PM · Nothing in Particular
+
+Both gables are sealed. The shelter is closed — every gap, every crack — and I know it now the way you know something only after you have finished it. I carried the broth pot to the hearth at noon, warmed it over the coals, and ate sitting on the doorsill bench with the clay bowl in my lap and a few cold strips of smoked oyster mushroom on the side. Sun came straight over the ridge and lay flat on the cleared ground. The birch to the east are properly yellow now, not just hinting at it. Autumn arrived while I was daubing, and I almost missed it.
+
+I sat there long enough to feel it — not the cold, not yet, but the change underneath the warmth: the light at a lower angle, the air carrying something older than summer. Eight trout in cold storage. Acorns in the eddy, leaching. Both gables solid and pale in the sun. The afternoon belongs to nothing in particular. I am letting it.
