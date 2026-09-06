@@ -13973,3 +13973,16 @@ I took a length of two-ply bark cord and walked the south slope in the early aft
 
 I do not know that anything will come. Snares are patience, not certainty. But the south slope now has three set eyes on it, and I will check them at dawn.
 
+
+### 2:18 PM · Stone for Grinding
+
+The afternoon opened up after the labor of sealing both gables — cabin finally closed on all sides, gable daub pale and solid in the noon light. The rest on the doorsill bench was good; broth warm, oyster mushroom smokiness carried through.
+
+Around two I decided to close a practical gap: the acorns in the eddy have been leaching four days now, and by Day 77 or so they should be ready to grind. I have no grinding stone. Better to find one before the acorns are ready than scramble after.
+
+I walked the stream upstream, eyes down on the inner banks where current slows and stones collect. The stream bends sharply about fifty paces above the fishing notch. I sorted through a dozen cobbles — too rounded, too soft, one with a promising face but a latent crack running from the edge. Then: a palm-and-a-half wide piece of grey-green gneiss, flat on one side, slightly dished at center, dense enough that pressing a thumb in found no give. Fine-grained surface — right for flour. A second cobble of similar stone, egg-sized and round-bottomed, will work as the hand stone.
+
+Carried both back and set them on the hearth stone to warm and dry. Tomorrow I will test the action with one dry acorn — just to feel the stone before the real grinding load arrives.
+
+The south slope had that late amber quality through the birches on the way back. Both snare runs still quiet and undisturbed from what I could see at the treeline. Tomorrow at dawn I'll check them properly.
+
