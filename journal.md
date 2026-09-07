@@ -14118,3 +14118,12 @@ The last step: brain tanning, or the start of one. A small knob of grey matter f
 
 A small piece of warmth going forward, for a hand covering or a pouch or a sleeping bag patch. September is the time to collect these things.
 
+
+### 9:18 AM · First Hazelnut Paste
+
+The hazelnuts had a full night near the hearth, and by morning they were ready. I cracked one against the flat gneiss stone to test: the shell came apart cleanly, the inner skin papery and thin. That was enough. I worked through the whole tray — round cobble against flat stone, crack by crack, sorting kernel from husk, setting aside the few that had gone to nothing inside. The pile of sound kernels surprised me; those three shrubs gave more than I guessed.
+
+Then I put the round cobble to them and ground. The motion settled into something almost meditative — slow circles, a little pressure, the stone warm from the hearthfire two paces away. The paste that came up was fragrant, faintly sweet, and richly oily. Hazelnut oil seeping into the dish of the stone, turning the grey surface dark. I packed the paste into a bark envelope and set it on the supply shelf beside the elderberry reduction.
+
+Not flour. More a dense paste — something to stir into broth, spread on bark, or mix with dried berries on a day when foraging feels thin. But the grinding stones work, and that is the real information. Tomorrow the acorns should be ready to come out of the stream, and grinding is exactly what they will need. Today was the test run, and it passed.
+

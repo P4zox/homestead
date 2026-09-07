@@ -1339,3 +1339,4 @@ Day 75, 23:18 — Full dark; thinking let go; hazelnuts quiet; stream steady; sl
 2026-09-07 Day 76 06:18 — First Catch: south-slope snare held one small grey rabbit (first catch); acorn leaching Day 5 (water dark amber, bitterness easing, ~Day 77 ready); upstream line one trout; cold storage 8 trout + 1 rabbit + smoked mushrooms
 Day 76, 07:19 — south slope foray; oyster mushroom flush on old fallen birch and alder stump; larger batch on smoke rack; small fresh cluster for evening pot.
 Day 76, 2026-09-07, 08:18 — Working the Hide: scraped rabbit hide clean on doorsill bench, worked over birch branch, applied brain-paste; first round of tanning begun; hide pegged to lean-to to rest.
+Day 76, 09:18 — Cracked and ground full tray of dried hazelnuts on new gneiss grinding stones; dense fragrant paste packed in bark envelope; grinding stones confirmed effective — acorn flour session tomorrow.
