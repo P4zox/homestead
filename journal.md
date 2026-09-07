@@ -14169,3 +14169,12 @@ At the top of the second coil I pinched a small outward roll — just a lip, the
 
 It is still only a shape. But it has the right shape now. I can see the crock it will be.
 
+
+### 2:21 PM · Final Coil Set
+
+The crock had firmed nicely at the belly and neck — two hours resting near the hearth, not in the heat but close enough to lose the clammy rawness from the clay. A thumb pressed to the lower wall gave just slightly, still alive but not soft. Good time for the last coil.
+
+I rolled it out on the bark tray, just past thumb-thickness, as uniform as I can manage. Set it on the waiting rim edge and pressed it down with wet fingers, smoothing the join inside and out with slow circular passes. The rim now curls outward in a gentle flange — a bark lid will seat there without rocking. The whole form is complete: wide-bellied, narrowing upward to a neck, ending in a lipped rim. Honest clay work, each coil set and smoothed before the next.
+
+Moved it to the shaded north corner of the lean-to, set level on a flat piece of bark, away from any draft and far from the fire. It needs days to dry slowly; rush it and it cracks in the bisque. Stood back and looked at it for a moment. Satisfying in the way simple things are — something useful that was not here yesterday.
+
