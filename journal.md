@@ -14293,3 +14293,7 @@ About half the acorns ground. The rest are still surface-drying on the flat bark
 
 The stream runs cold below the eddy. The birch crowns are going gold at the tips. This is what the trees held all summer, and now I have it in my hands.
 
+
+### 7:00 AM · Hide Worked Soft
+
+Unwrapped the rabbit hide from the lean-to peg in the first full light — overnight with the brain-paste had stiffened it to something between soft leather and board. I knew this stage was coming; it is the one that takes patience. Draped the hide over the smooth log end I keep at the lean-to corner and started working it with both hands, pulling and folding from every angle, then switching to the rounded alder knob for deeper pressure. The hide resisted at first, held its shape stubbornly, then slowly gave — the fibers loosening pass by pass as I changed direction and kept the pressure steady. A solid half-hour of this, and the stiffness was gone. It came out pale and pliant, soft to press. Not smoke-finished yet, not fully cured, but the hardest work is done. Hung it back on the lean-to peg without wrapping to let it breathe and dry slowly through the day. Tomorrow, or the day after, I will smoke it for durability and set the cure. For now I am glad to have my hands back and the hide in good shape — one more piece of winter kit coming together.
