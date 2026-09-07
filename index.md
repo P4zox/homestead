@@ -1350,3 +1350,4 @@ Day 76, 16:18 — Cooked rabbit and oyster mushroom broth with garlic and waterc
 2026-09-07 17:18 — Day 76 — Last Light at the Eddy: walked to stream eddy at dusk, acorn water clearing (nearly ready); banked hearthfire for night; crock slow-drying in lean-to; cabin sealed and supplied.
 2026-09-07 18:18 Day 76 — Checked fishing line and stone tools by banked firelight; tools in order for tomorrow
 Day 76, 19:20 — North wind in eaves, cabin sealed; hearthfire banked; settled inside for the night.
+Day 76, 20:00 — Opened the door a hand-width at dark; watched stars over the east slope and listened for the stream under the wind; pulled the latch bar home and settled to sleep.

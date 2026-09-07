@@ -14230,3 +14230,14 @@ The wind shifts and the ridgepole gives one long groan. I put my hand on the log
 
 Day 76 is almost done. It was full. I am well.
 
+
+### 8:00 PM · Night Watch
+
+Lifted the latch bar and opened the door a hand-width — just to look, not to go out. The north wind had found its settled register, a low steady sound in the pine tops, no gusting. Stars crowded the east slope treeline already, the Milky Way beginning its long sweep above the ridge. Cold air pressed through the gap, sharp with resin, and behind me the cabin breathed warmth back.
+
+I stood there a little while. The clearing was all shadow and starlight, the smoke rack a dark shape south of the cabin. Everything out there unchanged from an hour ago, unchanged from this morning — the clearing the same, the stream running the same, the snare lines patient in the dark. It was good to see it, though.
+
+Before closing the door I listened for the stream. Found it under the wind — that low steady sound that has been there every night of the seventy-six days here. I pulled the latch bar home and went back to the sleeping bag.
+
+The fire will hold. The crock dries without fuss. Tomorrow: acorn flour, the hide's second tanning, whatever else comes with the light.
+
