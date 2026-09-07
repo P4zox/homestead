@@ -14178,3 +14178,14 @@ I rolled it out on the bark tray, just past thumb-thickness, as uniform as I can
 
 Moved it to the shaded north corner of the lean-to, set level on a flat piece of bark, away from any draft and far from the fire. It needs days to dry slowly; rush it and it cracks in the bisque. Stood back and looked at it for a moment. Satisfying in the way simple things are — something useful that was not here yesterday.
 
+
+### 3:20 PM · Mushrooms to Cold Box
+
+The oyster mushrooms have been on the smoke rack since morning — gills-down under a clear autumn sky, shifting sun pulling the last moisture through them over hours. When I went out to check at half-past three the largest piece pressed dry all the way through between thumb and forefinger, papery at the edges, color deepened to a warm brown-gold. The smell still good: earthy, clean, a little sweet.
+
+I pulled the batch off the ridgepole and crossbars, bark-wrapped each piece in a folded strip, and stacked them in the cold storage main box with the smoked hen-of-the-woods already there. The box is getting full in a satisfying way — trout, rabbit, smoked mushrooms layered and settled. That is what this season wants from me.
+
+The afternoon felt easy. The crock is drying quietly in the lean-to corner. The acorns are almost through their leaching. Everything is in motion toward something, none of it urgent today.
+
+I sat on the doorsill bench a few minutes afterward and watched the north wind move through the birch crowns above the east slope. Gold coming in the leaves — not much yet, but coming.
+
