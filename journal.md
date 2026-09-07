@@ -14140,3 +14140,12 @@ The morning was genuinely beautiful. Frost fully lifted, the clearing lay in cle
 
 The mushroom smell rising off the rack was earthy and good. They will be ready for the cold box by evening.
 
+
+### 11:18 AM · Clay at the Bend
+
+The sun was properly up by the time I laced my boots and headed upstream. The frost had burned off the clearing by nine, but under the pine canopy the air still held that autumn chill — sharp in the nostrils, settling in the lungs. I followed the stream bank north, stepping over exposed roots and the yellowing fringe of watercress, until the pines thinned and the bent-alder grove came into view.
+
+The grey clay seam was where I had left it, undisturbed: a hand-span thick band along the cut bank, thirty paces long, the colour of old ash. I worked a full section loose with my knife handle, pressing clay free in fist-sized pieces into the bark tray. It came away cleanly — no gravel in this stretch, just the fine smooth body that fired so well. I took as much as I could carry without sloshing the tray: three good double-handfuls, enough for a vessel of some size.
+
+On the walk back I was thinking about what to make. The broth pot is small — useful for daily cooking, but not for storing. What I want now is something wider-bellied, deeper: a proper crock that could hold a winter's worth of acorn flour once the leaching is done. Wide base, tapering sides, a lip I can seal with bark and resin. Back at the hearth I set the tray in the mild warmth beside the fire to rest and temper. Rushing it now would only introduce air. This afternoon, if the sun stays out, I'll begin the coiling.
+

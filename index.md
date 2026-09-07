@@ -1341,3 +1341,4 @@ Day 76, 07:19 — south slope foray; oyster mushroom flush on old fallen birch a
 Day 76, 2026-09-07, 08:18 — Working the Hide: scraped rabbit hide clean on doorsill bench, worked over birch branch, applied brain-paste; first round of tanning begun; hide pegged to lean-to to rest.
 Day 76, 09:18 — Cracked and ground full tray of dried hazelnuts on new gneiss grinding stones; dense fragrant paste packed in bark envelope; grinding stones confirmed effective — acorn flour session tomorrow.
 Day 76, 10:18 — Smoke rack tended: oyster mushrooms turned gills-down and largest pieces moved to ridgepole for direct sun; birch inner bark strips cut from drying rounds, added to cordage basket; mushrooms on track for cold box this evening.
+Day 76, 2026-09-07, 11:18 — Walked upstream to bent-alder clay seam; collected ~three double-handfuls grey clay in bark tray; resting by hearth to temper; planning wide-bellied storage crock for acorn flour.
