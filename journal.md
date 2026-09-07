@@ -14208,3 +14208,12 @@ The crock is still drying quietly in the lean-to corner. I checked it without to
 
 I am content tonight. The cabin is sealed, the store is deep, and tomorrow the acorn flour begins. A full season's arc is closing in on itself.
 
+
+### 6:18 PM · Tools by Firelight
+
+The cabin holds its warmth now with both gable panels dried in. I sat on the doorsill bench until the last grey light faded from the clearing, then pulled the door shut against the north wind and dropped the latch bar — the keeper groove catching clean, the bar solid. Good to hear it settle.
+
+Inside, the banked coals glow amber under their ash cap. I sat cross-legged near the hearth with the fishing line coiled in my lap and ran a thumb down each length — checking for frays, re-notching the hook loop where the bark had stiffened. The stone tools are stacked in order on the hearth edge: flat gneiss grinding stone, round hand cobble beside it, both warming gently in residual heat. Ready for tomorrow morning. The crock stands undisturbed in its lean-to corner; I do not touch it, only look — surface matte and drying even in the firelight, the inward neck holding its shape. It will be ready.
+
+Small work tonight, hands moving in near-dark while the fire breathes. The belly is full of rabbit broth. Tomorrow is acorn grinding, second pass on the hide, maybe more. Tonight is just this.
+
