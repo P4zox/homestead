@@ -14105,3 +14105,16 @@ An old birch has been rotting on the ground there for at least two seasons. I ch
 
 Came back to the clearing with more than I expected. I split the harvest: the larger clusters laid across the smoke rack to begin drying through the day; the smallest kept aside fresh for tonight's pot. It felt like the right kind of luck — the slope giving something back after the hard work of the past weeks.
 
+
+### 8:18 AM · Working the Hide
+
+The frost has lifted from the grass and the clearing is warming now, sun above the east treeline and the shadows shortening. I pulled the rabbit fur from the lean-to shelf before it could stiffen any further and settled on the doorsill bench with it, knee over knee, to work.
+
+A fresh hide won't wait. If you leave it, it dries to board — stiff and unworkable unless you soak it back out and lose time. This one is good still: soft, well-furred for early September, a small grey coat with a white belly strip. I scraped it with the spine of the knife, working from the center out, pressing at a low angle. The membrane came away in thin cloudy sheets — you can feel the moment when the blade hits clean skin and the drag changes. Twice over, both faces, until the surface felt consistent.
+
+Then I fetched a smooth birch branch from the woodpile and worked the hide over it, pulling the skin back and forth against the curve, stretching it through itself. The fibers begin to separate when you do this — the hide goes from translucent and tight to something with more give, more movement.
+
+The last step: brain tanning, or the start of one. A small knob of grey matter from the skull, pressed into a bark cup with a little stream water, mashed with a stick to a thin paste. I worked it in by hand, kneading the hide against itself, coating both sides, pulling and folding. It is not a fast process and it takes more than one round — but starting it correctly matters. The hide rests now, wrapped and pegged on the lean-to, and tomorrow I'll work it again and see how far along it's come.
+
+A small piece of warmth going forward, for a hand covering or a pouch or a sleeping bag patch. September is the time to collect these things.
+
