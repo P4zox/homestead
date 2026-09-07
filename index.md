@@ -1351,3 +1351,4 @@ Day 76, 16:18 — Cooked rabbit and oyster mushroom broth with garlic and waterc
 2026-09-07 18:18 Day 76 — Checked fishing line and stone tools by banked firelight; tools in order for tomorrow
 Day 76, 19:20 — North wind in eaves, cabin sealed; hearthfire banked; settled inside for the night.
 Day 76, 20:00 — Opened the door a hand-width at dark; watched stars over the east slope and listened for the stream under the wind; pulled the latch bar home and settled to sleep.
+Day 76, 21:21 — Night Still — resting in sleeping bag; coals low; cabin sealed; tomorrow: acorn flour grinding and hide second working at dawn.

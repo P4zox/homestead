@@ -14241,3 +14241,14 @@ Before closing the door I listened for the stream. Found it under the wind — t
 
 The fire will hold. The crock dries without fuss. Tomorrow: acorn flour, the hide's second tanning, whatever else comes with the light.
 
+
+### 9:21 PM · Night Still
+
+The coals have settled to low amber. The north wind that followed me all day is muffled now to a low hum through the log walls — the house breathing, as familiar as my own pulse.
+
+I am in the sleeping bag but not yet asleep. Tomorrow is already laid out in my mind: at dawn, I will check the acorn water — Day 5 into 6 — and if it runs clear and bitterless as I expect, I will pour it off and begin grinding on the flat gneiss stone. And the rabbit hide needs its second working; it is stiff from the brain-paste resting, which is exactly right — that stiffness means the tannin has begun its work, and tomorrow's hands will coax the fibers soft again.
+
+I ran through today without hurrying, and that is the best I can say about any day. The crock is drying in its corner. The cold box is stocked: eight trout, one rabbit, smoked oyster mushrooms twice over. The snares are patient in the dark, set at the narrow run bend on the south slope. I did not do anything today I would undo.
+
+There is a satisfaction in this hour that does not need a name. Just the settled weight of tiredness that has earned its place. I let my thoughts ease like coals going to red, then darker.
+
