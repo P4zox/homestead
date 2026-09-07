@@ -16,3 +16,4 @@
 20:00 — Night Watch: lifted latch bar, opened door a hand-width — stars thick over east slope, Milky Way arcing; listened for stream under north wind; cold resin air against cabin warmth; closed door, settled to sleeping bag; fire will hold till dawn.
 21:21 — Night Still: lying in sleeping bag; coals low amber; north wind muffled through sealed walls; tomorrow set — acorn flour grinding at dawn, second hide working; thoughts settling with the coals.
 22:19 — Late Coals: lying still in sleeping bag; coals faded to scattered orange points in grey ash; north wind muffled through sealed walls; cabin dark and warm; tomorrow set in mind — acorn flour at dawn, second hide working, crock check.
+23:18 — Sleep: coals gone to ash; cabin warm and sealed; thoughts settled; sleep came quietly.

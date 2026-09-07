@@ -14263,3 +14263,13 @@ Tomorrow is fixed before sleep takes it: acorn flour on the gneiss stone at firs
 
 Seventy-six days on this ground. The walls are solid around me. That is enough to settle into.
 
+### 11:18 PM · Sleep Claims All
+
+The fire is ash and a few dull coals. North wind muffled, log and daub and bark between me and the dark. I am warm in the sleeping bag and the cabin holds around me the way it has every night since the roof went on.
+
+Tomorrow is already settled in my mind — acorn flour at first light, second working of the rabbit hide, a careful look at the crock in the lean-to corner. Tonight there is nothing left to decide.
+
+I think about what the day carried: the rabbit still in the snare at dawn, mushrooms dry and gold on the rack, broth slow and fragrant on the coals, the crock coil by coil under my hands. A full day, start to finish.
+
+Sleep comes the way all good things come here — quietly, without announcement.
+
