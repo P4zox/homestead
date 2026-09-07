@@ -14252,3 +14252,14 @@ I ran through today without hurrying, and that is the best I can say about any d
 
 There is a satisfaction in this hour that does not need a name. Just the settled weight of tiredness that has earned its place. I let my thoughts ease like coals going to red, then darker.
 
+
+### 10:19 PM · Late Coals
+
+The coals have settled lower since I last looked — a few orange points in grey ash, the clay hearth holding warmth like a steady friend. I have not moved in an hour. The north wind runs against the log walls and finds nothing; both gables hold, the door latch is set firm, and there is no draft to speak of anywhere in this sealed cabin.
+
+In the dark I can hear the timber working — small ticks as cold presses the outside logs, one faint hiss from the last live ember. The shelter smells of woodsmoke, drying clay, and something faintly herbal from the evening broth. Good smells to fall asleep in.
+
+Tomorrow is fixed before sleep takes it: acorn flour on the gneiss stone at first light; second working of the rabbit hide before stiffness returns; a listening check on the crock in the lean-to without disturbing its slow dry. The rest will come from what the morning offers.
+
+Seventy-six days on this ground. The walls are solid around me. That is enough to settle into.
+

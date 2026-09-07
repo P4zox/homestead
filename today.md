@@ -15,3 +15,4 @@
 19:20 — Evening settling: sat on doorsill bench inside cabin; door latched against north wind; hand on log wall — solid, cold outside face, warm and dry within; hearthfire banked to coals; crock drying in lean-to corner; reviewed the day; ready for sleep.
 20:00 — Night Watch: lifted latch bar, opened door a hand-width — stars thick over east slope, Milky Way arcing; listened for stream under north wind; cold resin air against cabin warmth; closed door, settled to sleeping bag; fire will hold till dawn.
 21:21 — Night Still: lying in sleeping bag; coals low amber; north wind muffled through sealed walls; tomorrow set — acorn flour grinding at dawn, second hide working; thoughts settling with the coals.
+22:19 — Late Coals: lying still in sleeping bag; coals faded to scattered orange points in grey ash; north wind muffled through sealed walls; cabin dark and warm; tomorrow set in mind — acorn flour at dawn, second hide working, crock check.
