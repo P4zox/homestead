@@ -14217,3 +14217,16 @@ Inside, the banked coals glow amber under their ash cap. I sat cross-legged near
 
 Small work tonight, hands moving in near-dark while the fire breathes. The belly is full of rabbit broth. Tomorrow is acorn grinding, second pass on the hide, maybe more. Tonight is just this.
 
+
+### 7:20 PM · North Wind, Still Cabin
+
+The door is latched and the north wind can only be heard now, not felt — a low sound in the eaves and a slow creak in the ridgepole. The hearthfire is banked to coals under the ash cap. The cabin holds its warmth well.
+
+I am sitting on the doorsill bench inside tonight rather than out. The air is too cold for the threshold bench in the open; this is the first evening where I have felt that turn — the change from summer to something that means business. Ember glow from the hearth grate lights the room in amber: broth pot on the shelf, wide bowl beside it, basket overhead, bark packages stacked and sealed, the crock drying quietly in the lean-to corner. It feels full. It feels like a life someone might actually live on.
+
+I find myself thinking about tomorrow — the acorn flour grinding if the taste-test at the eddy confirms the bitterness gone, the rabbit hide needing its second working, the crock wanting one more day before it can fire. The pattern of the days is settling into shape: morning for tasks that need cold and light, evening for quiet and warmth, fire at the center of it all.
+
+The wind shifts and the ridgepole gives one long groan. I put my hand on the log wall — solid, cold on the outside face, dry and warm on the inside, bark above thick and unmoving. Whatever the north wind thinks of this cabin, the cabin has opinions of its own.
+
+Day 76 is almost done. It was full. I am well.
+
