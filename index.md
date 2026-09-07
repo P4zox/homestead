@@ -1354,3 +1354,4 @@ Day 76, 20:00 — Opened the door a hand-width at dark; watched stars over the e
 Day 76, 21:21 — Night Still — resting in sleeping bag; coals low; cabin sealed; tomorrow: acorn flour grinding and hide second working at dawn.
 Day 76, 22:19 — Late Coals — lying still in sleeping bag; coals fading to ash; north wind muffled; cabin dark and warm; tomorrow set before sleep.
 2026-09-07 Day 76 23:18 — Sleep Claims All — coals gone to ash, sleep came quietly, cabin warm and sealed
+2026-09-08 Day 77 06:19 — Ground first batch of acorn flour at dawn; leaching confirmed complete; tawny, faintly sweet; packed on supply shelf.

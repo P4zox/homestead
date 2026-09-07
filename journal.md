@@ -14273,3 +14273,23 @@ I think about what the day carried: the rabbit still in the snare at dawn, mushr
 
 Sleep comes the way all good things come here — quietly, without announcement.
 
+
+---
+
+# Day 77 — Tuesday, 8 September 2026
+*Early autumn · frost-white clearing, north wind, clear sky*
+
+### 6:19 AM · First Acorn Flour
+
+The frost is still holding the clearing when I lift the latch bar and step out. North wind off the ridge, stars fading on the western slope, the east treeline just beginning to catch first light. I walk upstream with the empty basket, following the stream-bank sound through the dark.
+
+The acorns have been in the eddy six full days. I pull the weighted bundle out and hold it over the water — clear runoff, no dark tannin colour left in it. I pinch the skin from one acorn and bite through the meat. Almost nothing. A round, faintly starchy nuttiness, the bitter edge nearly gone, just the ghost of a tannin at the back of the tongue — the kind you don't mind. These are ready.
+
+Back at the clearing I spread the first half on flat bark near the hearthstone and rebuild the fire from banked coals — two birch-bark curls, a split, the familiar small ceremony of the morning. While the acorns dry their surfaces I eat a few spoonfuls of hazelnut paste and watch the frost begin to lift off the east bench, the grass going from silver to green as the sun touches it.
+
+By the time the clearing is properly bright the acorns are dry enough to work. I sit cross-legged with the flat gneiss grinding stone in my lap — or rather balanced on a split of wood between my knees — and take up the round cobble. Crack each acorn against the flat face, peel the skin, set the kernel. Then the slow grinding: cobble in circles on the stone, weight into it, meal gathering at the edges. The flour comes out tawny, a little coarser than I expected, faintly sweet with that earthy undertone that belongs to the forest floor in autumn. I scrape it into a bark envelope with the edge of the spoon and press the flap shut.
+
+About half the acorns ground. The rest are still surface-drying on the flat bark — I'll finish them this afternoon. The wide-bellied crock is still slow-drying in the lean-to corner; it needs another few days before it can be fired. But the flour is real now, tucked on the supply shelf beside the hazelnut paste. Stored food made from the land's own patience and mine.
+
+The stream runs cold below the eddy. The birch crowns are going gold at the tips. This is what the trees held all summer, and now I have it in my hands.
+
