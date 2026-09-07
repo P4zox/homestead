@@ -14127,3 +14127,16 @@ Then I put the round cobble to them and ground. The motion settled into somethin
 
 Not flour. More a dense paste — something to stir into broth, spread on bark, or mix with dried berries on a day when foraging feels thin. But the grinding stones work, and that is the real information. Tomorrow the acorns should be ready to come out of the stream, and grinding is exactly what they will need. Today was the test run, and it passed.
 
+
+### 10:18 AM · Tending the Rack
+
+The smoke rack stood south of the cabin in the full morning light. I had laid the larger mushroom batch on the horizontal bars after the foray — gills turned upward, pale-fleshed, still fragrant from the birch log they had grown from. Two hours is enough to begin the drying, but not to finish it, and they would need turning before the midday heat built.
+
+I crouched beside the rack and worked through each piece: those on the upper bar were already beginning to curl and firm at the edges. The smaller ones lower down were sweatier, slower to dry in the morning shade. I turned them gills-down now, where warm air rising off the ground could pass through, and moved the biggest pieces to the ridgepole where the sun would catch them directly.
+
+While there, I cut a few armspans of inner birch bark from the split rounds stacked at the rack's base — drying since last week, the inner layer peeling off almost in a single sheet. The strips went into the basket for future cordage work. Nothing urgent; just the kind of thing you do while your hands are already moving.
+
+The morning was genuinely beautiful. Frost fully lifted, the clearing lay in clean autumn light — pines a darker green, birch leaves starting to yellow at the tips, the stream glinting far below. I stayed beside the rack a few minutes past what was strictly necessary, just watching.
+
+The mushroom smell rising off the rack was earthy and good. They will be ready for the cold box by evening.
+
