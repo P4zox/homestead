@@ -1347,3 +1347,4 @@ Day 76, 13:00 — Crock: two more coils set, neck drawing inward, bark-lid lip p
 Day 76, 2026-09-07, 14:21 — Final rim coil set on storage crock; form complete; slow dry begun in lean-to north corner
 Day 76, 15:20 — Dried oyster mushroom batch pulled from smoke rack, bark-wrapped, moved to cold storage main box; sat on doorsill bench in clear afternoon; first gold in the birch leaves.
 Day 76, 16:18 — Cooked rabbit and oyster mushroom broth with garlic and watercress in clay pot; ate on doorsill bench as September afternoon went golden.
+2026-09-07 17:18 — Day 76 — Last Light at the Eddy: walked to stream eddy at dusk, acorn water clearing (nearly ready); banked hearthfire for night; crock slow-drying in lean-to; cabin sealed and supplied.

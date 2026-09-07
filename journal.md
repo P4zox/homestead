@@ -14197,3 +14197,14 @@ The fresh mushrooms had been waiting on their bark tray since morning. By mid-af
 The dressed rabbit came from cold storage; cut it into pieces with the knife and settled them into the warming water. A small cluster of the fresh oyster mushrooms went in alongside — soft pale grey, still holding some moisture. Three cloves off the garlic braid, crushed on the flat gneiss stone. A handful of watercress from the cold box.
 
 The pot simmered slow on the coals while the light dropped toward the west ridge. Broth came up rich and dark, beading at the rim. Tasted it once — the garlic had opened into it, the mushrooms had given everything. Ate from the wide clay bowl on the doorsill bench, steam rising in the cooling air, the birch crowns on the east slope catching the last of the gold in the north wind. A good meal at the end of a full day.
+
+### 5:18 PM · Last Light at the Eddy
+
+The broth bowl is still warm in my hands when I set it aside. The fire has gone to good coals — the kind that hold overnight without much tending. I walked down to the stream eddy in the last of the gold light to look at the acorns sitting below the surface. The water is still dark but clearing; I tilted my palm in and brought it to my lips — less bitter now, nearly ready. Tomorrow I will pour the water off one last time and set the basket to drain before I begin grinding.
+
+Coming back, the north wind was steadier than before and carrying something cold off the ridge. The birch crowns were bright gold against the grey above me before I ducked under the lean-to eave. I banked the fire properly — ash pulled flat over the centre coals, two dry splits set across the top to catch by morning. Everything in order.
+
+The crock is still drying quietly in the lean-to corner. I checked it without touching — walls holding their form, surface drying even. By the time the acorns are ground and sieved, it might be ready for its first firing. A broth pot and a storage crock both on that shelf before autumn ends: that would be enough.
+
+I am content tonight. The cabin is sealed, the store is deep, and tomorrow the acorn flour begins. A full season's arc is closing in on itself.
+
