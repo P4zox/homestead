@@ -1343,3 +1343,4 @@ Day 76, 09:18 — Cracked and ground full tray of dried hazelnuts on new gneiss 
 Day 76, 10:18 — Smoke rack tended: oyster mushrooms turned gills-down and largest pieces moved to ridgepole for direct sun; birch inner bark strips cut from drying rounds, added to cordage basket; mushrooms on track for cold box this evening.
 Day 76, 2026-09-07, 11:18 — Walked upstream to bent-alder clay seam; collected ~three double-handfuls grey clay in bark tray; resting by hearth to temper; planning wide-bellied storage crock for acorn flour.
 Day 76, 12:18 — Began coil-building wide-bellied storage crock (grey clay, bent-alder seam; base disk + three coils, belly flaring, neck drawing in, bark-lid rim planned; walls resting between rounds)
+Day 76, 13:00 — Crock: two more coils set, neck drawing inward, bark-lid lip pinched at rim top; resting before final rim coil.

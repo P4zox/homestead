@@ -14158,3 +14158,14 @@ I started with a flat base disk, pinched out from the center, rotating the tray 
 
 A good noon for this. Sun through the south opening, fire low but warm, the clearing quiet. The acorns should finish leaching tomorrow. I want the crock dry and fired before I need it.
 
+
+### 1:00 PM · The Neck Rises
+
+The walls had firmed just right — a fingertip pressed to the belly met clay that held its shape but still gave a little at the touch, the sweet spot between wet and leather-hard. I wet my hands at the water tin and rolled two more coils, finer than the earlier ones and tapered very slightly, because the neck wants to be narrower than the belly and the clay knows it before I do.
+
+I set the first coil on the rim and pressed it in with both thumbs — inside seam first, outside after — smoothing until the join disappeared into the wall. Then the second coil, same way. With each course I could feel the form gathering inward, the widest point already behind us, the crock beginning to pull its shoulders together the way a jar does when it means to hold something for a long time.
+
+At the top of the second coil I pinched a small outward roll — just a lip, the start of a bark-lid seat. Not finished yet. One more rest, one more coil, and the rim will be done. Then the whole thing needs to dry slowly, evenly, away from the fire, before any talk of firing.
+
+It is still only a shape. But it has the right shape now. I can see the crock it will be.
+
