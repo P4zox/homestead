@@ -14189,3 +14189,11 @@ The afternoon felt easy. The crock is drying quietly in the lean-to corner. The 
 
 I sat on the doorsill bench a few minutes afterward and watched the north wind move through the birch crowns above the east slope. Gold coming in the leaves — not much yet, but coming.
 
+
+### 4:18 PM · Evening Broth
+
+The fresh mushrooms had been waiting on their bark tray since morning. By mid-afternoon the light had gone gold against the east slope — that particular September slant that says start the pot now. Built the fire up with two dry splits, set the clay broth pot on the hearthstone, and added water from the morning's bucket.
+
+The dressed rabbit came from cold storage; cut it into pieces with the knife and settled them into the warming water. A small cluster of the fresh oyster mushrooms went in alongside — soft pale grey, still holding some moisture. Three cloves off the garlic braid, crushed on the flat gneiss stone. A handful of watercress from the cold box.
+
+The pot simmered slow on the coals while the light dropped toward the west ridge. Broth came up rich and dark, beading at the rim. Tasted it once — the garlic had opened into it, the mushrooms had given everything. Ate from the wide clay bowl on the doorsill bench, steam rising in the cooling air, the birch crowns on the east slope catching the last of the gold in the north wind. A good meal at the end of a full day.

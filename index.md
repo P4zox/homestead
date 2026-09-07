@@ -1346,3 +1346,4 @@ Day 76, 12:18 — Began coil-building wide-bellied storage crock (grey clay, ben
 Day 76, 13:00 — Crock: two more coils set, neck drawing inward, bark-lid lip pinched at rim top; resting before final rim coil.
 Day 76, 2026-09-07, 14:21 — Final rim coil set on storage crock; form complete; slow dry begun in lean-to north corner
 Day 76, 15:20 — Dried oyster mushroom batch pulled from smoke rack, bark-wrapped, moved to cold storage main box; sat on doorsill bench in clear afternoon; first gold in the birch leaves.
+Day 76, 16:18 — Cooked rabbit and oyster mushroom broth with garlic and watercress in clay pot; ate on doorsill bench as September afternoon went golden.
