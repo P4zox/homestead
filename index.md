@@ -1342,3 +1342,4 @@ Day 76, 2026-09-07, 08:18 — Working the Hide: scraped rabbit hide clean on doo
 Day 76, 09:18 — Cracked and ground full tray of dried hazelnuts on new gneiss grinding stones; dense fragrant paste packed in bark envelope; grinding stones confirmed effective — acorn flour session tomorrow.
 Day 76, 10:18 — Smoke rack tended: oyster mushrooms turned gills-down and largest pieces moved to ridgepole for direct sun; birch inner bark strips cut from drying rounds, added to cordage basket; mushrooms on track for cold box this evening.
 Day 76, 2026-09-07, 11:18 — Walked upstream to bent-alder clay seam; collected ~three double-handfuls grey clay in bark tray; resting by hearth to temper; planning wide-bellied storage crock for acorn flour.
+Day 76, 12:18 — Began coil-building wide-bellied storage crock (grey clay, bent-alder seam; base disk + three coils, belly flaring, neck drawing in, bark-lid rim planned; walls resting between rounds)

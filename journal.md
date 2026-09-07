@@ -14149,3 +14149,12 @@ The grey clay seam was where I had left it, undisturbed: a hand-span thick band 
 
 On the walk back I was thinking about what to make. The broth pot is small — useful for daily cooking, but not for storing. What I want now is something wider-bellied, deeper: a proper crock that could hold a winter's worth of acorn flour once the leaching is done. Wide base, tapering sides, a lip I can seal with bark and resin. Back at the hearth I set the tray in the mild warmth beside the fire to rest and temper. Rushing it now would only introduce air. This afternoon, if the sun stays out, I'll begin the coiling.
 
+
+### 12:18 PM · Shaping the Crock
+
+The clay has been resting by the hearth since before midday — an hour of warmth has made it supple without drying it. I pressed a thumb into the center of the first mass and felt it yield cleanly, no crumbling at the edges. Ready.
+
+I started with a flat base disk, pinched out from the center, rotating the tray slowly as I worked. Then the first coil — rolled between my palms to thumb-thickness, pressed onto the base lip, smoothed inside and out with wet fingers. I want this one wider than the broth pot, bellied at the middle — enough to hold a winter's worth of acorn flour without it sitting damp in a narrow column. Three coils up, I let the walls rest while I mixed a small cup of water to keep my fingers damp. The shape is already clear: the belly will flare outward below the midline, the neck will draw back in, and the rim will roll slightly outward so a bark lid can seat snugly.
+
+A good noon for this. Sun through the south opening, fire low but warm, the clearing quiet. The acorns should finish leaching tomorrow. I want the crock dry and fired before I need it.
+
