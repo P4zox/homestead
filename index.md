@@ -1368,3 +1368,4 @@ Day 77, 2:00 PM — Sloe reduction at the hearth; four spoonfuls of dark sloe sy
 Day 77, 17:18 — Split birch billets for tomorrow rowan smoking; checked storage crock (seams tight, drying well); banked hearthfire with pine split and green birch log for overnight.
 Day 77, 18:18, 8 Sep 2026 — First stars over the clearing; sat on doorsill bench at day's close, air cooling toward autumn's edge, rowan clusters fragrant in lean-to, stores full and cabin sealed.
 2026-09-08 19:20 — Day 77: sharpened axe by hearthfire in the evening — bevel restored on both sides; pine resin applied to protect metal; cabin quiet and settling for the night
+2026-09-08 Day 77 20:21 — Folded and resin-sealed five bark storage envelopes by banked fire; set on hearth edge to cure overnight.

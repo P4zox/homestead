@@ -14416,3 +14416,12 @@ Seventy-seven days here, and the cabin is sealed and warm at my back. The stores
 ### 7:20 PM · Axe by Firelight
 
 Pulled the axe from its notch beside the door and brought it to the hearthstone. The blade has done hard work these past weeks — pine logs, birch rounds, rafter notching — and running a thumbnail across the bevel confirmed it: dull in the middle third. Found the smooth river-grey sharpening stone on the supply shelf and sat cross-legged on the cabin floor, axe head braced against one knee, firelight orange and steady from the banked coals. Drew long strokes along the bevel, one side then the other, keeping the angle close and even. The north wind moved through the pines outside but the cabin held. After ten minutes each side the edge caught firelight cleanly — a fine bright line all the way down the bevel. Touched the head with a fingertip of pine resin from the shelf to keep rust off the metal through the autumn damp, then set it back in its notch beside the door. A sharp axe is a different thing from a dull one. That difference will matter when the woodpile needs replenishing in the hard weeks ahead. Added two pine splits to the coals, lay down inside, and let the fire breathe itself slow.
+
+### 8:21 PM · Evening Bark Work
+
+The fire has settled into a steady low glow — two pine splits breathing orange at the base, nothing else added. I pulled the offcuts of birch inner bark from the lean-to shelf and sat cross-legged on the floor with the small flat stone and the resin envelope.
+
+Folding bark envelopes is the kind of work that empties the mind. Press the fold sharp along the grain, crease it twice with a thumbnail, pinch the corner tucks down flat. The warm resin — still faintly golden from this morning's straining — touches each seam with a thin finger and goes tacky almost immediately in the cool air. Five envelopes by the time the fire had dimmed another notch: two large (for acorn flour or dried berries), two medium (herbs, powder), one small and tight (a spare, for whatever the winter decides it needs).
+
+I set them in a row on the hearth edge to cure through the night and thought about what will fill them. The season is past its peak now — I can feel it in the way the dark comes earlier and heavier. But the shelf is already half full, and the cold boxes hold more than I have words for. Five more envelopes is five more things I can seal and set away. That felt like enough for eight o'clock.
+
