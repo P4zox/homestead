@@ -14401,3 +14401,14 @@ Back inside, I fed the hearthfire its nightcap: one pine split to keep color in 
 
 The cabin holds warmth well now with the gables daubed. Small things, slowly added, make a shelter into a house.
 
+
+### 6:18 PM · First Stars
+
+The hearthfire is banked behind me, breathing low and slow beneath a pine split and the green birch log. I carried the birch-branch spoon inside and sat down on the doorsill bench — the dressed planks still holding a trace of the afternoon sun, the clearing spread below in the long blue light of early evening.
+
+The air has turned. Not cold yet, not truly — but the warmth that had pooled in the hollow all afternoon is draining away, and what remains has an edge to it, the first real announcement of autumn's intention. Rowan clusters hang from the lean-to crossbar above the door, gently fragrant, their color very red in the fading light. Tomorrow I'll pull them to the smoke rack at first light.
+
+I was not watching for the stars. I was just sitting, letting the day settle into its shape, and then there they were — pricking through the darkening blue above the pines one by one. The north wind was almost nothing all day and it is truly still now. I could hear the stream in the quiet.
+
+Seventy-seven days here, and the cabin is sealed and warm at my back. The stores sit weighty on the shelf. Two envelopes of acorn flour, sloe syrup, elderberry reduction, hazelnut paste, smoked fish and pigeon and mushroom laid in — whatever winter brings, I am not empty-handed. I stayed on the bench a while longer than I meant to. The stars kept coming.
+
