@@ -14390,3 +14390,14 @@ I ate on the doorsill bench with the carved birch spoon, the pot between my feet
 
 A crow crossed high over the clearing and did not stop. I cleaned the pot with a handful of dry moss, laid two pine splits on the coals, and sat in the last of the afternoon light until it left the clearing entirely.
 
+
+### 5:18 PM · Splitting for Smoke
+
+The light is going golden and long across the clearing now, the kind that stretches shadows into thin lines and makes the birch bark glow. I took the axe to three birch rounds I had set aside near the smoke rack — splitting them thin and cross-hatched for kindling, the kind of clean low-smoke fire you want under drying berries. The billets stacked in a dry bundle beside the rack posts, ready for first light.
+
+Before dark I checked on the storage crock in the lean-to corner. The coil seams are still tight — I ran my thumb along the join lines and found nothing to worry about. The clay has gone from cool and heavy to something closer to wood-dry, not yet ceramic-light but moving there. Two or three more days in the shade before I think about firing it.
+
+Back inside, I fed the hearthfire its nightcap: one pine split to keep color in the coals and a green birch log for slow burn. The birch will hold low heat until morning without attention. I will wake to a red bed and start the smoking fire in the rack before the dew has lifted.
+
+The cabin holds warmth well now with the gables daubed. Small things, slowly added, make a shelter into a house.
+

@@ -1365,3 +1365,4 @@ Day 77, 11:19 — Ground second acorn batch (~38 acorns) on gneiss stone; two fl
 Day 77, 2:00 PM — Sloe reduction at the hearth; four spoonfuls of dark sloe syrup sealed on supply shelf beside elderberry reduction.
 2026-09-08 Day 77 15:19 — Strung twelve rowan clusters onto four bark-cord loops; hanging from lean-to crossbar to air-set overnight before smoke-rack drying at dawn.
 2026-09-08 16:19 Day 77 — Supper by Coals: two trout and watercress simmered in clay pot; ate on doorsill bench in last afternoon light; stores feel real as autumn tilts.
+Day 77, 17:18 — Split birch billets for tomorrow rowan smoking; checked storage crock (seams tight, drying well); banked hearthfire with pine split and green birch log for overnight.
