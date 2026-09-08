@@ -14446,3 +14446,19 @@ There is a difference between having enough and having abundance, and I think au
 
 Sleep comes slowly at this hour. The hearthfire is down to a single orange thread along a pine split, barely enough to read a shadow by. I can hear nothing — no wind, no animal — just the cabin settling in the cold. The sleeping bag holds the warmth from two hours of lying still inside it. I tried once to remember what month it was at home before this, and the thought would not come. It does not need to. The garlic braid hangs from the cellar rail. The rowan clusters are drying in the lean-to. The pines are outside holding the dark, doing what pines do. I let that be enough, and sleep came.
 
+
+---
+
+# Day 78 — Wednesday, 9 September 2026
+*Early autumn · cold and clear, frost on the clearing, first light pale and grey*
+
+### 6:18 AM · Rowans to the Smoke
+
+Woke in the dark before full dawn — the sleeping bag cold at the edges where my breath had settled. Got up carefully so as not to disturb the banked coals and stepped outside. Frost on the clearing grass, each blade white and stiff, the sky pale grey above the treeline with no colour yet. Still and cold. My breath came in small clouds.
+
+Inside, I broke the coals open with a green stick and fed thin birch splits — the ones I had cut last evening — until a small bright fire caught. Not a roaring thing, just enough. Then I took down the rowan clusters from the lean-to crossbar, four loops of cord with twelve clusters between them, the berries waxy and red against the frost-light. Brought them to the smoke rack and laid the loops over the ridgepole so each cluster hung free below it, over the fire.
+
+The smoke started thin, then thickened to a white column in the still air — birch smoke, clean and faintly sweet. I stood watching it rise above the rack until I was sure it was drawing evenly across all the clusters. Then I went back inside and checked the five bark envelopes from last night — firm, the resin set, edges sealed tight. Moved them to the supply shelf beside the others.
+
+Outside again, the first real light was coming through the pines — that long horizontal grey-gold that touches the high branches first and then slowly fills the clearing below. The rowans swayed slightly in it, smoking, and the clearing smelled of autumn and birch and cold air. A good way to start a day.
+

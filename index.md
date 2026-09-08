@@ -1372,3 +1372,4 @@ Day 77, 18:18, 8 Sep 2026 — First stars over the clearing; sat on doorsill ben
 Day 77 (2026-09-08) 21:21 — Night Watch, Lean-to: final evening check of rowan clusters, crock, and bark envelopes curing on hearth; settled into sleeping bag by banked fire.
 2026-09-08 Day 77, 22:18 — Late Embers: lay in sleeping bag by banked hearth counting the season's stores in the dark, let it all go, and gave the night over to the embers.
 2026-09-08 23:18 Day 77 — Deep Night Holds: last waking hour; fire to coal thread; sleep came in a sealed, stocked cabin.
+Day 78, 06:18 — Rowans to the Smoke: rose at frost-dawn, lit birch-smoke fire, moved twelve rowan clusters from lean-to to smoke rack; five bark envelopes cured and shelved.
