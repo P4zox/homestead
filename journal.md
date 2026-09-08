@@ -14358,3 +14358,14 @@ Walked back in afternoon warmth with the basket heavy and fragrant. Set everythi
 
 The stores keep building. The cold box has real weight now.
 
+
+### 2:00 PM · Sloe Down to Syrup
+
+After the rowan walk, I sat by the hearth and let the afternoon settle. The sloes were already parceled, the rowans could wait for tomorrow's rack, and the crock was drying without complaint. There was time.
+
+I cleaned the cook tin, set the sloes in with a thin finger of water, and hung them low over steady coals. They split quickly — frost does that, opens them before you do. The color ran out dark: purple first, then red-black, then something closer to ink as the water cooked off. I stirred slowly with the birch spoon and adjusted the tin once when it threatened to scorch, nothing more. The smell was tart and complex, somewhere between berry and stone.
+
+After an hour I strained the softened skins through a bark cone, pressed the last drops out, and returned the strained liquid to the tin for a short, hard finish. The result: four dense spoonfuls of sloe syrup — dark, intensely tart, a faint warmth at the back of the throat. Sealed in a bark envelope beside the elderberry reduction on the supply shelf. Two dark envelopes now, one from the old hawthorn territory, one from the forest edge this morning. Autumn condensed into two small parcels.
+
+The afternoon light was still golden. I banked the fire down and thought about supper.
+
