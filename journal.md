@@ -14347,3 +14347,14 @@ On the walk back I found myself counting: flour on the shelf, hazelnut paste, el
 
 Autumn has come in gently this year. I do not take that as something I am owed. I just notice it, and feel glad.
 
+
+### 1:18 PM · Rowan and Sloe Walk
+
+After the stream and the morning's grinding, the afternoon came open and easy. I took the woven bark basket down from its peg and walked east along the forest edge — not with a plan exactly, more with the season pulling me forward. The rowans above the clearing have been bowing with red clusters all week; today felt like the day.
+
+Spent an hour moving slowly along the treeline, stopping at each rowan stand. The berries are deep red and waxy, astringent but not unpleasant — good for a sharp reduction or dried for winter use. Filled the basket about two-thirds full with cut clusters. Found a low tangle of sloe along the granite outcrops, just turning from green to dark purple-black, a few frost-nipped early at the tips. Picked a double handful. Then a crab apple tree I'd half-remembered from the east slope — small hard fruits, pale yellow-green, a few already windfall and bruised on the ground. Gathered the best twenty or so from the branches.
+
+Walked back in afternoon warmth with the basket heavy and fragrant. Set everything on the bark tray by the hearth: rowans aside for smoke-rack drying tomorrow, sloe parceled for a bark reduction soon, crab apples dock-wrapped and tucked into the cold box to sweeten in the cool.
+
+The stores keep building. The cold box has real weight now.
+
