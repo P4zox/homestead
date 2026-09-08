@@ -14441,3 +14441,8 @@ Everything that needed doing today got done. Two full acorn flour envelopes. The
 
 There is a difference between having enough and having abundance, and I think autumn is where you learn to want the former. Not overflow. Not excess. Just weight on the shelf sufficient that the cold feels survivable, even ordinary. I am not afraid of what is coming. I let myself count the stores once more in the dark — rabbit, trout, pigeon, mushrooms, flour, syrup, garlic — then let the count go. The embers will hold until morning. I breathed into the bag and let the cabin do what it was built for.
 
+
+### 11:18 PM · Deep Night Holds
+
+Sleep comes slowly at this hour. The hearthfire is down to a single orange thread along a pine split, barely enough to read a shadow by. I can hear nothing — no wind, no animal — just the cabin settling in the cold. The sleeping bag holds the warmth from two hours of lying still inside it. I tried once to remember what month it was at home before this, and the thought would not come. It does not need to. The garlic braid hangs from the cellar rail. The rowan clusters are drying in the lean-to. The pines are outside holding the dark, doing what pines do. I let that be enough, and sleep came.
+

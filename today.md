@@ -16,3 +16,4 @@
 20:21 — Evening Bark Work: sat by banked hearthfire with birch inner-bark offcuts and warm resin; folded and resin-sealed five storage envelopes (two large, two medium, one small); set on hearth edge to cure overnight — ready for winter stores.
 21:21 — Night Watch, Lean-to: stepped out once more — rowan hanging well in lean-to, crock seams dry, bark envelopes stiffening on hearth edge; settled into sleeping bag by banked fire, night deep and still, stars out.
 22:18 — Late Embers: lay in sleeping bag by banked coals; counted the season's stores once in the dark — rabbit, trout, pigeon, mushrooms, flour, syrup, garlic — then let the count go; breathed into the bag and gave the night to the embers.
+23:18 — Deep Night Holds: lay still in sleeping bag as fire dropped to a single coal thread; heard only the cabin settling in the cold; let thoughts of the season go; sleep came.
