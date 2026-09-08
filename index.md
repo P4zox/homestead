@@ -1363,3 +1363,4 @@ Day 77, 11:19 — Ground second acorn batch (~38 acorns) on gneiss stone; two fl
 2026-09-08 12:00 Day 77 — checked upstream fishing line at noon bend; one small brook trout taken and added to cold box; line reset; sat by stream in autumn sun.
 2026-09-08 Day 77 13:18 — Rowan and Sloe Walk: walked forest edge east of clearing; gathered two-thirds basket of ripe rowan clusters, a double handful of sloe, and twenty crab apples from the east slope; cold box gaining autumn weight.
 Day 77, 2:00 PM — Sloe reduction at the hearth; four spoonfuls of dark sloe syrup sealed on supply shelf beside elderberry reduction.
+2026-09-08 Day 77 15:19 — Strung twelve rowan clusters onto four bark-cord loops; hanging from lean-to crossbar to air-set overnight before smoke-rack drying at dawn.

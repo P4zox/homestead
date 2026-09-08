@@ -14369,3 +14369,15 @@ After an hour I strained the softened skins through a bark cone, pressed the las
 
 The afternoon light was still golden. I banked the fire down and thought about supper.
 
+### 3:19 PM · Rowan, Strung
+
+The afternoon light is long and honeyed. After the close, patient work of the sloe reduction — stirring, straining, careful pour — it felt right to step outside with something simpler.
+
+I sat on the doorsill bench with the bark tray of rowan clusters in my lap and a coil of two-ply bark cord beside me. Working with my knife tip and fingers I threaded each cluster stem-first through a short cord loop, knotting at the end so the berry heads hung free and smoke could reach them on all sides. Crowding would slow the drying and risk mold through the long autumn ahead.
+
+By late afternoon I had four cord loops strung — twelve clusters in all — hanging from the lean-to crossbar to finish setting in the moving air. They will go on the smoke rack at first light tomorrow. A steady bark-and-twig smoke all morning should set them for keeping through winter, the hard astringency mellowing just enough to use in broths and syrups when the cold comes deep.
+
+The sloe syrup is sealed. The acorn flour is packed. The pigeon is in the cold box. The day has felt full in the way quiet preparation often does — nothing dramatic, just work that adds up, layer by layer.
+
+I stirred the coals and laid two fresh pine splits before coming in. Supper soon: trout from the cold box, watercress, slow simmer in the clay pot. The light is going gold on the upper pines. I am steady and satisfied.
+
