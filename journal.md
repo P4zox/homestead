@@ -14334,3 +14334,16 @@ The crock still sits in the lean-to corner, drying quietly. The hide hangs on it
 
 I sit a moment on the doorsill bench in the mid-morning sun. The north wind has softened. The clearing is bright and still. The day still has hours, and the afternoon will bring its own work — but for now the grinding is done, and the shelf is heavier than it was at dawn.
 
+
+### 12:00 PM · Stream at Noon
+
+Noon and the sun was straight overhead when I walked the stream path to check the upstream line. The north wind had softened to almost nothing; the pines above the cabin stood perfectly still. The line had been set since early morning with fresh grub bait — I had been leaving it to fish on its own while the morning work went through acorn flour and resin.
+
+At the bend above the cold-storage box I found one small brook trout, a hand's length, caught neatly and still cool from the water. Not a large fish, but honest. I reset the hook with the last grubs I had saved in a scrap of bark, laid the line back into the shadow of the undercut bank, and stood there watching the water run for longer than I needed to.
+
+The stream is different in early autumn. The light comes lower and more golden, and the watercress has started to thin at the edges where the cold seeps hardest. I opened the cold-storage lid and laid the trout in with the others — eight plus one now, wrapped in dock leaf, cool and good. Then I sat at the bank for a while, back against a pine, and let the morning settle.
+
+On the walk back I found myself counting: flour on the shelf, hazelnut paste, elderberry syrup, resin, mushrooms two kinds, watercress, garlic braid, haw and rose hip. Wood eave-high. Cabin sealed. A hide drying in the lean-to. A crock waiting for its first fire. Three snares reset on the south slope. It is more than I had a month ago, and considerably more than I had when the cold first hinted at itself.
+
+Autumn has come in gently this year. I do not take that as something I am owed. I just notice it, and feel glad.
+

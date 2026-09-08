@@ -1360,3 +1360,4 @@ Day 77, 07:00 — Second working of rabbit hide: pulled, folded, kneaded soft; p
 2026-09-08 Day 77 09:19 — Pines and Amber: walked pine stand above cabin; harvested palm-sized lump of milky-amber pine resin from three seeps and one fresh branch-break; softening at hearth edge; crock seams sound; second acorn batch drying for afternoon grind.
 2026-09-08 Day 77 10:19 — Strained warm pine resin through birch-bark cone, golden-clear; sealed in bark envelope on supply shelf.
 Day 77, 11:19 — Ground second acorn batch (~38 acorns) on gneiss stone; two flour envelopes now on supply shelf; sat on doorsill bench in mid-morning sun.
+2026-09-08 12:00 Day 77 — checked upstream fishing line at noon bend; one small brook trout taken and added to cold box; line reset; sat by stream in autumn sun.
