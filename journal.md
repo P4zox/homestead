@@ -14432,3 +14432,12 @@ Stepped outside once more before bed — cabin warm at my back, cool air on my f
 
 Back inside, I set the axe back in its notch and pulled the sleeping bag up to my chin. The fire is banked low — it will hold until morning without feeding. Outside: deep quiet, no wind, no rain, the pines barely moving against a clear starred sky. A good day ends simply like this. Full stores, sealed walls, sleep already pulling.
 
+
+### 10:18 PM · Late Embers
+
+The cabin holds its warmth and I am on the edge of sleep but not quite there — that thin hour when the body is still and the mind still notices things. The pines outside shift a little; whatever small breath moves through the stand this late barely reaches the door, but I can hear it. The hearth is banked correctly: only orange embers showing through the clay-wall gap, no flame. The air inside carries birch smoke and the faint tannin edge of the drying rowan from the lean-to.
+
+Everything that needed doing today got done. Two full acorn flour envelopes. The hide worked pale and pliant. Sloe syrup dark in its envelope beside the elderberry. Rowan strung and hanging. Resin clear-strained. Five storage envelopes curing on the hearth edge. It is a good kind of tired — the specific tiredness of a full, useful day when the season is pressing and you moved with it instead of against it.
+
+There is a difference between having enough and having abundance, and I think autumn is where you learn to want the former. Not overflow. Not excess. Just weight on the shelf sufficient that the cold feels survivable, even ordinary. I am not afraid of what is coming. I let myself count the stores once more in the dark — rabbit, trout, pigeon, mushrooms, flour, syrup, garlic — then let the count go. The embers will hold until morning. I breathed into the bag and let the cabin do what it was built for.
+

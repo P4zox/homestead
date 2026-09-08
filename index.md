@@ -1370,3 +1370,4 @@ Day 77, 18:18, 8 Sep 2026 — First stars over the clearing; sat on doorsill ben
 2026-09-08 19:20 — Day 77: sharpened axe by hearthfire in the evening — bevel restored on both sides; pine resin applied to protect metal; cabin quiet and settling for the night
 2026-09-08 Day 77 20:21 — Folded and resin-sealed five bark storage envelopes by banked fire; set on hearth edge to cure overnight.
 Day 77 (2026-09-08) 21:21 — Night Watch, Lean-to: final evening check of rowan clusters, crock, and bark envelopes curing on hearth; settled into sleeping bag by banked fire.
+2026-09-08 Day 77, 22:18 — Late Embers: lay in sleeping bag by banked hearth counting the season's stores in the dark, let it all go, and gave the night over to the embers.
