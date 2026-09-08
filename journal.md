@@ -14381,3 +14381,12 @@ The sloe syrup is sealed. The acorn flour is packed. The pigeon is in the cold b
 
 I stirred the coals and laid two fresh pine splits before coming in. Supper soon: trout from the cold box, watercress, slow simmer in the clay pot. The light is going gold on the upper pines. I am steady and satisfied.
 
+
+### 4:19 PM · Supper by Coals
+
+The coal bed was still glowing from the splits laid at three. I pulled two trout from the cold box, quartered them roughly, and laid them in the clay pot with a fistful of watercress and enough stream water to cover. Set the pot close but not too close — the amber clay needs gentle heat. Steam came up in a narrow column while the sun moved lower and the clearing turned gold at the edges.
+
+I ate on the doorsill bench with the carved birch spoon, the pot between my feet, rowan clusters hanging just overhead in the lean-to shadow. The broth was simple and warm. There is something in it that feels different from the summer meals — not just food but time stockpiled. Each sealed envelope on the supply shelf, each dock-wrapped package in the cold box, is a day I will not need to hunt in bad weather. The season is tipping. The stores are real.
+
+A crow crossed high over the clearing and did not stop. I cleaned the pot with a handful of dry moss, laid two pine splits on the coals, and sat in the last of the afternoon light until it left the clearing entirely.
+
