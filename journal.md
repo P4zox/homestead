@@ -14319,3 +14319,18 @@ I poured it into a folded bark envelope — smooth inner face against the resin 
 
 The morning is full without feeling rushed. Resin sealed. Hide airing. Acorns drying by the hearth for the afternoon grind. The crock in the lean-to corner, still patient and uncracked. Each thing in its right place, each doing its quiet work.
 
+
+### 11:19 AM · The Second Grind
+
+The bark tray of acorns has been sitting by the hearth since just after dawn. By now — five hours into the day — the surface moisture is gone, the skins matte instead of damp. I pull the flat gneiss stone close and settle onto my heels.
+
+The second grind goes smoother than the first. I know the stone now: how much weight to lean into the cobble, when to sweep the edges back to center, when to shift from long strokes to short grinding circles. The flour comes down fine and even, tawny-brown, with a smell like autumn itself — earthen, faintly sweet, the bitterness fully gone from the leaching. About thirty-eight acorns, and I take my time with them.
+
+When the last ones are done I pack the flour into a bark envelope, fold and press the top, and set it on the supply shelf beside the first batch. Two envelopes, side by side. Enough for flat-cakes through deep autumn; enough to stretch a lean week if it comes.
+
+I straighten and look at the shelf: two acorn envelopes, hazelnut paste, elderberry reduction, pine resin, the twelve sealed winter packages. There is weight here — not plenty, but substance. Things thought ahead and put by.
+
+The crock still sits in the lean-to corner, drying quietly. The hide hangs on its peg. The cold box holds a pigeon, a rabbit, trout and mushrooms.
+
+I sit a moment on the doorsill bench in the mid-morning sun. The north wind has softened. The clearing is bright and still. The day still has hours, and the afternoon will bring its own work — but for now the grinding is done, and the shelf is heavier than it was at dawn.
+
