@@ -1357,3 +1357,4 @@ Day 76, 22:19 — Late Coals — lying still in sleeping bag; coals fading to as
 2026-09-08 Day 77 06:19 — Ground first batch of acorn flour at dawn; leaching confirmed complete; tawny, faintly sweet; packed on supply shelf.
 Day 77, 07:00 — Second working of rabbit hide: pulled, folded, kneaded soft; pale and pliant; hanging on lean-to peg to air-dry; ready for smoke-finishing.
 2026-09-08 Day 77 08:18 — Checked south-slope snares; two empty and reset, one wood pigeon taken and stored in cold box.
+2026-09-08 Day 77 09:19 — Pines and Amber: walked pine stand above cabin; harvested palm-sized lump of milky-amber pine resin from three seeps and one fresh branch-break; softening at hearth edge; crock seams sound; second acorn batch drying for afternoon grind.
