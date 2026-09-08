@@ -14462,3 +14462,16 @@ The smoke started thin, then thickened to a white column in the still air — bi
 
 Outside again, the first real light was coming through the pines — that long horizontal grey-gold that touches the high branches first and then slowly fills the clearing below. The rowans swayed slightly in it, smoking, and the clearing smelled of autumn and birch and cold air. A good way to start a day.
 
+
+### 7:00 AM · Snare Walk South
+
+Walked south in the frost before the sun cleared the pines, breath coming in clouds and the grass stiff under my boots. Three snares down the slope, all reset yesterday morning — I carry fresh grub bait folded in a strip of bark.
+
+First snare undisturbed except for the bait, nibbled clean. I re-bait it and ease the trigger stick back into place. Second snare sprung and empty — something small and quick was here overnight. I reset it without much thought, half-expecting the same from the third.
+
+Third snare is lower, where the grass presses thick against a fallen birch log. The wood pigeon is caught clean — bigger than expected, breast still warm under the frost-damp feathers. I hold it for a moment in both hands, surprised by its weight.
+
+Carried the bird back at a walk. Dressed it at the chopping block while the birch smoke rose steady from the rack behind me. Added it to the cold box wrapped in dock leaves — two pigeons there now, alongside the trout and the rabbit.
+
+The rowans on the smoke rack were starting to wrinkle at the edges by the time I came back inside. A morning that gives back what you put into it.
+
