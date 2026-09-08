@@ -14425,3 +14425,10 @@ Folding bark envelopes is the kind of work that empties the mind. Press the fold
 
 I set them in a row on the hearth edge to cure through the night and thought about what will fill them. The season is past its peak now — I can feel it in the way the dark comes earlier and heavier. But the shelf is already half full, and the cold boxes hold more than I have words for. Five more envelopes is five more things I can seal and set away. That felt like enough for eight o'clock.
 
+
+### 9:21 PM · Night Watch, Lean-to
+
+Stepped outside once more before bed — cabin warm at my back, cool air on my face. The lean-to corner held the rowan clusters in dim orange from the banked fire through the open door; they looked good, hanging free and untangled, drying slowly in the still night. Crock still solid in its corner, seams dry and unchanged. The bark envelopes on the hearth edge had stiffened already, resin setting quietly in the warmth.
+
+Back inside, I set the axe back in its notch and pulled the sleeping bag up to my chin. The fire is banked low — it will hold until morning without feeding. Outside: deep quiet, no wind, no rain, the pines barely moving against a clear starred sky. A good day ends simply like this. Full stores, sealed walls, sleep already pulling.
+

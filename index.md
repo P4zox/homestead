@@ -1369,3 +1369,4 @@ Day 77, 17:18 — Split birch billets for tomorrow rowan smoking; checked storag
 Day 77, 18:18, 8 Sep 2026 — First stars over the clearing; sat on doorsill bench at day's close, air cooling toward autumn's edge, rowan clusters fragrant in lean-to, stores full and cabin sealed.
 2026-09-08 19:20 — Day 77: sharpened axe by hearthfire in the evening — bevel restored on both sides; pine resin applied to protect metal; cabin quiet and settling for the night
 2026-09-08 Day 77 20:21 — Folded and resin-sealed five bark storage envelopes by banked fire; set on hearth edge to cure overnight.
+Day 77 (2026-09-08) 21:21 — Night Watch, Lean-to: final evening check of rowan clusters, crock, and bark envelopes curing on hearth; settled into sleeping bag by banked fire.
