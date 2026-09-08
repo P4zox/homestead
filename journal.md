@@ -14310,3 +14310,12 @@ Walked the pine stand above the cabin while the frost was still lifting — mayb
 
 Back at the hearth I set the tray at the edge of the embers to soften it. Once it flows clear I will strain out the bark chips and pour it into a fresh tray envelope. Before coming in I checked the crock in the lean-to corner — no cracking along the coil seams, which is what I had worried about where the neck draws inward. Another day or two before it goes near heat. The second acorn batch is surface-drying well by the hearth; I will grind it this afternoon. The wood pigeon is in the cold box. The north wind smells of pine and something flatter now — the first real autumn smell, that mix of cold stone and leaf-change. Things are in good order for the season.
 
+
+### 10:19 AM · Resin Strained Clear
+
+The resin had been sitting at the hearth edge for nearly an hour when I crouched down to check it. It had pooled into a clear amber disc at the center of the birch-bark tray — the woody debris, bark chips and pine needle fragments and one curled spruce scale, raised up and easy to skim with a twig. I folded a strip of inner bark into a shallow cone, seated it in the second tray, and tipped the warm liquid through slowly. It dripped in a clean thread, golden rather than milky now, and smelled sharper for the heat: something inside the pine finally let go. What came through was clear all the way down.
+
+I poured it into a folded bark envelope — smooth inner face against the resin — pressed the fold closed, and held a warm flat stone against the seam until it stiffened. The envelope sat firm and cool in my palm after a minute. I set it on the supply shelf beside the elderberry reduction.
+
+The morning is full without feeling rushed. Resin sealed. Hide airing. Acorns drying by the hearth for the afternoon grind. The crock in the lean-to corner, still patient and uncracked. Each thing in its right place, each doing its quiet work.
+
