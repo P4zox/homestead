@@ -14587,3 +14587,7 @@ Tomorrow is the acorn mast harvest — the wide basket is already by the door. T
 
 The cabin is quiet. Door latched, coals banked. A little tired in the way you are after a day that went well. That is a good kind of tired. Sleep soon.
 
+
+### 9:23 PM · Coals to Ash
+
+Lying in the sleeping bag now, bag cinched around my shoulders. The coals have gone fully ash-gray — no more glow, just warmth still rising from the hearth pad. The cabin is very dark. I can hear the pines moving very slightly in whatever small wind stirs the canopy, though the air felt still when I came inside. Tomorrow the basket is by the door and the oak mast waits on the south slope — I can picture the heavy round acorns already, packed between grass and leaf litter under the big oak, waiting for first light. A full morning harvest, leached and dried and ground into flour, would carry me deep into winter. I think about that weight on the shelf and feel something quiet and satisfied. The season is turning, not urgently but steadily. Sleep comes easy on a day like this. There is enough.
