@@ -14552,3 +14552,7 @@ It is going now — a thin white column rising into still air, the clearing fill
 
 There is something I like about an evening task that tends itself. I will check them at dusk.
 
+
+### 5:18 PM · Smoke Check at Dusk
+
+The thin column above the smoke rack has been rising steady for an hour, straight as a plumb line in the still evening air. I pulled on my jacket and walked down to check. The hen-of-the-woods fronds have already taken on a darker cast — edges curling inward and bronzing, the grey going to warm brown where the smoke has found the moisture. The coal bed is holding well: the split birch billets have settled to a bright orange core with a thin white skin of ash, exactly the slow even heat mushrooms need. I turned each cluster on the crossbars so the underside fronds faced up, and fed two more thin splits to the coals to keep the temperature steady without flaring. The smoke puffed and re-steadied, pale against the gold of the low sun. The light here at this hour is something — long shadows from the west tree line striping the clearing in deep violet, the cabin logs amber on their south faces, the stream barely audible in the cold stillness. I will leave the mushrooms another hour and a half at least before pulling them. If they hold this pace, they will be well-smoked and ready for the bark-seal before dark. I stood a moment and breathed it in — birch smoke and autumn cold and the last of the day — and then went back inside to bank the hearthfire for the night.
