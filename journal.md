@@ -14591,3 +14591,8 @@ The cabin is quiet. Door latched, coals banked. A little tired in the way you ar
 ### 9:23 PM · Coals to Ash
 
 Lying in the sleeping bag now, bag cinched around my shoulders. The coals have gone fully ash-gray — no more glow, just warmth still rising from the hearth pad. The cabin is very dark. I can hear the pines moving very slightly in whatever small wind stirs the canopy, though the air felt still when I came inside. Tomorrow the basket is by the door and the oak mast waits on the south slope — I can picture the heavy round acorns already, packed between grass and leaf litter under the big oak, waiting for first light. A full morning harvest, leached and dried and ground into flour, would carry me deep into winter. I think about that weight on the shelf and feel something quiet and satisfied. The season is turning, not urgently but steadily. Sleep comes easy on a day like this. There is enough.
+
+### 10:00 PM · Dark and Whole
+
+Briefly surfaced — not quite awake — some small shift in the night, maybe a branch settling or wind finding the ridge. The cabin is dark, completely. No ember glow at the hearth, no light at the door seams. The air is warm enough and still, carrying faint birch-smoke from the day. The sleeping bag holds its heat. I reached out one hand and touched the bark wall beside me — solid, dry, notched well. Outside: cold and stars and pines. The basket is by the door. Tomorrow, the south oak. I pulled the bag tighter and went back down.
+

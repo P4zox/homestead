@@ -1388,3 +1388,4 @@ Day 78, 16:18 — Split birch billets and built coal bed under smoke rack; hen-o
 Day 78, 19:19 — Broth at the Hearthfire: supper of trout broth with watercress, mint, and smoked hen-of-the-woods; ate by hearthfire in warm cabin; fire banked; ready for sleep before acorn mast harvest Day 79.
 Day 78, 20:21 — Evening star-watch in the cold clearing; door latched, coals banked; reflecting on the day and tomorrow's acorn mast harvest.
 Day 78, 2026-09-09, 21:23 — Lay down in the sleeping bag as coals went ash-gray; cabin warm and dark; thought of tomorrow's south-oak acorn harvest; sleep came easy.
+2026-09-09 22:00 Day 78 — Briefly surfaced in dark cabin at 22:00; bark wall solid and dry; went back down in sleeping bag.

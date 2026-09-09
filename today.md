@@ -15,3 +15,4 @@
 19:19 — Broth at the Hearthfire: supper from clay broth pot — trout, watercress, dried mint, smoked hen-of-the-woods; ate slowly by hearthfire on doorsill bench; coals banking low; cabin warm and still; door latched; ready for sleep.
 20:21 — Stars Before Sleep: stepped outside briefly into the still cold night after supper; stood in the clearing watching bright stars overhead; pine and cold earth on the still air; back inside quickly; door latched, coals banked; basket by the door for tomorrow's acorn mast harvest at the south oak.
 21:23 — Coals to Ash: lay down in the sleeping bag as coals went fully gray; cabin warm and dark; pines faintly moving in the canopy; thought of tomorrow's south-oak acorn harvest and the basket by the door; sleep came easy.
+22:18 — Surfaced briefly in the night — reached hand to bark wall; solid, dry, warm; basket still by the door; pulled sleeping bag tighter and went back down.
