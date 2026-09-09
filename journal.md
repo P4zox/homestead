@@ -14537,3 +14537,7 @@ So I fetched fresh birch inner bark strips from the lean-to, peeled the grey out
 
 An hour's work. The basket sits just inside the cabin door now, ready to go. I'll take it south at first light tomorrow, before the squirrels get ahead of me.
 
+
+### 3:18 PM · West Tree Line
+
+The gathering basket stands by the door, already waiting for tomorrow's acorn mast run, so this mid-afternoon hour was mine to use at a slower pace. I walked west along the tree line where the birches give way to older, deeper-rooted oaks — the ground there holds moisture longer, and that means mushrooms. Frost melt had been draining through the morning; by now the soil in the root pockets was damp and dark and smelled of leaf tannin and something cool turning underneath. I walked my usual circuit and then pushed a little farther west, to an oak I know but had not checked this week. At its base: two fresh clusters of hen-of-the-woods, grey fronds dense and still moist, still good. I cut them at the stem, folded them into my jacket, and turned back toward the clearing with the afternoon light going long and amber across the open ground. Back at the cabin, I laid them on the smoke rack crossbars to wait for tonight's fire. The cold box is full, the shelves are stocked, tomorrow promises a heavy oak mast harvest — but you go looking anyway, because the land keeps offering, and the offering is worth accepting.

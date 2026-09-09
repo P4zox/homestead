@@ -1381,3 +1381,4 @@ Day 78, 2026-09-09, 10:18 — First acorn porridge cooked in clay pot; half-enve
 2026-09-09 | Day 78 | 12:19 | Sweet from Sour — twenty sweetened crab apples cooked down in clay pot over noon coals; thick tart-sweet paste sealed in bark envelope on supply shelf
 Day 78, 13:18 — South-slope snare walk; grey squirrel to cold box; heavy oak mast under south oak noted, basket harvest planned Day 79.
 Day 78, 14:21 — Wove a wide birch inner bark gathering basket on the doorsill bench; ready for tomorrow's south-oak acorn mast harvest.
+Day 78, 15:18 — Walked west tree line; found two fresh hen-of-the-woods clusters at an oak root; laid on smoke rack for evening fire.
