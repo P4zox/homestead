@@ -14506,3 +14506,9 @@ Ate it from the wide shallow bowl while it was still warm. Mild and nutty, a lit
 
 One full envelope plus the remainder will keep. Rowans are still smoking above, curling and fragrant in the cold air. The clearing smells of autumn.
 
+
+### 11:18 AM · Rowans Off the Smoke
+
+Five hours over birch smoke is enough for rowans in cool autumn air. I lifted each cluster by its cord loop and turned them one by one: the berries had pulled inward, the skins gone from orange-red to a deeper rust, tacky on the surface and dry to the center when I pressed one between finger and thumb. A little bitter still — rowans always are — but the smoke has mellowed them and they will keep now through deep winter without spoiling.
+
+I untied all twelve clusters and stripped the berries into two wide batches on a bark tray. A few green ones I set aside into the cold box as-is; the rest I pressed into two bark envelopes, tamped dense, folded the tops, and sealed the folds with a warm smear of pine resin. Both envelopes went to the supply shelf beside the elderberry reduction. The rack stands empty and still smells of smoke. The fire underneath has burned low; I spread the coals and did not feed it — the racks
