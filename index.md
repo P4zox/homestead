@@ -1378,3 +1378,4 @@ Day 78, 2026-09-09, 08:19 — Smoke-finished rabbit hide over birch fire below r
 2026-09-09 Day 78 09:19 — Walked upstream to check fishing line; two brook trout collected and cold box restocked (nine trout now); line reset with fresh bait; drying crock checked — sound, one more day before firing.
 Day 78, 2026-09-09, 10:18 — First acorn porridge cooked in clay pot; half-envelope of flour used; mild, nutty, satisfying; rowans still smoking on rack.
 2026-09-09 Day 78 11:18 — Rowans pulled from smoke rack after five hours; berries pulled inward and smoke-darkened; stripped into two bark envelopes, resin-sealed, added to supply shelf.
+2026-09-09 | Day 78 | 12:19 | Sweet from Sour — twenty sweetened crab apples cooked down in clay pot over noon coals; thick tart-sweet paste sealed in bark envelope on supply shelf
