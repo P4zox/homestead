@@ -14576,3 +14576,14 @@ Tomorrow I take the wide basket south to the oak mast below the biggest south-sl
 
 The coals are settling to a low glow. I will bank the fire and sleep soon. The cabin is warm, the door holds, the latch is set.
 
+
+### 8:21 PM · Stars Before Sleep
+
+The coals are ash-gray now, barely glowing. I unlatched the door and stepped into the clearing for a few minutes before turning in — just to stand still and take the night.
+
+The stars came as a surprise, even knowing they were there. In the forest all day you forget how wide the sky gets when nothing interrupts it. Cold air pressed against my face, still and dry, carrying nothing but pine and cold earth. I stood until the chill reached my bones, then went back inside.
+
+Tomorrow is the acorn mast harvest — the wide basket is already by the door. The south oak dropped heavy this year; I could tell by the weight of even two handfuls. A good harvest could fill two envelopes and then some. I keep turning over how long they will keep, where to store them, what I will grind them into through winter.
+
+The cabin is quiet. Door latched, coals banked. A little tired in the way you are after a day that went well. That is a good kind of tired. Sleep soon.
+
