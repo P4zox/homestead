@@ -14617,3 +14617,12 @@ Made one full circuit of the canopy drip-line. Came away with a packed basket, f
 
 This is what late summer built toward. All that flour and paste and smoke — the acorn mast completes a picture. The basket is on the cabin floor now. I will light the hearth and decide what comes first: sorting and drying, or another run down the slope for a second load. The oak will not hold its mast forever, and the mornings are only getting shorter.
 
+
+### 7:19 AM · Snares in Frost
+
+Got the hearthfire going first — coaxed last night's banked coals back to life with a pinch of char cloth and a few pine shavings. The cabin was cold enough that my breath showed inside. Drank water standing at the shelf, pulled on my outer layer, and headed out while the fire found its legs.
+
+The south slope was still white with frost, every grass stem rimed, the oak mast underfoot slick and loud. I checked all three snares along the bracken runs below the big oak. First snare: empty, undisturbed, wire clean. Second snare: a wood pigeon — wing-caught, cold, had been there a while. I took it, reset the wire, re-baited the peg with a pinch of dried rosehip skin. Third snare: something had come and gone — the stake was bent forward and there was a tuft of soft grey fur caught in the wire. A rabbit, by the look of it. Got free or pulled loose before the cord tightened. I re-seated the stake, reset the loop, walked away without touching the ground around it more than I had to.
+
+Back to the cabin with the pigeon. Cleaned it at the doorsill, feathers drifting over the frost-grass. Dock-wrapped and into the cold box with the others. The hearth was throwing real heat by the time I came back inside. Three snares: one catch, two reset and active.
+
