@@ -1384,3 +1384,4 @@ Day 78, 14:21 — Wove a wide birch inner bark gathering basket on the doorsill 
 Day 78, 15:18 — Walked west tree line; found two fresh hen-of-the-woods clusters at an oak root; laid on smoke rack for evening fire.
 Day 78, 16:18 — Split birch billets and built coal bed under smoke rack; hen-of-the-woods clusters smoking in still evening air; check at dusk.
 09-09 17:18 Day 78 — Smoke Check at Dusk — hen-of-the-woods turned on smoke rack; coals tended; dusk light over clearing.
+2026-09-09 18:18 Day 78 — pulled hen-of-the-woods from smoke rack; fronds dry and dark; bark-sealed, pine-resin seamed, placed in cold box; smoke rack empty; banked hearth coals, evening settled
