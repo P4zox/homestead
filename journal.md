@@ -14475,3 +14475,12 @@ Carried the bird back at a walk. Dressed it at the chopping block while the birc
 
 The rowans on the smoke rack were starting to wrinkle at the edges by the time I came back inside. A morning that gives back what you put into it.
 
+
+### 8:19 AM · Smoke-Curing the Hide
+
+The rowan clusters had been hanging over the smoke two hours by the time I came back inside. The birch fire still burned steady, smoke rising white and unhurried in the cold morning air. The rabbit hide has hung on the lean-to peg since yesterday — pale and pliant from two rounds of brain-paste — and it seemed right to finish it now, while the fire was already going.
+
+I lashed the hide edges to a green birch hoop, stretching it taut without thinning it, then hung it low over the coals where the smoke was densest, below the rowans. The smoke works differently than the paste — it closes the fibers, binds them against water, keeps the hide from stiffening back to board if it ever gets wet again. I turned it every quarter-hour, front and back, watching the color move from pale cream toward a warm honey tan. By mid-morning it had taken on that faint smoky color that tells you it is done. I cut it down, let it cool on the hearthstone, and folded it — soft as worn cloth. Good for a cap or mittens when the cold bites harder than this.
+
+The rowans still need a few more hours. The fire will keep.
+

@@ -1374,3 +1374,4 @@ Day 77 (2026-09-08) 21:21 — Night Watch, Lean-to: final evening check of rowan
 2026-09-08 23:18 Day 77 — Deep Night Holds: last waking hour; fire to coal thread; sleep came in a sealed, stocked cabin.
 Day 78, 06:18 — Rowans to the Smoke: rose at frost-dawn, lit birch-smoke fire, moved twelve rowan clusters from lean-to to smoke rack; five bark envelopes cured and shelved.
 2026-09-09 07:00 — Day 78 — Walked south slope in frost; checked three snares; caught one wood pigeon clean at fallen-log snare; dressed bird, added to cold-storage; reset two empty snares.
+Day 78, 2026-09-09, 08:19 — Smoke-finished rabbit hide over birch fire below rowans; turned front and back each quarter-hour; warm honey tan, supple as cloth — folded and on supply shelf.
