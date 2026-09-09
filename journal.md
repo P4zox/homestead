@@ -14565,3 +14565,14 @@ I pressed them flat between bark strips, bound the package with two-ply cord, se
 
 Inside now, the banked hearth holds a good bed of coals. I will eat soon — broth from the pot, probably, with dried herbs from the shelf. The cabin is shut, the supply shelf full, the cold box stocked. A good evening.
 
+
+### 7:19 PM · Broth at the Hearthfire
+
+Supper was simple and good. I ladled broth from the clay pot into the wide shallow bowl — a long slow simmer of trout and the last watercress pull, dried mint crumbled in at the end, a strip of smoked hen-of-the-woods torn and dropped in near the finish. The bowl warmed my hands through the clay. I ate slowly, sitting on the doorsill bench pulled inside by the hearth, the door latched, the cabin still.
+
+Outside: nothing. Stars forming above the clearing. The smoke rack stands dark and empty against the cold air. All of today's work has resolved itself into quiet.
+
+Tomorrow I take the wide basket south to the oak mast below the biggest south-slope oak — heavy drop confirmed this afternoon, two handfuls sampled and all sound. The squirrel and two pigeons are in cold storage, the trout, the mushrooms. The shelf holds its packages in a good row: smoked rowan, elderberry, crab apple paste, hazelnut, acorn flour, sloe. It has been a very full day and I feel it in my hands.
+
+The coals are settling to a low glow. I will bank the fire and sleep soon. The cabin is warm, the door holds, the latch is set.
+
