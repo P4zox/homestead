@@ -14541,3 +14541,14 @@ An hour's work. The basket sits just inside the cabin door now, ready to go. I'l
 ### 3:18 PM · West Tree Line
 
 The gathering basket stands by the door, already waiting for tomorrow's acorn mast run, so this mid-afternoon hour was mine to use at a slower pace. I walked west along the tree line where the birches give way to older, deeper-rooted oaks — the ground there holds moisture longer, and that means mushrooms. Frost melt had been draining through the morning; by now the soil in the root pockets was damp and dark and smelled of leaf tannin and something cool turning underneath. I walked my usual circuit and then pushed a little farther west, to an oak I know but had not checked this week. At its base: two fresh clusters of hen-of-the-woods, grey fronds dense and still moist, still good. I cut them at the stem, folded them into my jacket, and turned back toward the clearing with the afternoon light going long and amber across the open ground. Back at the cabin, I laid them on the smoke rack crossbars to wait for tonight's fire. The cold box is full, the shelves are stocked, tomorrow promises a heavy oak mast harvest — but you go looking anyway, because the land keeps offering, and the offering is worth accepting.
+
+### 4:18 PM · Coals for Evening
+
+The afternoon light has gone flat and gold — that particular angle that says the day is tipping. I spent the hour at the chopping block splitting two good birch rounds into thin billets, the kind that burn slow and cool and give white smoke rather than heat. The kind you want for mushrooms.
+
+When the billets were ready, I built up the coal bed under the smoke rack — fed the thin birch in short sections until it caught steady, then let it settle back to a low, reliable burn. The hen-of-the-woods clusters were already on the crossbars from this afternoon; I nudged them into better position, spreading the fronds a little so the smoke can thread through evenly.
+
+It is going now — a thin white column rising into still air, the clearing filling with that sweet birchwood scent. The mushrooms will take two or three hours. By full dark they should be done.
+
+There is something I like about an evening task that tends itself. I will check them at dusk.
+
