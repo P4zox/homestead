@@ -14519,3 +14519,12 @@ The coals from the rowan smoke were still good at midday — banked red and stea
 Into the clay pot with a finger's width of stream water, nested into the coals. I stirred every few minutes with the birch spoon, pressing the skins against the pot wall as they split and broke down. After perhaps half an hour the flesh had collapsed entirely — a thick dark-pink mash giving off a sweet-sour steam. I let it cook another quarter-hour until it was dense enough to hold a spoon mark.
 
 A full envelope's worth of apple paste, sealed with pine resin while still warm and pressed tight. Cooling now on the supply shelf beside the elderberry and sloe. Sweet, tangy, faintly floral from the skins. Something to eat in the cold months with a handful of hazelnuts, or spread on a flat bark round if I ever work out how to make one. The crab apple stock is spent, but made useful. A good noon hour.
+
+### 1:18 PM · Squirrel from the Oaks
+
+Walked the south slope after letting the fire settle to a low steady burn. Clear afternoon air, the kind that carries sound a long way — I could hear the stream from the ridge top, and somewhere far off a jay calling in the birches. First snare at the alder run: empty, bait taken clean, probably overnight. Re-baited with a sliver of smoked fish and reset. Second snare at the briar tangle: untouched, bait still there — I left it. Third snare, tucked under the fallen birch at the slope edge: a grey squirrel, caught clean, still a little warm. I dressed it there with my knife, left the offal in the grass for whatever would find it, and carried it back wrapped in dock leaves.
+
+Added it to the cold box beside the pigeons. The box is getting full — a good problem to be having in the ninth month. While I stood at the fallen birch I noticed the oaks beyond had dropped heavily. The ground under the biggest one was thick with mast, more than I remember from last autumn: sound acorns, good weight, not many cracked or black. I filled my shirt-hem with two handfuls to check, and they all passed — solid, dark at the cap, no softness. Worth coming back tomorrow morning with the basket and spending an hour beneath them.
+
+The afternoon felt wide and unhurried. I stood at the slope top a while, looking down at the clearing and the cabin smoke-stained and solid against the pines. I thought: this is a good amount to have. Not abundant in the way of plenty to spare, but enough. Enough to face the cold without counting every mouthful. That steadiness is its own kind of wealth.
+
