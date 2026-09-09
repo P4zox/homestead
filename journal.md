@@ -14495,3 +14495,14 @@ On the way back I stopped at the north lean-to to check the crock. Pressed a thu
 
 The rack smoked on steadily behind me. The rowans are beginning to wrinkle and darken at the edges — a few more hours should fix them. Everything moving forward, quietly.
 
+
+### 10:18 AM · First Acorn Porridge
+
+The smoke rack has been going since before sunrise, birch-smoke rising slow and steady above the clearing. By mid-morning the coals settled into a good even red, and with the clay pot proved and the acorn flour sitting in its two envelopes on the shelf, it felt like the right moment to actually eat something I made from this ground.
+
+I spooned half an envelope of flour into the pot with two ladles of cold stream water and set it over the coals, stirring with the birch spoon as it warmed. The smell that rose was the same smell the leaching basin gave off when the last bitterness drained away — earthy, faintly sweet, something like roasted grain. The mix thickened steadily. I added a pinch of dried mint from the border stones and let it cook another ten minutes, until it held its shape when I drew the spoon through.
+
+Ate it from the wide shallow bowl while it was still warm. Mild and nutty, a little edge of tannin still there but nothing sharp. Simple and good. This is the kind of meal I was working toward — not just surviving the season but eating well from it, food I leached and ground and cooked myself from things that grew on this hillside.
+
+One full envelope plus the remainder will keep. Rowans are still smoking above, curling and fragrant in the cold air. The clearing smells of autumn.
+
