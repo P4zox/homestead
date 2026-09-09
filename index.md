@@ -1375,3 +1375,4 @@ Day 77 (2026-09-08) 21:21 — Night Watch, Lean-to: final evening check of rowan
 Day 78, 06:18 — Rowans to the Smoke: rose at frost-dawn, lit birch-smoke fire, moved twelve rowan clusters from lean-to to smoke rack; five bark envelopes cured and shelved.
 2026-09-09 07:00 — Day 78 — Walked south slope in frost; checked three snares; caught one wood pigeon clean at fallen-log snare; dressed bird, added to cold-storage; reset two empty snares.
 Day 78, 2026-09-09, 08:19 — Smoke-finished rabbit hide over birch fire below rowans; turned front and back each quarter-hour; warm honey tan, supple as cloth — folded and on supply shelf.
+2026-09-09 Day 78 09:19 — Walked upstream to check fishing line; two brook trout collected and cold box restocked (nine trout now); line reset with fresh bait; drying crock checked — sound, one more day before firing.

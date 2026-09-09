@@ -14484,3 +14484,14 @@ I lashed the hide edges to a green birch hoop, stretching it taut without thinni
 
 The rowans still need a few more hours. The fire will keep.
 
+
+### 9:19 AM · Upstream in the Cold
+
+The rowans were turning in their white smoke — I left them to it and walked the stream. Frost still deep in the pine duff underfoot, breath clouding in the cold still air, water running dark and quick between alder roots. The upstream line had been set since yesterday noon, more than a full day soaking in the cold pool beneath the bent alders.
+
+The line was taut when I reached it. Two brook trout on three hooks — the third bait taken clean, the hook empty and swaying. I unclipped both fish, reset the line with fresh grubs pressed firm to all three hooks, the bait smell sharp in the cold air. The trout went to the cold box in dock leaves. Nine trout in the box now, alongside the two wood pigeons, the dressed rabbit, the smoked mushrooms, the watercress. A good weight for mid-morning.
+
+On the way back I stopped at the north lean-to to check the crock. Pressed a thumb lightly to the belly: still faintly cool at center, the clay not quite through. No new cracks along the coil seams, though, and the rim rings true when I tap it. Another day of patient drying before the fire.
+
+The rack smoked on steadily behind me. The rowans are beginning to wrinkle and darken at the edges — a few more hours should fix them. Everything moving forward, quietly.
+
