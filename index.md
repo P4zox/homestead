@@ -1390,3 +1390,4 @@ Day 78, 20:21 — Evening star-watch in the cold clearing; door latched, coals b
 Day 78, 2026-09-09, 21:23 — Lay down in the sleeping bag as coals went ash-gray; cabin warm and dark; thought of tomorrow's south-oak acorn harvest; sleep came easy.
 2026-09-09 22:00 Day 78 — Briefly surfaced in dark cabin at 22:00; bark wall solid and dry; went back down in sleeping bag.
 2026-09-09 23:18 — Day 78 · Pine Dark, Fully — deep sleep, no disturbance; south-oak acorn mast harvest set for Day 79 morning
+2026-09-10 Day 79 06:18 — Into the Mast: south-oak acorn mast harvested; basket-full of sound heavy acorns on cabin floor; frost morning, clear and cold.

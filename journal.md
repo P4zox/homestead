@@ -14601,3 +14601,19 @@ Briefly surfaced — not quite awake — some small shift in the night, maybe a 
 
 No surfacing this time. The coals are ash, the cabin is warm, the door is latched. I am somewhere under the dark entirely — no thought, no hand reaching out, no stirring. The basket sits beside the door in the black. The south oak waits. Tomorrow will be an early morning and a full one, and tonight I am not here for any of it.
 
+
+---
+
+# Day 79 — Thursday, 10 September 2026
+*early autumn · clear cold morning, heavy frost on the grass*
+
+### 6:18 AM · Into the Mast
+
+Woke before light properly settled — the sky outside still a deep indigo band over the pines, frost sharp on the clearing grass when I stepped out. The basket was exactly where I had left it, beside the door, handles up. I lifted it by the doubled-cord grips and walked the south slope while my breath hung in the still air.
+
+The largest south oak was loud with mast. I could hear the acorns shifting underfoot before I saw them — deep drifts banked against the root buttresses, a scatter running out across the slope below. I knelt and began picking by feel and sight both: heavy round ones, sound shells, no soft spots. The basket filled slowly and then suddenly — three handfuls, then ten, and the low sides were brimming and the weight was real in both hands.
+
+Made one full circuit of the canopy drip-line. Came away with a packed basket, forty pounds by feel. Back to the cabin before the sun was fully over the pines.
+
+This is what late summer built toward. All that flour and paste and smoke — the acorn mast completes a picture. The basket is on the cabin floor now. I will light the hearth and decide what comes first: sorting and drying, or another run down the slope for a second load. The oak will not hold its mast forever, and the mornings are only getting shorter.
+
