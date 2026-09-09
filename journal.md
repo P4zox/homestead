@@ -14528,3 +14528,12 @@ Added it to the cold box beside the pigeons. The box is getting full — a good 
 
 The afternoon felt wide and unhurried. I stood at the slope top a while, looking down at the clearing and the cabin smoke-stained and solid against the pines. I thought: this is a good amount to have. Not abundant in the way of plenty to spare, but enough. Enough to face the cold without counting every mouthful. That steadiness is its own kind of wealth.
 
+
+### 2:21 PM · Basket for the Mast
+
+The afternoon is still and pale — that autumn stillness where the air barely moves and every sound carries far. After this morning's full work — smoke, skins, snares, the cook pot — I sat in the doorway on the doorsill bench and thought about tomorrow's acorn run. The south oak is dropping heavy mast and I mean to bring back a real harvest. The woven bark basket on the supply peg is good but small, a day's food basket. Not what I need for a trunk's worth of acorns.
+
+So I fetched fresh birch inner bark strips from the lean-to, peeled the grey outer skin away with the knife, and settled into the work in the pale sun. Thumb's width of overlap at each corner, two-ply cord binding at every turn. The base came out wide and flat — nearly hand-span across. I kept the sides low but stiff, adding an extra lashing course at the rim to hold the shape. For handles, I punched holes at each short end with a split pine pin and looped doubled cord through — firm enough to carry weight without cutting into the palm.
+
+An hour's work. The basket sits just inside the cabin door now, ready to go. I'll take it south at first light tomorrow, before the squirrels get ahead of me.
+
