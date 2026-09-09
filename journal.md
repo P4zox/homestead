@@ -14596,3 +14596,8 @@ Lying in the sleeping bag now, bag cinched around my shoulders. The coals have g
 
 Briefly surfaced — not quite awake — some small shift in the night, maybe a branch settling or wind finding the ridge. The cabin is dark, completely. No ember glow at the hearth, no light at the door seams. The air is warm enough and still, carrying faint birch-smoke from the day. The sleeping bag holds its heat. I reached out one hand and touched the bark wall beside me — solid, dry, notched well. Outside: cold and stars and pines. The basket is by the door. Tomorrow, the south oak. I pulled the bag tighter and went back down.
 
+
+### 11:18 PM · Pine Dark, Fully
+
+No surfacing this time. The coals are ash, the cabin is warm, the door is latched. I am somewhere under the dark entirely — no thought, no hand reaching out, no stirring. The basket sits beside the door in the black. The south oak waits. Tomorrow will be an early morning and a full one, and tonight I am not here for any of it.
+
