@@ -14813,3 +14813,16 @@ Laid both panels flat on the hearthstone to warm gently in the fire's heat and s
 
 The acorn leaching water needs changing this morning — I've kept it to a daily rhythm and won't break that. Snares are due a check as well; that rabbit sign from yesterday might have produced something in the night. The day is clear and cold and feels like it means to stay that way. Good light ahead.
 
+
+### 7:18 AM · Snares and the Leaching Tray
+
+The frost is still on the clearing grass when I pull on my jacket and step outside. The sky above the pines is the pale gold of early September — that color that feels like a borrowed season, too warm to be autumn yet, too clear to be summer's last gasp. My breath comes out white.
+
+I take the south-slope path first, checking snares in order. First two: undisturbed, bait intact. Third snare — the one that had rabbit fur and a bent stake yesterday — holds a small rabbit, gone still in the night. I take it cleanly, reset the snare with fresh bait from a grub cache, and move back down the slope.
+
+On the way east to the stream, I stop at the leaching tray. The acorn water has gone cloudy overnight, which is right — that's the tannins pulling out. I pour it off, refill with a clean run of stream water, and push the tray back into the riffle. Maybe two more days of this before the acorns are ready to dry.
+
+Back at the cabin I hang the rabbit on the smoke rack crossbar and bank the hearth against a light wind that has found the clearing. Cold-storage is generous right now: nine trout, the pigeon from yesterday, squirrel, mushrooms. This second rabbit goes in — it adds margin, which is exactly what I want with the nights growing longer.
+
+I sit a moment on the doorsill bench before going back in. The cold is pleasant now, still morning. I can hear the stream through the trees.
+
