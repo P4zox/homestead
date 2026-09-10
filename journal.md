@@ -14785,3 +14785,8 @@ I was not trying to count, but I counted anyway — the easy unhurried kind of t
 
 The fire breathes. The pines move. I let it all go on without me.
 
+
+### 10:19 PM · Pine Quiet
+
+Woke for a moment — some old reflex, checking. The cabin was black, no lamp now, only the dull red at the edges of the banked ash. The sleeping bag still warm. Wind in the pines and the sound of the stream coming through the walls, low and steady. I listened for anything that shouldn’t be there and heard nothing. Shifted once, pulled the bag tighter over my shoulder, and let the stream noise close over me again.
+
