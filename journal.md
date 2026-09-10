@@ -14739,3 +14739,14 @@ The pines went dark before I was done. I carried the empty pot inside, added two
 
 Tomorrow I should change the leaching water at first light. By Day 82 or 83, the acorns will be ready to grind.
 
+
+### 6:18 PM · Lamplight and Rabbit Hide
+
+The tallow lamp holds steady on the shelf, its small flame pushing amber across the log walls. This is the first night I have worked by proper light — before, once the hearthfire banked low, I simply rested. Tonight I find I am not ready to stop.
+
+Pulled the rabbit hide from the shelf. Honey-tan from smoke, supple as worn cloth, still carrying the faint smell of the finish fire. Laid it flat on the hearthstone and turned it in the lamplight, studying the whole shape of it with my thumbs. A rabbit gives a small hide, but a careful one will yield a good mitten or a boot liner, and cold fingers and cold feet are the things that make winter cruel rather than merely hard.
+
+Folded it rough-side up and began working the edge in slow circles with the handle of the birch-branch spoon — pulling and stretching a hand's width at a time, keeping the leather from stiffening back. No cutting tonight, no stitching. Just the shaping: where the back panel will run, where the belly strip will become a liner. Let the hide tell me what it wants to be before I decide for it.
+
+Kept glancing over at the lamp. Still surprised it was there.
+
