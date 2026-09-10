@@ -14702,3 +14702,18 @@ I did not pull it from the coals. Thermal shock cracks finished pots; the last s
 
 While the coals died back I walked the south-slope snares — no catch at the rabbit-sign stake today, but the trail looked used, pressed flat by small feet moving through. I reset the bait and covered the noose again in leaf litter, patient. Back through the trees, the afternoon light long and amber between the pines. The clearing was still and warm. The crock was cooling well behind me.
 
+
+### 3:18 PM · First Fat Lamp
+
+The ash cradle around the crock was barely warm by mid-afternoon — the crock had cooled enough to touch without pulling back. I let it sit a while longer while I rested on the doorsill bench, watching the amber light work between the pines. September afternoons do something the summer light did not: it arrives lower, more particular, catching the dust in the clearing and the pale undersides of birch leaves turning at their edges.
+
+I had been thinking about the evenings ahead. The dark comes earlier each week now. I manage fine by hearthlight, but a lamp — something I can carry, something that burns without needing wood — had been in the back of my mind since I rendered the tallow this morning.
+
+I twisted three or four strands of dry grass tight. Folded a narrow strip of birch bark into a shallow cup, pinched the ends to hold form. Poured a thin finger of tallow from the bowl into the cup and set the grass wick in it, fat end down, to soak for a few minutes. Then tilted the cup near a coal at the hearth edge.
+
+The flame caught small and even. It did not flicker or gutter — just held, pale and steady. I counted sixty before I snuffed it. It works.
+
+It is not a beautiful thing. The bark cup will blacken and the wick wants better trimming than I managed today. But it gives light: clean and quiet, and it will burn on its own through a winter evening while my hands do something else. I set it on the supply shelf beside the tallow bowl.
+
+Then I lifted the crock from the ash cradle. The ash was barely warm around its base. Walls solid, color deep and even, not a crack along any coil seam. I carried it to the supply shelf and set it in the space I had left. It looked right there — the work of Day 76 to 79, holding itself upright and complete. Ready.
+

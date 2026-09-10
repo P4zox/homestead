@@ -1399,3 +1399,4 @@ Day 79, 09:18 — storage crock inspected: bone-dry, no cracks; warming at heart
 2026-09-10 | Day 79, 12:18 | Into the Coals — wide-bellied storage crock placed on fieldstone coal-bed cradle; noon firing underway; watching walls for cracks
 Day 79, 2026-09-10, 13:18 — Tended noon firing: checked crock walls (no cracks, pale heat flush), changed acorn leaching water, banked birch rounds to maintain even cradle heat.
 2026-09-10 14:19 Day 79 — The Crock Rings True: crock firing judged complete after ~2 hours — terracotta walls, clear ring; set to cool slowly in ash cradle; south-slope snares checked, no catch, reset.
+Day 79, 15:18 — first tallow lamp made and tested (bark-cup, grass wick, burns steady — on supply shelf); wide-bellied crock lifted from ash cradle, placed on supply shelf
