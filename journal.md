@@ -14795,3 +14795,21 @@ Woke for a moment — some old reflex, checking. The cabin was black, no lamp no
 
 The cabin is black and the fire holds at banked ash. I may not have truly woken — it may only be the body's habit of checking, the half-sense I've come to trust through weeks of sleeping here. Wind in the pines unchanged, stream sound through the walls unchanged, nothing alarming anywhere. The larder is full: trout and rabbit and squirrel in the cold box, twelve sealed bark packages on the shelf, acorn flour coming in two days, tallow ready to refill the lamp, rabbit hide lines drawn and waiting for morning light. South-slope snares are set. The leaching tray rides in the stream riffle. Everything is where I put it. Whatever this waking was — a shift in the fire, a change in the wind's tone, nothing at all — it is enough to know the night holds quiet. I let it settle back around me and close my eyes.
 
+
+---
+
+# Day 80 — Friday, 11 September 2026
+*early autumn · clear cold dawn, frost on the grass, still air*
+
+### 6:19 AM · Hide Cut to Shape
+
+Woke to a black cabin, coals still breathing red at the hearth edge. Frost on the threshold when I lifted the latch — clearing grass white and still, the pines dark against a sky just beginning to grey at the east.
+
+Lit the fire from the banked coals before anything else. Then I took the rabbit hide down from the shelf. In last night's lamplight the charcoal lines had looked sure, but I went over them again now in the first cold light: the shoulder nape, the haunch curve, the narrow belly taper. They held.
+
+Cut along both lines with the knife — slow, deliberate. The hide was supple enough from days of working that it moved with the blade rather than fighting it. Two panels came free: the back piece, longer, almost rectangular; the belly liner, narrower and softer on its inner face. I set the offcuts to one side — good material for cord pads or a small winter pouch when I get around to it.
+
+Laid both panels flat on the hearthstone to warm gently in the fire's heat and studied their shapes. They are not large, but they are even-tanned and dense, and together they could line a sleeping bag collar or make a small cap for hard cold. I haven't fully decided yet. Either way, they are ready now. I folded them and returned them to the shelf.
+
+The acorn leaching water needs changing this morning — I've kept it to a daily rhythm and won't break that. Snares are due a check as well; that rabbit sign from yesterday might have produced something in the night. The day is clear and cold and feels like it means to stay that way. Good light ahead.
+
