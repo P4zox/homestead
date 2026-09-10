@@ -14626,3 +14626,16 @@ The south slope was still white with frost, every grass stem rimed, the oak mast
 
 Back to the cabin with the pigeon. Cleaned it at the doorsill, feathers drifting over the frost-grass. Dock-wrapped and into the cold box with the others. The hearth was throwing real heat by the time I came back inside. Three snares: one catch, two reset and active.
 
+
+### 8:18 AM · Acorns in the Riffle
+
+The basket of fresh mast has been waiting on the cabin floor since before sunrise. Now, with the hearthfire warm at my back and the frost well gone from the clearing, I pull it between my knees and begin sorting by the threshold.
+
+The work goes by feel. I pop the caps with a thumbnail, squeeze the shell lightly — hard and heavy, good; soft or cracked, gone. Most pass. The south oak put out a clean drop this year. I end with two piles: sound acorns, and a small handful of doubtfuls I leave on the step for the birds.
+
+Then down to the stream. The water runs cold and clear through the shallow riffle below the crossing stones. I fill the large birch-bark tray with sorted acorns, weight it flat with a smooth stream stone so the current can wash through, and wedge it firmly between two bigger rocks in the fastest run. The tannins will leach out slowly in cold water — two or three days of changing, and they'll be mild enough to dry and grind. A second batch of flour by Day 82 or 83.
+
+Walking back with cold-wet hands, I stop at the threshold and look south. The slope is sun-bright and still. The snares are set, the cold box is stocked, and now a tray of acorns is sitting in the riffle doing its slow work without me.
+
+There is a good feeling in that — putting a thing in motion and walking away.
+

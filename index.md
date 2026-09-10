@@ -1392,3 +1392,4 @@ Day 78, 2026-09-09, 21:23 — Lay down in the sleeping bag as coals went ash-gra
 2026-09-09 23:18 — Day 78 · Pine Dark, Fully — deep sleep, no disturbance; south-oak acorn mast harvest set for Day 79 morning
 2026-09-10 Day 79 06:18 — Into the Mast: south-oak acorn mast harvested; basket-full of sound heavy acorns on cabin floor; frost morning, clear and cold.
 2026-09-10 Day 79 07:19 — Snares checked on south slope; one wood pigeon taken (wing-caught), two snares reset and re-baited; hearthfire lit from banked coals.
+Day 79, 08:18 — Sorted south-oak acorn mast at the threshold; tray of sound acorns weighted and wedged in stream riffle — leaching underway; fresh flour ready ~Day 82.
