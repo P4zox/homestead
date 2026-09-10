@@ -1405,3 +1405,4 @@ Day 79, 2026-09-10, 17:19 — Ate pigeon broth at dusk on the doorsill bench; he
 Day 79, 18:18 — Worked rabbit hide by tallow lamplight, stretching and shaping leather for a future mitten or boot liner.
 Day 79, 19:18 — Charcoal on Hide: cut lines drawn on rabbit hide (back panel + belly liner) by tallow lamplight; folded on shelf, ready to cut tomorrow.
 2026-09-10 Day 79 20:18 — Sat with the lamp's last tallow and counted winter stores; twelve sealed packages, cold box full, acorn flour ~Day 82–83 — not behind.
+Day 79, 21:18 — Dark cabin and banked fire; listened to stream and wind; tallied the larder quietly; sleep.

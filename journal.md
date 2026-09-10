@@ -14774,3 +14774,14 @@ I am not behind. That is what I needed to sit with tonight. Early autumn, Day 79
 
 The lamp flickered. I didn't touch it. Let it burn what it has.
 
+
+### 9:18 PM · Dark Cabin, Open Night
+
+The lamp is gone — wick smoked down to nothing, then just the dark. I am in the sleeping bag against the south wall, hearthfire banked to a slow red breath. The cabin holds warmth the way it is supposed to: chinked walls, daubed gables, bark roof, door latched against the cold.
+
+Through the walls I can hear the stream, thin and steady; wind threading the upper pines; an owl once, somewhere to the southeast. The cold-storage box downstream holds nine trout, a rabbit, a squirrel, two batches of smoked mushrooms, watercress. The supply shelf holds twelve sealed bark packages, the wide-bellied crock, the tallow bowl, all the sealed envelopes. The charcoal lines on the rabbit hide wait for morning light.
+
+I was not trying to count, but I counted anyway — the easy unhurried kind of tallying you do when you feel settled enough to look at what you have. Winter feels earnable now. Not guaranteed, but earnable. Enough to drift off without dread.
+
+The fire breathes. The pines move. I let it all go on without me.
+
