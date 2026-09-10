@@ -1401,3 +1401,4 @@ Day 79, 2026-09-10, 13:18 — Tended noon firing: checked crock walls (no cracks
 2026-09-10 14:19 Day 79 — The Crock Rings True: crock firing judged complete after ~2 hours — terracotta walls, clear ring; set to cool slowly in ash cradle; south-slope snares checked, no catch, reset.
 Day 79, 15:18 — first tallow lamp made and tested (bark-cup, grass wick, burns steady — on supply shelf); wide-bellied crock lifted from ash cradle, placed on supply shelf
 Day 79, 16:18 — Rebuilt hearthfire from cradle-ash; one wood pigeon quartered and set in clay broth pot with watercress and hawthorn haws; sat on doorsill bench in amber pine-slope light; larder full, winter orienting from the north ridge.
+Day 79, 2026-09-10, 17:19 — Ate pigeon broth at dusk on the doorsill bench; hearthfire banked for night; clay pot soaking; tallow lamp burning steady.

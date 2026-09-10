@@ -14730,3 +14730,12 @@ Full cold box. Full supply shelf. New crock beside the grinding stone. The lamp 
 
 Winter still weeks off, but I can feel it orienting toward us from somewhere past the north ridge. Knowing the larder is this full on a day this quiet — that is what the work is for.
 
+
+### 5:19 PM · Broth at Dusk
+
+The broth had an hour in the pot while the day fell off the ridge. When I finally ladled it — slow and careful, the clay pot warm between both hands — the liquid had turned amber-gold and smelled of bird and watercress and something faintly sweet from the hawthorn haws. I ate outside on the doorsill bench while the light went from amber to grey-rose along the tree line. The pigeon came clean off the bone. I pressed the soft meat against the bowl with my spoon and ate it all, even the small pieces, because it is autumn now and nothing goes back in the pot unfinished.
+
+The pines went dark before I was done. I carried the empty pot inside, added two birch rounds to the hearthfire, set the pot back near the warmth with a little stream water to rinse and soak. The cabin smells of broth and wood smoke and tallow — a different smell than midsummer, more serious somehow, more like a real shelter and less like an experiment. I sat awhile listening to the fire work and watching the small tallow lamp burn steady on the shelf.
+
+Tomorrow I should change the leaching water at first light. By Day 82 or 83, the acorns will be ready to grind.
+
