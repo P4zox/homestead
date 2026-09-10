@@ -14660,3 +14660,14 @@ It set quickly in the cool morning air. A thin layer, pale amber at center, ivor
 
 Outside the sun is a little higher. The coals are building. At noon I will fire the crock.
 
+
+### 11:18 AM · Coal Bed for Noon
+
+The clearing has warmed into true mid-morning. The hearthfire has been burning clean since I stoked it at first light, and I have been feeding it steadily with split birch — not rushing, just maintaining the even draw that builds a good coal bed. The wide-bellied storage crock sits upside-down at the fire's outer edge, bark cover beneath it, warming through from inside out.
+
+I rake the coals now toward the center of the clay pad — pulling them into a tight mound, evening the depth with the flat face of the rake stick. The heat shimmers above it in visible waves. I add two more split pine pieces at the back of the fire where they'll catch slowest and burn longest, then set four flat fieldstones around the coal heap as a low windbreak and cradle-ring. When the coals are the right color — gray-red, not orange, not black — I'll flip the crock right-side up and nestle it in.
+
+I knock on the crock's base with a knuckle. A clear, slightly ringing sound comes back — not the dull thud of damp clay. Good. The coil seams look tight from here, no white stress lines along any join. I check the bark cover: dry, no moisture rising from the clay beneath. Everything is as it should be.
+
+Noon light will tell me when the bed is ready. A deep coal bed fires more evenly than an open flame; I've learned that much from the broth pot and the bowls. Until then, I'm tending the fire and waiting with the patience that only comes from having cracked clay before — from knowing that hurrying the coal bed only ruins what hours of coiling and drying have built.
+

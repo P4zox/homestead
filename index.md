@@ -1395,3 +1395,4 @@ Day 78, 2026-09-09, 21:23 — Lay down in the sleeping bag as coals went ash-gra
 Day 79, 08:18 — Sorted south-oak acorn mast at the threshold; tray of sound acorns weighted and wedged in stream riffle — leaching underway; fresh flour ready ~Day 82.
 Day 79, 09:18 — storage crock inspected: bone-dry, no cracks; warming at hearth before midday firing.
 2026-09-10 10:18 — Day 79 — Rendered first small batch of tallow from squirrel and rabbit fat; pale amber in clay bowl on supply shelf; crock still warming at hearthstone before noon firing.
+2026-09-10 Day 79 11:18 — Coal Bed for Noon: built coal bed at hearthpad for storage crock noon firing; crock warming well, seams tight, tone clear
