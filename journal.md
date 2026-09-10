@@ -14691,3 +14691,14 @@ The stream, sixty paces east, caught the light when I stood back up. I walked th
 
 Back at the fire, the crock walls were still sound. I laid in two more birch rounds flanking, set the bark screen at an angle to funnel heat without starving the coal of air, and stepped back. There is nothing much to do now but keep the heat steady and wait. The clay teaches patience whether you want it or not.
 
+
+### 2:19 PM · The Crock Rings True
+
+Two hours in the coal bed. I circled the fieldstone cradle twice before I touched anything, reading the walls at distance first — and they had changed. What was a pale heat flush at the one-hour mark had deepened through the afternoon into a true terracotta: warm amber-red across the full belly of the crock, slightly deeper at the base where the coals sat thickest, lighter at the shoulder where the air moved. Even color, all the way around. The coil seams had knit completely — I had to look hard to find where one coil ended and the next began.
+
+I crouched and tapped the upper wall with a green stick. The ring came back clear and sustained — not the dull knock of clay still holding moisture but a bright, bell-like note that hung in the still air for a moment before fading. That was the sound I was listening for.
+
+I did not pull it from the coals. Thermal shock cracks finished pots; the last step of a firing is patience. Instead I drew back the heat slowly — scraped the flanking coals away with a stick, let the two birch rounds burn down to ash without adding more, then raked a thick bank of ash around the base to hold warmth without adding fuel. The crock will cool inside the ash cradle through the late afternoon and evening. If the ash is cool to the touch by dark, I will lift it out then. More likely, tomorrow morning.
+
+While the coals died back I walked the south-slope snares — no catch at the rabbit-sign stake today, but the trail looked used, pressed flat by small feet moving through. I reset the bait and covered the noose again in leaf litter, patient. Back through the trees, the afternoon light long and amber between the pines. The clearing was still and warm. The crock was cooling well behind me.
+
