@@ -16,3 +16,4 @@
 20:18 — Lamp's Last Count: sat against south wall by lamp's last light; counted winter stores — twelve sealed bark packages, cold box full (trout, rabbit, squirrel, smoked mushrooms, watercress), acorn flour ~Day 82–83; larder layered past first heavy frost; snares active; lamp burned through its last tallow as the count finished.
 21:18 — Dark Cabin, Open Night: lamp spent; lying in sleeping bag against south wall, hearthfire banked; listened to stream and wind through walls; tallied the larder without meaning to — winter earnable; rabbit hide lines wait for morning; sleep.
 22:19 -- Pine Quiet: brief waking in black cabin -- fire holding at banked ash, wind in pines, stream sound through walls, nothing wrong; back to sleep.
+23:19 — Night holds quiet; fire at banked ash; checked the dark and found nothing wrong; back to sleep.

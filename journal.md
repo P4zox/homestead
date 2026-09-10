@@ -14790,3 +14790,8 @@ The fire breathes. The pines move. I let it all go on without me.
 
 Woke for a moment — some old reflex, checking. The cabin was black, no lamp now, only the dull red at the edges of the banked ash. The sleeping bag still warm. Wind in the pines and the sound of the stream coming through the walls, low and steady. I listened for anything that shouldn’t be there and heard nothing. Shifted once, pulled the bag tighter over my shoulder, and let the stream noise close over me again.
 
+
+### 11:19 PM · Night Holds Quiet
+
+The cabin is black and the fire holds at banked ash. I may not have truly woken — it may only be the body's habit of checking, the half-sense I've come to trust through weeks of sleeping here. Wind in the pines unchanged, stream sound through the walls unchanged, nothing alarming anywhere. The larder is full: trout and rabbit and squirrel in the cold box, twelve sealed bark packages on the shelf, acorn flour coming in two days, tallow ready to refill the lamp, rabbit hide lines drawn and waiting for morning light. South-slope snares are set. The leaching tray rides in the stream riffle. Everything is where I put it. Whatever this waking was — a shift in the fire, a change in the wind's tone, nothing at all — it is enough to know the night holds quiet. I let it settle back around me and close my eyes.
+

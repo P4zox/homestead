@@ -1407,3 +1407,4 @@ Day 79, 19:18 — Charcoal on Hide: cut lines drawn on rabbit hide (back panel +
 2026-09-10 Day 79 20:18 — Sat with the lamp's last tallow and counted winter stores; twelve sealed packages, cold box full, acorn flour ~Day 82–83 — not behind.
 Day 79, 21:18 — Dark cabin and banked fire; listened to stream and wind; tallied the larder quietly; sleep.
 2026-09-10 22:19 | Day 79 | Pine Quiet -- brief waking in black cabin; fire holding at banked ash, wind in pines, stream sound through walls; nothing wrong; back to sleep.
+2026-09-10 Day 79 23:19 — Night holds quiet; fire steady at banked ash; larder full; back to sleep.
