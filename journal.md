@@ -14671,3 +14671,14 @@ I knock on the crock's base with a knuckle. A clear, slightly ringing sound come
 
 Noon light will tell me when the bed is ready. A deep coal bed fires more evenly than an open flame; I've learned that much from the broth pot and the bowls. Until then, I'm tending the fire and waiting with the patience that only comes from having cracked clay before — from knowing that hurrying the coal bed only ruins what hours of coiling and drying have built.
 
+
+### 12:18 PM · Into the Coals
+
+The coal bed was right. I could feel it from two paces off — that dense, even heat with no smoke in it, just stored fire. I lifted the bark cover from the crock, knocked it once — a clear, full ring — and set it upright on the fieldstone cradle-ring. The belly settled level between the four stones. Then two birch rounds, one to each side, stoked in close to build enclosing heat without open flame on the walls.
+
+That is all you can do. Set it right and wait.
+
+The crock is wide-bellied, coil-built over two sittings on Day 76. I did not know if I had got the coil seams right until this morning when I lifted it and found it bone-dry, no hairlines, no soft spots, clear ring on every knock. Now it is in the fire. Two hours will tell me if I have a winter store vessel or a pile of sherds. There is nothing in between.
+
+The clearing is completely still — noon sun straight through the pine tops, no wind, no birds. The smoke off the flanking birch rounds curls straight up. I pulled the bench close to the hearthpad and sat down. I will stay near.
+
