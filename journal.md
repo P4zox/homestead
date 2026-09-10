@@ -14648,3 +14648,15 @@ I lifted it gently — lighter than I remembered from a week ago — and set it 
 
 The thought of a sealed, fired crock — wide enough to hold dried acorn flour or winter grain, with room to close it over with a fitted bark lid — made the morning feel properly purposeful. This is the kind of thing that builds a life from the ground up: the harvest leaches in the stream, the crock readies at the hearth, and the season turns with you rather than against you.
 
+### 10:18 AM · Tallow Before Noon
+
+The crock has been warming on the hearthstone since nine — upside-down over a gentle heat, bark cover resting on top, the coals banked low. Another hour at least before they build to firing temperature. I stood in the cabin doorway looking at the hearth and thought: *tallow out*.
+
+It has been out for a while. I have managed without it — resin does for waterproofing, the hearth does for warmth — but with autumn settling in I want it back. The squirrel came out of the cold box first. There was a good pad of kidney fat, hard and white, and a strip along the back. The rabbit gave up a smaller piece at the hindquarters. I trimmed it all clean, cut it small on the flat grinding stone, and set it in the cook tin at the fire's edge.
+
+The rendering took its time. The fat went from white to translucent, then amber. The scraps curled and darkened. I stirred with the birch spoon, pressed the solids against the tin wall, skimmed what came up. When nothing more would give, I lifted the tin clear of the flame and let it settle a moment, then poured the liquid through a bark twist into the wide shallow bowl — the second fired bowl, the one that rings true when tapped.
+
+It set quickly in the cool morning air. A thin layer, pale amber at center, ivory at the rim. Not enough to waterproof boots or do much — but it is a beginning. The supply shelf has a first batch now. I will render more the next time I butcher, and again, and the bowl will fill.
+
+Outside the sun is a little higher. The coals are building. At noon I will fire the crock.
+
