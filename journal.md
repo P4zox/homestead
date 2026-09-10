@@ -14750,3 +14750,16 @@ Folded it rough-side up and began working the edge in slow circles with the hand
 
 Kept glancing over at the lamp. Still surprised it was there.
 
+
+### 7:19 PM · Charcoal on Hide
+
+The cabin is quiet. The lamp makes a small orange circle on the supply shelf, steady as it has been all evening, and the hearthfire is just a glow under the banked ash — enough to feel but not to see by, unless you are close.
+
+I lifted the rabbit hide from the shelf again and spread it on the hearthstone in the lamplight. Most of the stiffness is gone now; the leather moves when I fold it, gives at the grain lines, comes back. I worked the last rigid patch at the shoulder edge with the birch-spoon handle for a few more minutes — slow circles, steady pressure — until it matched the rest.
+
+Then I took a stick from the hearth edge, charred tip gone grey and cool, and began to draw. The back panel first: from the shoulder nape, following the widest line of the hide, down to where the haunch begins. A long stroke, corrected once. Then the belly liner, narrower, running alongside. I went over each line twice until it was sure and visible in the lamplight — dark against the honey-tan leather, not easily smudged.
+
+Tomorrow I will cut. Tonight the hide is folded back on the shelf with its lines on it, waiting, and I have done what I can do by lamp.
+
+The lamp is burning low — maybe another hour in it, maybe two. I will let it go until it does.
+
