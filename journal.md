@@ -14639,3 +14639,12 @@ Walking back with cold-wet hands, I stop at the threshold and look south. The sl
 
 There is a good feeling in that — putting a thing in motion and walking away.
 
+
+### 9:18 AM · The Crock Before Fire
+
+The morning sun was full over the pines by the time I ducked into the north lean-to corner to check the storage crock. It has been slow-drying there since Day 76 — three full days now, and today's air is dry and bright, which helps. I ran a finger along the rim first: no cool softness, no give. Then I pressed the thickest part of the wall, the belly curve where the coils had been smoothest — firm. I scraped the edge lightly with a thumbnail: a faint powder, nothing more. No damp grey, just the same pale clay-tan it had been all through yesterday. I tilted it toward the door light and looked for fine cracks along the coil seams. None. The piece is clean and bone-dry.
+
+I lifted it gently — lighter than I remembered from a week ago — and set it beside the hearth to warm slowly. The rule is: never shock cold dry clay into heat; let it breathe first, then deepen the warmth over an hour before the coals come close. I cleared a corner of the hearth stone, set the crock upside-down over gentle warmth from the banked coals, and covered it loosely with a piece of bark to hold the ambient heat without concentrating it. By midday, if the fire builds well, I can begin the real firing.
+
+The thought of a sealed, fired crock — wide enough to hold dried acorn flour or winter grain, with room to close it over with a fitted bark lid — made the morning feel properly purposeful. This is the kind of thing that builds a life from the ground up: the harvest leaches in the stream, the crock readies at the hearth, and the season turns with you rather than against you.
+
