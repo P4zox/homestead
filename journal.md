@@ -14763,3 +14763,14 @@ Tomorrow I will cut. Tonight the hide is folded back on the shelf with its lines
 
 The lamp is burning low — maybe another hour in it, maybe two. I will let it go until it does.
 
+
+### 8:00 PM · Lamp's Last Count
+
+The tallow lamp is burning its final finger of wax. I can see the flame pulling lower each time I look over. I didn't snuff it — I'm letting it go on its own while I sit with my back against the south wall, the supply shelf visible across the cabin in that last amber light.
+
+I went through everything in my head. Twelve sealed bark packages on the shelf: hawthorn haws, rose hips, elderberry reduction, sloe syrup, crab apple paste, hazelnut paste, smoked rowan berries. In the cold box: nine trout, the dressed rabbit, the grey squirrel, two batches of smoked hen-of-the-woods, two batches of oyster mushrooms, watercress. The acorn leaching tray is in the stream riffle — by Day 82 or 83, another full envelope of flour. South-slope snares active; the rabbit-sign stake still promising; buried log showing mycelium, recheck around Day 84. The wide storage crock on the shelf. The clay pot soaking, clean and sound.
+
+I am not behind. That is what I needed to sit with tonight. Early autumn, Day 79, and the larder is layered. Twelve sealed packages. A full cold box. Acorn flour coming. Whatever frost arrives, whatever the snares yield or don't, I have enough to reach well past the first hard freeze — and everything still coming in.
+
+The lamp flickered. I didn't touch it. Let it burn what it has.
+
