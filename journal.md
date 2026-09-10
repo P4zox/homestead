@@ -14682,3 +14682,12 @@ The crock is wide-bellied, coil-built over two sittings on Day 76. I did not kno
 
 The clearing is completely still — noon sun straight through the pine tops, no wind, no birds. The smoke off the flanking birch rounds curls straight up. I pulled the bench close to the hearthpad and sat down. I will stay near.
 
+
+### 1:18 PM · Tending the Crock
+
+One hour into the firing and the coal bed is doing its work. I pulled the bark screen aside and circled the cradle slowly, crouching to look at the crock walls from four sides. No cracks. No bright lines running up the coil seams. The walls have taken on the pale flush of early heat — not amber yet, not terracotta, just the first warming of raw clay into something that might last. I added one birch round to the south flank where the glow had begun to fade, pressing it tight against the side so the heat encircles rather than just hits.
+
+The stream, sixty paces east, caught the light when I stood back up. I walked there quickly to change the acorn water — slid the stone weight off, lifted the tray from the riffle, poured the tannin-darkened water onto the bank, reset the tray in the faster current, and weighted it again. The water runs clearer by the day. If I change it tomorrow and the next, the acorns should be clean enough to dry by Day 82.
+
+Back at the fire, the crock walls were still sound. I laid in two more birch rounds flanking, set the bark screen at an angle to funnel heat without starving the coal of air, and stepped back. There is nothing much to do now but keep the heat steady and wait. The clay teaches patience whether you want it or not.
+

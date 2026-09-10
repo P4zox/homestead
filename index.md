@@ -1397,3 +1397,4 @@ Day 79, 09:18 — storage crock inspected: bone-dry, no cracks; warming at heart
 2026-09-10 10:18 — Day 79 — Rendered first small batch of tallow from squirrel and rabbit fat; pale amber in clay bowl on supply shelf; crock still warming at hearthstone before noon firing.
 2026-09-10 Day 79 11:18 — Coal Bed for Noon: built coal bed at hearthpad for storage crock noon firing; crock warming well, seams tight, tone clear
 2026-09-10 | Day 79, 12:18 | Into the Coals — wide-bellied storage crock placed on fieldstone coal-bed cradle; noon firing underway; watching walls for cracks
+Day 79, 2026-09-10, 13:18 — Tended noon firing: checked crock walls (no cracks, pale heat flush), changed acorn leaching water, banked birch rounds to maintain even cradle heat.
