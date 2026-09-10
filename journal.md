@@ -14717,3 +14717,16 @@ It is not a beautiful thing. The bark cup will blacken and the wick wants better
 
 Then I lifted the crock from the ash cradle. The ash was barely warm around its base. Walls solid, color deep and even, not a crack along any coil seam. I carried it to the supply shelf and set it in the space I had left. It looked right there — the work of Day 76 to 79, holding itself upright and complete. Ready.
 
+
+### 4:18 PM · Broth at the Hearth
+
+The hearth was cold after the day's long firing — ash raked flat, the cradle-ring fieldstones still stacked aside from where I lifted the crock this afternoon. I took my time rebuilding: dry birch bark curled into a loose nest at the center, split pine kindling laid around it in a low box-stack, flint struck twice into char cloth and the flame took cleanly. Let it breathe. Added two birch rounds when the kindling had hold, set the old pot-stones back in their ring.
+
+One of the dock-wrapped wood pigeons from the cold box — still cold and firm. Rinsed it at the stream, quartered it on the flat hearthstone with the knife. The clay broth pot over the low flame, water from the stream, pigeon pieces laid in, a small pinch of dried watercress from the supply shelf, two hawthorn haws squeezed and dropped in for a little acid. It came to a low steam within minutes. The smell rose into the cabin, warm and faintly sweet under the savory.
+
+I went and sat on the doorsill bench. The pine slope was full amber — that particular light that only lasts maybe half an hour, where the whole hillside goes the color of dry grass or old honey. No wind. The clearing held perfectly still. I sat with my hands in my lap and watched it.
+
+Full cold box. Full supply shelf. New crock beside the grinding stone. The lamp snuffed and waiting for the first long evening I need it. The acorn leaching tray quiet in the stream riffle. Snares reset.
+
+Winter still weeks off, but I can feel it orienting toward us from somewhere past the north ridge. Knowing the larder is this full on a day this quiet — that is what the work is for.
+
