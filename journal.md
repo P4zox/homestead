@@ -14978,3 +14978,8 @@ A full day, and it feels that way — not heavy, just complete. Each thing conne
 
 I am asleep before I finish the thought.
 
+
+### 11:18 PM · Fire and Dark
+
+The banked coals glow faintly through the hearthstone gaps — just enough to see the outline of the smoke rack through the half-open door, hides still hanging there in the cold night air. I must have woken at some creak in the roof timber, or maybe just the sound of the stream carrying through the still night. The cabin smells of pine and tallow and worked leather. Everything is where it should be. The cold-box is full, the cord is coiled, the alder shavings laid ready for morning smoke cure. I let my eyes close again. The last thing I notice is how still it is — no wind, just stars and the soft tick of cooling wood.
+

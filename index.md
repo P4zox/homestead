@@ -1425,3 +1425,4 @@ Day 80, 2026-09-11, 19:18 — Cord by lamplight: braided two-ply bark cord by ta
 Day 80, 2026-09-11, 20:21 — Checked hides on smoke rack under autumn stars; banked hearthfire for morning.
 Day 80, 21:20 — Sorted green birch bark shavings and alder twigs for morning smoke cure; reflected on the season's readiness; banked coals and slept.
 Day 80 (2026-09-11) 22:00 — The Day Folds Down: full evening reflection; hides on rack stiffening for smoke cure tomorrow, cold box full, cord stock added, smoke cure laid out; sleeping.
+Day 80, 2026-09-11 23:18 — Woke briefly at a roof creak; lay in the dark listening to the stream; coals banked, hides on rack, smoke-cure shavings laid ready; eyes closed again.
