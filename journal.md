@@ -14920,3 +14920,11 @@ The fat rendered down in the time it took the sun to move two finger-widths. I p
 
 Tomorrow the real work: a cool smoke fire for the panels, and the second pelt waiting on the ridgepole offcut for its brain. Tonight just this: the cabin faintly sweet with clean fat, the coals banked low, the hides turning darker as the air takes them.
 
+
+### 5:18 PM · Evening Meal, Hide Check
+
+Stepped out in late afternoon to check both panels on the smoke rack — both stiffer now, pale tan and holding their shape, the suppleness worked in this morning trading for firmness as the fiber sets. Exactly right. Tomorrow's smoke-cure will lock it in and make them water-fast.
+
+Pulled the grey squirrel from the cold box and opened a packet of bark-wrapped oyster mushrooms; set both in the clay pot with stream water and simmered low on the coals while the clearing went golden. Ate on the doorsill bench as the sun dropped below the pines — cool air, warm last light, good broth.
+
+The acorns are still working in the leaching tray. The hides are ready for tomorrow. The larder is the fullest it's been all season, and I let myself feel that for a little while, even knowing it won't stay.
