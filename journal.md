@@ -14889,3 +14889,14 @@ Nested the new fish into the cold box beside the others, dock-wrapped. Eight tro
 
 The hides looked no different when I came back. That is how drying goes. Tomorrow I will smoke them and they will become water-fast; tonight, just the fire and the stillness while autumn settles around the clearing.
 
+
+### 2:18 PM · South Slope Mast
+
+After resetting the fishing line I sat a moment on the doorsill bench and let the afternoon light settle. The hides hang still and even on the smoke rack, edges lifting just slightly in the small afternoon breeze — drying well, nearly ready for tomorrow's smoke cure. The clearing is quiet, sky that particular autumn blue that comes when the haze of summer is entirely gone.
+
+I took the wide gathering basket from beside the door and walked south to the big oak. The mast is coming down heavily — acorns littered the ground in a dense ring under the canopy, dozens per square pace, more than I've seen in a single pass. I moved in slow sweeping circuits, picking the freshest and most intact, keeping clear of any that had gone soft or cracked. By the third circuit the basket was packed close to the rim: a good ten or twelve pounds, heavy and satisfying to carry.
+
+The leaching tray in the stream is already running its current batch; today's acorns I've set in a dry bark envelope on the supply shelf to wait their turn. Acorn flour takes days but stores long, and there is no reason not to fill the larder while the oak is still giving.
+
+Back in the clearing by mid-afternoon. Smoke rack, hides, woodpile, hearthfire ticking down to coals — everything steady in the cool golden sun.
+
