@@ -14967,3 +14967,14 @@ I keep counting the days toward the cold. They are not so many now. Tallow on th
 
 Coals banked. Lamp pinched out. I will sleep.
 
+
+### 10:00 PM · The Day Folds Down
+
+The cabin is warm and still. I am in the sleeping bag, coals banked under ash, the tallow lamp pinched out an hour ago. Outside — I know because I was out checking hides at twenty past nine — stars thick above the pine ridge, the Milky Way pale in the gap between canopy and sky.
+
+I am letting the day settle. Hides stiffening on the smoke rack, smoke cure tomorrow. Second pelt scraped and stretched on the ridgepole offcut, ready for brain-tanning. Two batches of tallow on the supply shelf. Eight trout in the cold box, three rabbits. Four arm-lengths of cord added to stock by lamplight. Birch bark shavings and alder twigs already laid out in a bark tray beside the hearthstone for morning.
+
+A full day, and it feels that way — not heavy, just complete. Each thing connecting to the next, nothing wasted. The cold pressing in after dark tells me winter is getting nearer, but the larder is heavier and the cabin is sealed and the smoke cure is ready for morning. That is the bargain, and I am keeping up my side of it.
+
+I am asleep before I finish the thought.
+
