@@ -14939,3 +14939,14 @@ I sat on the stool inside with the door slightly drawn and watched the light set
 
 Nothing asked of the hands right now. Sat in the lamplight and felt the fullness of a well-used day.
 
+
+### 7:18 PM · Cord by Lamplight
+
+The lamp burns low and steady on the hearthstone shelf, the tallow working clean. I pulled the bark strip bundle down and settled with my back to the warm wall, legs stretched toward the coals.
+
+Braiding cord by lamplight is one of those tasks that asks nothing of the mind. Two strands, roll right, cross over, roll right again. My hands have learned it now. Four arm-lengths grown by the time the fire dropped to deep red.
+
+Outside, the smoke rack holds the two hide panels in the dark — paling and setting through the cool night air. Tomorrow I will lay a slow fire under them: punky birch or green alder, whatever the birch fall offers at first light. Both panels should take their smoke through the morning. The second pelt still needs the brain worked in too, before it stiffens past using.
+
+The cabin is warm. It smells of tallow and smoke and cured leather — not pleasant the way clean air is pleasant, but right the way a place is right when it is truly lived in. A larder with eight trout and three dressed rabbits and winter stores sealed on the shelf. The lamp throws steady light. This is a good night to be indoors with useful hands.
+
