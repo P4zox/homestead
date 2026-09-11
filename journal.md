@@ -14837,3 +14837,16 @@ I split the body cavity, cleaned it over the grass at the clearing edge, washed 
 
 By the time I walked back and wiped the knife clean on a handful of dry grass, the sun had moved clear above the pines. Still cold, but still and bright. A full pantry, work done before mid-morning. The day opening quietly in front of me.
 
+
+### 9:18 AM · Working the Panels
+
+The hide panels from the first rabbit have been waiting on the shelf since early morning, supple and cut clean. With three rabbits dressed and the cold-box doing its work, this felt like the right hour to begin on the hide — the actual tanning.
+
+I pulled the saved brain from the first rabbit — a small, pale mass I had set aside in a folded dock leaf in the cool corner. Mashed it with a little stream water in the clay bowl until it went smooth and creamy, the consistency of thin porridge. Then sat on the doorsill bench in the morning sun with the back panel across my knees and worked the brain mash into the leather with my thumbs, pressing it deep into the grain side, then the flesh side, folding and pressing until the panel started to soften under my hands.
+
+Brain tanning works on the principle that every animal has just enough brain to tan its own hide. I have heard this, anyway, and the logic feels right here in my hands. The fibers loosen. The panel goes from stiff and slightly papery to something beginning to live again.
+
+I repeated this with the belly liner — smaller, thinner, it softened faster. Both panels are now wrapped in dampened dock leaves and resting on the hearthstone to stay warm while the brain does its work. I will come back to stretch and pull and work the leather as it dries, until it is soft all the way through.
+
+The morning is still and bright. The second pelt dries on the hearthstone edge. Small progress, but the right kind.
+
