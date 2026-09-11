@@ -14867,3 +14867,14 @@ The back panel took another pass. Thicker through the haunches, and I had missed
 
 The clearing is bright and still. Frost long gone, sun high above the pines, the kind of midmorning that makes the whole season feel reasonable. I ate a slice of cold rabbit and a spoonful of hazelnut paste sitting on the doorsill bench, watching a jay argue with itself in the birches. Good enough for eleven o'clock.
 
+
+### 12:18 PM · Trout at Noon
+
+The hides hang still on the smoke rack in the autumn light. No wind to move them — just slow drying in the quiet. Good.
+
+I took a trout from the cold box and one of the bark-wrapped hen-of-the-woods packets from beside it. The fish came unwrapped firm, cold from the seep. Set the clay pot on the coals with a splash of water, laid the trout in, tore the mushrooms over the top, folded in a watercress sprig. By the time the coals settled flat it was done.
+
+Ate on the doorsill bench in the full noon sun, pot still warm in my lap. The clearing holds a particular brightness this time of year — that high autumn clarity that goes flat by four and doesn't return. I sat with it as long as the warmth lasted.
+
+Tomorrow I smoke the hides. Today the pot is empty and the bench is warm and that is enough.
+
