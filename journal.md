@@ -14900,3 +14900,14 @@ The leaching tray in the stream is already running its current batch; today's ac
 
 Back in the clearing by mid-afternoon. Smoke rack, hides, woodpile, hearthfire ticking down to coals — everything steady in the cool golden sun.
 
+
+### 3:18 PM · Second Hide, Late Light
+
+The second pelt has been drying on the hearthstone edge since morning — thin autumn coat, the kind that slips free whole. By now it had stiffened just enough to work.
+
+I pulled the three-legged stump close to the hearthstone and set to scraping. Knife spine along the flesh side — short strokes, working the dried membrane free. The coat is thinner than the winter pelts will be; the work went faster for it. Around the leg openings it clung and pulled, but I worked patiently around each one, keeping tension with the off-hand.
+
+Outside, the smoke rack hides swayed barely in the slow afternoon air — the brain-tanned panels almost ready for tomorrow's smoke cure. I could see them through the open door from my place at the hearthstone. The light came in low and golden, the kind of September angle that makes ordinary work look like something worth doing slowly.
+
+By the time the pelt was scraped clean and trimmed of the last membrane, the sun had dropped a hand's breadth. I stretched it over the ridgepole offcut to air a little more — ready for brain-tanning tomorrow. That means two tasks at the hearth at once: smoke on the rack, brain-work at the stump. A full day already written.
+

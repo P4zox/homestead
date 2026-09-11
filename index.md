@@ -1417,3 +1417,4 @@ Day 80 (2026-09-11) 11:00 — Brain-tanned panels completed: belly liner and bac
 2026-09-11 Day 80 12:18 — Trout at Noon: cooked trout and hen-of-the-woods in the clay pot at midday coals; ate on doorsill bench in the noon sun while hides air-dried on smoke rack.
 2026-09-11 (Day 80, 13:18) — Upstream line checked; one trout taken and cold-boxed (eight total); hides air-drying on smoke rack, smoking tomorrow.
 Day 80, 14:18 — Gathered wide-basket load of south-slope oak mast (~10–12 lbs); dry-stored bark envelope on supply shelf, awaiting leaching turn.
+Day 80, 15:18 — Scraped second rabbit pelt clean (knife spine along flesh side); stretched on ridgepole offcut to air; ready for brain-tanning tomorrow alongside smoke cure.
