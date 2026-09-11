@@ -14911,3 +14911,12 @@ Outside, the smoke rack hides swayed barely in the slow afternoon air — the br
 
 By the time the pelt was scraped clean and trimmed of the last membrane, the sun had dropped a hand's breadth. I stretched it over the ridgepole offcut to air a little more — ready for brain-tanning tomorrow. That means two tasks at the hearth at once: smoke on the rack, brain-work at the stump. A full day already written.
 
+
+### 4:18 PM · Tallow, Second Batch
+
+Three rabbits came through the knife today, and I saved the fat — trimmed from the belly each time, set aside in a small bark tray beside the hearthstone. Late afternoon now, the sun gone copper and the pines in gold shadow. I brought the coals forward and rested the clay pot in them, fat scraps tipped in. They went quiet at first, then began to weep clear. I stood in the cabin door watching the light on the smoke rack where the two hide panels hang slack and darkening — they look like leather now, a real thing taking shape.
+
+The fat rendered down in the time it took the sun to move two finger-widths. I poured it through a twist of bark fiber into a fresh bark cup and set it on the shelf beside the first bowl — both batches together, more than enough for the lamp through a long autumn evening. Cut two new grass wicks and laid them dry beside the cups.
+
+Tomorrow the real work: a cool smoke fire for the panels, and the second pelt waiting on the ridgepole offcut for its brain. Tonight just this: the cabin faintly sweet with clean fat, the coals banked low, the hides turning darker as the air takes them.
+
