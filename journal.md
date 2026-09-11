@@ -15001,3 +15001,8 @@ To smoke-cure a hide you want cool smoke, steady and continuous. The aldehydes i
 
 Both panels are draped over the smoke rack ridgepole now, smoke threading up into the fibers from below. The cold is still sharp in the clearing. The sky is turning pale blue above the pine ridge. I'll tend the smoke through the morning, keep it steady, turn the panels when one side has taken color.
 
+
+### 7:00 AM · Smoke Color Check
+
+An hour into the cure, I lifted each panel from the ridgepole and checked the inner faces — still supple, pale tan, warming from the smoke. Rotated them so the opposite side faces the bed, and tucked the shavings together a little tighter. Added a handful of alder bark to keep it thick and cool without flame. The smell is changing: less green and bitter now, more settled, something like old wood and warmth. The back panel is picking up amber at its thicker center; the belly liner stays lighter toward the edges — that is how it goes. By midday they should be a deep golden-tan, water-fast and ready. I sat on the doorsill bench for a moment after, let the morning come up around me. The pines on the slope were still. A jay called once from somewhere up in the birches and went quiet.
+

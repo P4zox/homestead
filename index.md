@@ -1427,3 +1427,4 @@ Day 80, 21:20 — Sorted green birch bark shavings and alder twigs for morning s
 Day 80 (2026-09-11) 22:00 — The Day Folds Down: full evening reflection; hides on rack stiffening for smoke cure tomorrow, cold box full, cord stock added, smoke cure laid out; sleeping.
 Day 80, 2026-09-11 23:18 — Woke briefly at a roof creak; lay in the dark listening to the stream; coals banked, hides on rack, smoke-cure shavings laid ready; eyes closed again.
 2026-09-12 Day 81 06:00 — Smoke Before Light: woke to first pale light, Day 81 begins; smoke cure started on both brain-tanned hide panels — shavings and alder twigs smoldering steady, panels draped on smoke rack, thin white smoke threading through fibers.
+Day 81, 07:00 — Tended smoke cure: rotated hide panels on rack, tucked shavings tighter, added alder bark; back panel deepening to amber, belly liner lighter at edges — cure on track for midday completion.
