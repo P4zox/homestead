@@ -14850,3 +14850,11 @@ I repeated this with the belly liner — smaller, thinner, it softened faster. B
 
 The morning is still and bright. The second pelt dries on the hearthstone edge. Small progress, but the right kind.
 
+### 10:00 AM · Working Softness In
+
+Unwrapped the panels from their dock leaves just past ten. The brain had sunk in — both pieces darker than before, pliable in a way they were not at nine. I stretched the back panel first, pulling corner to corner, then working each section over the rounded end of a smooth ridgepole offcut I keep near the hearth for this. The trick is not to stop: the moment you set leather down and it begins to dry without motion, it remembers the shape of stiffness.
+
+So I kept on — pulling, draping, pulling again, working the full length of each panel and back. The belly liner is smaller and warmer to the touch, already showing white at the thinner spots where the membrane is drying fastest. I worked those sections hardest, opening the fibers with my thumbs, feeling the give spread outward from the thin places. Somewhere in the third pulling, both panels lost the last of their rawhide sound and started to whisper — that shift you work toward in brain-tanning, when the material stops being skin and becomes something a body can wear.
+
+I will keep at this through the midmorning, pausing to feed the fire and keep the cabin from going cold. Cold sets the tanning if you let it.
+

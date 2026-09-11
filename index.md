@@ -1412,3 +1412,4 @@ Day 80 06:19 — Cut smoke-finished rabbit hide to back panel and belly liner al
 Day 80, 07:18 — Snares and the Leaching Tray: one rabbit from third snare (sign confirmed Day 79); all three snares reset; acorn leaching water changed; second rabbit hung on smoke rack.
 2026-09-11 08:18 Day 80 — Dressed the morning rabbit at hearthstone; pelt set aside to dry; carcass cold-boxed.
 2026-09-11 09:18 Day 80 — began brain-tanning first rabbit hide panels; both mashed with brain-water and wrapped in dock leaves on hearthstone to cure
+Day 80, 10:00 AM — Stretched and worked both brain-tanned panels as they dried; belly liner and back panel both softening toward wearable leather.
