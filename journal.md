@@ -14955,3 +14955,15 @@ The cabin is warm. It smells of tallow and smoke and cured leather — not pleas
 
 Put the cord aside after dark settled fully over the clearing. Stepped out to check the hides — both panels still hanging firm on the smoke rack crossbar, pale tan against the night, stiffening in just the right way in the cool air. The sky had cleared beautifully since sundown: stars spread across it, the Milky Way faint above the pine ridge to the south, no moon yet risen. Stood there a moment in the cold without my coat, bare arms, listening. Just the stream sound and the upper branches shifting. The stars have that autumn sharpness to them — more present than they are in summer haze, as if the cold air thins everything down to essentials. Went back inside, fed the hearthfire one good round of split pine, banked the coals deep toward morning. Tomorrow the smoke-cure: both panels over the rack fire before midday if the weather holds. For now the cabin is warm and the hides are doing what they need to do in the dark outside. Enough for one day.
 
+### 9:20 PM · Ready for the Smoke
+
+The lamp is burning low. I have been up since before the frost, and the body knows it now — that particular heavy stillness in the shoulders and hands, the good kind of tired. The hides are hanging steady on the smoke rack outside. I can hear the crossbars creak once when the cold air shifts.
+
+Before I sleep, I slipped out to the lean-to and sorted a double handful of green birch bark shavings and three short alder twigs — the kind that smolders and breathes smoke without burning hot. Laid them in a dry bark tray near the hearthstone, ready for morning. Tomorrow I will bank the coals to a low bed, lay the green bark over them, and tent the hides close enough to catch the smoke but not the heat. I have been thinking through the sequence all evening without meaning to.
+
+The second pelt is air-drying on the ridgepole offcut. It will need brain tomorrow, then stretching, then smoke — a full day by itself. The two tanned panels go first; they have done their fiber-opening and just need the smoke to lock in the softness and make them water-fast.
+
+I keep counting the days toward the cold. They are not so many now. Tallow on the shelf. Meat in the box. Cord in the pile. Leather almost ready. The firewood stands higher than my head. It is not fear I feel looking at all of it — more like something settling in my chest. Readiness, maybe. Or the plain satisfaction of a day that did what it was supposed to.
+
+Coals banked. Lamp pinched out. I will sleep.
+

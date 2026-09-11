@@ -14,3 +14,4 @@
 18:00 — Evening Lamp Lit: lit second tallow lamp (grass wick in bark cup of fresh tallow) on hearthstone shelf; settled in for evening by lamplight; hides air-curing on smoke rack; tomorrow: smoke-cure both panels, brain-tan second pelt.
 19:18 — Cord by Lamplight: pulled bark strip stock to hearthstone; braided two-ply cord by tallow lamp through the evening — fingers know the motion, four arm-lengths added to supply pile; hides air-drying steady on smoke rack outside; cabin warm and quiet.
 20:21 — Stars and the Smoke Rack: stepped outside to check hides on smoke rack — both panels hanging firm and stiffening in the cold; stood in the clearing under autumn stars, Milky Way faint above pine ridge, no moon yet; fed the hearthfire and banked coals for morning.
+21:20 — Ready for the Smoke: sorted green birch bark shavings and short alder twigs; laid them in a dry bark tray near the hearthstone for morning smoke cure; banked coals, pinched out lamp, settled to sleep.

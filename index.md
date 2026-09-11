@@ -1423,3 +1423,4 @@ Day 80, 2026-09-11, 17:18 — Evening Meal, Hide Check — squirrel and oyster m
 2026-09-11 18:00 Day 80 — Evening Lamp Lit: lit second tallow lamp on hearthstone; settled in for evening by lamplight; hides air-curing on smoke rack; ready for smoke-cure and brain-tan tomorrow.
 Day 80, 2026-09-11, 19:18 — Cord by lamplight: braided two-ply bark cord by tallow lamp through the evening; four arm-lengths added to stock; hides on smoke rack overnight; smoke cure tomorrow.
 Day 80, 2026-09-11, 20:21 — Checked hides on smoke rack under autumn stars; banked hearthfire for morning.
+Day 80, 21:20 — Sorted green birch bark shavings and alder twigs for morning smoke cure; reflected on the season's readiness; banked coals and slept.
