@@ -14858,3 +14858,12 @@ So I kept on — pulling, draping, pulling again, working the full length of eac
 
 I will keep at this through the midmorning, pausing to feed the fire and keep the cabin from going cold. Cold sets the tanning if you let it.
 
+
+### 11:00 AM · Leather Taking Shape
+
+The belly liner gave first. I was folding it corner to corner over the ridgepole offcut when I felt the grain side begin to pull evenly — not stiff like rawhide, not rubbery like fresh skin, but genuinely soft, the way worked leather ought to be. I held it up against the window light and it draped. That is the thing you wait for: the moment it stops fighting you and starts to fall.
+
+The back panel took another pass. Thicker through the haunches, and I had missed a patch along the spine edge where the brain had not quite penetrated. I worked it with both thumbs, pressing across the grain in short strokes, and after ten minutes it came through. Both panels now hang on the smoke rack crossbar to dry and air in the late-morning sun. They will need smoking before they are water-fast, but that is tomorrow's work — today I earned them.
+
+The clearing is bright and still. Frost long gone, sun high above the pines, the kind of midmorning that makes the whole season feel reasonable. I ate a slice of cold rabbit and a spoonful of hazelnut paste sitting on the doorsill bench, watching a jay argue with itself in the birches. Good enough for eleven o'clock.
+
