@@ -14983,3 +14983,21 @@ I am asleep before I finish the thought.
 
 The banked coals glow faintly through the hearthstone gaps — just enough to see the outline of the smoke rack through the half-open door, hides still hanging there in the cold night air. I must have woken at some creak in the roof timber, or maybe just the sound of the stream carrying through the still night. The cabin smells of pine and tallow and worked leather. Everything is where it should be. The cold-box is full, the cord is coiled, the alder shavings laid ready for morning smoke cure. I let my eyes close again. The last thing I notice is how still it is — no wind, just stars and the soft tick of cooling wood.
 
+
+---
+
+# Day 81 — Saturday, 12 September 2026
+*early autumn · clear cold dawn, mist in the low folds, pine boughs still*
+
+### 6:00 AM · Smoke Before Light
+
+The cold came through sleep. I was awake at the first pale light pressing through the gable wattle — not a sound that woke me, just the cold and the knowledge that today is the smoke cure. I lay still a moment, then rolled out of the sleeping bag.
+
+The coals were deep orange under grey ash. I coaxed them forward with a breath and some small sticks, fed in bigger pieces until the fire steadied. The cabin smelled of pine and sleep and last night's tallow wick.
+
+I brought the smoke-cure tray in from beside the hearthstone — green birch bark shavings and short alder twigs, sorted last night. Set it where the heat could warm the shavings without catching them. Outside on the smoke rack, the two brain-tanned panels had stiffened in the night cold, pale tan in the early grey light. I carried them in and laid them near the hearthstone edge to soften while the tray warmed.
+
+To smoke-cure a hide you want cool smoke, steady and continuous. The aldehydes in the wood smoke bond to the hide fiber and fix the softness in place — which is the difference between a hide that stays supple in the rain and one that stiffens to board the moment it gets wet. I nested the shavings and twigs around the forward edge of the coal bed, covered them loosely with a flat bark scrap, and waited. Thin white smoke threaded up, pale and even. No flame.
+
+Both panels are draped over the smoke rack ridgepole now, smoke threading up into the fibers from below. The cold is still sharp in the clearing. The sky is turning pale blue above the pine ridge. I'll tend the smoke through the morning, keep it steady, turn the panels when one side has taken color.
+
