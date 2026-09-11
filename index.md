@@ -1410,3 +1410,4 @@ Day 79, 21:18 — Dark cabin and banked fire; listened to stream and wind; talli
 2026-09-10 Day 79 23:19 — Night holds quiet; fire steady at banked ash; larder full; back to sleep.
 Day 80 06:19 — Cut smoke-finished rabbit hide to back panel and belly liner along last night's mapped charcoal lines; both panels folded on supply shelf, offcuts set aside.
 Day 80, 07:18 — Snares and the Leaching Tray: one rabbit from third snare (sign confirmed Day 79); all three snares reset; acorn leaching water changed; second rabbit hung on smoke rack.
+2026-09-11 08:18 Day 80 — Dressed the morning rabbit at hearthstone; pelt set aside to dry; carcass cold-boxed.

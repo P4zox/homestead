@@ -14826,3 +14826,14 @@ Back at the cabin I hang the rabbit on the smoke rack crossbar and bank the hear
 
 I sit a moment on the doorsill bench before going back in. The cold is pleasant now, still morning. I can hear the stream through the trees.
 
+
+### 8:18 AM · Dressed by the Rack
+
+It was full morning by the time I got around to the rabbit — the cold had kept the meat firm on the smoke rack crossbar, and the sun was just clearing the treeline, throwing long amber light across the clearing. I took it down and carried it to the hearthstone with the knife.
+
+I have dressed enough rabbits now that the work has a rhythm. Slip the hide free at the legs and haunches first, then work the body loose in one even pull — the fur stays whole if you are patient. This one was a young autumn buck, smaller than the last; the pelt still thin, not yet filling toward winter weight. I set it aside to dry on the hearthstone edge — it will need a few days before I decide whether to brain-tan it for softness or strip it for cord patches.
+
+I split the body cavity, cleaned it over the grass at the clearing edge, washed the carcass in the stream. Back at the cold-box I shifted the dock leaves and nested the dressed rabbit in beside the two from before. The box is getting crowded. That is a good problem to have in early autumn.
+
+By the time I walked back and wiped the knife clean on a handful of dry grass, the sun had moved clear above the pines. Still cold, but still and bright. A full pantry, work done before mid-morning. The day opening quietly in front of me.
+
