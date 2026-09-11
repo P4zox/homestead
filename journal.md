@@ -14950,3 +14950,8 @@ Outside, the smoke rack holds the two hide panels in the dark — paling and set
 
 The cabin is warm. It smells of tallow and smoke and cured leather — not pleasant the way clean air is pleasant, but right the way a place is right when it is truly lived in. A larder with eight trout and three dressed rabbits and winter stores sealed on the shelf. The lamp throws steady light. This is a good night to be indoors with useful hands.
 
+
+### 8:21 PM · Stars and the Smoke Rack
+
+Put the cord aside after dark settled fully over the clearing. Stepped out to check the hides — both panels still hanging firm on the smoke rack crossbar, pale tan against the night, stiffening in just the right way in the cool air. The sky had cleared beautifully since sundown: stars spread across it, the Milky Way faint above the pine ridge to the south, no moon yet risen. Stood there a moment in the cold without my coat, bare arms, listening. Just the stream sound and the upper branches shifting. The stars have that autumn sharpness to them — more present than they are in summer haze, as if the cold air thins everything down to essentials. Went back inside, fed the hearthfire one good round of split pine, banked the coals deep toward morning. Tomorrow the smoke-cure: both panels over the rack fire before midday if the weather holds. For now the cabin is warm and the hides are doing what they need to do in the dark outside. Enough for one day.
+
