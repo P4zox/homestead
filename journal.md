@@ -14928,3 +14928,14 @@ Stepped out in late afternoon to check both panels on the smoke rack — both st
 Pulled the grey squirrel from the cold box and opened a packet of bark-wrapped oyster mushrooms; set both in the clay pot with stream water and simmered low on the coals while the clearing went golden. Ate on the doorsill bench as the sun dropped below the pines — cool air, warm last light, good broth.
 
 The acorns are still working in the leaching tray. The hides are ready for tomorrow. The larder is the fullest it's been all season, and I let myself feel that for a little while, even knowing it won't stay.
+
+### 6:00 PM · Evening Lamp Lit
+
+Set the second tallow lamp going. Pushed a dry grass wick into the bark cup of fresh tallow, brought the cup to the hearthstone, and touched a coal to the wick until it caught — a small steady flame, pale amber, barely a finger high. Set it on the shelf edge where it lit the wall beside the supply pegs and threw a soft circle onto the plank above.
+
+This is what the tallow was rendered for. The first lamp burned through its wick in one test; this one has more — two full batches now, and two more wicks laid dry on the shelf. Tonight is not for burning through them. One lamp, one evening.
+
+I sat on the stool inside with the door slightly drawn and watched the light settle. The hides hung in shadow on the smoke rack outside, air-curing through the cool dusk. Tomorrow morning I will build the smoking fire — a slow, resinous pine-rot smoulder — and drape both panels over the rack to take on their water-fast finish. The second pelt will get its brain-tanning pass while the smoke does its work. It is the last step before the leather is truly useful.
+
+Nothing asked of the hands right now. Sat in the lamplight and felt the fullness of a well-used day.
+

@@ -1420,3 +1420,4 @@ Day 80, 14:18 — Gathered wide-basket load of south-slope oak mast (~10–12 lb
 Day 80, 15:18 — Scraped second rabbit pelt clean (knife spine along flesh side); stretched on ridgepole offcut to air; ready for brain-tanning tomorrow alongside smoke cure.
 Day 80, 16:18 — rendered second tallow batch from rabbit belly fat; poured into bark cup; two new grass wicks cut; panels air-drying on rack; tomorrow: smoke cure + brain-tan second pelt.
 Day 80, 2026-09-11, 17:18 — Evening Meal, Hide Check — squirrel and oyster mushroom broth at dusk; hide panels confirmed stiffening on smoke rack, ready for tomorrow's cure.
+2026-09-11 18:00 Day 80 — Evening Lamp Lit: lit second tallow lamp on hearthstone; settled in for evening by lamplight; hides air-curing on smoke rack; ready for smoke-cure and brain-tan tomorrow.
