@@ -1415,3 +1415,4 @@ Day 80, 07:18 — Snares and the Leaching Tray: one rabbit from third snare (sig
 Day 80, 10:00 AM — Stretched and worked both brain-tanned panels as they dried; belly liner and back panel both softening toward wearable leather.
 Day 80 (2026-09-11) 11:00 — Brain-tanned panels completed: belly liner and back panel both soft and hanging to air on smoke rack; clear midmorning, cold rabbit and hazelnut paste on the doorsill bench.
 2026-09-11 Day 80 12:18 — Trout at Noon: cooked trout and hen-of-the-woods in the clay pot at midday coals; ate on doorsill bench in the noon sun while hides air-dried on smoke rack.
+2026-09-11 (Day 80, 13:18) — Upstream line checked; one trout taken and cold-boxed (eight total); hides air-drying on smoke rack, smoking tomorrow.

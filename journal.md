@@ -14878,3 +14878,14 @@ Ate on the doorsill bench in the full noon sun, pot still warm in my lap. The cl
 
 Tomorrow I smoke the hides. Today the pot is empty and the bench is warm and that is enough.
 
+
+### 1:18 PM · Afternoon at the Line
+
+The hides are hanging still on the smoke rack, dark panels against the birch uprights, slow afternoon air doing the work I can no longer do for them. Nothing left but to wait.
+
+I walked upstream with the fishing kit after the noon meal settled. The line was taut at the notch — one trout waiting in cold shadow under the far bank. Worked it free cleanly, reset the bait with a fresh grub from under the flat stone at the stream bend, and notched the line back in place. The water ran clear and bright at this hour, long slanted light coming through the yellowing birch canopy overhead.
+
+Nested the new fish into the cold box beside the others, dock-wrapped. Eight trout again. Three rabbits still. The cold box feels like real abundance right now, and I know not to take that for granted — a week from now the weather shifts and the fishing changes.
+
+The hides looked no different when I came back. That is how drying goes. Tomorrow I will smoke them and they will become water-fast; tonight, just the fire and the stillness while autumn settles around the clearing.
+
