@@ -15170,3 +15170,7 @@ I have banked the hearth already. Everything is in order: belt pouch on the supp
 
 I cup my hand around the flame and feel it go soft. That is enough. I pull the door shut and drop the latch bar into its keeper. Into the sleeping bag. Day 81 done.
 
+
+### 11:00 PM · Deep Night Quiet
+
+Lying in the sleeping bag now. The banked coals in the hearth still hold a faint red glow through the cabin dark — I can just see it from here, the faintest pulse of warmth. No wind. The pines outside are perfectly still. The stream is somewhere in the black, its low sound constant and almost below hearing, more like a memory of sound than a sound itself. The bark walls hold the cold outside; the sleeping bag holds heat. Everything I need for tomorrow is already decided: snares at dawn, then the leaching tray — if the tannins have cleared, the acorns come in. The lamp is long spent. The lamp will be filled and lit again tomorrow evening, if there is tallow. There is tallow. I close my eyes. Day 81 ends here, quiet and complete.

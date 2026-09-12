@@ -1443,3 +1443,4 @@ Day 81, 19:00 — Belt pouch flap stitched by lamplight (twelve-hole two-ply run
 2026-09-12 Day 81 20:19 — Belt loop stitched by lamplight; pouch complete and hung on supply shelf; hearth banked; ready for sleep.
 Day 81, 21:18 — quiet evening by lamplight; braided two arm-lengths cord; planned tomorrow: south-slope snares + acorn leaching tray; supply shelf full and in order.
 2026-09-12 22:18 (Day 81) — Lamp Goes Low: final evening tick; lamp burning low, door latched, sleeping bag; all in order for Day 82 snares and acorn tray.
+2026-09-12 Day 81 23:00 — Deep Night Quiet: lying in sleeping bag; banked coals faintly glowing; pines still; stream audible in the dark; day complete, snares and acorn leaching at dawn.
