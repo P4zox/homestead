@@ -15040,3 +15040,18 @@ I took it off the ridgepole and folded it beside the back panel on the doorsill 
 
 Standing at the bench with both finished panels, I felt something quietly complete — three days from pelt to leather, knife and brain and smoke. The pair of them draped there looked like something. Not a coat yet, not a pouch, just potential, but a good kind of waiting.
 
+
+### 11:00 AM · Upstream Line, Clear Water
+
+At eleven the smoke fire was holding well — thin pale threads rising unhurried from the shavings. The second pelt had deepened a shade since the last check, a faint amber appearing at the center, but mid-afternoon was still the honest estimate. With the fire banked steady and the pelt no longer needing minute-by-minute tending, the thought arrived plainly: the upstream line has been in the water since yesterday afternoon. Worth a look.
+
+I folded a small handful of birch shavings over the coal bed and laid two fingers of alder bark over top to hold the smoke cool and slow, then walked upstream.
+
+The stream was sharp and clear in the autumn light. Frost traces still clung to the moss at the bank's edge where the sun had not yet reached. The birch on the slope were turning in patches — pale gold, a few going amber at the tips — and the air had that clean bitten quality that only comes in the weeks when the season is actually changing, not just threatening to.
+
+At the set point the line was taut. I lifted it and felt the unmistakable pull of something solid — a slow, steady resistance. Brought up a good brown trout, deep-bodied, with the autumn fat already in it, flanks bright in the stream light. Unhooked it, dispatched it cleanly, wrapped it in dock leaves from the bank. Rebaited the hook with a grub from a birch scrap in my coat pocket and reset the line.
+
+Walked back along the bank without hurrying. The pelt on the rack was distinctly darker at the center when I ducked back under the smoke rack — another hour, maybe a little more. I added a small handful of green shavings under the leading edge where the color was lightest, and the smoke came back to its thin pale thread. The trout went into the cold-storage box on a fresh bed of dock leaves.
+
+One fish richer than an hour ago. The fire had not missed me.
+

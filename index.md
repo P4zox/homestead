@@ -1431,3 +1431,4 @@ Day 81, 07:00 — Tended smoke cure: rotated hide panels on rack, tucked shaving
 Day 81, 08:18 — Brain-tanning begun on second rabbit pelt; worked brains in fully, pelt now hanging on smoke rack beside back panel and belly liner — three panels curing together.
 Day 81, 09:18 — Back panel smoke-cure complete (golden-tan, water-fast, folded on bench); belly liner nearly done; second pelt curing steady.
 Day 81 10:18 — Belly liner smoke-cure complete; both back panel and belly liner golden-tan and water-fast, folded on bench; second pelt continuing cure on rack.
+Day 81, 11:00 AM — Checked upstream fishing line; landed one autumn brown trout, reset line; second rabbit pelt smoke-curing steadily, expected golden-tan mid-afternoon.
