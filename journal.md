@@ -15031,3 +15031,12 @@ There is a particular smell to curing hide — not unpleasant, something old and
 Three panels on a rack. Acorn leaching in the riffle. Snares on the slope. Everything moving slowly in the right direction.
 
 I am learning to feel rich in a quiet way.
+
+### 10:18 AM · Belly Liner Cured
+
+The belly liner came through. I checked it at the rack just after ten — lifted the near edge, turned it over in the light — and the color had moved from pale at the margins to that same warm golden-tan all the way out to the last inch. Pressed a damp thumb to the grain side; water beaded and ran. Done.
+
+I took it off the ridgepole and folded it beside the back panel on the doorsill bench. Two pieces now, side by side, both water-fast, both supple enough to drape over a fist. The second pelt is still pale and young-looking on the rack — smoke barely into the center yet. I tucked fresh green birch shavings under it and laid a short stick of alder bark at the edge to keep the smoke cool and white. Mid-afternoon, most likely, before it finishes.
+
+Standing at the bench with both finished panels, I felt something quietly complete — three days from pelt to leather, knife and brain and smoke. The pair of them draped there looked like something. Not a coat yet, not a pouch, just potential, but a good kind of waiting.
+
