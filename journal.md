@@ -15132,3 +15132,12 @@ The cabin changed at once. The whole interior lit softly: clay pot gleaming, bar
 
 Tomorrow I will finish the belt pouch. Tonight I have light.
 
+
+### 7:00 PM · Flap Stitched by Lamplight
+
+By seven in the evening the cabin was warm and amber. I pulled the belt pouch body and the cut flap from the bench and carried them to the lamp — the plan was tomorrow, but the lamplight made it impossible to wait.
+
+I punched twelve holes along the top back edge of the pouch body, close and even, then matched them along the base of the flap and threaded a length of two-ply cord through in a running stitch — each pull snugging the flap a little tighter. The thorn slips sometimes; you have to angle with the grain, find the give in the leather. But by the end of it the flap was seated and stitched: folds flat, no bunching at the corners, the seam tight enough that I cannot work a fingernail into any gap.
+
+I flexed the body a few times, tested the fold. It held. Set it on the bench and stepped to the doorway for a moment — cold pine-scented air coming in, the lamp flame settling into a steady point behind me. The belt loop is the last piece, a doubled-hide strap sewn across the back. That is for morning. Tonight it was enough to finish the flap.
+
