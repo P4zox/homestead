@@ -15072,3 +15072,16 @@ Went to the smoke rack just past one expecting it to need more time, but the sec
 Three pieces of cured hide now. Two from the first rabbit, shaped to panels. One whole pelt from the second, still in its original shape. Enough to think about making something — a belt pouch, maybe, something to carry seeds or a small stone tool, cinched shut with a bark cord drawstring. Nothing to decide yet, just the pleasant weight of having more than I need for today.
 
 Let the fire smolder down with two pieces of alder bark, no more fuel. The rack will cool on its own. A bright afternoon, cold coming in from the north — good drying weather. I sat on the bench a moment before going back in.
+
+### 2:00 PM · Pouch Work Begins
+
+The three cured panels lay folded on the doorsill bench when I came back inside after clearing the smoke rack. The second pelt — smaller than the back panel and belly liner, but golden-tan and supple from the smoke — has been in my mind all morning as the right material for a belt pouch. Not much sense waiting.
+
+I spread the pelt fur-side down on the bench and studied its shape. The natural narrowing at the back haunch made a clean guide. I charcoaled two lines: a main pouch body about four hand-spans long by three wide, and a flap cut to fold over and cover the opening. Trimmed the excess with the knife, working with the grain, keeping the cuts even.
+
+The leather is still pliant from this morning's cure — the knife slips through without splitting. Folded the main piece in thirds and marked the stitch line with a thorn point, a thumb's width from both side edges. Then I worked along the line with a fire-hardened thorn to punch the holes — twenty-two per side, evenly spaced.
+
+By mid-afternoon I had the side seams lashed through with two-ply bark cord, the stitch pulled snug on each pass. The pouch is taking shape: a squared body, open top, the flap still separate and waiting to be lashed at the back. Tomorrow I'll finish the flap attachment and punch a small loop for the belt strap.
+
+The light was long and gold through the door while I worked. Good work to do with hands while the mind rests.
+
