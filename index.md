@@ -1437,3 +1437,4 @@ Day 81, 2026-09-12, 13:18 — Second Pelt Complete: second rabbit pelt smoke-cur
 2026-09-12 Day 81 14:00 — cut and began lashing belt pouch body from second cured rabbit pelt; side seams done, flap set aside for tomorrow
 Day 81, 15:18 — Late Foraging Walk: gathered dried yarrow heads (wound care), two handfuls late elderberries, two pine mushrooms from forest edge in clear amber afternoon.
 Day 81, 16:00 — Processed fresh elderberries into thick dark syrup at hearthfire; second elderberry reduction sealed on supply shelf; two envelopes of elderberry medicine now stored.
+2026-09-12 Day 81 17:18 — cooked two pine mushrooms with watercress and smoke-cured meat scraps into broth; packed dried yarrow flower heads into bark envelope on supply shelf; evening meal at doorsill bench

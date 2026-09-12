@@ -15108,3 +15108,14 @@ The smell shifted as it thickened. First sour and vegetal, then deeper and sweet
 
 Sealed it into a resin-backed bark envelope while still just warm, pressed the fold closed, set it beside the first elderberry reduction on the supply shelf. Two envelopes now. Between those and the sloe syrup and the hawthorn haw, the shelf is starting to look like a small pharmacy. I am glad of it. Winter does not care what you gathered in autumn — only what you kept.
 
+
+### 5:18 PM · Pine Mushroom Supper
+
+The light has gone golden and long by the time I bring the two pine mushrooms in from the cook shelf. They are firm still, tawny-capped, carrying that deep resinous scent of the forest floor. I slice them thin with the knife on the hearthstone ledge — each cut releasing a faint earthen fragrance — and lay the slices into the clay broth pot with a small measure of water from the stream jug and a handful of watercress from the cold-storage box.
+
+The fire has settled to a steady bed of coals from the long day. I nestle the pot in close, and the water begins to murmur within a few minutes. The mushrooms soften and darken, their liquid turning the color of dark tea, rich and savory. I add a strip of smoke-cured back panel torn small — fat and smoke folded into the broth — and let it all simmer slow while the clearing outside dims.
+
+I check the yarrow tray at the south wall. The flower heads are fully dry now: brittle, papery at the stem ends, pale gold-white. I pack them carefully into a bark envelope, fold and tuck the ends, set it on the supply shelf between the rose hip packets and the smoked rowan. Wound medicine, properly stored. There is a quiet satisfaction in that shelf — things laid up, each in its place.
+
+I eat the mushroom broth at the doorsill bench as the first stars come out above the pines. The soup is full-bodied and warm, the smoke from the meat giving it backbone. Two pine mushrooms, gone in a season, become twenty minutes of a meal that will keep me through whatever the night asks. I sit a while after, watching the sky deepen, thinking not very much.
+
