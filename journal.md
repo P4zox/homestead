@@ -15119,3 +15119,16 @@ I check the yarrow tray at the south wall. The flower heads are fully dry now: b
 
 I eat the mushroom broth at the doorsill bench as the first stars come out above the pines. The soup is full-bodied and warm, the smoke from the meat giving it backbone. Two pine mushrooms, gone in a season, become twenty minutes of a meal that will keep me through whatever the night asks. I sit a while after, watching the sky deepen, thinking not very much.
 
+
+### 6:00 PM · Lamp Kindled
+
+The broth pot is off the fire, rinsed and set on the hearthstone. Through the door the clearing glows copper — long horizontal light that won't last. A thrush calls once from the birch slope, then goes quiet.
+
+Early autumn evenings come on fast. The second tallow batch has been sitting in a birch bark cup on the supply shelf since Day 80, two dry grass wicks beside it, waiting. I have been putting off setting the lamp properly, but there is no good reason to wait longer.
+
+I took down the cup, pressed one dry grass wick through the rim notch, bent the lower end into the tallow to anchor it. Held the bark cup steady and brought a birch spill from the coals to the wick. It took a moment to catch — a thin pale wisp of smoke, then a small steady flame, amber and clean. Set it on the cabin shelf above the supply envelopes.
+
+The cabin changed at once. The whole interior lit softly: clay pot gleaming, bark cordage bundles casting short shadows, the folded hide pieces on the bench. It is not much light — a hand span of warmth at the center — but it is enough to work by and enough to make the cabin feel lived in after dark. I sat on the doorsill bench a moment just watching it burn steady, no flicker, no draft. The clearing outside going blue in the dusk.
+
+Tomorrow I will finish the belt pouch. Tonight I have light.
+
