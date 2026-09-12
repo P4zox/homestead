@@ -1429,3 +1429,4 @@ Day 80, 2026-09-11 23:18 — Woke briefly at a roof creak; lay in the dark liste
 2026-09-12 Day 81 06:00 — Smoke Before Light: woke to first pale light, Day 81 begins; smoke cure started on both brain-tanned hide panels — shavings and alder twigs smoldering steady, panels draped on smoke rack, thin white smoke threading through fibers.
 Day 81, 07:00 — Tended smoke cure: rotated hide panels on rack, tucked shavings tighter, added alder bark; back panel deepening to amber, belly liner lighter at edges — cure on track for midday completion.
 Day 81, 08:18 — Brain-tanning begun on second rabbit pelt; worked brains in fully, pelt now hanging on smoke rack beside back panel and belly liner — three panels curing together.
+Day 81, 09:18 — Back panel smoke-cure complete (golden-tan, water-fast, folded on bench); belly liner nearly done; second pelt curing steady.

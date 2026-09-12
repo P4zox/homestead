@@ -15019,3 +15019,15 @@ By the time the brain is fully worked in and the pelt is supple through, the smo
 
 Three panels now — the rack is busy. The morning air smells good.
 
+
+### 9:18 AM · Smoke and Morning
+
+The back panel is done. I lifted it by one corner to check the inner face and the color had crossed over fully — golden-tan, warm amber from edge to edge, the color of old beeswax. I held it up against the morning light and it glowed. Pressed a damp thumb against the surface and the water beaded and ran clean. Water-fast.
+
+I folded it and set it on the doorsill bench while I checked the others. The belly liner is close — still lighter at the edges, maybe another hour. The second pelt, only on the rack since eight, is still pale and needs time; I added a handful of green birch shavings under it and tucked alder bark at the edges to keep the smoke low and steady around it. The fire is burning cool. Everything is in order.
+
+There is a particular smell to curing hide — not unpleasant, something old and wild and useful — that mixes with pine smoke and sharp autumn air into something that just smells like work going right. I stood for a moment at the rack's edge facing the slope. The mist was already lifting from the low folds. The birch leaves have gone yellow at their edges. The sky is that deep pale blue of early autumn, the kind that makes the air feel thin and clean.
+
+Three panels on a rack. Acorn leaching in the riffle. Snares on the slope. Everything moving slowly in the right direction.
+
+I am learning to feel rich in a quiet way.
