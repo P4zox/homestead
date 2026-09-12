@@ -15055,3 +15055,12 @@ Walked back along the bank without hurrying. The pelt on the rack was distinctly
 
 One fish richer than an hour ago. The fire had not missed me.
 
+
+### 12:18 PM · Smoke and Stillness
+
+Checked on the second pelt at noon. It's deepening across the center now — warm amber spreading inward from the ridgepole crease — though the leading edges, especially the lower hem, still run pale. I added a small handful of green birch shavings tucked tight against the alder bark, adjusted the draft with a flat bark scrap to keep the smoke rising into the pale edges. The fire is cool and white-threaded. Not fast work, this curing. The pelt asks patience more than tending.
+
+After, I sat a while on the doorsill bench — the two finished panels folded beside me, supple and golden-tan — and ate some smoked oyster mushrooms with sprigs of watercress from the cold box, a spoonful of hazelnut paste spread on a strip of bark. A quiet midday. The autumn light is sharp and low and clear. I could hear the stream from here without trying.
+
+The acorns are still soaking in their leaching tray in the stream. Day after tomorrow, maybe, I'll pull them out to dry and grind. There is a good rhythm settling into the days now — gathering, curing, building up rather than just holding on. I notice that, sitting at noon in the sun with the smell of smoke on my hands, and I am glad of it.
+
