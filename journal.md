@@ -15174,3 +15174,19 @@ I cup my hand around the flame and feel it go soft. That is enough. I pull the d
 ### 11:00 PM · Deep Night Quiet
 
 Lying in the sleeping bag now. The banked coals in the hearth still hold a faint red glow through the cabin dark — I can just see it from here, the faintest pulse of warmth. No wind. The pines outside are perfectly still. The stream is somewhere in the black, its low sound constant and almost below hearing, more like a memory of sound than a sound itself. The bark walls hold the cold outside; the sleeping bag holds heat. Everything I need for tomorrow is already decided: snares at dawn, then the leaching tray — if the tannins have cleared, the acorns come in. The lamp is long spent. The lamp will be filled and lit again tomorrow evening, if there is tallow. There is tallow. I close my eyes. Day 81 ends here, quiet and complete.
+
+---
+
+# Day 82 — Sunday, 13 September 2026
+*early autumn · first frost*
+
+### 6:00 AM · Snares at First Light
+
+Woke before full light — coals still orange under the ash, cabin cold and sharp. Stirred the fire and added a few birch rounds, then pulled on my boots and went out before the flame had properly caught.
+
+The grass held the first real frost of autumn. Thin, not heavy — a rime that made the blades stand up white in the half-dark — but unmistakable. The pines were utterly still. Breath came out in small clouds. The stream gave off a thread of mist in the low hollow.
+
+Walked the south-slope path to the snares. First two empty but set right; triggers hadn't fallen. The third had a rabbit — a good-sized doe, taken clean. I reset all three and re-baited each with a pinch of dried yarrow tucked near the trigger gap. They should sit undisturbed for two or three days now.
+
+Carried her back slung over the shoulder, the frost crunching faintly underfoot. I'll dress and dock-wrap her before the acorn leaching tray. The autumn is settling in properly — the first frost always feels like something arriving, not something leaving.
+
