@@ -15097,3 +15097,14 @@ Yarrow along the sunny bank above the second garden plot: gone to seed, but drie
 The walk back was long amber light, the kind September keeps only a few more weeks. The cabin caught it full on the south face. Everything it is, in one glance.
 
 Back by four. Berries sorted on a flat bark tray. Yarrow spread to finish drying. Mushrooms on the cook shelf. Coals added at the hearth. Sat on the doorsill bench a moment before beginning supper.
+
+### 4:00 PM · Berries into Syrup
+
+The two handfuls of elderberries from the afternoon walk have been sitting on the bark tray since I came in — a deep purple-black, already weeping a little juice at the edges where the skin broke. I did not want to leave them past tonight. Elderberries do not wait.
+
+Fetched stream water in a birch-bark cup, set the clay broth pot at the forward coals, rinsed the berries and stripped any remaining stem bits with the back of my thumb. They broke apart almost at once in the warmth — from firm round beads to something dark and yielding. I worked them with the spoon, pressed them through a fold of inner bark to strain skins and seeds, let the dark juice settle into the wide clay bowl. Then back on the coals, slow simmer, patient as the light moved across the floor.
+
+The smell shifted as it thickened. First sour and vegetal, then deeper and sweeter — something almost wine-like rising into the hearthsmoke. By the time the afternoon light had moved a full hand-span along the plank floor, it had pulled down to a small dark puddle, glistening and dense. I tasted it from the spoon tip: tart, sweet, a faint bitterness at the finish. Good.
+
+Sealed it into a resin-backed bark envelope while still just warm, pressed the fold closed, set it beside the first elderberry reduction on the supply shelf. Two envelopes now. Between those and the sloe syrup and the hawthorn haw, the shelf is starting to look like a small pharmacy. I am glad of it. Winter does not care what you gathered in autumn — only what you kept.
+
