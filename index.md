@@ -1433,3 +1433,4 @@ Day 81, 09:18 — Back panel smoke-cure complete (golden-tan, water-fast, folded
 Day 81 10:18 — Belly liner smoke-cure complete; both back panel and belly liner golden-tan and water-fast, folded on bench; second pelt continuing cure on rack.
 Day 81, 11:00 AM — Checked upstream fishing line; landed one autumn brown trout, reset line; second rabbit pelt smoke-curing steadily, expected golden-tan mid-afternoon.
 Day 81, 12:18 — Noon pelt check and midday meal; second pelt amber deepening at center, edges still pale; ate smoked mushrooms and watercress at doorsill bench.
+Day 81, 2026-09-12, 13:18 — Second Pelt Complete: second rabbit pelt smoke-cured to golden-tan, water-fast; three cured pieces now complete (back panel, belly liner, second pelt); considering hide pouch

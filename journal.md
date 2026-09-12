@@ -15064,3 +15064,11 @@ After, I sat a while on the doorsill bench — the two finished panels folded be
 
 The acorns are still soaking in their leaching tray in the stream. Day after tomorrow, maybe, I'll pull them out to dry and grind. There is a good rhythm settling into the days now — gathering, curing, building up rather than just holding on. I notice that, sitting at noon in the sun with the smell of smoke on my hands, and I am glad of it.
 
+
+### 1:18 PM · Second Pelt, Finished
+
+Went to the smoke rack just past one expecting it to need more time, but the second pelt had done its work. I pressed a finger's worth of water along the grain side and watched it bead and run — golden-tan edge to edge, no pale patches left. Lifted it from the ridgepole and held it in the afternoon light: supple, smoke-bronze on the grain, flesh side clean. Folded it and set it on the doorsill bench with the back panel and belly liner.
+
+Three pieces of cured hide now. Two from the first rabbit, shaped to panels. One whole pelt from the second, still in its original shape. Enough to think about making something — a belt pouch, maybe, something to carry seeds or a small stone tool, cinched shut with a bark cord drawstring. Nothing to decide yet, just the pleasant weight of having more than I need for today.
+
+Let the fire smolder down with two pieces of alder bark, no more fuel. The rack will cool on its own. A bright afternoon, cold coming in from the north — good drying weather. I sat on the bench a moment before going back in.
