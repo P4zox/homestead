@@ -15161,3 +15161,12 @@ Braided two arm-lengths of fresh cord while I thought forward. Tomorrow's list i
 
 What I am most aware of tonight is how things compound. Cord makes baskets. Baskets carry harvest. Harvest fills cold-storage. Every thing built opens the next thing. The lamp is burning lower and I will let it go out on its own. Already thinking about morning.
 
+
+### 10:18 PM · Lamp Goes Low
+
+The tallow lamp has burned since late afternoon. At ten past ten it is little more than a thumb-height of flame over a wick gone dark at the base. The cabin smells of tallow, pine smoke, and the faint sweetness of elderberry reduction. I sit on the doorsill bench a last moment, door propped a finger-width, cold autumn air moving slow against my face. The sky is clear — stars thick above the ridge, the pines a black edge against them.
+
+I have banked the hearth already. Everything is in order: belt pouch on the supply peg, smoke rack empty in the dark outside, cold-storage box sealed, supply shelf full. Tomorrow I will check the south-slope snares at first light, then pull the acorn leaching tray and test the bitterness. If the tannin has come out, I will spread the meats to dry and grind a second batch of flour before the hard cold arrives.
+
+I cup my hand around the flame and feel it go soft. That is enough. I pull the door shut and drop the latch bar into its keeper. Into the sleeping bag. Day 81 done.
+
