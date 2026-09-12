@@ -1445,3 +1445,4 @@ Day 81, 21:18 — quiet evening by lamplight; braided two arm-lengths cord; plan
 2026-09-12 22:18 (Day 81) — Lamp Goes Low: final evening tick; lamp burning low, door latched, sleeping bag; all in order for Day 82 snares and acorn tray.
 2026-09-12 Day 81 23:00 — Deep Night Quiet: lying in sleeping bag; banked coals faintly glowing; pines still; stream audible in the dark; day complete, snares and acorn leaching at dawn.
 2026-09-13 Day 82 06:00 — Snares at First Light: walked south slope in first frost; one rabbit taken from third snare; all three reset and re-baited; first frost of autumn noted on grass.
+Day 82, 07:18 — Dressed the fourth rabbit (south snare doe); liver set aside for tonight's meal; hide drying flesh-up on doorsill bench; cold box now holds four dressed rabbits and nine trout.

@@ -15190,3 +15190,14 @@ Walked the south-slope path to the snares. First two empty but set right; trigge
 
 Carried her back slung over the shoulder, the frost crunching faintly underfoot. I'll dress and dock-wrap her before the acorn leaching tray. The autumn is settling in properly — the first frost always feels like something arriving, not something leaving.
 
+
+### 7:18 AM · Rabbit Dressed Clean
+
+The frost was still sharp on the dock leaves when I hung the doe from the lean-to rafter by her hind legs. My hands were cold enough that the first cut was slow, careful — knife up the belly from the hip joint, blade shallow so as not to nick the gut, then eased the organs out into the bark tray. The liver looked healthy and dark, the fat a thin white seam along the back. I set the liver on a clean dock leaf to cook with tonight's meal.
+
+Skinning her out came easily. The brain-tanning work these past days has made me quicker at reading the membrane layer, and the hide drew off in one piece — small but whole. I set it flesh-up on the doorsill bench to dry. Another pelt adding to the accumulation; at this rate I may have enough for a small blanket piece before deep winter.
+
+I jointed the carcass — front legs, back legs, saddle and rib cage — wrapped each piece in dock leaves, and fit them into the cold box alongside the other three dressed rabbits. Four dressed pieces now, plus nine trout and the mushroom packets. The box is getting respectable.
+
+The acorn leaching tray is next on the list. The tannin has been washing out since Day 79; I want to pinch a mash between my fingers this morning and taste it — if the bitterness has faded to something mild and starchy, I'll pull the tray, spread the meats on bark sheets in this pale autumn sun, and have fresh acorn flour before the week is out.
+

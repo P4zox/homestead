@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:00 — Snares at First Light: walked south slope in first frost; first two snares empty and set; third had a rabbit (good-sized doe, clean take); reset and re-baited all three with dried yarrow at trigger gaps; rabbit carried back to cabin — to be dressed before the acorn leaching tray check.
+07:18 — Rabbit Dressed Clean: hung the doe from lean-to rafter; gutted (liver set on dock leaf for tonight's meal), skinned in one piece (hide flesh-up on doorsill bench to dry), jointed into four dock-wrapped portions — added to cold box alongside three previous dressed rabbits; acorn leaching tray taste-check next.
