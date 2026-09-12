@@ -15085,3 +15085,15 @@ By mid-afternoon I had the side seams lashed through with two-ply bark cord, the
 
 The light was long and gold through the door while I worked. Good work to do with hands while the mind rests.
 
+
+### 3:18 PM · Late Foraging Walk
+
+After the morning's leatherwork — three hides cured, pouch body lashed, everything folded on the bench — I felt the restlessness that settles after long handiwork. The smoke fire had smoldered out. The cabin was quiet and finished.
+
+I took the gathering basket east along the bench toward the forest edge. No particular errand. Just attending to what the season still has out.
+
+Yarrow along the sunny bank above the second garden plot: gone to seed, but dried flower heads still serviceable — the kind you want in a wound kit before hard winter. I stripped the fullest ones carefully. Further along the shade edge, a stand of elderberries I'd half-noticed before, mostly taken by birds, but five clusters still hanging heavy and dark. Brought back two full handfuls. And under the pines, two tawny mushrooms I recognized and trusted.
+
+The walk back was long amber light, the kind September keeps only a few more weeks. The cabin caught it full on the south face. Everything it is, in one glance.
+
+Back by four. Berries sorted on a flat bark tray. Yarrow spread to finish drying. Mushrooms on the cook shelf. Coals added at the hearth. Sat on the doorsill bench a moment before beginning supper.
