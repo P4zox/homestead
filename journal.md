@@ -15152,3 +15152,12 @@ Three days of work, from raw pelt to finished piece. I set the completed pouch o
 
 I banked the hearth with two birch rounds and laid the pouch on the shelf beside the clay pot. Tomorrow: snares, and the acorn leaching tray. Tonight, I let the fire settle and sleep early.
 
+
+### 9:18 PM · Before Tomorrow
+
+The cabin is warm from the banked coals and the lamp throws a steady amber circle on the wall above the supply shelf. I have been sitting at the bench turning the day over — belt pouch complete and hanging on its peg, all three hides cured and worked into something I can use. Three months ago I had two hands and a flint. Tonight the shelf is full.
+
+Braided two arm-lengths of fresh cord while I thought forward. Tomorrow's list is short and clear: south-slope snares at first light, then the acorn leaching tray — the mast has been two days in the riffle stream and should be ready to pull and spread for drying. If the bitterness is gone I'll let them dry through the day and grind the first batch day after tomorrow on the gneiss stone. The upstream line is reset and tended. Cold-storage holds nine trout, three rabbits, sealed mushrooms, reduction envelopes in order.
+
+What I am most aware of tonight is how things compound. Cord makes baskets. Baskets carry harvest. Harvest fills cold-storage. Every thing built opens the next thing. The lamp is burning lower and I will let it go out on its own. Already thinking about morning.
+
