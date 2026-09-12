@@ -1440,3 +1440,4 @@ Day 81, 16:00 — Processed fresh elderberries into thick dark syrup at hearthfi
 2026-09-12 Day 81 17:18 — cooked two pine mushrooms with watercress and smoke-cured meat scraps into broth; packed dried yarrow flower heads into bark envelope on supply shelf; evening meal at doorsill bench
 Day 81, 18:00 — Lamp Kindled: set second tallow lamp on cabin shelf; flame steady and clean; cabin lit for evening.
 Day 81, 19:00 — Belt pouch flap stitched by lamplight (twelve-hole two-ply running seam); seats square and tight; belt loop remaining for morning.
+2026-09-12 Day 81 20:19 — Belt loop stitched by lamplight; pouch complete and hung on supply shelf; hearth banked; ready for sleep.

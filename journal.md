@@ -15141,3 +15141,14 @@ I punched twelve holes along the top back edge of the pouch body, close and even
 
 I flexed the body a few times, tested the fold. It held. Set it on the bench and stepped to the doorway for a moment — cold pine-scented air coming in, the lamp flame settling into a steady point behind me. The belt loop is the last piece, a doubled-hide strap sewn across the back. That is for morning. Tonight it was enough to finish the flap.
 
+
+### 8:19 PM · Pouch Complete
+
+The lamp is steady on the shelf. Outside, the first autumn stars are showing, and I can hear the cooling pines settle in the dark. I decided not to wait for morning on the belt loop. The task is small and my eyes are still good in lamplight.
+
+I took one of the hide offcuts — a doubled strip cut from the thickest part of the pelt scrap — and worked it over the round log to flatten the fold. Four holes punched across the back panel near the top edge, four matching holes in the strap. Lashed the loop through with two-ply cord, the stitches close and even under the lamp glow. The strap sits tight against the back, no gap. I threaded my belt through to test it: the pouch hangs steady at the hip, flap facing out, loop firm.
+
+Three days of work, from raw pelt to finished piece. I set the completed pouch on the supply shelf and looked at it a moment in the amber light. The golden-tan leather has warmth to it. The whole thing holds its shape well.
+
+I banked the hearth with two birch rounds and laid the pouch on the shelf beside the clay pot. Tomorrow: snares, and the acorn leaching tray. Tonight, I let the fire settle and sleep early.
+
