@@ -15006,3 +15006,16 @@ Both panels are draped over the smoke rack ridgepole now, smoke threading up int
 
 An hour into the cure, I lifted each panel from the ridgepole and checked the inner faces — still supple, pale tan, warming from the smoke. Rotated them so the opposite side faces the bed, and tucked the shavings together a little tighter. Added a handful of alder bark to keep it thick and cool without flame. The smell is changing: less green and bitter now, more settled, something like old wood and warmth. The back panel is picking up amber at its thicker center; the belly liner stays lighter toward the edges — that is how it goes. By midday they should be a deep golden-tan, water-fast and ready. I sat on the doorsill bench for a moment after, let the morning come up around me. The pines on the slope were still. A jay called once from somewhere up in the birches and went quiet.
 
+
+### 8:18 AM · Second Pelt, Brains In
+
+The smoke cure runs without me for a spell — both panels draped over the rack, pale wisps threading up into the fibers, the air carrying that familiar resinous-sweet smell of green birch. I leave them and go to the ridgepole offcut where the second pelt has been hanging since yesterday afternoon, stretched and drying.
+
+It comes off stiff along the edges but still supple at the center — a night of cool air has set the shape without locking the fibers. I take it to the hearthstone and kneel beside the coals.
+
+The rabbit brain I saved yesterday was wrapped in a strip of dock leaf in the cold box. I warm it at the fire's edge until it softens, then work it in with both thumbs and fingers, pressing into the membrane side first, then turning and working the grain side in long strokes. The pelt resists at first — the edges especially, where drying tightened the fibers — and I spend time there, kneading and pulling gently, feeling the stiffness slowly give. This is the part that takes patience. The skin begins to warm and soften under my hands.
+
+By the time the brain is fully worked in and the pelt is supple through, the smoke rack fire wants tending again. I step out: back panel has gone a clean amber at the center — closer to done than I expected. Belly liner still pale at the edges. I rotate both again, add a pinch of green shavings, and hang the second pelt beside them on the far end of the ridgepole to begin its own slow cure.
+
+Three panels now — the rack is busy. The morning air smells good.
+
