@@ -15325,3 +15325,14 @@ Bark-sheathed the blade, laid it on the hearth stone. Coals re-banked with ash. 
 
 Lying on the bracken mat in the dark — coals still faintly orange behind the banked ash, giving just enough warmth to hold the cold out. The fourth hide rests at the bench, the bark cup of brain beside it; tomorrow morning's first task is already decided. I can feel the frost through the log walls, not as cold but as a kind of press — the world paused, held. The mat is deep enough, the sleeping bag close around my shoulders. No sound anywhere. Not even wind. Stars must be thick out past the bark roof, the kind of sky you only get after a first hard frost clears everything. I turned once, found the blanket right, and let go.
 
+
+### 10:18 PM · Frost and Dark
+
+The cabin is warm enough now that I don't notice it — just the absence of cold, which is its own kind of gift. The bracken mat has shaped itself to me across these weeks; I barely feel it shift when I turn. Coals still faintly orange behind the ash bank. I can hear nothing from outside — no wind, no creek noise, the frost must have stilled even the water at the bend.
+
+The mind runs its accounts at this hour. A good day — a full day. Eleven trout in the box. Four rabbits dressed. Acorn flour sealed and shelved. Mushrooms amber and firm in the cold box. The hide ready on the bench with the brain beside it. The bracken warm beneath me and the cabin sealed against the season turning.
+
+There's a particular peace that comes with a day where everything you set out to do got done. Not triumphant — quieter than that. The bracken smells like summer's end, and I am warm, and the frost is outside, and tomorrow I'll brain the hide at first light while my hands are still fresh. That is enough. That is, in fact, everything.
+
+The tallow lamp ran low and went itself. The dark came in from the corners and I let it.
+
