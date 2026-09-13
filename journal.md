@@ -15201,3 +15201,14 @@ I jointed the carcass — front legs, back legs, saddle and rib cage — wrapped
 
 The acorn leaching tray is next on the list. The tannin has been washing out since Day 79; I want to pinch a mash between my fingers this morning and taste it — if the bitterness has faded to something mild and starchy, I'll pull the tray, spread the meats on bark sheets in this pale autumn sun, and have fresh acorn flour before the week is out.
 
+
+### 8:19 AM · Tannin Clear
+
+Pulled the leaching tray from the stream riffle this morning — three full days soaking, water changed once on Day 80. I lifted the bark tray in both hands, let it drain at the bank, and carried the wet load back to the doorsill bench. Cracked one acorn open and bit into the pale meat. Mild. Earthy, faintly sweet — no clench of bitterness on the sides of the tongue. A second one, same reading. A third near the skin edge was slightly more astringent; I shucked it clean and tried the inner meat again. Gone.
+
+The tannin is out.
+
+I spread them across two bark trays in a single layer and carried both to the south-facing lean-to roof edge where this morning's sun catches first. They need most of the day — the air is cold and the frost was heavy — but by late afternoon they should be dry enough to grind. A full tray of south-oak mast, ten or twelve pounds: another good envelope of acorn flour before the harder frosts arrive.
+
+The first frost standing the grass white this morning. The rabbit hide drying stiff and pale on the bench behind me. The cold box heavy with game and mushrooms. I sat still a moment before going back inside, watching breath dissolve into bone-pale sky. Day 82 and autumn is settling in properly now.
+
