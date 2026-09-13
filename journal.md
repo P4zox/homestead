@@ -15320,3 +15320,8 @@ I kept thinking about tomorrow — the fourth hide waiting stiff on the bench, t
 
 Bark-sheathed the blade, laid it on the hearth stone. Coals re-banked with ash. Latch set again — the bar settling into its keeper groove with a sound I've come to trust. The cabin is warm. The frost holds outside. Everything ready.
 
+
+### 9:18 PM · Stars Thick Overhead
+
+Lying on the bracken mat in the dark — coals still faintly orange behind the banked ash, giving just enough warmth to hold the cold out. The fourth hide rests at the bench, the bark cup of brain beside it; tomorrow morning's first task is already decided. I can feel the frost through the log walls, not as cold but as a kind of press — the world paused, held. The mat is deep enough, the sleeping bag close around my shoulders. No sound anywhere. Not even wind. Stars must be thick out past the bark roof, the kind of sky you only get after a first hard frost clears everything. I turned once, found the blanket right, and let go.
+
