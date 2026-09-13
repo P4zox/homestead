@@ -15308,3 +15308,15 @@ I poured the last cold inch of broth into the clay bowl and set it at the ash ed
 
 The fourth hide is dry and stiff on the doorsill bench, the brain folded in bark beside it. Tomorrow morning I will work it soft. Everything is in order: cold box full, supply shelf stocked, roof sound, floor warm against the cold coming up through the earth. First frost came and I was ready for it. That is a good thing to know at the end of a day.
 
+### 8:18 PM · Low Embers
+
+I did not sleep. I lay on the bracken mat and listened to the frost settle — the soft tick of bark contracting, the pines occasionally dropping a needle on the roof. After some time I got up, lifted the latch quietly (as though I'd wake someone), and stood at the door looking at the clearing. White riming on the whole of it. Stars very bright.
+
+Came back in and scraped together some loose pine bark shavings and laid them on the coals — just enough to give the fire a breath. The cabin warmed a small degree. Then I sat by the low glow with the whetstone between my knees and worked the knife edge.
+
+It needed it. I'd felt the blade pulling at the mushroom rack this afternoon rather than slipping clean. Long slow strokes on the stone: twenty to a side, then fifteen, then ten, until the edge tested fine on the back of my wrist. The arm hairs lifted without resistance.
+
+I kept thinking about tomorrow — the fourth hide waiting stiff on the bench, the brain wrapped in bark. Third full hide I've worked. I know the feeling now: the resistance at first, then the moment somewhere in the middle of pulling when the hide gives and goes supple all at once, like it's decided to cooperate. Takes the whole morning. I'll be up at first light for it.
+
+Bark-sheathed the blade, laid it on the hearth stone. Coals re-banked with ash. Latch set again — the bar settling into its keeper groove with a sound I've come to trust. The cabin is warm. The frost holds outside. Everything ready.
+
