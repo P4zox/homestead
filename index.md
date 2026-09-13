@@ -1451,3 +1451,4 @@ Day 82, 09:18 — Gathered dry bracken and grass from meadow margin; packed floo
 2026-09-13 Day 82 10:18 — Pulled two brown trout from upstream line; reset with fresh bait; eleven trout in cold storage now.
 Day 82, 11:18 — Noon broth from smoked hen-of-the-woods in clay pot; acorn trays checked — skins just beginning to slip, tipped toward sun; ate quietly at the doorsill bench; fourth hide drying well.
 Day 82, 12:19 — Acorn Into Flour: ground leached second batch on gneiss stone; two new envelopes sealed; three full acorn flour measures now on supply shelf.
+Day 82, 13:18 — Scraped membrane from fourth rabbit hide at doorsill bench; hide re-pinned in afternoon sun to finish drying; autumn smell of cold humus and leaf mast in the clearing.
