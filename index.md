@@ -1453,3 +1453,4 @@ Day 82, 11:18 — Noon broth from smoked hen-of-the-woods in clay pot; acorn tra
 Day 82, 12:19 — Acorn Into Flour: ground leached second batch on gneiss stone; two new envelopes sealed; three full acorn flour measures now on supply shelf.
 Day 82, 13:18 — Scraped membrane from fourth rabbit hide at doorsill bench; hide re-pinned in afternoon sun to finish drying; autumn smell of cold humus and leaf mast in the clearing.
 Day 82, 14:18 — Forest edge gathering walk: pine resin bled from marked wound (two bark envelopes sealed); hen-of-the-woods clusters (two) and oyster mushroom bracket found at fallen oak and birch downfall — brought back to smoke tonight alongside rabbit liver.
+Day 82, 15:18 — Laid hen-of-the-woods and oyster bracket on smoke rack; green birch chips set over hearthcoal; smoke threading well through afternoon into dusk.

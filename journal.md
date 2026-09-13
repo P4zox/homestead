@@ -15271,3 +15271,7 @@ At the fallen oak I find what I was hoping for: two good-sized hen-of-the-woods 
 
 Back at the cabin by mid-afternoon: hide still warm from the sun and pulling tight across its pins, hearthfire banked low and steady. Tonight I will lay this mushroom haul on the smoke rack while the rabbit liver cooks slow in the clay pot. The stores are building toward something real now. I can feel the shape of the winter we are becoming ready for.
 
+
+### 3:18 PM · Mushrooms on the Rack
+
+After bringing the mushrooms back at mid-afternoon, I spent this hour at the smoke rack. The hen-of-the-woods came apart along their natural fans — I set each one spread-face-down across the crossbars, close but not touching, so the smoke can reach every edge. The oyster bracket I sliced into hand-wide pieces and laid flat on the lower tier. Got a small fire going beneath from a coal carried out from the hearth, then laid green birch chips over it; they caught slowly, went pale grey, and began threading smoke upward in thin columns. The afternoon light is still warm on the rack's south side, which helps dry the surfaces before the smoke does its real work. I'll tend it through dusk and into early evening. There is something careful about this — the placing of each mushroom piece, the reading of the smoke, whether it is too thick or too lean. The cabin holds the faint smell of it from where I sit.
