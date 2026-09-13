@@ -15336,3 +15336,15 @@ There's a particular peace that comes with a day where everything you set out to
 
 The tallow lamp ran low and went itself. The dark came in from the corners and I let it.
 
+
+### 11:18 PM · Night Holds Still
+
+Deeper into the night, now, and the embers barely hold their glow through the ash bank. The cold presses against the log walls from outside — I can feel it at the gaps between thought — but the cabin holds it back. Daub and bark and banked fire, the bracken mat piled warm under me.
+
+Every corner of today is accounted for. Rabbit dressed and in the cold box before the frost was off the grass. Acorn flour ground and sealed. Mushrooms pulled from the rack amber and firm at dusk. Pine resin gathered, bark envelopes sealed, the floor mat laid deep. Eleven trout in storage. Four dressed rabbits. The supply shelf full past what I expected going into autumn.
+
+The fourth hide waits at the bench, stiff and pale, the bark of brain beside it. Tomorrow's first task is already chosen. That's enough to sleep on.
+
+Somewhere on the far ridge — a coyote, brief, then gone. Stars hard and cold through the one crack of sky I can see above the roof line. The clay hearth pad is warm; the ash holds it. I am warm. The bracken smells of dry summer still.
+
+I let the last ember keep its own pace. I let the dark have the rest.

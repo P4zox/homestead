@@ -1461,3 +1461,4 @@ Day 82, 2026-09-13, 19:18 — Warmth Held Close: first-frost night; checked the 
 Day 82 (2026-09-13) 20:18 — Low Embers: lay wakeful on the bracken mat; rose, coaxed coals, sharpened knife on whetstone by coal-glow; blade clean and sharp, bark-sheathed; fourth hide and brain at bench for first light; settled again.
 Day 82, 2026-09-13, 21:18 — Stars Thick Overhead: settled on bracken mat; coals banked; frost holding the ridge; fourth hide and brain ready for tomorrow; quiet sleep.
 Day 82, 22:18 — Frost and Dark — lay on the bracken mat in full dark, coals low and orange behind ash bank, frost thick on the ridge outside; the day's accounting closed quietly — everything done, hide ready for morning; lamp ran low and went itself.
+Day 82, 23:18 — night settling deep; frost thick on the ridge, embers nearly gone, cabin warm; the day full and closed; let the dark have the rest.
