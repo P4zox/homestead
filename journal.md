@@ -15366,3 +15366,14 @@ By the time the low morning light reached the south lean-to the hide was soft al
 
 Fire built, broth in the belly, fourth hide done. Frost still thick on the grass outside. The day has just started opening.
 
+
+### 7:19 AM · Smoke Takes the Hide
+
+The fourth hide — doe-golden and brain-soft — has been hanging by the bench since dawn. Brain tanning is only half the work; the other half is smoke. Without it the hide will stiffen right back up in the first rain. So mid-morning I stirred the hearth coals and added a half-handful of green birch chips to the edge of the bed. The smoke began thin and white.
+
+I folded the golden panel lengthwise, stitched the open long edge loosely shut with a length of two-ply cord run through punched holes along the margin, then set the gathered top end over the smoke outlet and draped the whole hide tent-fashion down around it. The smoke climbed inside in slow eddies. I held my hand near the tube — warm and steady, a gentle curl, no scorching heat. Pale amber crept down from the neck end within the first minutes.
+
+I sat on the doorsill bench and watched it work: that old trade between fire and hide. The fire asks the hide to release its last cold stiffness; the hide accepts and in return becomes water-fast, rain-proof, able to dry soft again instead of board-hard. The smoke does something the brain alone cannot.
+
+The morning sun is still low over the ridge, coming flat and gold through the treeline. The frost is almost gone from the grass now. I will turn the hide after midday, let the other face take the same color, then check the seams. By evening it should be fully smoked — golden-tan and set against any weather, ready to be cut.
+

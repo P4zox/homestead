@@ -1463,3 +1463,4 @@ Day 82, 2026-09-13, 21:18 — Stars Thick Overhead: settled on bracken mat; coal
 Day 82, 22:18 — Frost and Dark — lay on the bracken mat in full dark, coals low and orange behind ash bank, frost thick on the ridge outside; the day's accounting closed quietly — everything done, hide ready for morning; lamp ran low and went itself.
 Day 82, 23:18 — night settling deep; frost thick on the ridge, embers nearly gone, cabin warm; the day full and closed; let the dark have the rest.
 2026-09-14 Day 83 06:00 — Brain at Dawn: brain-tanned fourth rabbit hide at first frost-dawn; woke to cold mineral air, scraped coals open, worked hide over bench edge then hand-applied brain; rebuilt fire, made trout-garlic broth; wrung and worked hide soft over birch pole — golden and pliable by morning light; five pelts worked total.
+Day 83, 07:19 — Hung fourth doe hide tent-wise over smoke outlet with green birch chips; pale amber color climbing through the panel; smoke curing underway.
