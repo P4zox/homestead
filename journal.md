@@ -15288,3 +15288,14 @@ Back inside, the clay pot had been patient over the coals all hour. Rabbit liver
 
 This was a good day. Eleven trout in the cold box. Four dressed rabbits. Three measures of acorn flour sealed and shelved. Smoked mushrooms. A floor mat laid against the coming cold. I sat after supper long enough to let all of that be enough, which is its own small thing.
 
+
+### 6:18 PM · Ember Watch
+
+After supper I set three split pine logs over the coals — straight-grained and dry from the eave-deep pile — and let the fire climb before banking it down with ash. First frost tonight; I felt it in the stillness and the quality of the dark pressing at the cabin walls, and I didn't want to wake at midnight coaxing a cold ember back to life.
+
+The cabin holds the warmth now. The tallow lamp makes a small circle of light and I have pulled the cord stock to the doorsill bench, rolling two-ply between my palms while the hearth ticks quietly. The door is cracked a hand-span. I can see stars through the gap — more of them than last night, and hard — and the grass at the edge of the clearing has gone pale and stiff. Frost on every blade. The pines are black against an indigo sky.
+
+It was a full day and I can feel that fullness in my hands. Snares at first light, two trout from the bend, acorn flour ground and shelved, hide scraped and re-pinned, a walk to the forest edge, the evening smoke pulling amber into the mushrooms all afternoon. The cold box is heavy now. The flour envelopes are shelved. The fourth hide will be ready to brain tomorrow morning. I feel the shape of things settling before winter — not finished, but pointed in the right direction.
+
+Braided a good arm-length of two-ply cord before the lamp dimmed. Pinched the wick. Banked the coals once more and set the latch bar. The cabin held.
+
