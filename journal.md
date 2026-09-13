@@ -15299,3 +15299,12 @@ It was a full day and I can feel that fullness in my hands. Snares at first ligh
 
 Braided a good arm-length of two-ply cord before the lamp dimmed. Pinched the wick. Banked the coals once more and set the latch bar. The cabin held.
 
+
+### 7:18 PM · Warmth Held Close
+
+I got up once after dark — not from restlessness, just the small pull to see it for myself. Lifted the latch bar and cracked the door a hand-span: the clearing was white-rimed and still, frost heavy on every blade of grass, each stone edged with silver, the stars close and hard overhead. Cold air pushed through fast and I let the bar drop back into its keeper. The cabin held its warmth without complaint.
+
+I poured the last cold inch of broth into the clay bowl and set it at the ash edge — just long enough to take the chill off — then sat with it on the bracken mat, cross-legged, both hands wrapped around the curve of the bowl. The heat moved from my palms inward. Outside the frost settled on. I did not need to do anything else.
+
+The fourth hide is dry and stiff on the doorsill bench, the brain folded in bark beside it. Tomorrow morning I will work it soft. Everything is in order: cold box full, supply shelf stocked, roof sound, floor warm against the cold coming up through the earth. First frost came and I was ready for it. That is a good thing to know at the end of a day.
+

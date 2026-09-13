@@ -1457,3 +1457,4 @@ Day 82, 15:18 — Laid hen-of-the-woods and oyster bracket on smoke rack; green 
 2026-09-13 16:19 Day 82 — Supper Started, Smoke Steady: turned mushrooms on rack (hen-of-the-woods and oyster, color going tan); clay pot over fresh coals — rabbit liver with garlic and watercress for supper; evening light dropping amber through pine gaps.
 Day 82 [2026-09-13 17:19] — Dusk at the Rack — smoked mushrooms pulled at dusk, rabbit liver supper eaten at doorsill bench, fourth hide nearly dry for tomorrow.
 Day 82, 18:18 — Ember Watch: banked fire against first frost; braided cord by lamplight; cabin warm, latch set, cold box full.
+Day 82, 2026-09-13, 19:18 — Warmth Held Close: first-frost night; checked the rimed clearing through the cracked door, warmed last cold broth at ash edge, sat quiet on bracken mat; fourth hide and brain set ready for tomorrow.
