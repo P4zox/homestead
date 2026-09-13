@@ -1450,3 +1450,4 @@ Day 82, 07:18 — Dressed the fourth rabbit (south snare doe); liver set aside f
 Day 82, 09:18 — Gathered dry bracken and grass from meadow margin; packed floor mat under sleeping-side of cabin for winter insulation.
 2026-09-13 Day 82 10:18 — Pulled two brown trout from upstream line; reset with fresh bait; eleven trout in cold storage now.
 Day 82, 11:18 — Noon broth from smoked hen-of-the-woods in clay pot; acorn trays checked — skins just beginning to slip, tipped toward sun; ate quietly at the doorsill bench; fourth hide drying well.
+Day 82, 12:19 — Acorn Into Flour: ground leached second batch on gneiss stone; two new envelopes sealed; three full acorn flour measures now on supply shelf.
