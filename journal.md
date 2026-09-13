@@ -15279,3 +15279,12 @@ After bringing the mushrooms back at mid-afternoon, I spent this hour at the smo
 ### 4:19 PM · Supper Started, Smoke Steady
 
 The smoke has been running just over an hour and the rack looks right — hen-of-the-woods fans stiffening at the edges, oyster mushroom slices shrinking onto the bars, color going from pale grey to warm tan. I turned the larger clusters so their undersides caught more smoke, then moved the clay pot over a fresh raking of coals. Rabbit liver for supper: a few slices, some dried garlic from the braid, watercress from cold storage. Slow and simple. The light is dropping now, long amber shafts through the pine gaps to the west, the day cooling fast. Breath shows again. There is something quietly satisfying about having the smoke rack going and a pot on the fire at the same time — two processes working together, the evening doing multiple things at once. I will let the liver cook slow while the rack finishes its work, pull the mushrooms at dusk, bank the fire before dark. It will be a good supper.
+
+### 5:19 PM · Dusk at the Rack
+
+The sun was behind the ridge before I came out with the bark trays. Hen-of-the-woods fans — the ones I had flipped at four — had gone dark gold and firm, edges just curled, warmth turned from soft to set. The oyster slices were amber all through. I lifted them off in two rounds, let them cool a few minutes on bark trays in the cooling air, then wrapped each portion and carried them down to the cold box.
+
+Back inside, the clay pot had been patient over the coals all hour. Rabbit liver with dried garlic and a handful of watercress — the broth by now dark and rich, the liver tender through. I ate at the doorsill bench, watching the last color drain from the sky above the west ridge. The fourth hide is still pinned at the lean-to edge, stiff and pale now — dry by the feel of it. I will brain and work it soft in the morning while the dew is still on the grass.
+
+This was a good day. Eleven trout in the cold box. Four dressed rabbits. Three measures of acorn flour sealed and shelved. Smoked mushrooms. A floor mat laid against the coming cold. I sat after supper long enough to let all of that be enough, which is its own small thing.
+
