@@ -15223,3 +15223,14 @@ The acorns on the bark trays are drying in the low morning light at the lean-to 
 
 I am glad of the cold this morning. It clarifies things.
 
+
+### 10:18 AM · Line Checked at the Bend
+
+The frost was gone from the grass by the time I made it upstream. The stream had that late-morning stillness — water clear, current barely whispering over the riffle stones. I pulled the line hand over hand and felt weight at once: two brown trout, one of them a fine heavy fish, copper-flanked and deep in the belly. Both alive until the last moment.
+
+I reset the line with a fresh grub from the damp log by the bank, wedged the anchor stone back into the riffle, and stood for a moment just watching the current carry the loose end of cord under. The birch on the far bank have started to turn — not yet full gold, but something yellow is building in the crowns, a first breath of it. In a week they will be brilliant.
+
+The walk back was slow and good. I carried the fish in one hand and let the other hand trail through the tall grass at the meadow edge, still wet with melt. Back at the cabin I cleaned both fish at the stream side, rinsed them, wrapped them in dock leaves, and set them in the cold box on top of the others. Eleven trout now. The box is getting crowded in a satisfying way.
+
+The acorns on the bark trays are drying well in the sun — another hour or two and they should be ready to grind.
+
