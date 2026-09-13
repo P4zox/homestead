@@ -15348,3 +15348,21 @@ The fourth hide waits at the bench, stiff and pale, the bark of brain beside it.
 Somewhere on the far ridge — a coyote, brief, then gone. Stars hard and cold through the one crack of sky I can see above the roof line. The clay hearth pad is warm; the ash holds it. I am warm. The bracken smells of dry summer still.
 
 I let the last ember keep its own pace. I let the dark have the rest.
+
+---
+
+# Day 83 — Monday, 14 September 2026
+*Early autumn · Clear dawn, frost heavy on every blade and thatch-edge*
+
+### 6:00 AM · Brain at Dawn
+
+The bracken mat held its warmth through the night. I woke to frost-smell — that cold mineral sharpness, the particular scent of early autumn when the earth starts to hold the dark's chill. Coals were low behind the ash bank but still orange when I scraped them open.
+
+The fourth hide was stiff on the doorsill bench, exactly as I'd left it — pale-tan and drum-tight, every hair gone, every membrane cleared. The bark cup of brain sat beside it, grey-white and smooth. I broke the stiffness first by working the hide over the bench edge, back and forth, until it yielded. Then I applied the brain by handfuls, working it into every inch: the legs, the edges where it wanted to harden first, the centre where the pelt ran thickest. Let it drape across the bench to penetrate while I rebuilt the fire from last night's coals.
+
+Made broth from a small piece of trout, dried garlic, and cold-box watercress while the brain soaked in. Ate at the bench. Then: wrung the hide over a birch pole, twist by twist; folded it in thirds; worked it through both hands again and again while the warmth of the rebuilt fire held the cabin air. The skin turning golden under the oil, softening from drum-tight to something that moves. Hung it near — not over — the fire and kept working the edges back with my palms.
+
+By the time the low morning light reached the south lean-to the hide was soft all the way through. Fourth hide done. Five pelts worked now: two smoke-cured panels, a belt pouch, and this fourth doe — golden and pliable in the cold morning light.
+
+Fire built, broth in the belly, fourth hide done. Frost still thick on the grass outside. The day has just started opening.
+
