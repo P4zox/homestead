@@ -15234,3 +15234,14 @@ The walk back was slow and good. I carried the fish in one hand and let the othe
 
 The acorns on the bark trays are drying well in the sun — another hour or two and they should be ready to grind.
 
+
+### 11:18 AM · Noon, Still and Clear
+
+By eleven I had been on my feet since before the frost lifted. The morning ran fast — snares, rabbit, acorns, bracken, trout — all before the sun reached the ridge. Standing at the doorsill bench with the fourth hide stretched flat over the planks, I noticed how quiet it had gone. No wind. The pines on the slope utterly still. My shadow short and straight on the ground.
+
+I set a broth going in the clay pot — a small plug of smoked hen-of-the-woods crumbled in, a pinch of dried rowan berry for a little tartness, water ladled cold from the bark bucket. Hung it over the coals and went outside while it heated. The acorn trays at the lean-to edge were dry to the touch; turning one acorn over, I felt the skin just beginning to slip. Close, but not quite ready. I tipped both trays a degree toward the sun and came back inside.
+
+The broth took maybe twenty minutes. I ate it at the doorsill bench, looking out at the clearing. The frost was gone from the open grass by now — just a faint white still tucked in the shadow of the woodpile. The stream was audible but not visible from here, going steadily to wherever it goes. The fourth hide lay beside me on the bench, pale and cooling in the sun.
+
+A simple noon. The grinding can wait until this afternoon; the hide is drying well; the cold box holds eleven trout and four rabbits. I sat there longer than I strictly needed to, watching the light travel across the clearing. That felt like the right use of this particular hour.
+
