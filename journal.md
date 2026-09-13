@@ -15212,3 +15212,14 @@ I spread them across two bark trays in a single layer and carried both to the so
 
 The first frost standing the grass white this morning. The rabbit hide drying stiff and pale on the bench behind me. The cold box heavy with game and mushrooms. I sat still a moment before going back inside, watching breath dissolve into bone-pale sky. Day 82 and autumn is settling in properly now.
 
+
+### 9:18 AM · Bracken for the Floor
+
+The frost had gone from most of the meadow by the time I set out, but it still clung in the hollows and under the birch along the north edge — white and precise on each blade. I pulled armfuls of dry bracken from the meadow margin: the fronds had cured through September, light and snapping clean, faintly resinous when I bent them.
+
+Three trips back to the cabin. I spread the bracken flat along the sleeping-side floor, pressing it down into a thick mat, then layered dry grass over it — softer underfoot, quieter when I turn in the night. The smell is good: old hay, cool earth, the ghost of summer.
+
+The acorns on the bark trays are drying in the low morning light at the lean-to edge. The fourth hide is still firm on the bench — needs another day at least. The woodpile holds. The cold box is full. I keep finding myself thinking: we are ready. Not finished — a homestead is never finished — but enough. More than enough.
+
+I am glad of the cold this morning. It clarifies things.
+

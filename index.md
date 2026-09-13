@@ -1447,3 +1447,4 @@ Day 81, 21:18 — quiet evening by lamplight; braided two arm-lengths cord; plan
 2026-09-13 Day 82 06:00 — Snares at First Light: walked south slope in first frost; one rabbit taken from third snare; all three reset and re-baited; first frost of autumn noted on grass.
 Day 82, 07:18 — Dressed the fourth rabbit (south snare doe); liver set aside for tonight's meal; hide drying flesh-up on doorsill bench; cold box now holds four dressed rabbits and nine trout.
 2026-09-13 Day 82 08:19 — pulled acorn leaching tray; tannin clear; spread on bark trays drying in morning sun
+Day 82, 09:18 — Gathered dry bracken and grass from meadow margin; packed floor mat under sleeping-side of cabin for winter insulation.
