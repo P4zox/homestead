@@ -15260,3 +15260,14 @@ By evening it will need one more look — if the edges have not gone hard I will
 
 The clearing has gone quiet the way it does on clear cold afternoons, only the birches near the stream where several leaves have turned full gold. There is a new smell beyond the cabin now — cold humus, wet leaf decay, something faintly fermenting under the mast. Autumn is settling in properly. I notice I do not mind it.
 
+
+### 2:18 PM · Forest Edge Gathering
+
+The fourth hide lies pinned in the south-facing afternoon light, edges beginning to curl inward as moisture leaves — good progress. It can finish drying here while I work elsewhere. I take the wide gathering basket and head south along the tree line.
+
+The forest margin is quiet and golden. I stop at a pine I notched two weeks back, where resin has been bleeding slowly down the bark; it is thick and amber now, almost clear at the top where it first dried. Two bark envelopes fill from it, sealed with a bark strip pressed over the opening. I lay them in the basket and keep walking.
+
+At the fallen oak I find what I was hoping for: two good-sized hen-of-the-woods clusters at its base, dark brown at the edges, pale underneath, firm and fresh-smelling. Late in the season but sound. I cut them clean with the knife. Thirty paces on, a pale grey bracket of oyster mushrooms flushes from a birch downfall, just at its peak — I take the lower half and leave the top attached.
+
+Back at the cabin by mid-afternoon: hide still warm from the sun and pulling tight across its pins, hearthfire banked low and steady. Tonight I will lay this mushroom haul on the smoke rack while the rabbit liver cooks slow in the clay pot. The stores are building toward something real now. I can feel the shape of the winter we are becoming ready for.
+
