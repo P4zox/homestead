@@ -15478,3 +15478,18 @@ It is more than I had going into last season. The west gable is wrapped and weat
 
 The cold is pressing at the bark walls now. The frost will be harder tonight than last night. I will let the lamp burn one more hour, watch it a little, and sleep.
 
+
+### 9:20 PM · Frost at the Doorsill
+
+Sometime after the lamp had burned an hour steady I felt the cold seeping in under the door — not the draft kind, just the weight of the night dropping fast. I pulled on my smoked back panel and stepped outside.
+
+The clearing was white. Not deeply — a thin, even coat of frost on every flat surface, the dock leaves along the east path silvered, the acorn drying tray outside the south wall glittering. The sky had cleared entirely, stars thick and bright above the treeline. My breath came out in long pale plumes. I stood a moment in it and did not feel afraid of it.
+
+The west gable bark is holding — I could see no seam, no gap catching the starlight. The whole cabin face looked solid and dark, bark-wrapped from doorsill to ridge, pegged and fitted. I felt some quiet satisfaction at that, the kind that comes from finished work you can look at in the cold and know it will hold.
+
+I came back inside and settled the latch bar. Pulled the coals together once more with the poker stick, added two splits of wood — enough to hold a bed of heat until morning without drawing too hard on the woodpile. Lamp wick I left burning low.
+
+The floor mat is good tonight. Dry bracken and soft grass, a hand's-breadth deep — my back noticed the difference a few nights ago and has not complained since. I am tired in the right way: work done, belly full, stores counted. Twelve trout in cold storage, four rabbits, mushrooms stacked, acorn flour sealed. The frost is only frost. I am inside, and the door holds.
+
+Sleep now.
+

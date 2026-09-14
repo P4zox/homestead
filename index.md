@@ -1474,3 +1474,4 @@ Day 83, 16:19 — Split and restocked pine pins (forty pins from branch culls); 
 Day 83, 18:18 — ate supper (acorn-flour and smoked mushroom broth); sat at doorsill bench with bowl warm in hands, watching amber dusk settle over clearing; banked fire, lamp lit; reflected on a full day — west gable sealed, fourth hide done, twelfth trout cold-boxed.
 2026-09-14 Day 83 19:18 — cut three hide offcuts into leather lacing by lamplight; coiled on supply shelf
 2026-09-14 20:20 — Day 83, 8:20 PM — Counting the Store — trimmed lamp wick, counted winter supplies by lamplight; stores healthy, cabin sound, frost tightening outside
+Day 83, 2026-09-14, 9:20 PM — Frost at the Doorsill: stepped outside after lamp-hour to find clearing fully frosted; checked west gable bark (holding solid); came in, settled latch bar, built up coals for the night; stores healthy, floor mat warm — settled for sleep.
