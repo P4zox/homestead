@@ -15377,3 +15377,12 @@ I sat on the doorsill bench and watched it work: that old trade between fire and
 
 The morning sun is still low over the ridge, coming flat and gold through the treeline. The frost is almost gone from the grass now. I will turn the hide after midday, let the other face take the same color, then check the seams. By evening it should be fully smoked — golden-tan and set against any weather, ready to be cut.
 
+
+### 8:19 AM · Oak Mast, Frost Lifting
+
+The frost was still heavy on the grass when I took the wide gathering basket from beside the door and crossed the clearing toward the south slope. The smoke was running steady from the hide tent—pale birch smoke curling softly in the still, cold air—and I didn't need to be far. The oaks on the south slope have been heavy with mast all season, and with the cold deepening, the acorns are shaking loose in earnest now. I could hear them tapping down through the dry leaf litter before I even reached the first tree.
+
+An hour on my knees among the root mounds, picking out the sound ones. I can tell by feel now—the plump ones with tight caps, the ones that don't give when you press. I tossed the soft and the insect-pocked and filled the basket steadily. The frost burned off the south-facing slope quickly in the morning sun; my hands warmed and the work felt easy and good. By the time the basket was full, a band of clear amber light had moved all the way down the pines from the east ridge.
+
+Came back to find the hide smoke still running well—the amber has deepened across most of the panel now. I spread the fresh acorns in a single layer on a bark tray to dry in the morning sun outside the south wall. Another batch to leach and grind in a few days. It's quiet, methodical work, gathering like this, but I find myself glad of it. Each envelope of flour on the shelf feels like one less thing to worry about when the snow finally comes.
+
