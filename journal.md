@@ -15425,3 +15425,12 @@ The hide is still drawing smoke above the outlet, turning slowly in the updraft.
 ### 3:18 PM · Smoke Done, Bench Full
 
 Brought the fourth hide down from the smoke outlet at midday — later than I meant to, but the extra hours only deepened the cure. Golden-tan throughout, every panel of it, same color as the back piece and belly liner from two days ago. Pressed a wet finger to a corner: water beaded and rolled off clean. Water-fast. Supple when I worked the edge between my hands. I folded it and set it on the doorsill bench beside the other two cured panels, and for a moment the bench was stacked with finished work I had made from almost nothing — the back panel, the belly liner, and now this, and the belt pouch already hanging at my hip. Four animals, four cures, four pieces of the winter coming together on a plank bench I pegged together myself. I sat with that longer than I needed to. The afternoon was clear and warm after the cold morning. The frost had burned off the grass, the clearing was bright, and the acorn tray outside the south wall was still drying in the slant light. I turned the tray — acorns sound and pale, moving steadily toward ready. The cabin sat solid behind me, west gable sealed under its fresh bark courses, ridgepole throwing a long shadow east. The day is quiet and full at once.
+
+### 4:19 PM · Pine Pins, Afternoon
+
+The acorn tray was still catching the last angle of afternoon light when I pulled a short branch cull from the woodpile — straight-grained young pine, about as thick as two fingers together. The hide is cured and folded, the west gable bark-wrapped and sound, and the pin stock is nearly gone after all of it. Good to have a task that is simple and clear.
+
+I set up at the splitting block near the south wall, mallet in hand, and worked through two branch culls. Each split ran clean with the grain when I started it right — blade placed, one mallet strike, and the wood opens. I got forty-odd pins from the two culls, each one a finger's width and three-finger lengths, tapered on the split end. Sorted and stacked them in the bark tray on the lean-to shelf. The stock is healthy again.
+
+The forest was quiet in that late-afternoon way. A couple of jays made noise in the pines but nothing else moved. I could see the ridge in full clear gold, the frost long gone by now. Looking back at the clearing from the lean-to — cabin solid and dark, two thatched eaves, west gable snug, smoke rack standing at the south wall. A life that actually holds up when you look at it.
+

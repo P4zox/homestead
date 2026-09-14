@@ -1469,3 +1469,4 @@ Day 83, 09:00 — Cord braiding at the south wall in morning sun while fourth hi
 Day 83 (2026-09-14) 10:19 — Bark for the West Gable: gathered bark from birch stand; added overlapping bark courses over west gable clay-straw daub, lower two-thirds complete, extra weatherproofing begun.
 2026-09-14 Day 83 11:18 — West Gable, Done: completed upper-third bark layering on west gable; all courses pegged over clay-straw daub ridge to doorsill; west gable fully weatherproofed.
 Day 83, 15:18 — Fourth rabbit hide smoke cure complete; golden-tan and water-fast, folded on doorsill bench beside back panel and belly liner.
+Day 83, 16:19 — Split and restocked pine pins (forty pins from branch culls); afternoon clearing view; pin stock now healthy.
