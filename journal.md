@@ -15412,3 +15412,12 @@ While I worked the hide kept running smoke above the outlet, the color deepening
 
 Stood back and looked at the west wall for a long moment. It looks better now — more layered, more patient, more ready. That is the kind of work that settles something in me: not dramatic, just sound.
 
+
+### 11:18 AM · West Gable, Done
+
+I brought the last bark sheets up from the pile by the south wall and worked the upper third of the west gable face — the awkward part, where the wattle curves in toward the ridgepole. The bark does not lie flat up there. I had to cut notches in the top edge of each sheet and work it under the ridgepole overhang, bending it to follow the pitch. My fingers went red in the cold air. I pegged the final row with the last of the split pine pins, pressing each sheet hard against the daub before the peg found the purlin behind it.
+
+Then I stepped back and looked. The whole west face is covered now — overlapping courses from doorsill to ridge, amber and cream and grey. The clay-straw daub is hidden under it entirely. Whatever rain comes this autumn will hit bark first, run off in sheets, and leave the daub behind it dry. That was the point. It is done.
+
+The hide is still drawing smoke above the outlet, turning slowly in the updraft. I will let it run until noon and then bring it down to work while it is still warm. The acorn tray is drying in the sun outside the south wall. Three things running at once, and now one of them finished.
+
