@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Log, Frost, White Thread: stepped out into heaviest frost yet; crouched at buried log twenty paces SE; dense white mycelium matting heartwood, pinning clusters fingertip-sized at buried face — too small to take; replaced bark cover and weighted it; give 3–4 more days; rebuilt fire from coals, sat at doorsill bench by lamp in first light.
+07:18 — Weight on the Line: walked upstream rig eighty paces east before frost lifted; lifted a heavy brown trout (thirteenth total); bled and cleaned at stream edge, dock-wrapped, hung in lean-to air; rebaited line with fresh waterside grub, reset at mid-depth, replaced bark paddle; back at fire with warming hands.

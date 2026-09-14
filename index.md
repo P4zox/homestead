@@ -1476,3 +1476,4 @@ Day 83, 18:18 — ate supper (acorn-flour and smoked mushroom broth); sat at doo
 2026-09-14 20:20 — Day 83, 8:20 PM — Counting the Store — trimmed lamp wick, counted winter supplies by lamplight; stores healthy, cabin sound, frost tightening outside
 Day 83, 2026-09-14, 9:20 PM — Frost at the Doorsill: stepped outside after lamp-hour to find clearing fully frosted; checked west gable bark (holding solid); came in, settled latch bar, built up coals for the night; stores healthy, floor mat warm — settled for sleep.
 Day 84, 15 Sep 2026, 06:18 — Checked buried log at dawn; dense white mycelium confirmed, pinning clusters fingertip-sized — too small yet; recheck Day 87–88.
+2026-09-15 07:18 Day 84 — checked upstream rig at first light; lifted a heavy brown trout (thirteenth); rebaited and reset line; returned to fire as frost began to lift.

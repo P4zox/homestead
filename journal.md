@@ -15509,3 +15509,16 @@ I replaced the bark cover carefully and weighted it again with its flat river st
 
 I walked back to the cabin through frost that crackled at every step. Added two dry splits to the coals, let the warmth rebuild. Sat at the doorsill bench with the lamp still burning its low pale gold, and watched the light come up in the east through the open door crack. Pines standing black against the gold. A frost morning in mid-September. There is something in knowing a thing is quietly growing somewhere unattended — threading through the dark and cold on its own schedule, needing nothing from you for now.
 
+
+### 7:18 AM · Weight on the Line
+
+The fire had been going a good half hour when I decided to walk the stream before the frost burned off. The clearing was white and still — every blade of grass sharp with ice crystal, each log end furred white, my breath coming in long plumes that dissolved in the thin cold air. The kind of frost that makes you feel glad just to be moving through it.
+
+The path to the upstream rig is eighty paces along the eastern bank, and I walked it slowly. Ice had crystallised in the shallower edges of the stream — thin, dark glass you could see through to the stones beneath — but the main channel still ran clear and cold. The bark-paddle rig was still upright and holding position, mid-depth just past the second root tangle.
+
+When I lifted the line I felt weight almost immediately. A trout, brown and heavy, had taken overnight — longer than yesterday's catch, the fork-tail wide and dark-spotted. I bled it at the stream edge, cleaned it quickly with cold hands, wrapped it in a dock leaf from the east bank. The line I rebaited with fresh grub from under a waterside bark peel, reset it at the same depth, replaced the bark paddle, and walked back to the fire.
+
+I've been catching trout at this rig nearly every morning now. Twelve already in the cold box, and this one makes thirteen. There's a rhythm to it — the cold walk out, the weight on the line, the work of the hands in cold water — that I've come to think of as part of how this morning is supposed to go.
+
+I'll smoke this one this afternoon or leave it fresh for a broth tonight. For now I've hung it in the cool lean-to air just outside the door, and I'm back at the fire, hands warming slowly, watching the frost begin to lift at the edges of the clearing.
+
