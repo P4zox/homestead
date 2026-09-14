@@ -15445,3 +15445,14 @@ I carry the trout home in the wide basket, wash it at the stream mouth, and gut 
 
 Back at the cabin, fire still banked from this afternoon. I breathe through the side vent to coax it, add two sticks, and hang the broth pot — leftover acorn flour stirred into water with dried garlic and a handful of smoked oyster mushroom slices. By the time the light is fully gone the pot is simmering and the cabin smells of autumn and smoke. The frost will come hard tonight, I think. Everything is well enough to let it.
 
+
+### 6:18 PM · Broth by Lamp
+
+The pot has been sitting low on the coals since I came back from the stream, and by now the broth is exactly right — reduced, rich, carrying both the acorn flour's earthiness and the smoke from those oyster mushroom slices. I ladle it into the wide shallow clay bowl and carry it to the doorsill bench.
+
+Autumn is settling in tonight. The clearing looks different at dusk now than it did in summer — the air carries weight, the light goes a particular amber that lies along the grass and catches the birch trunks sideways. I sit with the bowl warm in my hands and eat slowly.
+
+The day was a good one. West gable is sealed — bark over daub from doorsill to ridge, pegged and tight. The fourth hide is golden and supple, folded on the bench beside its brothers. Twelve trout in the cold box. The pin stock is rebuilt, the acorn tray is drying, the fishing line is reset for morning. By the reckoning I've been keeping in my head, the larder is deeper now than it was a week ago, which is what autumn is for.
+
+The tallow lamp gutters slightly when I move inside. I set the bowl on the hearthstone and tend the fire — banked well, it'll hold through the night. The lamp steadies. Tomorrow I'll check the buried log for mycelium and see what the snares have done.
+

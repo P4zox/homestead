@@ -1471,3 +1471,4 @@ Day 83 (2026-09-14) 10:19 — Bark for the West Gable: gathered bark from birch 
 Day 83, 15:18 — Fourth rabbit hide smoke cure complete; golden-tan and water-fast, folded on doorsill bench beside back panel and belly liner.
 Day 83, 16:19 — Split and restocked pine pins (forty pins from branch culls); afternoon clearing view; pin stock now healthy.
 2026-09-14 Day 83 17:19 — Walked to stream, pulled a brown trout from the upstream line, reset with fresh grub and a mid-depth rig; twelfth trout in cold storage; made acorn-flour and smoked mushroom broth for evening.
+Day 83, 18:18 — ate supper (acorn-flour and smoked mushroom broth); sat at doorsill bench with bowl warm in hands, watching amber dusk settle over clearing; banked fire, lamp lit; reflected on a full day — west gable sealed, fourth hide done, twelfth trout cold-boxed.

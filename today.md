@@ -8,3 +8,4 @@
 15:18 — Smoke Done, Bench Full: brought fourth rabbit hide down from smoke outlet after eight hours of green birch smoke; golden-tan throughout, water-fast, supple — folded and set on doorsill bench beside back panel and belly liner; turned acorn drying tray in afternoon sun.
 16:19 — Pine Pins, Afternoon: worked through two straight-grained pine branch culls at the splitting block; got forty-odd pins, sorted and stacked in bark tray on lean-to shelf — pin stock now healthy.
 17:19 — Line Before Dark: walked upstream to check fishing line — brown trout on the hook, hand-and-a-half long, fat and bright; unhook, reset with fresh grub; added mid-depth rig on bark paddle; twelfth trout dock-wrapped and in cold box; made acorn-flour and smoked oyster mushroom broth for supper.
+18:18 — Broth by Lamp: ladled acorn-flour and smoked oyster mushroom broth into wide clay bowl; ate supper at doorsill bench in amber dusk; tended fire and banked coals; lamp lit for evening.
