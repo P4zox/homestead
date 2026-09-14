@@ -9,3 +9,4 @@
 16:19 — Pine Pins, Afternoon: worked through two straight-grained pine branch culls at the splitting block; got forty-odd pins, sorted and stacked in bark tray on lean-to shelf — pin stock now healthy.
 17:19 — Line Before Dark: walked upstream to check fishing line — brown trout on the hook, hand-and-a-half long, fat and bright; unhook, reset with fresh grub; added mid-depth rig on bark paddle; twelfth trout dock-wrapped and in cold box; made acorn-flour and smoked oyster mushroom broth for supper.
 18:18 — Broth by Lamp: ladled acorn-flour and smoked oyster mushroom broth into wide clay bowl; ate supper at doorsill bench in amber dusk; tended fire and banked coals; lamp lit for evening.
+19:18 — Leather by Lamplight: cut three small hide offcuts into thin leather lacing by lamplight; long coil, short doubled strip, serviceable thong — coiled on supply shelf.

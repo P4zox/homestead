@@ -15456,3 +15456,14 @@ The day was a good one. West gable is sealed — bark over daub from doorsill to
 
 The tallow lamp gutters slightly when I move inside. I set the bowl on the hearthstone and tend the fire — banked well, it'll hold through the night. The lamp steadies. Tomorrow I'll check the buried log for mycelium and see what the snares have done.
 
+
+### 7:18 PM · Leather by Lamplight
+
+The tallow lamp throws a steady amber circle across the supply shelf and the doorsill bench. I took down the three small hide offcuts — the scraps from cutting the belt pouch — and sat with my knife at the bench to work them into leather lacing while the evening settled around the cabin.
+
+Each piece was irregular: one ear-shaped wedge, one long strip with ragged edges, one near-square. I trimmed the ragged edges first, then began cutting slow, even spirals — thin lace, a finger-width or less — working inward from the perimeter of each piece. The leather is supple from smoking; it cuts cleanly and holds its shape without springing back. I ended up with three lengths of lace: a long coil from the ear-shaped piece, a shorter doubled strip from the square, and a serviceable thong from the long scrap. Laid them in a loose coil on the supply shelf beside the cord stock.
+
+Leather lace has a hundred uses — lashing that wants to grip rather than slip, binding a split handle, the kind of tie where you want it to bite and hold. I did not know what I was making it for, only that the material was there and the lamp was burning and my hands needed something to do. Some evenings are like that: you sit and the work finds itself.
+
+Coals settling in the hearth. Cold pressing at the west gable, which holds firm now under its new bark shell. The lamp wick needs one more trim before I sleep.
+
