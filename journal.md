@@ -15434,3 +15434,14 @@ I set up at the splitting block near the south wall, mallet in hand, and worked 
 
 The forest was quiet in that late-afternoon way. A couple of jays made noise in the pines but nothing else moved. I could see the ridge in full clear gold, the frost long gone by now. Looking back at the clearing from the lean-to — cabin solid and dark, two thatched eaves, west gable snug, smoke rack standing at the south wall. A life that actually holds up when you look at it.
 
+
+### 5:19 PM · Line Before Dark
+
+The light is already going flat and golden when I take the fishing line down to the stream. The cold-storage box has plenty — eleven trout and four rabbits and the mushrooms — but there is something in me that does not want to let a set line sit untended when evening is this good.
+
+The stream is low for September, the water clear and black in the shadowed bends, catching amber where a last patch of sunlight still reaches. I follow the bank upstream eighty paces to where I looped the line around a root elbow above the pool. It is taut. I work it in slowly, and there is a brown trout on it — not large, maybe a hand and a half long, but fat and bright-sided, gone still in the cold water. I unhook it carefully, reset the hook with a fresh grub from under a dock leaf at the bank, and push the line back out into the slow center current.
+
+I carry the trout home in the wide basket, wash it at the stream mouth, and gut and dock-wrap it at the bench. Twelfth trout in the cold box. I set a second hook-rig just off the main line — a piece of inner bark cut to a small paddle, weighted, so it rides the current mid-depth. A rough addition, maybe nothing, but it costs nothing.
+
+Back at the cabin, fire still banked from this afternoon. I breathe through the side vent to coax it, add two sticks, and hang the broth pot — leftover acorn flour stirred into water with dried garlic and a handful of smoked oyster mushroom slices. By the time the light is fully gone the pot is simmering and the cabin smells of autumn and smoke. The frost will come hard tonight, I think. Everything is well enough to let it.
+
