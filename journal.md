@@ -15467,3 +15467,14 @@ Leather lace has a hundred uses — lashing that wants to grip rather than slip,
 
 Coals settling in the hearth. Cold pressing at the west gable, which holds firm now under its new bark shell. The lamp wick needs one more trim before I sleep.
 
+
+### 8:20 PM · Counting the Store
+
+The lamp wick needed trimming — it had crept up through the evening and gone ragged, sputtering a bit. I pinched it back with a split pine pin until it burned even and clear again, a steady pale amber flame on the shelf. Small task, but a neglected wick wastes tallow.
+
+With the lamp steady and the hearth coals banked low, I sat at the supply shelf and counted what I have. The acorn flour, three envelopes. Elderberry reduction, two. Hawthorn haws, rose hips, hazelnut paste, crab apple, sloe syrup, smoked rowan. Twelve trout in the cold box, four rabbits. Three batches of smoked hen-of-the-woods, two of oyster mushroom. Dried yarrow for the cuts and scrapes. Pine resin sealed, tallow in the bowl, bark cordage coiled.
+
+It is more than I had going into last season. The west gable is wrapped and weatherproof. The floor mat cushions the cold from below. The door latches and holds. I am not ready for hard winter — there is never a moment when I am quite ready — but I am closer than I was this morning, and closer than I was a month ago.
+
+The cold is pressing at the bark walls now. The frost will be harder tonight than last night. I will let the lamp burn one more hour, watch it a little, and sleep.
+
