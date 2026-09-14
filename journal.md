@@ -15493,3 +15493,19 @@ The floor mat is good tonight. Dry bracken and soft grass, a hand's-breadth deep
 
 Sleep now.
 
+
+---
+
+# Day 84 — Tuesday, 15 September 2026
+*early autumn · heaviest frost yet, clear dawn, fire rebuilt from coals*
+
+### 6:18 AM · Log, Frost, White Thread
+
+Up before full light, fire still holding its low coals from the night banking. I pulled on the smoked back panel and stepped out into the heaviest frost yet — the clearing entirely white, every blade of grass stiff and silver, the split-wood ends on the lean-to beaded with ice crystals. The sky was beginning to grey and pale gold at the east horizon above the treeline. Not dark exactly, but not yet day.
+
+The buried log is twenty paces southeast of the shelter, half-buried under a loose bark cover and a scattering of duff I raked over it back when I set it. I crouched down and peeled the cover back. The underside of the bark was matted with white — mycelium threading dense as wool felt through the darker heartwood, running in every direction with the grain and across it. I turned the log gently and looked at the buried face. Pinning: a dozen small clusters, pale grey nubs the size of a fingertip, packed close, coming up from the wood at the cool damp earth line. Too small to take. But they are there, and they are alive.
+
+I replaced the bark cover carefully and weighted it again with its flat river stone. Three or four more days and the clusters will open into real caps, worth gathering. The log is doing its work. It does not need me to help it; it only needs me to leave it alone and come back at the right time.
+
+I walked back to the cabin through frost that crackled at every step. Added two dry splits to the coals, let the warmth rebuild. Sat at the doorsill bench with the lamp still burning its low pale gold, and watched the light come up in the east through the open door crack. Pines standing black against the gold. A frost morning in mid-September. There is something in knowing a thing is quietly growing somewhere unattended — threading through the dark and cold on its own schedule, needing nothing from you for now.
+
