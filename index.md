@@ -1466,3 +1466,4 @@ Day 82, 23:18 — night settling deep; frost thick on the ridge, embers nearly g
 Day 83, 07:19 — Hung fourth doe hide tent-wise over smoke outlet with green birch chips; pale amber color climbing through the panel; smoke curing underway.
 2026-09-14 08:19 — Day 83: gathered a full basket of oak mast from south slope while fourth hide smoked; acorns spread to dry outside south wall — next batch for leaching.
 Day 83, 09:00 — Cord braiding at the south wall in morning sun while fourth hide smokes; bark strip stock worked through, cord stock healthy; acorn tray turned; thinking calmly about winter ahead.
+Day 83 (2026-09-14) 10:19 — Bark for the West Gable: gathered bark from birch stand; added overlapping bark courses over west gable clay-straw daub, lower two-thirds complete, extra weatherproofing begun.

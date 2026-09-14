@@ -15399,3 +15399,16 @@ I am thinking about winter in a way that feels calm rather than urgent. The wood
 
 For now: cord, sun, smoke, and the cold still air of a September morning going slowly warm.
 
+
+### 10:19 AM · Bark for the West Gable
+
+The frost was already fading when I set the cord aside and took the bark knife up the slope to the birch stand. Fifteen minutes of walking, the ground still soft under dead grass, the birch tips gone amber at the crown — autumn arriving in earnest now, not just threatening.
+
+I stripped loose outer bark from five birches in the stand — the papery sheets that peel free with a gentle thumbnail pry, whole scrolls curling off in the still morning air. No damage to the living trees, just what the bark wants to give. Came back with a large armload: two dozen sheets of varying widths, some nearly as wide as my chest, pale silver-white on the outside and warm tan on the inner face.
+
+The west gable already has the clay-straw daub from Day 75, solid and smooth and sound. But west is where the weather comes from. I have been watching three autumn cloud-banks roll in from that direction this past week, and every time I think: one more layer would not hurt. So I laid the bark sheets in overlapping courses up the wattle face — each strip tucked under the row above the way I do the roof — and drove split pine pins through the bark edges into the wattle stakes beneath. Worked my way up course by course. Lower two-thirds covered before midday; the upper section I will finish this afternoon.
+
+While I worked the hide kept running smoke above the outlet, the color deepening toward golden-brown — nearly ready to turn at midday. The acorn tray is drying quietly in the sun. The cured hides wait on the bench.
+
+Stood back and looked at the west wall for a long moment. It looks better now — more layered, more patient, more ready. That is the kind of work that settles something in me: not dramatic, just sound.
+
