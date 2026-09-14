@@ -1465,3 +1465,4 @@ Day 82, 23:18 — night settling deep; frost thick on the ridge, embers nearly g
 2026-09-14 Day 83 06:00 — Brain at Dawn: brain-tanned fourth rabbit hide at first frost-dawn; woke to cold mineral air, scraped coals open, worked hide over bench edge then hand-applied brain; rebuilt fire, made trout-garlic broth; wrung and worked hide soft over birch pole — golden and pliable by morning light; five pelts worked total.
 Day 83, 07:19 — Hung fourth doe hide tent-wise over smoke outlet with green birch chips; pale amber color climbing through the panel; smoke curing underway.
 2026-09-14 08:19 — Day 83: gathered a full basket of oak mast from south slope while fourth hide smoked; acorns spread to dry outside south wall — next batch for leaching.
+Day 83, 09:00 — Cord braiding at the south wall in morning sun while fourth hide smokes; bark strip stock worked through, cord stock healthy; acorn tray turned; thinking calmly about winter ahead.

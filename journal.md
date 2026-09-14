@@ -15386,3 +15386,16 @@ An hour on my knees among the root mounds, picking out the sound ones. I can tel
 
 Came back to find the hide smoke still running well—the amber has deepened across most of the panel now. I spread the fresh acorns in a single layer on a bark tray to dry in the morning sun outside the south wall. Another batch to leach and grind in a few days. It's quiet, methodical work, gathering like this, but I find myself glad of it. Each envelope of flour on the shelf feels like one less thing to worry about when the snow finally comes.
 
+
+### 9:00 AM · Cord in the Morning Sun
+
+The frost is gone now and the south wall catches the full flat light of early morning. I pulled out the cord stock and sat at the doorsill bench with a bundle of inner bark strips I had set to soak last night. The hide is still smoking above me, slow green-birch smoke coiling out through the shelter gap. I can hear it more than see it.
+
+Braiding cord is the kind of work that lets your mind go quiet. My hands know the motion now. Split the strip to even width, wet the end with my thumb, lay it at the fold. I worked through most of the soaked stock before the sun had moved a hand-span. The cord is coming out even and tight — better than the early batches from spring when my hands were still learning the tension.
+
+The acorns on the bark tray look good in the sun, each one casting a small shadow. I turned them once to expose the other side. In three days they should be dry enough to leach. That gives me a fourth store of acorn flour alongside the three sealed envelopes already on the shelf.
+
+I am thinking about winter in a way that feels calm rather than urgent. The woodpile is high. The cold box is full. The cabin keeps the wind out now — not a crack I can find. What I do not have yet is a second layer on the west gable: the daub is solid but bare bark would add warmth. That may be tomorrow's task, or the day after.
+
+For now: cord, sun, smoke, and the cold still air of a September morning going slowly warm.
+
