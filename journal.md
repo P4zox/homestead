@@ -15588,3 +15588,12 @@ Pressed flat onto the hearthstone. The slab hissed and the edges crisped almost 
 
 Sat on the doorsill bench to eat it in the last of the afternoon light, the foot wraps warm from the hearthstone through the soles. It was not much — a small flat disc, dense and faintly sweet in the middle, a little smoky at the edges — but it was real food made from the clearing's own ground. Sitting there eating it in new moccasins with the frost's first edge coming back into the air, it felt like something. Twelve trout in the cold box. Four rabbits. Sealed envelopes of flour and fruit on the shelf. Another harvest still pending in the buried log. We are ready, or close enough to ready that the rest is grace.
 
+
+### 5:18 PM · Gold Light, Broth Fire
+
+The flatbread settled warmly but left me wanting something liquid. I pulled on the foot wraps and walked the eighty paces to the stream while the light was still gold and horizontal through the pines — long shadows, the water almost copper-colored where it ran shallow over pale stones. Filled the bark vessel twice, drank from cupped hands first, tasted nothing but cold and stone. The air by the water was a full degree colder than the clearing; I could feel it against my ears.
+
+Back at the cabin, I drew one dock-wrapped trout from the main cold box and set it in the clay pot with water and a pinch of dried nettles. The pot went on the flat stone beside the coals. Not a proper fire — just enough heat to bring it slow. By the time the first steam rose from the lid gap the lamp was the brightest thing in the room, the daylight outside going blue and thin.
+
+I sat at the doorsill bench with the door half-closed and watched the valley mist begin to rebuild at the tree line. Tomorrow: snares first thing. The day after: acorn leaching. The log will be ready in three or four more days — those clusters will be worth waiting for. Everything is in order. That feeling — everything in order — is not something I take for granted now.
+
