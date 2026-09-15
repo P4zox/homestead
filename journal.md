@@ -15542,3 +15542,16 @@ I've been working through this morning's quiet. The acorns are drying under the 
 
 By early afternoon the skin had tightened and bronzed. I lifted it from the rack, let it cool on the bark tray, then rewrapped it carefully and settled it in the cold box beside the others. Smoked, it'll keep longer than dock-wrapped. In this season, longer is the point.
 
+
+### 1:18 PM · Working the Fourth Hide
+
+The fire had settled to a steady mid-afternoon draw and the cabin was warm enough to sit with my hands out of my gloves. I took the fourth rabbit hide from the doorsill bench — golden-tan and supple as cloth, water-fast, the smoke has done its work well. Held it up to the light and thought: feet.
+
+The frost these mornings is going to keep thickening. My feet in the sleeping bag are fine; my feet at the doorsill bench in the cold-dark hour before the fire has fully caught are another matter. I cut two sole-panels from the thickest part of the hide — heel and ball, traced against my own foot in the dust with a stick first. Then two longer panels for the upper and wrap, narrower, long enough to fold over the instep and lash around the ankle. Four pieces total, clean cuts with the knife.
+
+Stitching with lacing from the leather offcut coil: running stitch around the sole edge, attaching the upper, then two ties cut from scrap to lash the ankle wrap. Work went slow — rabbit hide is not thick, and I had to be careful not to tear through at the needle holes. An hour of close work by the window light.
+
+By mid-afternoon I had one done. Stood and tested it on the cold dirt floor: sole held, wrap stayed, toe gap where I will need a small patch cut from the remaining scrap. The second took less time — I knew the shape by then. Set them together on the doorsill bench to air.
+
+Not much to look at. But my feet will be warm at the cold dark hour, and the fourth hide is now something I will actually wear.
+
