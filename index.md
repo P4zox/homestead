@@ -1490,3 +1490,4 @@ Day 84, 20:19 — Took quiet stock of the winter store by lamplight; everything 
 Day 84, 2026-09-15, 21:18 — Laid out tomorrow's snare kit by lamplight; fire banked under ash, lamp low, frost on bark outside, cabin warm; settled into sleeping bag.
 Day 84, 22:18 — Frost and Quiet: lamp near spent, fire banked, frost thick on bark outside; in sleeping bag, all kit laid out; letting warmth and silence carry into sleep.
 Day 84, 2026-09-15, 23:00 — Lamp Out — tallow spent, lamp quietly dark; fire banked; cabin sealed; sleep came easy; frost thick outside.
+Day 85, 2026-09-16 06:18 — south-slope snare run at first light; fifth rabbit caught (grey doe, neck clean); all three snares reset and re-baited; fifth rabbit dressed, hanging in lean-to; fire rebuilt from coals

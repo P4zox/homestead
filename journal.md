@@ -15638,3 +15638,17 @@ Lying in the sleeping bag now, the lamp at its last quarter of tallow, the fire 
 
 The tallow in the bark cup finished quietly — no sputter, just the light going from warm to gone. I was already most of the way under when it happened, warm in the sleeping bag, the banked fire a faint red seam in the dark. Frost thick on the bark outside; still and close inside. The foot wraps are on the doorsill bench where I left them, knife beside them, bait pinch wrapped and ready for the snare run at first light. That is everything I need to know going into tomorrow. The day was a long one — a good trout, the flatbread, an evening broth, all the wraps finished and fitted — and now it closes in the dark with the cabin sealed and the store full. Sleep came easy.
 
+
+---
+
+# Day 85 — Wednesday, 16 September 2026
+*early autumn · heavy frost*
+
+### 6:18 AM · Snares at First Light
+
+Woke in dark — the lamp had burned out overnight, just the banked fire's faint warmth in the cabin. I dressed without light, pulled on the foot wraps from the doorsill bench, laced them firm at both ankles. The bait pinch was right where I had left it. I opened the door and stepped into a clearing so frosted it looked nearly snowed: every surface pale and still, the south wall acorn tray wearing a fine white lace, the birch trunks ghostly in the dim.
+
+I walked south slope through the birch, wraps quiet underfoot, breath clouding ahead of me. The first two snares were undisturbed — loops set, bait intact, only a wide deer track passing through, giving both a wide miss. The third snare, the one set nearest the alder brake where the trails cross, had a rabbit: a good grey doe, neck taken cleanly overnight. I bled her at the stake and dressed her in the cold half-light, fingers slow and steady, then carried her back up slope by the hind legs. Reset all three snares and pressed fresh dried yarrow into each bait slot.
+
+Back at the cabin I hung her in the lean-to, rebuilt the fire from coals, and sat at the doorsill bench with pine-needle tea warming between my palms. Frost still thick in the shadows, the valley still white below the treeline. Fifth rabbit. The cold keeps coming, and the store keeps growing to meet it.
+
