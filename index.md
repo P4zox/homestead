@@ -1481,3 +1481,4 @@ Day 84, 08:00 (Tue 15 Sep 2026) — Turned third acorn batch on south wall tray;
 Day 84 · 2026-09-15 · 12:19 PM — Smoked thirteenth trout over slow alder fire at midday rack; bronzed and rewrapped for cold box.
 2026-09-15 Day 84 13:18 — cut and lashed two moccasin-style foot wraps from fourth rabbit hide; sole and upper panels, ankle-lashed; on doorsill bench
 Day 84, 14:18 — Tested new foot wraps on south-slope walk; snares still set, no catch; seep cache solid; wraps hold well, left ankle tie to cinch tighter.
+Day 84, 15:18 (Tue 15 Sep 2026) — re-laced left ankle tie on foot wraps; both wraps now hold clean; doorsill bench; clear autumn afternoon.

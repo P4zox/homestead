@@ -15568,3 +15568,14 @@ Came back by the seep cache on the way in to check the lid stone. All solid. Bac
 
 The wraps work. The sole is stiff enough for roots and stones; the ankle lashing keeps the wrap seated. Left ankle tie wants one more pass to cinch tighter — but otherwise they are right.
 
+
+### 3:18 PM · Tighter at the Ankle
+
+Came inside from the slope walk with the foot wraps behaving almost perfectly — almost. The left ankle tie had ridden loose enough by the time I reached the birch edge that I could feel the wrap's intention without quite its hold. Small thing. Worth getting right now before I trust them in earnest.
+
+Sat at the doorsill bench with the remaining length of leather lacing. Unpicked the anchor loop on the left ankle tie, added one more pass through the side grommets, pulled firm — not tight enough to cut, just enough to seat — and re-knotted. Pressed the configuration against my ankle to test it: solid, no play, no slide.
+
+Put both wraps on and walked heel-to-toe across the cabin floor twice. Neither shifted. The bark-splint sole stays rigid underfoot and the upper wraps clean around both ankles without digging. Set them back on the doorsill bench beside the smoke-cured panels.
+
+The afternoon light is long and amber through the open door. I can smell heated pine resin drifting off the south wall. The fire is low and ticking, the valley quiet. The wraps are done now — properly done. Good day.
+
