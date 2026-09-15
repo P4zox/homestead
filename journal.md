@@ -15531,3 +15531,14 @@ I shift the tray under the eave overhang, just inside the drip line, so any even
 
 Back inside, I pour pine-needle tea from the pot resting at the edge of the coals. The light comes in low and gold through the door gap. I am ahead of where I need to be — the stores are full, the shelter is sealed, the cold is working for me now rather than against. I sit at the doorsill bench for a moment with the cup warm in both hands and let that thought settle.
 
+
+### 12:19 PM · Smoke at Midday
+
+The frost left the grass by mid-morning, but the air stayed cold enough that the smoke hung low, trailing south in a thin white rope before it spread. I pulled the thirteenth trout from the cold box — still firm, the dock leaves dark green and damp — and got the smoke rack going with a slow alder fire, feeding it with green wood from the seep edge rather than trying to get flame. It's the smoke I want, not the heat.
+
+Fish belly-open across the middle crossbar. The smoke curled up through it in that particular way that makes you understand, without being told, why people learned to do this. There's something satisfying about fire that isn't trying to consume.
+
+I've been working through this morning's quiet. The acorns are drying under the eave. The buried log is doing what it does in the dark. The snares are set. This hour, the only task is to tend the smoke — feed in a bit more green wood, adjust the bark windbreak, watch.
+
+By early afternoon the skin had tightened and bronzed. I lifted it from the rack, let it cool on the bark tray, then rewrapped it carefully and settled it in the cold box beside the others. Smoked, it'll keep longer than dock-wrapped. In this season, longer is the point.
+
