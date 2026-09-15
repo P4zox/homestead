@@ -15613,3 +15613,14 @@ Tomorrow: snares at first light. Acorn leaching around Day 86. Buried log harves
 
 The fire had settled to a deep red glow before I remembered the toe-patch scrap — a small square of hide left on the doorsill bench since this afternoon. I threaded a short length of leather lacing and worked it in by lamp light, three-ply running stitch along the inside edge of the right wrap's toe. The needle work goes slow in firelight; I had to lean close to see the holes clearly. Both wraps are done properly now. Outside I could hear the frost settling against the bark — a faint sound like silence tightening. The lamp held steady all through. I set the wraps on the bench and sat a moment with nothing left to do today, which is a good way to end an evening.
 
+
+### 8:19 PM · The Store, by Lamp
+
+The lamp kept burning and I kept sitting. The foot wraps on the doorsill bench were done — properly done, both of them — and something about that made the evening feel complete in a way the rest of the day had been building toward. Small things like that close like a clasp.
+
+After a while I got up and went to the supply shelf. Not because anything needed doing, but to see what I have. Twelve sealed bark packages. The clay pot, amber-cream and ringing true. Elderberry reduction, sloe syrup, hazelnut paste, crab apple. Acorn flour in three envelopes. Yarrow for wounds. Strained pine resin. The tallow in its cup, feeding the wick steadily.
+
+I lifted each package and set it back in turn. Not counting for worry — counting because it is good to know what you are standing on. Everything accounted for. More than I came here with. More than I thought I would have by now, honestly, at this point in the year.
+
+I sat back down, laid one more alder round across the coals, and watched the lamp flame for a while. It does not waver tonight — the cabin is that tight. Frost thick on the bark outside; warm in here. Tomorrow: snares at first light.
+
