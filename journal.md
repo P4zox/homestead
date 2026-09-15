@@ -15555,3 +15555,16 @@ By mid-afternoon I had one done. Stood and tested it on the cold dirt floor: sol
 
 Not much to look at. But my feet will be warm at the cold dark hour, and the fourth hide is now something I will actually wear.
 
+
+### 2:18 PM · First Walk, New Wraps
+
+The foot wraps sat on the doorsill bench all morning while I was busy with the smoke rack and the acorns. After the midday fire died down to holding coals I picked them up, laced the ankle ties tight, and stood at the threshold.
+
+The ground was still hard from the morning frost — grass crumpled underfoot and each stone had a white rim — but the leather kept the cold from the sole. I walked south through the clearing, then up into the oak slope where the mast keeps falling. Acorns everywhere underfoot, cracking or pressing into the leaf mat. The wraps held through all of it without shifting.
+
+I checked the south slope by habit without meaning to — the snares were still set and waiting, no catch today — and kept walking until I reached the high birch edge where the frost had begun to fade from the upper branches. Stood there a while. The valley below the clearing was full of low mist burning off in the afternoon sun. The air was sharp and resinous, and the wraps were warm from the walking.
+
+Came back by the seep cache on the way in to check the lid stone. All solid. Back inside before the afternoon chill settled.
+
+The wraps work. The sole is stiff enough for roots and stones; the ankle lashing keeps the wrap seated. Left ankle tie wants one more pass to cinch tighter — but otherwise they are right.
+
