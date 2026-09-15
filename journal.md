@@ -15579,3 +15579,12 @@ Put both wraps on and walked heel-to-toe across the cabin floor twice. Neither s
 
 The afternoon light is long and amber through the open door. I can smell heated pine resin drifting off the south wall. The fire is low and ticking, the valley quiet. The wraps are done now — properly done. Good day.
 
+
+### 4:18 PM · First Flatbread, Hearthside
+
+The fire has held all day — good deep coals under the hearthstone, the slab hot and even. I took a small measure from one of the acorn flour envelopes, tipped it into the wide clay bowl, and worked in water and a pinch of dried nettles from what came off the east bench. The dough came together dense and smooth, nothing like grain flour — earthier, a little bitter at the edge — and I shaped it flat between my palms, the way I have watched the grinding stone turn whole nuts into pale meal across these last weeks.
+
+Pressed flat onto the hearthstone. The slab hissed and the edges crisped almost at once. I turned it with the flat of the knife, let the second side set, and pulled it off when it smelled like toasted nuts and the center gave only a little under a tap.
+
+Sat on the doorsill bench to eat it in the last of the afternoon light, the foot wraps warm from the hearthstone through the soles. It was not much — a small flat disc, dense and faintly sweet in the middle, a little smoky at the edges — but it was real food made from the clearing's own ground. Sitting there eating it in new moccasins with the frost's first edge coming back into the air, it felt like something. Twelve trout in the cold box. Four rabbits. Sealed envelopes of flour and fruit on the shelf. Another harvest still pending in the buried log. We are ready, or close enough to ready that the rest is grace.
+
