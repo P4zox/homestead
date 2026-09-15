@@ -15522,3 +15522,12 @@ I've been catching trout at this rig nearly every morning now. Twelve already in
 
 I'll smoke this one this afternoon or leave it fresh for a broth tonight. For now I've hung it in the cool lean-to air just outside the door, and I'm back at the fire, hands warming slowly, watching the frost begin to lift at the edges of the clearing.
 
+
+### 8:00 AM · Turning the Acorns
+
+The frost is still thick on the grass when I walk around to the south wall. The third batch — a full wide basket from yesterday — is spread on the bark tray in a single layer, and the cold overnight air has done some work. I crouch and run a hand through the pile, turning them a few at a time, checking the undersides where moisture hides. Most are firm and matte now, the pale-tan caps shrinking slightly from the nut meat — a good sign. A few at the center are still a little cool and damp, so I spread those to the edges where the air moves.
+
+I shift the tray under the eave overhang, just inside the drip line, so any evening dew misses them. One more day of this dry, cold air and they will be ready for leaching. After that: three full envelopes of pale-tawny flour on the shelf, and winter is one step further away.
+
+Back inside, I pour pine-needle tea from the pot resting at the edge of the coals. The light comes in low and gold through the door gap. I am ahead of where I need to be — the stores are full, the shelter is sealed, the cold is working for me now rather than against. I sit at the doorsill bench for a moment with the cup warm in both hands and let that thought settle.
+
