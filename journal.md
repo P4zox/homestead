@@ -15608,3 +15608,8 @@ Back inside, I banked the fire — two short alder rounds laid low on the coals,
 
 Tomorrow: snares at first light. Acorn leaching around Day 86. Buried log harvest Day 87–88. Winter store stands full enough. I sat by the lamp a while longer, content.
 
+
+### 7:18 PM · Toe Patch, Lamplight
+
+The fire had settled to a deep red glow before I remembered the toe-patch scrap — a small square of hide left on the doorsill bench since this afternoon. I threaded a short length of leather lacing and worked it in by lamp light, three-ply running stitch along the inside edge of the right wrap's toe. The needle work goes slow in firelight; I had to lean close to see the holes clearly. Both wraps are done properly now. Outside I could hear the frost settling against the bark — a faint sound like silence tightening. The lamp held steady all through. I set the wraps on the bench and sat a moment with nothing left to do today, which is a good way to end an evening.
+
