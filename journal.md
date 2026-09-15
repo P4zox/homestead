@@ -15597,3 +15597,14 @@ Back at the cabin, I drew one dock-wrapped trout from the main cold box and set 
 
 I sat at the doorsill bench with the door half-closed and watched the valley mist begin to rebuild at the tree line. Tomorrow: snares first thing. The day after: acorn leaching. The log will be ready in three or four more days — those clusters will be worth waiting for. Everything is in order. That feeling — everything in order — is not something I take for granted now.
 
+
+### 6:18 PM · Bowl, Lamp, Evening
+
+The broth was ready when the valley mist had climbed halfway to the treeline — I could smell it from the doorsill bench, rich with trout and dried nettles, the pot darkening at the rim where steam had been rising longest. I ladled it with the birch spoon into the wide clay bowl and sat with my back to the doorpost, lamp bright at my shoulder.
+
+It was a good bowl. The trout had given everything; the nettles had gone soft and almost sweet. I sat on after the bowl was empty, watching the last color leave the sky above the pines.
+
+Back inside, I banked the fire — two short alder rounds laid low on the coals, ash draw half-shut, flame settling to a steady red glow. The lamp gives enough light. The cabin is sealed on every face now: bark-wrapped west gable, daubed east gable, doubled north corner, sealed ridge gap. I can feel the difference from inside — the air barely stirs even with the door cracked a finger's width. Whatever frost comes tonight will not get through.
+
+Tomorrow: snares at first light. Acorn leaching around Day 86. Buried log harvest Day 87–88. Winter store stands full enough. I sat by the lamp a while longer, content.
+

@@ -1484,3 +1484,4 @@ Day 84, 14:18 — Tested new foot wraps on south-slope walk; snares still set, n
 Day 84, 15:18 (Tue 15 Sep 2026) — re-laced left ankle tie on foot wraps; both wraps now hold clean; doorsill bench; clear autumn afternoon.
 Day 84, 16:18 — First acorn flatbread cooked on hearthstone from flour stores; ate at doorsill bench in new foot wraps; winter supply counted and found good.
 Day 84, 17:18 — walked to stream in last gold light; set trout and nettle broth in clay pot on hearthstone; lamp lit, valley mist rebuilding at treeline.
+2026-09-15 18:18 Day 84 — Bowl, Lamp, Evening: broth eaten by lamplight, fire banked, cabin sealed against frost, content by the lamp.
