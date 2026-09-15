@@ -15652,3 +15652,16 @@ I walked south slope through the birch, wraps quiet underfoot, breath clouding a
 
 Back at the cabin I hung her in the lean-to, rebuilt the fire from coals, and sat at the doorsill bench with pine-needle tea warming between my palms. Frost still thick in the shadows, the valley still white below the treeline. Fifth rabbit. The cold keeps coming, and the store keeps growing to meet it.
 
+
+### 7:18 AM · Down to the Stream
+
+The tea was still warm in my hand when the sun finally cleared the treeline. The frost had turned the clearing a solid white overnight — every blade and stem coated in fine crystal — and it only began to loosen as the first low light struck the ground. I drank the last of it standing, then went to the lean-to for the rabbit.
+
+She had hung well overnight. The cold and the open air had done their work — stiff, clean, no sign of spoilage. I wrapped her in dock leaves from the stack by the smoke rack, tucked the bundle under one arm, and walked the upstream path to the cold box.
+
+The stream was running fast and clear. No ice yet, but the stones at the shallows had that white look — the kind that means the overnight temperature touched freezing at the water's edge. I lifted the bark lid from the box and settled the rabbit beside the four others, pressed the lid back down and weighted it with the flat river stone.
+
+On the way back I paused at the fishing line. The mid-depth paddle-rig had a slight tug to it — I pulled it slow and found a brown trout, a good hand-width long, already stiff in the cold current. I re-baited and reset the rig. The trout went into my belt pouch for now, to dress at the smoke rack later.
+
+Fourteen trout in the count now, five rabbits. The cold box is full but holding. I will dress this one by midday.
+
