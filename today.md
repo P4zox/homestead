@@ -13,3 +13,4 @@
 20:19 — The Store, by Lamp: lamp burning, foot wraps done on doorsill bench; moved to supply shelf and lifted each package in turn — twelve sealed envelopes, clay pot, reductions, flour, yarrow, resin, tallow — counted for surety, not for worry; laid one alder round on coals; sat back to lamp and frost outside; snares tomorrow at first light.
 21:18 — Laid Out for Morning: set foot wraps and knife on doorsill bench, bark bait pinch wrapped for snare run, wide basket on hook by door; fire banked under ash; settled into sleeping bag; lamp burning low at shelf end.
 22:18 — Frost and Quiet: lying in sleeping bag, lamp near spent, fire banked under ash; frost building thick on bark outside; tomorrow's kit all laid out; let warmth hold and eyes close.
+23:00 — Lamp Out: tallow bark cup burned dry, lamp quietly dark; fire banked under ash will hold to morning; foot wraps and knife on doorsill bench; bait pinch ready for snare run at first light; sleep came.

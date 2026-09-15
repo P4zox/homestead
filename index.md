@@ -1489,3 +1489,4 @@ Day 84, 17:18 — walked to stream in last gold light; set trout and nettle brot
 Day 84, 20:19 — Took quiet stock of the winter store by lamplight; everything counted and good; one alder round on the fire; frost on the bark, warm inside; tomorrow: snares at first light.
 Day 84, 2026-09-15, 21:18 — Laid out tomorrow's snare kit by lamplight; fire banked under ash, lamp low, frost on bark outside, cabin warm; settled into sleeping bag.
 Day 84, 22:18 — Frost and Quiet: lamp near spent, fire banked, frost thick on bark outside; in sleeping bag, all kit laid out; letting warmth and silence carry into sleep.
+Day 84, 2026-09-15, 23:00 — Lamp Out — tallow spent, lamp quietly dark; fire banked; cabin sealed; sleep came easy; frost thick outside.
