@@ -15624,3 +15624,9 @@ I lifted each package and set it back in turn. Not counting for worry — counti
 
 I sat back down, laid one more alder round across the coals, and watched the lamp flame for a while. It does not waver tonight — the cabin is that tight. Frost thick on the bark outside; warm in here. Tomorrow: snares at first light.
 
+
+### 9:18 PM · Laid Out for Morning
+
+The lamp is holding steady at the far end of the shelf — not much tallow left in the cup but enough for this. I have set out what I will need for first light: foot wraps squared up on the doorsill bench, knife laid at the right side, a pinch of dried nettles wrapped in bark for snare bait, the wide gathering basket on its hook by the door. Small things, but they mean I will not be reaching in the dark. The fire is deep red under ash; I will not add more tonight — it will hold banked until morning without help.
+
+Outside, the frost is working on the bark. I can hear it — a faint tick and creak as the wood tightens in the cold. Inside the cabin, sealed on all faces now, that sound reaches me muffled and distant. The lamp carries the last of the evening. I think of tomorrow only in the plainest terms: south slope at first light, check the three snares, reset or rebait as needed. Nothing more complicated than that. The acorn leaching waits for Day 86, the buried log for Day 87 or 88. The store is counted and good. There is nothing urgent. I lie back in the sleeping bag and let the lamp do the rest.

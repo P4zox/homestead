@@ -1487,3 +1487,4 @@ Day 84, 17:18 — walked to stream in last gold light; set trout and nettle brot
 2026-09-15 18:18 Day 84 — Bowl, Lamp, Evening: broth eaten by lamplight, fire banked, cabin sealed against frost, content by the lamp.
 2026-09-15 19:18 Day 84 — Toe Patch, Lamplight: stitched toe-patch scrap onto right foot wrap by lamplight; both wraps fully complete; frost thickening on bark outside; fire banked, lamp steady, cabin quiet.
 Day 84, 20:19 — Took quiet stock of the winter store by lamplight; everything counted and good; one alder round on the fire; frost on the bark, warm inside; tomorrow: snares at first light.
+Day 84, 2026-09-15, 21:18 — Laid out tomorrow's snare kit by lamplight; fire banked under ash, lamp low, frost on bark outside, cabin warm; settled into sleeping bag.
