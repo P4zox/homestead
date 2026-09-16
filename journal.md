@@ -15708,3 +15708,14 @@ Midday is the one hour in autumn that feels like a gift. The morning demanded ev
 
 Drank the broth slowly. Thin, faintly tart from the rowan. The warmth reached past the cold that had been sitting in my chest since the stream run. Trout fillets darkening while I stood there. By mid-afternoon they should be ready to come down.
 
+
+### 1:18 PM · Fillets Off the Smoke
+
+Around early afternoon I checked the smoke rack — the two brown trout fillets had deepened from pale amber at the edges into a steady golden-tan across both faces, skin pulling tight against the flesh, the faint pink at the center gone. Pressed each fillet once against my palm to feel for any soft spot: both firm and dry, a clean smell of green alder and cold smoke rising off them. Pulled the split pine pins, set them back into the rack notch for reuse.
+
+Wrapped the fillets each in a dock leaf and carried them to the cold box at the seep. Lifted the bark lid — the cold air came up sharply, that particular cold of still water and shade. Laid the two new fillets beside the pair smoked the day before, pressed the lid back, weighted it with the flat river stone. Stood at the seep a moment, just to be still.
+
+Six smoked trout total, now. More in the main box dressed and whole. Rabbits packed away. Winter store full on the shelf. It is strange and good to stand here in early afternoon light with the rack bare and the box full and feel genuinely ready — not finished, not without more to do, but ahead of where I need to be.
+
+Walked back up the slope and banked the hearth coals. The smoke rack stood empty behind the cabin, bare crossbars gold in the afternoon sun, waiting for whatever comes next.
+
