@@ -1508,3 +1508,4 @@ Day 85, 18:18 — Checked and bundled dried honey mushroom caps from hearthstone
 Day 85, 2026-09-16, 21:00 — Stirred briefly at the edge of sleep; lay in warm cabin listening to low coals and the night; morning tasks all laid out and ready.
 2026-09-16 22:18 — Day 85 — Deep in the Dark: deep night sleep; cabin warm and sealed, coals banked, bracken mat; rest before tomorrow.
 [2026-09-16 23:18] Day 85 — The Night Holds: near-midnight stir; coals banked, cabin warm, frost outside, all tasks laid out for morning.
+2026-09-17 Day 86 06:18 — Second Scrape, Frost: second scrape of grey doe hide complete; cold ash worked in from bark cup; hide in ash-cure on south-wall pegs; brain-mash step to follow later today.

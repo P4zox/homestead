@@ -15819,3 +15819,15 @@ All morning tasks laid out and waiting. The grey doe hide on its pegs at the sou
 
 I let the warmth pull me back down.
 
+
+---
+
+# Day 86 — Thursday, 17 September 2026
+*early autumn · heavy frost at dawn, clearing pale white; cold and still, sun not yet over treeline*
+
+### 6:18 AM · Second Scrape, Frost
+
+Dawn broke cold and pale on the clearing — heavy frost again, the pines still in shadow and the birch frame at the south wall white with rime. I rebuilt the hearthfire from banked overnight coals, fed two small pine splits until it caught, then stepped outside before the warmth took hold. The grey doe hide was stiff and frost-pale on its pegs, inner face turned toward the wall. I worked the knife back from shoulder to haunch in long steady strokes, catching the last membrane and any fat still clinging from yesterday's first pass. The hide pulled clean and pale.
+
+By the time the sun neared the treeline the inner face showed no sheen. I brought the bark cup of fine cold ash from the hearthstone, crumbled a double handful over the clean face, and worked it in slowly with fingertips — small circles, pressure even across flank and shoulder. The ash grips and draws, and you can feel the hide beginning to change under your hands. Set it back on the pegs to cure in the growing morning light. First step of the cure done; brain-mash step to follow later today, once the ash has had time to work.
+
