@@ -15683,3 +15683,8 @@ Found a good flat shelf of gravel at the near bank: wide enough to lay three fla
 
 I also filled the cook tin at the stream and carried it back up for midday use. The trout is still in the belt pouch; I will dress it when the sun is overhead and the air is at its warmest. For now the leach basin is set and waiting — a small piece of tomorrow done today, while the light was good and the water cold.
 
+
+### 10:18 AM · The Grey Hide
+
+The grey doe is already dressed and hung; the hide came off clean in the cold. I pegged it to two birch uprights at the south wall — four sticks, eight holes along the edges, hide pulled taut as I could get it before the morning stiffened my fingers. Then I set to scraping with the flat back edge of the knife, long strokes from the centre out, working the membrane and fat from the inner face. The skin is cool under my hands, still supple from the fresh kill, easier by far than if I had let it sit. I worked it in sections — near shoulder, flank, haunch — turning the whole frame after each pass to keep tension even. The sun came fully over the treeline while I was at it, pale gold washing across the clearing, and for a while the only sound was the knife on hide and the occasional branch crack from the frost retreating up the slope. By the time I stopped to rest my hands, the inner face was mostly clean and pale, the membrane stripped back to bare white-grey skin. One more scrape session tomorrow before I begin the brain or ash cure. Fifth hide in the stack — I am getting faster.
+
