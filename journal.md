@@ -15795,3 +15795,14 @@ A full morning. I find that settling rather than heavy. When the pieces are laid
 
 I will sleep on the bracken mat and wake before first light. Tomorrow the hide begins to become something more than a hide.
 
+
+### 9:00 PM · Embers and the Dark
+
+Stirred briefly from the first edge of sleep. The cabin makes small sounds as it cools at the eaves — wood contracting, the bark roof settling. Behind the flat hearthstones the coals are low and orange, steady in that way they get when you stop feeding them and they find their own pace. The tallow lamp on the shelf is guttering, close to done.
+
+The ash cup is on the hearthstone. The grey hide is pegged on the birch uprights at the south wall. The leach basin is already built at the stream, flat stones wedged in the cold channel. Everything for morning is in its place; I laid it all out before lying down.
+
+There is a plain comfort in that — not pride, just the feeling of knowing the pieces are ready. Winter is still turning toward me, slowly, and each day something more is set against it. I can feel that tonight without needing to name it.
+
+A night bird called once somewhere in the pines. I closed my eyes again.
+
