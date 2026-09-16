@@ -15771,3 +15771,16 @@ After that I sat with the cordage stock. There is something about braiding by fi
 
 The frost will be back before first light. It always is, this time of year.
 
+
+### 7:18 PM · Ash by Lamplight
+
+The cabin is warm. The fire has settled into that deep, steady burn that means it needs nothing from me for a while — three pine logs riding down to coals at their own pace. The tallow lamp on the shelf throws golden light across the log walls, wick steady and clean.
+
+I reached to the far edge of the hearthstone and raked cold ash from yesterday's burn into a bark cup — a good double handful, fine white powder, dry all the way through. Tomorrow I'll mix it with saved rabbit brain from this morning's dressing into a paste for the grey doe hide cure. Brain and ash together: the ash opens the hide fiber, the fat from the brain fixes it supple. I've done it twice now — the smoke-cured rabbit panels and the belly liner both came out soft and workable. The grey doe is still pegged to the birch uprights at the south wall, inner face pale and mostly clean from this morning's scrape. One more pass with the knife back tomorrow, then the paste, then the slow work of rubbing it in by hand.
+
+The cold seeps under the door even with the latch bar set. September here does not ease — it gets direct. But the cabin holds warmth well now. The bark layering on the west gable stopped the draft entirely, and the clay-straw daub on the east panel hasn't shifted. I have a good shelter.
+
+Sat a while with the bark cup balanced on my knee, the lamp hissing softly. Thought through tomorrow: second scrape, brain-ash paste, work the hide; acorn leaching at the stream basin; honey mushroom caps and stems onto the smoke rack. The buried log and the snares can wait until Day 87 or 88. A full day, but the pieces are all laid out.
+
+Banked the fire with two flat stones edged close on the windward side. The lamp will burn another hour or two. Let it.
+
