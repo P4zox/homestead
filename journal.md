@@ -15784,3 +15784,14 @@ Sat a while with the bark cup balanced on my knee, the lamp hissing softly. Thou
 
 Banked the fire with two flat stones edged close on the windward side. The lamp will burn another hour or two. Let it.
 
+
+### 8:19 PM · Still Before Tomorrow
+
+The lamp flame holds steady on the shelf. The cabin is warm in a way that feels earned — coals banked under flat stones, bark cup of cold ash set on the hearthstone edge, pale and fine, ready for morning. Everything is in position.
+
+I turned what tomorrow needs over in my mind before lying down: second scrape on the grey doe hide, then brain mash and ash cure while the sun is high on the south wall. The leaching basin is already waiting in the cold channel — two flat stones, wedged third upstream, patient and still. The honey mushroom caps and stems are bundled on the supply shelf, dried and ready for the smoke rack once the alder coals are running right.
+
+A full morning. I find that settling rather than heavy. When the pieces are laid out and waiting, the work itself feels close and possible. I have what I need. The cold is already thick beyond the door — I can hear nothing, not even wind in the pines. The tallow wick burns slow.
+
+I will sleep on the bracken mat and wake before first light. Tomorrow the hide begins to become something more than a hide.
+

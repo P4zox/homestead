@@ -1504,3 +1504,4 @@ Day 85, 15:18 — Broth Before Dark: sorted honey mushroom clusters; large caps 
 2026-09-16 Day 85 17:18 — Evening Hearth: rebuilt hearthfire from low coals with dry pine logs for evening warmth; small mushroom caps drying on hearthstone for Day 86 smoke rack; cold box full, snares set, leach basin ready at stream-side.
 Day 85, 18:18 — Checked and bundled dried honey mushroom caps from hearthstone into bark tray for smoke rack Day 86; braided two new two-ply cord lengths by tallow lamp.
 2026-09-16 19:18 Day 85 — Ash by Lamplight: raked cold hearth ash into bark cup for tomorrow's grey doe hide brain-ash cure; fire banked, cabin quiet.
+2026-09-16 20:19 Day 85 — Still Before Tomorrow: laid out morning tasks by tallow lamp (grey doe hide cure, acorn leach, mushroom smoke rack); cabin warm and quiet; banked coals and cold ash ready; settled to sleep on bracken mat.
