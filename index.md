@@ -1495,3 +1495,4 @@ Day 85, 07:18 — moved fifth rabbit to cold box; upstream rig yielded brown tro
 2026-09-16 08:18 Day 85 — Acorns by the Hearth: sorted and cracked third oak mast batch by hearthfire; leaching set for Day 86.
 2026-09-16 09:18 Day 85 — Setting the Leach — stream-side leaching basin prepared (three flat stones set on gravel shelf, secondary-channel cold water reach confirmed); cook tin filled; trout in pouch for midday
 2026-09-16 10:18 Day 85 — pegged and scraped grey doe rabbit hide at south wall; inner face mostly clean; one more session before cure
+Day 85, 11:18 — Dressed the morning brown trout at south wall; two fillets split along spine and pinned to smoke rack over green alder coals.

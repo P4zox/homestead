@@ -15688,3 +15688,12 @@ I also filled the cook tin at the stream and carried it back up for midday use. 
 
 The grey doe is already dressed and hung; the hide came off clean in the cold. I pegged it to two birch uprights at the south wall — four sticks, eight holes along the edges, hide pulled taut as I could get it before the morning stiffened my fingers. Then I set to scraping with the flat back edge of the knife, long strokes from the centre out, working the membrane and fat from the inner face. The skin is cool under my hands, still supple from the fresh kill, easier by far than if I had let it sit. I worked it in sections — near shoulder, flank, haunch — turning the whole frame after each pass to keep tension even. The sun came fully over the treeline while I was at it, pale gold washing across the clearing, and for a while the only sound was the knife on hide and the occasional branch crack from the frost retreating up the slope. By the time I stopped to rest my hands, the inner face was mostly clean and pale, the membrane stripped back to bare white-grey skin. One more scrape session tomorrow before I begin the brain or ash cure. Fifth hide in the stack — I am getting faster.
 
+
+### 11:18 AM · Midday Dressing
+
+The trout had waited in the belt pouch since the stream this morning — stiff and cold by the time I brought it to the south wall at mid-morning, where the sun lays warmest. I sat on the low flat stone there and dressed it: knife at the skull first, belly opened in one draw, gut pulled clean, gills out, the whole cavity rinsed from a bark cup of water. The flesh inside was pale pink and firm, not a hint of softness — cold September water keeps fish well.
+
+I split it along the spine, two clean fillets, skin on. Pinned them with split pine pins to the middle crossbar of the smoke rack. Banked a bed of green alder twig-ends over the coals — just enough smoke to run slow and cool, not so hot the flesh tightens wrong. The smoke rises in a thin pale column through the still air and the jay in the alder brake watched the whole operation from a pine branch before deciding I had nothing for it.
+
+By evening those fillets should be firm and golden. Three more meals wrapped and sealed, to sit in the cold box through the weeks ahead. The smoke rack is earning its keep.
+
