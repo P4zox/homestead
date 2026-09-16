@@ -15674,3 +15674,12 @@ I work through them by feel — rolling each one between thumb and fingers, chec
 
 By the time the bowl is full I can see the doorsill lit up yellow. Tomorrow I will carry these down to the stream and begin the leaching — four or five water changes through the day, grinding in the evening. Today is only the sorting, the cracking, the fire, and the frost going out.
 
+
+### 9:18 AM · Setting the Leach
+
+The frost has almost gone from the clearing now. Sun is low and bright through the pines — low enough that it catches the frost crystals on the grass in long lines before they vanish — and there is real warmth in it when you step out of the shadow. I walked down to the stream with the wide gathering basket and the cook tin.
+
+Found a good flat shelf of gravel at the near bank: wide enough to lay three flat stones end to end, clear of the main current but close enough that the cold secondary channel reaches it in a thin tongue of water. Set two flat stones as a basin base, wedged a third across as a low upstream wall. Tomorrow morning I will line it with a doubled bark sheet, pour the cracked acorn halves in, and let the stream run cold over them through the day. By evening they should be mild enough to grind into working flour.
+
+I also filled the cook tin at the stream and carried it back up for midday use. The trout is still in the belt pouch; I will dress it when the sun is overhead and the air is at its warmest. For now the leach basin is set and waiting — a small piece of tomorrow done today, while the light was good and the water cold.
+
