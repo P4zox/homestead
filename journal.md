@@ -15762,3 +15762,12 @@ I left the small honey mushroom caps and stems on the hearthstone to dry a littl
 
 For now I have nothing left to do but be warm.
 
+
+### 6:18 PM · Mushrooms by Lamplight
+
+The honey mushroom caps and stems had been lying on the hearthstone since afternoon — small, pale-edged pieces. By tallow lamplight I went through them one by one. They had dried down well: firm, not brittle, no soft centers. I bundled them into a bark tray and moved them to the supply shelf, ready to go onto the smoke rack in the morning.
+
+After that I sat with the cordage stock. There is something about braiding by firelight that takes no thought at all — hands working, fire going, the night pressing cold against the door. I made two new two-ply lengths, pulling each strand even and twisting them together in short sections, fingers walking down the braid. By the time I finished, the fire had settled from blaze to steady burn, and my hands were warm from working close to it.
+
+The frost will be back before first light. It always is, this time of year.
+
