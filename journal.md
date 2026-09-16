@@ -15697,3 +15697,14 @@ I split it along the spine, two clean fillets, skin on. Pinned them with split p
 
 By evening those fillets should be firm and golden. Three more meals wrapped and sealed, to sit in the cold box through the weeks ahead. The smoke rack is earning its keep.
 
+
+### 12:18 PM · Smoke and Broth
+
+The fillets have been on the rack an hour. I crouched to check them — thinner edges gone amber, the thick center still pale pink and moist. Good progress. I fed more green alder twigs onto the coal bed, tamping them lightly, keeping the smoke white and slow.
+
+Set the clay pot at the hearth edge with water from the cook tin, pressed in a pinch of dried yarrow, two smoked rowan berries picked from their bark envelope. By the time I walked back to check the smoke once more, it was warm enough to drink. Ate standing at the doorsill in the full noon sun — the clearing stripped of frost now, dry grass golden, shadow pulling east.
+
+Midday is the one hour in autumn that feels like a gift. The morning demanded everything; the afternoon will too. But noon opens a little space and I have learned to step into it.
+
+Drank the broth slowly. Thin, faintly tart from the rowan. The warmth reached past the cold that had been sitting in my chest since the stream run. Trout fillets darkening while I stood there. By mid-afternoon they should be ready to come down.
+

@@ -1496,3 +1496,4 @@ Day 85, 07:18 — moved fifth rabbit to cold box; upstream rig yielded brown tro
 2026-09-16 09:18 Day 85 — Setting the Leach — stream-side leaching basin prepared (three flat stones set on gravel shelf, secondary-channel cold water reach confirmed); cook tin filled; trout in pouch for midday
 2026-09-16 10:18 Day 85 — pegged and scraped grey doe rabbit hide at south wall; inner face mostly clean; one more session before cure
 Day 85, 11:18 — Dressed the morning brown trout at south wall; two fillets split along spine and pinned to smoke rack over green alder coals.
+Day 85, 12:18 — Tended smoke rack at midday; fed green alder to coal bed; yarrow-rowan broth from clay pot; ate at doorsill in noon sun; fillets amber at edges, pale at center — ready mid-afternoon.
