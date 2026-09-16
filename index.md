@@ -1499,3 +1499,4 @@ Day 85, 11:18 — Dressed the morning brown trout at south wall; two fillets spl
 Day 85, 12:18 — Tended smoke rack at midday; fed green alder to coal bed; yarrow-rowan broth from clay pot; ate at doorsill in noon sun; fillets amber at edges, pale at center — ready mid-afternoon.
 2026-09-16 13:18 Day 85 — Brought smoked trout fillets down from smoke rack; both fully cured golden-tan; stored in cold box at seep; rack bare, coals banked.
 Day 85, 2026-09-16, 14:18 — South slope walk in afternoon sun; late honey mushrooms found at deadwood birch beyond alder brake; evening broth planned.
+Day 85, 15:18 — Broth Before Dark: sorted honey mushroom clusters; large caps into clay pot with stream water and yarrow, simmering at coal-bed edge; small caps and stems set aside for tomorrow's smoke rack; amber afternoon light on clearing.

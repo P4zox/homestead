@@ -15730,3 +15730,14 @@ On the way I paused at the leach basin I set this morning — flat stones still 
 
 Back at the cabin I laid the mushrooms on the hearthstone and sat on the doorsill bench in the sun. The winter store is taking shape. There are still a few good weeks before the real cold moves in. That is not nothing. I let the afternoon be quiet.
 
+
+### 3:18 PM · Broth Before Dark
+
+Three clusters of honey mushrooms, still damp from the shaded birch root. I crouched at the hearthstone and went through them carefully — pulling caps from stems, brushing dirt with my thumb, setting the small and firm ones aside for tomorrow's smoke rack. The large caps went into the clay pot with a full tin of stream water and a pinch of dried yarrow. I set it at the coal-bed edge where the heat runs steady and low.
+
+The fire needed tending. I split a length of pine on the woodblock and fed two new pieces alongside the coals — not to blaze, just to hold the warmth into evening. The smoke climbed straight in the still air.
+
+By mid-afternoon the broth was finding its smell — rich and deep, something between mushroom and old wood and late season all at once. I sat at the doorsill bench with the door half-open and watched the afternoon light move across the hearthstone. The clearing is amber at this hour, the birches beginning to show yellow at the canopy edge.
+
+Tomorrow: second scrape on the grey doe hide, and the acorn leach starts at the flat-stone basin. The winter store is sound but not full. There is still time — just enough of it.
+
