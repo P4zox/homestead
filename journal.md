@@ -15719,3 +15719,14 @@ Six smoked trout total, now. More in the main box dressed and whole. Rabbits pac
 
 Walked back up the slope and banked the hearth coals. The smoke rack stood empty behind the cabin, bare crossbars gold in the afternoon sun, waiting for whatever comes next.
 
+
+### 2:18 PM · The Amber Slope
+
+Walked the south slope in the full afternoon sun — no purpose but to move and look. The birch leaves are just beginning to turn, edges golden, holding light differently than they did a week ago. The snares were undisturbed; I walked past them into the shadowed zone beyond the alder brake.
+
+At the base of a standing deadwood birch I found what I had not gone looking for: a flush of late honey mushrooms, clustered tight, caps flat and dry. Not enough to smoke a full batch, but I pulled the best three clusters loose, tucked them in my jacket, and started back up the slope.
+
+On the way I paused at the leach basin I set this morning — flat stones still steady in the cold secondary channel, ready for tomorrow's acorns.
+
+Back at the cabin I laid the mushrooms on the hearthstone and sat on the doorsill bench in the sun. The winter store is taking shape. There are still a few good weeks before the real cold moves in. That is not nothing. I let the afternoon be quiet.
+
