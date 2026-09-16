@@ -1492,3 +1492,4 @@ Day 84, 22:18 — Frost and Quiet: lamp near spent, fire banked, frost thick on 
 Day 84, 2026-09-15, 23:00 — Lamp Out — tallow spent, lamp quietly dark; fire banked; cabin sealed; sleep came easy; frost thick outside.
 Day 85, 2026-09-16 06:18 — south-slope snare run at first light; fifth rabbit caught (grey doe, neck clean); all three snares reset and re-baited; fifth rabbit dressed, hanging in lean-to; fire rebuilt from coals
 Day 85, 07:18 — moved fifth rabbit to cold box; upstream rig yielded brown trout (fourteenth); re-baited and reset; trout in belt pouch, to dress at midday.
+2026-09-16 08:18 Day 85 — Acorns by the Hearth: sorted and cracked third oak mast batch by hearthfire; leaching set for Day 86.

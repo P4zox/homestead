@@ -15665,3 +15665,12 @@ On the way back I paused at the fishing line. The mid-depth paddle-rig had a sli
 
 Fourteen trout in the count now, five rabbits. The cold box is full but holding. I will dress this one by midday.
 
+
+### 8:18 AM · Acorns by the Hearth
+
+The fire is breathing properly by the time I come back inside — two split logs on banked coals, and it caught. I pull the bark tray of dried acorns in from the eave shelf and set it by the hearth. The batch has been out there since the turning on Day 84, and they have dried down well: pale-tawny caps still on a few, shells firm and cool to the touch.
+
+I work through them by feel — rolling each one between thumb and fingers, checking the shell end and the seat where the cap sat. Most are sound. A small handful I set apart: not rotten, just a little soft at the tip, better leached on their own. I crack the good ones two at a time on the grinding stone and drop the halves into the wide shallow bowl. The splitting sound fills the cabin. Outside, the frost is doing its slow retreat across the clearing as the sun finally clears the treeline.
+
+By the time the bowl is full I can see the doorsill lit up yellow. Tomorrow I will carry these down to the stream and begin the leaching — four or five water changes through the day, grinding in the evening. Today is only the sorting, the cracking, the fire, and the frost going out.
+
