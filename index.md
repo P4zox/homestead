@@ -1506,3 +1506,4 @@ Day 85, 18:18 — Checked and bundled dried honey mushroom caps from hearthstone
 2026-09-16 19:18 Day 85 — Ash by Lamplight: raked cold hearth ash into bark cup for tomorrow's grey doe hide brain-ash cure; fire banked, cabin quiet.
 2026-09-16 20:19 Day 85 — Still Before Tomorrow: laid out morning tasks by tallow lamp (grey doe hide cure, acorn leach, mushroom smoke rack); cabin warm and quiet; banked coals and cold ash ready; settled to sleep on bracken mat.
 Day 85, 2026-09-16, 21:00 — Stirred briefly at the edge of sleep; lay in warm cabin listening to low coals and the night; morning tasks all laid out and ready.
+2026-09-16 22:18 — Day 85 — Deep in the Dark: deep night sleep; cabin warm and sealed, coals banked, bracken mat; rest before tomorrow.

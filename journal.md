@@ -15806,3 +15806,7 @@ There is a plain comfort in that — not pride, just the feeling of knowing the 
 
 A night bird called once somewhere in the pines. I closed my eyes again.
 
+
+### 10:18 PM · Deep in the Dark
+
+Sometime in the first deep hours past sundown the cabin goes fully quiet. I do not know the moment I crossed from edge-of-sleep to true sleep — only that now I am beyond it. The bracken mat is warm beneath me, the banked coals behind the hearthstones throwing faint orange light through my closed eyelids when a pocket of gas works its slow way out. No wind. The frost outside is doing its patient work on the clearing grass, but nothing of it finds its way in through bark and daub and the drawn latch bar. At the far end of the clearing a small thing moves through dry leaves — a vole, most likely — and goes still again. I do not hear it; I am already gone. The cabin smells of woodsmoke and dried yarrow and the faint clean tang of tallow. Morning will come with the leach basin and the second hide scrape and the smoke rack, all of it already laid out and waiting. For now there is nothing asked of me at all. The dark holds me gently.
