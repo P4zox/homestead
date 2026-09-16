@@ -15810,3 +15810,12 @@ A night bird called once somewhere in the pines. I closed my eyes again.
 ### 10:18 PM · Deep in the Dark
 
 Sometime in the first deep hours past sundown the cabin goes fully quiet. I do not know the moment I crossed from edge-of-sleep to true sleep — only that now I am beyond it. The bracken mat is warm beneath me, the banked coals behind the hearthstones throwing faint orange light through my closed eyelids when a pocket of gas works its slow way out. No wind. The frost outside is doing its patient work on the clearing grass, but nothing of it finds its way in through bark and daub and the drawn latch bar. At the far end of the clearing a small thing moves through dry leaves — a vole, most likely — and goes still again. I do not hear it; I am already gone. The cabin smells of woodsmoke and dried yarrow and the faint clean tang of tallow. Morning will come with the leach basin and the second hide scrape and the smoke rack, all of it already laid out and waiting. For now there is nothing asked of me at all. The dark holds me gently.
+
+### 11:18 PM · The Night Holds
+
+Nearly midnight. I surfaced just enough to know I was still alive — a thin waking, the kind where the darkness is the same on both sides of your eyes. The coals are still orange behind their flat hearth stones. No sound but the cold air moving lightly in the pines outside, needles settling. No draft inside; the cabin holds. I can feel the frost on the far side of the wall without touching it — a particular quality of cold silence that frost gives to wood.
+
+All morning tasks laid out and waiting. The grey doe hide on its pegs at the south wall, scraped clean on the first pass, ready for the second. The ash cup on the hearthstone. The leaching basin flat and steady in the cold channel at stream. The honey mushroom caps bundled in their bark tray. Everything known. Everything in its place.
+
+I let the warmth pull me back down.
+
