@@ -1501,3 +1501,4 @@ Day 85, 12:18 — Tended smoke rack at midday; fed green alder to coal bed; yarr
 Day 85, 2026-09-16, 14:18 — South slope walk in afternoon sun; late honey mushrooms found at deadwood birch beyond alder brake; evening broth planned.
 Day 85, 15:18 — Broth Before Dark: sorted honey mushroom clusters; large caps into clay pot with stream water and yarrow, simmering at coal-bed edge; small caps and stems set aside for tomorrow's smoke rack; amber afternoon light on clearing.
 2026-09-16 16:18 Day 85 — Ate evening honey mushroom and watercress broth at doorsill bench in last afternoon light.
+2026-09-16 Day 85 17:18 — Evening Hearth: rebuilt hearthfire from low coals with dry pine logs for evening warmth; small mushroom caps drying on hearthstone for Day 86 smoke rack; cold box full, snares set, leach basin ready at stream-side.

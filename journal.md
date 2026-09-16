@@ -15751,3 +15751,14 @@ Ate at the doorsill bench in the last of the direct light. The bowl held heat we
 
 The clearing goes gold at this hour. The pines catch the low light and hold it a moment before letting go. September evenings are short, but they are good ones. I sat in this one with the warm bowl in both hands until the light thinned and the air went sharp.
 
+
+### 5:18 PM · Evening Hearth
+
+The light has gone flat and orange across the clearing, nearly level with the treeline. I pulled three dry pine logs from the woodpile eave-stack and fed them onto the low coals — there was still a good bed of heat banked under the ash, and the bark caught fast, then the heartwood went. I stood for a moment and watched the fire build.
+
+The temperature drops hard here once the sun clears the pines. I can already feel it in the backs of my hands, in the cold coming off the doorsill stone when I lean against it. The tallow lamp is lit on the cabin shelf. The fire is going now to something that will hold through the night.
+
+I left the small honey mushroom caps and stems on the hearthstone to dry a little more before tomorrow's smoke rack. The cold box is full. The snares are set. The leach basin waits at stream-side. Tomorrow there is the grey hide to cure and the acorn run and all the small work that makes a winter possible.
+
+For now I have nothing left to do but be warm.
+
