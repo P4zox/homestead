@@ -15831,3 +15831,12 @@ Dawn broke cold and pale on the clearing — heavy frost again, the pines still 
 
 By the time the sun neared the treeline the inner face showed no sheen. I brought the bark cup of fine cold ash from the hearthstone, crumbled a double handful over the clean face, and worked it in slowly with fingertips — small circles, pressure even across flank and shoulder. The ash grips and draws, and you can feel the hide beginning to change under your hands. Set it back on the pegs to cure in the growing morning light. First step of the cure done; brain-mash step to follow later today, once the ash has had time to work.
 
+
+### 7:19 AM · Acorns to Water
+
+The frost had started lifting from the clearing's edges by the time the ash-cure was settling into the hide, and the wide shallow bowl of acorn halves still sat by the hearthstone where I'd cracked and sorted them last evening — two dozen halves, pale and clean, waiting. The leaching basin was already set and level in the cold channel downstream: flat stones bedded at the edge of the flow, current enough to pull the tannins through without carrying the meal away.
+
+I carried the bowl down with both hands, cold morning air at my neck. Tipped the halves in carefully, spread them with my fingers so none sat stacked. The stream ran clear over them immediately, and for a moment the water went faintly tawny as the tannin began bleeding out — the sign it's working. I'll check again at midday, and the second soak will be shorter. By tomorrow they should taste close to flat, and then they're fit for grinding.
+
+I came back up to the cabin with empty hands. The hide on the pegs, the acorns in the stream — both working without me. I sat on the doorsill bench and let the morning be what it was: still, cold, a pale sky going blue above the pines.
+
