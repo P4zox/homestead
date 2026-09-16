@@ -15741,3 +15741,13 @@ By mid-afternoon the broth was finding its smell — rich and deep, something be
 
 Tomorrow: second scrape on the grey doe hide, and the acorn leach starts at the flat-stone basin. The winter store is sound but not full. There is still time — just enough of it.
 
+### 4:18 PM · Evening Broth
+
+The broth had its hour. I lifted the bark lid and the smell that rose was deep and woody, richer than I expected from a late-season find. Honey mushrooms do that — mild when raw, but slow heat draws something from them that tastes almost like the underside of a wet log, in the best way.
+
+I nudged a few coals under the pot, let it go another short stretch, then tasted with the birch spoon. Good, though a little thin. Added a handful of watercress from the cold box and a second pinch of dried yarrow, let it simmer another quarter hour. By the time the sun was low enough to slant through the door gap and lay a stripe of amber across the hearthstone, the broth was done.
+
+Ate at the doorsill bench in the last of the direct light. The bowl held heat well. Each sip had that faint grassiness from the watercress and something resinous underneath — the yarrow, I think, or the birch spoon, or both. I ate slowly. There was nowhere to hurry to.
+
+The clearing goes gold at this hour. The pines catch the low light and hold it a moment before letting go. September evenings are short, but they are good ones. I sat in this one with the warm bowl in both hands until the light thinned and the air went sharp.
+
