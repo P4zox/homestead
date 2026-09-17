@@ -15961,3 +15961,16 @@ The doe hide hangs still on the south-wall pegs, pale and faintly cool in the dr
 
 I settled back by the fire with the lamp burning low and let the evening be quiet. The acorn basin is running in the cold channel; the leach will finish itself overnight. Nothing else to do today.
 
+
+### 8:18 PM · Lamp and Winter List
+
+The fire holds low and even. The lamp is burning clean on the shelf, and outside the clearing is dark and still. The hide will do its work through the night without me.
+
+I sat by the fire and ran the winter list in my head the way I sometimes count steps on a path — not to worry over it, just to know where I stand. Twelve trout in the cold box, four dressed rabbits, mushrooms dried and bark-wrapped, elderberry and berry pastes sealed, acorn flour in two full envelopes. The store feels real now in a way it did not a month back when I was still chasing each supply separately. The pieces are in place. The firewood at the lean-to is eave-high, bark-side up. The shelter holds heat.
+
+I checked the dried yarrow envelope — bark sealed, folded clean. If there is fever or a deep cut this winter, it will be there. Small things like that matter when the ground freezes and the stream slows.
+
+Tomorrow: second working pass on the hide, then smoke. The acorn leach needs only a first-light water change and should be done. Snares and the buried log want a check in a day or two.
+
+I am tired in the good way. The lamp flame dipped once when a draft came under the door, then steadied. The fire understands evenings.
+
