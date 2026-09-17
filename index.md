@@ -1513,3 +1513,4 @@ Day 86 2026-09-17 07:19 — Acorn leach started: two dozen oak halves set in str
 2026-09-17 08:19 Day 86 — honey mushroom small caps spread on smoke rack; green birch sticks set for cool long smoke; rack running; acorn leach and hide ash-cure also working
 Day 86, 09:18 — gathered watercress from stream bend; leaching acorns holding steady; honey mushroom smoke rack running unattended.
 2026-09-17 10:18 — Day 86 — smoke rack checked, mushroom caps turned; brain mash prepared (rabbit brain + warm water, pale smooth paste in clay bowl, covered on doorsill bench for afternoon hide treatment)
+Day 86, 11:00 — Amber and Done: finished honey mushroom smoke cure; bark-wrapped caps moved to cold box; smoke rack cleared; brain mash waiting for afternoon hide treatment.

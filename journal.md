@@ -15871,3 +15871,12 @@ Then, while the morning held its quiet, I brought out the rabbit brain saved fro
 
 Three tasks running without my hands on them now. The ash on the hide draws out moisture and lifts the grain. The acorn halves bleed tannin quietly into the cold channel. The mushroom caps take color in cool smoke. I am in between — tending by not tending, which is its own kind of work.
 
+
+### 11:00 AM · Amber and Done
+
+The smoke rack has been running quiet since early morning. At half past ten I had turned the caps for even colour; now, forty minutes on, I lifted the doorsill plank and checked the coal bed — the green birch sticks had burned themselves to white ash, the smoke thinning to almost nothing. I pulled one cap from the crossbar and pressed it between thumb and finger: firm and leathery, no soft centre, the amber colour running all the way to the stem ends. Done.
+
+I lifted them off in two handfuls onto a birch-bark tray and let them cool in the open air by the south wall while I tidied the coal bed. When they had stopped steaming at the edges I wrapped them in two bark sheets — folded tight, one cord tie each — and carried both packages to the cold box. They join the earlier mushroom batches: a good store of smoke and earth for the months ahead.
+
+The smoke rack stands empty and quiet now. Brain mash waits under its bark strip on the doorsill bench; that goes onto the grey doe hide this afternoon. Midday water change for the acorn leach in an hour. Until then — a short sit in the pale autumn sun, the clearing settling into late-morning stillness.
+
