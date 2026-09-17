@@ -15923,3 +15923,14 @@ I hung it back on the pegs when the light began its afternoon drop, checking eve
 
 That is the first full working pass. Tomorrow, if the hide has dried into the soft chamois stage overnight without going board-stiff, I will work it a second pass to open the last resistant fibers, then consider smoking it to set the softness against wet weather. For tonight it hangs.
 
+
+### 4:18 PM · Late Light, Broth
+
+The hide is drying on the south-wall pegs, the acorns drawing in the cold channel, and the afternoon running down toward amber. My arms still hold the good ache of the working pass.
+
+I pulled a dressed rabbit from the cold box and set the clay pot over the hearthfire with fresh stream water, a handful of watercress, and two pinches of dried honey mushroom caps from this morning's smoke. The broth ran slow while the light changed.
+
+The clearing goes quiet in that particular way of early autumn — still, gold, a little solemn. The frost will come again tonight. The hide will stiffen slightly on its pegs before softening again by dawn. I am not worried. Tomorrow I will do the second working pass, give it another hour over the ridgepole section, then hang it for the smoke that sets the softness for good. Then it joins the pile of things this winter cannot touch.
+
+Ate slowly by the fire as the last light left the treeline. Everything felt accounted for.
+
