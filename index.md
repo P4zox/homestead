@@ -1520,3 +1520,4 @@ Day 86, 12:18 — midday water change for leaching acorns; oak halves reset face
 2026-09-17 15:18 Day 86 — Worked grey doe hide over smooth ridgepole post for an hour: brain mash had penetrated; fibers opened to pale chamois; first full working pass complete; hide re-hung on south-wall pegs to dry overnight.
 Day 86, 16:18 — rabbit-and-mushroom broth simmered by hearthfire as afternoon light faded; hide drying on south-wall pegs overnight; acorn leach continuing in cold channel.
 2026-09-17 17:19 Day 86 — Counting What Holds: winter supply shelf inventoried by lamplight; twelve packages, all seals sound; garlic tight on cellar rail; cold box full; a quiet accounting as evening closed the clearing.
+2026-09-17 18:18 Day 86 — Sharpened knife and axe edges on gneiss grinding stone by lamplight; all edges sound for tomorrow's hide work.

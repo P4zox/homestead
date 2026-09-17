@@ -15943,3 +15943,12 @@ When I finally went inside I lit the tallow lamp and turned to the supply shelf.
 
 It is September. I know enough of this place now to know that what feels like abundance in the evening fire-light can feel thin by February. What I have is real; whether it is enough depends on what winter wants. The hide is drying outside, the acorns leaching in the dark channel. Tomorrow I will smoke the hide to set the softness and recheck the snares. The buried log will be ready in a day or two. I will keep building the stores while the light holds.
 
+
+### 6:18 PM · Edge-Work, Lamplight
+
+The day wound down through lamplight and quiet stock-taking, and now the evening has fully settled. Fire slow and steady, tallow wick burning clean on the shelf, frost working the clearing outside while inside it is warm enough to sit without a coat. I have been meaning to stone the knife edge since the hide scraping started — blade dulls perceptibly under those long draws from shoulder to haunch, and I have put off attending to it through the busyness of smoke rack and leach basin and broth pot. Tonight, with nothing pressing until morning, I take the flat gneiss grinding stone from the hearthstone and set it across my knees.
+
+I work the blade across at a low angle, heel to tip, long patient strokes. The sound is a quiet whisper under the fire's pop. Every few passes I test the edge against a thumbnail — first catching grudgingly, then catching with intent, then biting clean and easy. Good. I move to the axe head next: clamp the haft under my knee, work the stone along each bevel in turn. The bevel was chipped at the chin from the log work months back and has never sat quite level; I work that spot longer, listening for the scrape to even out. It comes level after a while. Both edges done, I wipe the stone and set it back by the hearth.
+
+The hide is hanging dark and quiet on the south-wall pegs outside, stiffening in the cold toward chamois. The acorn halves are drawing in the cold channel, one more night between them and flour. Tomorrow: second working pass on the hide, then smoke it. Snare and buried log recheck in the next day or two. The ledger is clear. I set the knife on the supply shelf, pull my coat up, and sit a while longer by the fire.
+
