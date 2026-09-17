@@ -15908,3 +15908,18 @@ Reset the stones square and stood beside the stream a moment. The birch downstre
 
 Got back to the cabin, checked the hide — still damp and supple at the haunch where the mash went in heaviest. Left it on the pegs. The afternoon is quiet.
 
+
+### 3:18 PM · Over the Post
+
+The grey doe hide had been resting on the south-wall pegs for two full hours with the brain mash worked in. I touched the haunch: still damp, still cool, the surface softened so the fiber gave under my thumb. This was the window.
+
+I pulled a smooth post — the spare ridgepole section I had leaned against the lean-to wall — and braced its lower end firm in the ground between two packed stones at the south wall. The post stands chest-high, about two hand-spans diameter, the bark stripped clean and the wood worn pale from its days inside the shelter. Ideal for this.
+
+I laid the hide over the post, hair-side down, and drew it slowly back and forth across the curve in long pulling strokes from center outward. The fibers resisted at first, stiff at the shoulder where it had dried a little faster in the morning sun. I worked those spots in short firm pulls, side to side, coaxing the grain open without tearing. The mash is the key — it had been doing its quiet work all afternoon, oiling every strand from inside, and now the mechanical pulling could follow what chemistry had prepared.
+
+For the better part of an hour I worked the hide in passes: shoulder to flank, flank to haunch, back to shoulder. The surface color changed — from damp grey-tawny to a lighter chamois tone where the fibers opened. Toward the end the hide moved like soft cloth across the post instead of stiff leather. The haunch, which had been supple all day, finished first — pale and almost silky. The shoulder took longer but yielded.
+
+I hung it back on the pegs when the light began its afternoon drop, checking every edge for stiff spots. A patch near one front leg still had some resistance; I folded the hide over itself at that corner and worked it between my palms for a few minutes more. By the time I was done my arms were heavy and the clearing smelled faintly of tallow and pine and warm worked hide.
+
+That is the first full working pass. Tomorrow, if the hide has dried into the soft chamois stage overnight without going board-stiff, I will work it a second pass to open the last resistant fibers, then consider smoking it to set the softness against wet weather. For tonight it hangs.
+

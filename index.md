@@ -1517,3 +1517,4 @@ Day 86, 11:00 — Amber and Done: finished honey mushroom smoke cure; bark-wrapp
 Day 86, 12:18 — midday water change for leaching acorns; oak halves reset face-down in clean flow; first change complete; hide ash-curing continues; brain mash waiting on doorsill bench for afternoon.
 2026-09-17 13:18 — Day 86 — Brain Mash Applied: grey doe hide brain-mash worked in shoulder-to-haunch, surface softened and deepened; rehung on south-wall pegs to rest; acorn second water change due late afternoon.
 2026-09-17 14:18 — Day 86: second acorn water change at basin; tasted sliver — nearly clear, sweetness showing; reset face-down for overnight draw; birch tips turning gold; hide still resting on south-wall pegs
+2026-09-17 15:18 Day 86 — Worked grey doe hide over smooth ridgepole post for an hour: brain mash had penetrated; fibers opened to pale chamois; first full working pass complete; hide re-hung on south-wall pegs to dry overnight.
