@@ -15897,3 +15897,14 @@ When the bowl was clean I rubbed the excess across the hide in long final stroke
 
 The second acorn water change is still due late afternoon. The leach basin can wait another hour or two. For now I am content to let things cure in their own time while the afternoon light holds warm against the south wall.
 
+
+### 2:18 PM · The Leach Clears
+
+Walked down to the leach basin in the mid-afternoon, the foot wraps soft on the pine-needle path. The doe hide was resting on the south-wall pegs still — brain mash soaking in; it could wait another hour or two. The acorns needed the second water change, and the light was right.
+
+The basin water ran pale tawny over the flat stones — not the deep amber it was at dawn. I lifted each half out, held them under the clean channel current a moment, then reset them face-down across the stones for the fresh draw. Tasted a sliver off one of the larger halves: bitter still, but cleaner than this morning, a faint sweetness beginning to show at the center. Another overnight draw should be enough — or a fresh change first thing tomorrow if the taste still pulls.
+
+Reset the stones square and stood beside the stream a moment. The birch downstream have tipped gold at their edges — whole trees not yet turned, but the tips giving it away. Autumn is moving faster than I expected. The light comes low and soft even at midday; there is ice in it already, some days. I thought about the winter cache as I walked back: trout, rabbit, mushroom, the smoked goods on the supply shelf. It felt like enough to start the season, not yet enough to sit easy.
+
+Got back to the cabin, checked the hide — still damp and supple at the haunch where the mash went in heaviest. Left it on the pegs. The afternoon is quiet.
+
