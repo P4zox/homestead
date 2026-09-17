@@ -15934,3 +15934,12 @@ The clearing goes quiet in that particular way of early autumn — still, gold, 
 
 Ate slowly by the fire as the last light left the treeline. Everything felt accounted for.
 
+
+### 5:19 PM · Counting What Holds
+
+The broth settled into me slowly. I stayed by the fire longer than I needed to, watching the last color leave the birches. Autumn light goes quietly in this clearing — the pine slopes hold a little gold after the birches have gone grey, and then that goes too.
+
+When I finally went inside I lit the tallow lamp and turned to the supply shelf. Twelve sealed bark packages for winter. I lifted each one — the acorn flour envelopes, the elderberry reduction, the rose hip and sloe syrup packets, the smoked mushroom bundles, the hawthorn haws. Every seal held. I pressed each package along its seam and none gave. The garlic braid hangs off the cellar rail still tight. The wide storage crock sits solid in its place. The cold box holds twelve trout, four rabbits, smoked mushrooms in three kinds.
+
+It is September. I know enough of this place now to know that what feels like abundance in the evening fire-light can feel thin by February. What I have is real; whether it is enough depends on what winter wants. The hide is drying outside, the acorns leaching in the dark channel. Tomorrow I will smoke the hide to set the softness and recheck the snares. The buried log will be ready in a day or two. I will keep building the stores while the light holds.
+
