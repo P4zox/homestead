@@ -1525,3 +1525,4 @@ Day 86, 16:18 — rabbit-and-mushroom broth simmered by hearthfire as afternoon 
 Day 86, 20:18 — evening by hearth; reviewed winter stores and sealed yarrow envelope; all supplies confirmed; hide drying overnight; lamp and fire holding
 2026-09-17 21:18 Day 86 — banked hearthfire coals, stepped out to check the frost and stars, blew out tallow lamp; night settled quiet; acorn leach and hide smoke set for morning
 Day 86, 2026-09-17 22:18 — Night Still: lay still in sleeping bag by fading hearthfire glow, let tomorrow's list go, drifted toward sleep
+2026-09-17 23:18 Day 86 — last wakefulness before sleep; coals glowing, cabin warm, frost deep outside, body rested and accounted.

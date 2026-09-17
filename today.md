@@ -16,3 +16,4 @@
 20:18 — sat by hearthfire in the evening; ran through the winter supply list by lamplight; checked and confirmed dried yarrow bark envelope sealed; everything in order; retired toward sleep with the fire holding low.
 21:18 — banked hearthfire coals for the night; stepped outside to check frost and stars — clear sky, stars sharp over east ridge, frost deep on clearing; came inside, blew out tallow lamp; laid down.
 22:18 — lay still in sleeping bag by fading hearthfire glow; cabin warm against deep frost; tomorrow's list released; drifted toward sleep
+23:18 — lay in sleeping bag by faded hearthfire coals; cabin warm and still, frost deep outside; body fully rested from the day; let tomorrow's list go; sleep came.

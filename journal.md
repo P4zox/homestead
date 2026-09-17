@@ -15991,3 +15991,8 @@ Day 86 done. Everything in its place.
 ### 10:18 PM · Night Still
 
 Lying in the sleeping bag with the last of the hearthfire glow at the edge of the banked ash. The cabin holds its warmth against the deep frost outside. I can hear nothing — no wind, no movement in the trees — only the occasional faint settling of coals going to grey. My mind moved once through tomorrow's list: first-light acorn leach change, second hide pass, smoke fire, snare check. Then I let it go. Everything is already laid out. Tools sharp, dry bark by the hearthstone, hide drying soft on the south-wall pegs. There is nothing left to decide tonight. I lay still and let the frost do its work outside. I do mine here: resting, so tomorrow comes to a pair of useful hands.
+
+### 11:18 PM · Embers, Then Dark
+
+The hearthfire has burned down to a broad mat of coals — a dim red pulse along the ceiling beams if I open one eye and let it adjust. The cabin is warm and quiet. Outside, frost is sitting heavy on the clearing; I can almost feel the cold on the other side of the bark-and-daub wall, the way you feel a river through the hull of a boat. My body has made its accounting: the second scrape, the brain mash, the working pull over the ridgepole, the water changes, the broth. The ledger is fair. Tomorrow: first light, acorn leach final change, second hide pass and smoke, snare and buried log recheck. A full day, already mostly planned. But not yet. For now the coals glow and fade and glow again, and I let the list go, and the last thing I am aware of is the smell of pine smoke and the sound of nothing at all.
+
