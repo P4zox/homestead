@@ -15880,3 +15880,9 @@ I lifted them off in two handfuls onto a birch-bark tray and let them cool in th
 
 The smoke rack stands empty and quiet now. Brain mash waits under its bark strip on the doorsill bench; that goes onto the grey doe hide this afternoon. Midday water change for the acorn leach in an hour. Until then — a short sit in the pale autumn sun, the clearing settling into late-morning stillness.
 
+
+### 12:18 PM · Midday Water Change
+
+Noon and the clearing had opened fully to flat autumn sky — no cloud, no wind, just a cool bright pause between the morning work and whatever the afternoon holds. I walked down to the leaching basin with a spare bark tray tucked under my arm. The stream water running over the oak halves had gone a deep amber since dawn, tannin bleeding out slow and steady into the channel. I lifted each half one by one and set them face-up on the tray, let clean cold water run over the basin stones for a minute until it ran clear, then reset all the halves face-down across the flat stones so fresh flow catches the cut surfaces square. The water around them turned faintly tawny for a moment and then cleared. First water change done.
+
+On the way back I stopped at the south wall and checked the hide. The ash has drawn in well — hide bark-pale along the edges, slightly stiff to the touch but not rigid. I pressed a finger at the shoulder and it gave a little, still working. Not quite ready for the brain mash yet. I checked the clay bowl on the doorsill bench: mash still cool and smooth under the bark strip, not dried out. Good. I will let the ash cure run another hour and come back to it in the mid-afternoon. The acorns will want a second water change by late afternoon too. Nothing is urgent right now; the hide and the leach are both doing their own slow work without me.
