@@ -15849,3 +15849,16 @@ Built a low cook beneath the rack with a palm of coals drawn from the hearth in 
 
 The acorns are still bleeding tannin in the stream channel; I can change the water at midday. The hide hangs curing in ash on its pegs. The smoke rack is doing its part. All three things running without my hands on them — that's a good morning at 08:00.
 
+
+### 9:18 AM · Stream Margin, Watercress
+
+The smoke rack was running clean when I passed it — thin sweet wisps rising from the green birch over a good coal bed, mushroom caps lying steady in their row. No tending needed. I pulled on the foot wraps and the belt pouch and walked the path to the stream.
+
+The frost had pulled back from the banks but the stream itself was cold as iron. I could see the acorn halves in the leaching basin — pale and spread flat, stream running tawny-clear where the tannin bled from them. I will not disturb them until midday.
+
+I crouched upstream of the basin, where the current slows at the bend, and found watercress still going strong — dark green mats where the water barely moves, bright crowns at the tips. I worked slowly, pinching stems a hand-span above the root so the mat stays intact, filling the lower half of the gathering basket. The cold water numbed my fingers before I had been at it ten minutes.
+
+Back at the cabin with a good armful — rinsed the basket in the clear current and laid the cress loosely in the cold box beside the dock-wrapped trout. The stream and the cold box are working well together now: the box stays colder than the seep ever did, and the cress will keep several days without wilting.
+
+The three tasks still run without my hands on them. It is good to have an hour like this — where the work continues while you are walking.
+
