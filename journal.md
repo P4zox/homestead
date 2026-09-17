@@ -15987,3 +15987,7 @@ Tomorrow the acorn leach should finish — first-light water change and a taste 
 
 Day 86 done. Everything in its place.
 
+
+### 10:18 PM · Night Still
+
+Lying in the sleeping bag with the last of the hearthfire glow at the edge of the banked ash. The cabin holds its warmth against the deep frost outside. I can hear nothing — no wind, no movement in the trees — only the occasional faint settling of coals going to grey. My mind moved once through tomorrow's list: first-light acorn leach change, second hide pass, smoke fire, snare check. Then I let it go. Everything is already laid out. Tools sharp, dry bark by the hearthstone, hide drying soft on the south-wall pegs. There is nothing left to decide tonight. I lay still and let the frost do its work outside. I do mine here: resting, so tomorrow comes to a pair of useful hands.
