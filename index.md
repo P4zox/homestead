@@ -1523,3 +1523,4 @@ Day 86, 16:18 — rabbit-and-mushroom broth simmered by hearthfire as afternoon 
 2026-09-17 18:18 Day 86 — Sharpened knife and axe edges on gneiss grinding stone by lamplight; all edges sound for tomorrow's hide work.
 2026-09-17 19:18 Day 86 — gathered dry birch and pine smoke bark, set by hearthstone for tomorrow's hide smoking; stood in first-frost evening watching stars over the ridge; fire banked low.
 Day 86, 20:18 — evening by hearth; reviewed winter stores and sealed yarrow envelope; all supplies confirmed; hide drying overnight; lamp and fire holding
+2026-09-17 21:18 Day 86 — banked hearthfire coals, stepped out to check the frost and stars, blew out tallow lamp; night settled quiet; acorn leach and hide smoke set for morning

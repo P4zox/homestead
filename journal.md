@@ -15974,3 +15974,16 @@ Tomorrow: second working pass on the hide, then smoke. The acorn leach needs onl
 
 I am tired in the good way. The lamp flame dipped once when a draft came under the door, then steadied. The fire understands evenings.
 
+
+### 9:18 PM · Banked Coals, Clear Night
+
+The tallow lamp guttered once as I stood and stretched — a warning. I fed the hearthfire one last half-round of birch before stepping outside to check the night. Clear sky, deep and cold. Stars hard and bright over the east ridge, more of them than I could name. Frost already white on the clearing grass; the boot prints from morning still visible as small depressions in the rime, catching what light there is. The stream sounds louder when the air goes still like this, a steady cold voice in the dark.
+
+I banked the coals properly: raked the bed level, buried the embers in a fine layer of ash, laid the birch round across the top to catch first thing. This fire and I know each other now. I know how much it needs; I know how little to give it that it holds without burning down.
+
+Came back inside, blew out the lamp. The smoke from the wick hung a moment in the dark before it was gone.
+
+Tomorrow the acorn leach should finish — first-light water change and a taste test, and if the bitterness is gone, I drain and dry them. Second working pass on the grey hide, then the smoke. The bark strips and pine shavings are already stacked by the hearthstone, ready.
+
+Day 86 done. Everything in its place.
+

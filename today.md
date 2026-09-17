@@ -14,3 +14,4 @@
 18:18 — sharpened knife and axe edges on flat gneiss stone by lamplight; both edges clean and biting; tools ready for tomorrow's second hide pass and smoke.
 19:18 — gathered dry bark strips and pine shavings from lean-to stack; set them by hearthstone ready for tomorrow's hide smoke; stood in the cold evening a moment — frost on the clearing, first stars over the ridge — then came inside and let the day go quiet.
 20:18 — sat by hearthfire in the evening; ran through the winter supply list by lamplight; checked and confirmed dried yarrow bark envelope sealed; everything in order; retired toward sleep with the fire holding low.
+21:18 — banked hearthfire coals for the night; stepped outside to check frost and stars — clear sky, stars sharp over east ridge, frost deep on clearing; came inside, blew out tallow lamp; laid down.
