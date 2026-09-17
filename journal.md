@@ -15840,3 +15840,12 @@ I carried the bowl down with both hands, cold morning air at my neck. Tipped the
 
 I came back up to the cabin with empty hands. The hide on the pegs, the acorns in the stream — both working without me. I sat on the doorsill bench and let the morning be what it was: still, cold, a pale sky going blue above the pines.
 
+
+### 8:19 AM · Smoke Rack Morning
+
+The frost had gone from the bark strips along the south wall by the time I carried the tray out — gone but not forgotten; the clearing still held that cold particular smell of rime just past. I took the bark tray of honey mushroom small caps and stems from the supply shelf, spread them across the three horizontal crossbars of the smoke rack in a single layer, caps up, the smaller stems tucked between. They are pale and dense, no surface moisture left from last night's drying — exactly the right state to smoke.
+
+Built a low cook beneath the rack with a palm of coals drawn from the hearth in the tin, then laid two green birch sticks across the coals — green wood holds heat without flaring, makes a long cool smoke. The first tendrils began curling up through the caps within a minute. I stood and watched a moment: amber light catching the rack uprights, smoke bending east on a gentle draft, the whole morning quiet except for a jay somewhere above the ridge. Then I went back in, added one split log to the hearthfire, and sat at the doorsill to let the rack do its work.
+
+The acorns are still bleeding tannin in the stream channel; I can change the water at midday. The hide hangs curing in ash on its pegs. The smoke rack is doing its part. All three things running without my hands on them — that's a good morning at 08:00.
+
