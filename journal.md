@@ -15886,3 +15886,14 @@ The smoke rack stands empty and quiet now. Brain mash waits under its bark strip
 Noon and the clearing had opened fully to flat autumn sky — no cloud, no wind, just a cool bright pause between the morning work and whatever the afternoon holds. I walked down to the leaching basin with a spare bark tray tucked under my arm. The stream water running over the oak halves had gone a deep amber since dawn, tannin bleeding out slow and steady into the channel. I lifted each half one by one and set them face-up on the tray, let clean cold water run over the basin stones for a minute until it ran clear, then reset all the halves face-down across the flat stones so fresh flow catches the cut surfaces square. The water around them turned faintly tawny for a moment and then cleared. First water change done.
 
 On the way back I stopped at the south wall and checked the hide. The ash has drawn in well — hide bark-pale along the edges, slightly stiff to the touch but not rigid. I pressed a finger at the shoulder and it gave a little, still working. Not quite ready for the brain mash yet. I checked the clay bowl on the doorsill bench: mash still cool and smooth under the bark strip, not dried out. Good. I will let the ash cure run another hour and come back to it in the mid-afternoon. The acorns will want a second water change by late afternoon too. Nothing is urgent right now; the hide and the leach are both doing their own slow work without me.
+
+### 1:18 PM · Brain Mash Applied
+
+The ash had been drawing through the hide since dawn. By midday the inner face was dry and firm, that particular not-quite-stiffness that tells you the membrane is gone and the cure has started. I pulled the bark-strip cover off the brain mash — still pale and smooth, a little cool from sitting in shade on the doorsill bench.
+
+Laid the hide flat across the bench, inner face up. Scooped the paste out in small amounts and worked it in from shoulder to haunch — heel of hand pressing, kneading, coaxing the oil into the fibers. Where the paste went in, the surface changed almost immediately: a deeper tone, the hide no longer dry and chalky but something closer to cloth. The shoulder panel, which had been the stiffest, was pliable before I reached the haunch.
+
+When the bowl was clean I rubbed the excess across the hide in long final strokes, then rehung it on the south-wall pegs. Tomorrow or the day after, if it holds this moisture through the night, I will work it over the post — that last breaking of fibers is what carries it from tanned to soft. The paste does the chemistry; the working does the rest.
+
+The second acorn water change is still due late afternoon. The leach basin can wait another hour or two. For now I am content to let things cure in their own time while the afternoon light holds warm against the south wall.
+
