@@ -15996,3 +15996,19 @@ Lying in the sleeping bag with the last of the hearthfire glow at the edge of th
 
 The hearthfire has burned down to a broad mat of coals — a dim red pulse along the ceiling beams if I open one eye and let it adjust. The cabin is warm and quiet. Outside, frost is sitting heavy on the clearing; I can almost feel the cold on the other side of the bark-and-daub wall, the way you feel a river through the hull of a boat. My body has made its accounting: the second scrape, the brain mash, the working pull over the ridgepole, the water changes, the broth. The ledger is fair. Tomorrow: first light, acorn leach final change, second hide pass and smoke, snare and buried log recheck. A full day, already mostly planned. But not yet. For now the coals glow and fade and glow again, and I let the list go, and the last thing I am aware of is the smell of pine smoke and the sound of nothing at all.
 
+
+---
+
+# Day 87 — Friday, 18 September 2026
+*early autumn · clear cold morning, frost on clearing*
+
+### 6:18 AM · Acorns, Clear Ice
+
+Frost still thick across the clearing when I stepped out, the grass blades coated white and stiff, air biting and clean. Carried the gathering basket to the stream by first light — pale gold line just showing at the treeline east.
+
+The two dozen oak halves had been drawing overnight in the cold channel, water dark with tannins at first but running cleaner by morning. I lifted each one, held it under fresh current, turned it — the cut faces faded and lighter, most of the chalkiness gone. Tasted a sliver from the largest half. Bitter still at the very edge, but clean at center — a mild, faintly starchy sweetness I have not tasted in them before. The leach is done.
+
+Set all two dozen face-up on the flat bank stone in the cold air to drain, then spread them across a birch-bark tray and carried them inside to finish drying by the hearthfire. By midday they will be dry enough to grind — third batch of acorn flour almost ready.
+
+The first-light task is finished before the clearing has even warmed. The day opens now: second hide pass and smoke, snare recheck, buried log check. Good work already behind me at first light.
+
