@@ -15952,3 +15952,12 @@ I work the blade across at a low angle, heel to tip, long patient strokes. The s
 
 The hide is hanging dark and quiet on the south-wall pegs outside, stiffening in the cold toward chamois. The acorn halves are drawing in the cold channel, one more night between them and flour. Tomorrow: second working pass on the hide, then smoke it. Snare and buried log recheck in the next day or two. The ledger is clear. I set the knife on the supply shelf, pull my coat up, and sit a while longer by the fire.
 
+
+### 7:18 PM · Smoke Ready, Evening
+
+Stepped outside before dark settled in fully. The clearing was pewter in the last light, frost crystals already forming along the grass blades nearest the treeline. I stood there a moment, breathing cold air, watching the first stars take shape above the ridge, then ducked back to the lean-to and gathered a good armful of dry bark strips — birch curls and pine shavings, the kind that smoke slow and cool. Brought them inside and set the bundle loosely by the hearthstone. Everything the morning will need for the hide smoke is now within reach.
+
+The doe hide hangs still on the south-wall pegs, pale and faintly cool in the draught from under the door. It will want one more working pass early, while my arms are fresh, then two or three hours over cool green birch smoke — the hide will turn from chamois white to a warm smoke-tan. Tomorrow has its shape.
+
+I settled back by the fire with the lamp burning low and let the evening be quiet. The acorn basin is running in the cold channel; the leach will finish itself overnight. Nothing else to do today.
+

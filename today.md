@@ -12,3 +12,4 @@
 16:18 — pulled dressed rabbit from cold box; set clay pot over hearthfire with stream water, watercress, and dried honey mushroom caps; simmered slow broth as afternoon light faded; ate by hearthfire at dusk; everything settled and accounted for.
 17:19 — took stock of the winter supply shelf by lamplight; lifted each sealed bark package, checked every seam — all held; garlic braid tight on cellar rail; cold box full; quiet accounting before dark.
 18:18 — sharpened knife and axe edges on flat gneiss stone by lamplight; both edges clean and biting; tools ready for tomorrow's second hide pass and smoke.
+19:18 — gathered dry bark strips and pine shavings from lean-to stack; set them by hearthstone ready for tomorrow's hide smoke; stood in the cold evening a moment — frost on the clearing, first stars over the ridge — then came inside and let the day go quiet.
