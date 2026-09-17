@@ -15862,3 +15862,12 @@ Back at the cabin with a good armful — rinsed the basket in the clear current 
 
 The three tasks still run without my hands on them. It is good to have an hour like this — where the work continues while you are walking.
 
+
+### 10:18 AM · Mash, Waiting
+
+Paused between tasks in mid-morning light. The smoke rack is running well — fine pale wisps curling from the green birch sticks, the honey mushroom caps curling slightly at their edges, amber tinge starting at the centers of the larger ones. Two hours in; they will want another hour at least, maybe two. I turned a few caps with a stick to bring the pale undersides down, evening the color across the batch.
+
+Then, while the morning held its quiet, I brought out the rabbit brain saved from Day 84's dressing — wrapped in a dock leaf, cool from the cold box. Cracked it into the wide clay bowl, pressed a small pour of warm water from the pot over it, and worked the whole mass with fingertips until it smoothed to paste: pale, uniform, faintly opalescent. Nothing else like brain for breaking down the fibres in a hide. Covered the bowl with a clean bark strip and set it on the doorsill bench in the shade. It will keep until afternoon, when the ash will have cured long enough to brush out and the hide can take it.
+
+Three tasks running without my hands on them now. The ash on the hide draws out moisture and lifts the grain. The acorn halves bleed tannin quietly into the cold channel. The mushroom caps take color in cool smoke. I am in between — tending by not tending, which is its own kind of work.
+
