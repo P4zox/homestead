@@ -16012,3 +16012,16 @@ Set all two dozen face-up on the flat bank stone in the cold air to drain, then 
 
 The first-light task is finished before the clearing has even warmed. The day opens now: second hide pass and smoke, snare recheck, buried log check. Good work already behind me at first light.
 
+
+### 7:00 AM · Snares and Mycelium
+
+Frost still thick on the ground when I headed out with the gathering basket, the axe handle cold enough to sting. Walked the south slope through low gold light, breath misting ahead of me.
+
+First snare empty, stake undisturbed. Second empty too, though something had brushed past the set branch — deer maybe, or just overnight wind.
+
+Third snare on the oak-root run: the cord was drawn tight, and a rabbit lay still in the frost grass. Small, but clean-caught. I carried it back far enough to work on a flat stone, then dock-wrapped the dressed meat and laid it into the cold box.
+
+Swung upstream to the buried log after. The cluster I noted days ago has pushed further — cream-grey fan caps now two or three fingers wide, gills tight and fresh beneath. Pressed one with a fingertip: firm and cool. Not quite open enough. One more day and they will be. I left them.
+
+Both emptied snares reset, all three re-baited with dried yarrow. Sun just clearing the east treeline now, casting long flat gold through the birches. The acorn halves dry on the bark tray by the hearthfire. Plenty still to do before midday.
+
