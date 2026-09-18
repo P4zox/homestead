@@ -16136,3 +16136,14 @@ The smell changed the cabin. Birch smoke and cured leather giving way to somethi
 
 Ate on the doorsill bench with the door cracked an inch, watching frost settle white across the clearing. Stars appearing early out of a deep cold sky. Everything very still. Whatever winter brings, there is food on the shelf and warmth at the hearth and a roof that holds the weather out. I am ready to sleep, and to cut leather when the morning light is good.
 
+
+### 6:18 PM · Needle by Firelight
+
+The three leather panels are still laid out on the cabin floor, charred lines showing the jerkin's shape. Light is long gone and cutting must wait for full morning. I have pulled the tallow lamp close to the hearthstone and sat with the small bone kit saved since the last rabbit dressings.
+
+One flat shank-bone fragment — narrow at one end — and I have been drawing it along the gneiss stone for most of this hour, narrowing the tip to a smooth rounded point. It is not a needle yet, only a sharpened bone blank, but I can see what it will be. Tomorrow I will bore the eye with the knife point and thread it.
+
+While I worked I cut three long fine strips from the hide offcuts — thinner than the coiled lacing, perhaps half a finger-width, soft from working between my hands. They lie on the hearthstone beside the bone blank now. Tallow lamp burning low and steady. Frost pressing at the door gap. The smell of birch smoke is still in the hide, still in the room.
+
+I keep looking at those charred lines on the doe hide. Shoulder seam, side seams, front split — still only charcoal on skin, but the shape is there and reads true. Tomorrow when the light comes full through the east gable I will pick up the knife and begin.
+
