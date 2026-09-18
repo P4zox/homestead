@@ -1536,3 +1536,4 @@ Day 87, 12:18 — Hide smoke cure begun: doe hide hung on south smoke rack; slow
 2026-09-18 13:18 Day 87 — Smoke Deepens: tended hide smoke cure at south rack; outer edges amber-tan, center chamois; fed birch strips to coals, cure ongoing through afternoon.
 2026-09-18 14:18 — Day 87 — Center Turning: hide smoke deepening, chamois center shifting to amber-gold; cure nearly complete
 Day 87, 2026-09-18 15:18 — Grey doe hide smoke cure complete; amber-tan throughout, water-fast; three cured leather panels now ready on doorsill bench.
+2026-09-18 16:18 — Day 87 — Three Panels, One Pattern: laid all three cured leather panels out together; planned and pattern-marked a winter jerkin from doe hide (body) and rabbit panels (chest facing); charred-stick lines drawn on inner hide face; no cut yet — reading the skin

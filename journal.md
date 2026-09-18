@@ -16110,3 +16110,16 @@ The clay bowl had gone to grey flake by the time I was finished. I scattered the
 
 This run of curing is complete. The skins are ready. That is a solid thing to know going into autumn.
 
+
+### 4:18 PM · Three Panels, One Pattern
+
+The grey doe hide is barely cool from the smoke rack and already I have all three cured panels laid out flat on the cabin floor — the rabbit back panel, the belly liner, and the doe hide now joining them for the first time.
+
+The doe hide is the largest thing I have made by labor and by size: roughly arm-span wide, nearly two arm-spans long, amber-tan and supple throughout, faintly fragrant with cool birch smoke. Against it the rabbit pieces look small — dense and good but narrow. Seeing them together tells me plainly what comes next.
+
+A winter jerkin. Something that closes at the front, covers shoulder to hip, gives me a proper wind layer before the deep cold sets in. The doe hide will be the body of it. The rabbit back panel and belly liner can be facing panels on the inside of the front opening — extra warmth at the chest where the cold finds you first.
+
+I charred the tip of a thin stick at the hearth edge and used it to mark fold-lines on the inner face of the doe hide in pale ash-grey: shoulder seam, two side seams, front-opening split. Nothing cut yet. Just reading the skin — where it is thickest, where it runs thin at the edge, where the natural drape wants to fall. A garment cut wrong from hide cannot be uncut.
+
+The fire is low, burning patient. I will feed it for the evening before supper. The frost tonight will be sharp and the stars very clear, and tomorrow the buried log mushrooms will be ready to pull, and the snares. But this evening belongs to these three panels and what they are about to become.
+
