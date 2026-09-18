@@ -1543,3 +1543,4 @@ Day 87, 2026-09-18 15:18 — Grey doe hide smoke cure complete; amber-tan throug
 2026-09-18 20:19 Day 87 — Bone needle eye bored by tallow lamp; needle threaded and complete; hearthfire banked for night; jerkin cut ready for morning.
 2026-09-18 21:18 Day 87 — Sat by tallow lamp tracing jerkin seam pattern across three cured leather panels; needle threaded, all ready for morning cut; quiet reflection before sleep.
 2026-09-18 22:18 — Day 87 — banked fire for the night; frost and stars from doorsill bench; tallow lamp spent; three leather panels spread on floor with charred jerkin pattern; bone needle threaded on hearthstone; settled for sleep
+Day 87, 23:18 — woke briefly in deep night; fed one stick to dying coals; leather panels and bone needle in order; settled back to sleep

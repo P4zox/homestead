@@ -16185,3 +16185,12 @@ I unlatched the door and stepped out onto the doorsill bench. The clearing was a
 
 The bone needle rests on the hearthstone, thread coiled through its eye. All three panels spread soft and amber on the floor. Everything ready. I lay down on the floor mat, pulled the sleeping bag close, and let the day settle. First cut at morning light.
 
+
+### 11:18 PM · Embers Low
+
+Woke in the deep of the night — no wind, no rain, just the faint tick of cooling logs and cold pressing at the door planks. The hearthfire had sunk to orange coals with a thin grey rim. I fed one small stick forward against the glow, watched it take slowly, then banked the ash close again.
+
+The three leather panels are still spread around me in the dark: doe hide, back panel, belly liner. I could trace the charred pattern lines with my fingertips without needing light — shoulder curve, side seams, front-opening split. Bone needle on the hearthstone. Thread seated and ready. All is in order.
+
+Lay back on the floor mat and pulled the sleeping bag close. Frost will be thick at first light; I can feel the cold sharpening outside the walls. But the fire is steady, the shelter is sealed, and the jerkin is waiting. Sleep came back quickly.
+
