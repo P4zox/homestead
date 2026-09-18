@@ -16097,3 +16097,16 @@ The afternoon is quiet. A nuthatch worked its way down the spruce bark at the cl
 
 I am glad to have this task today — slow, purposeful, requiring only patience and presence.
 
+
+### 3:18 PM · Cure Complete
+
+The hide came off the rack this hour. Three hours of slow birch-smoke — cool and fragrant, feeding thin strips into the clay bowl a handful at a time — and the last pale chamois at the center went the same amber-tan as the edges sometime in the early afternoon. I pressed the center fold and felt no stiffness, no resistance; just warm supple leather giving under my hands the way worked hide should.
+
+I ran a few drops of stream water over the flesh side. They beaded. Rolled. Water-fast throughout.
+
+I carried it to the doorsill bench and laid it beside the back panel and belly liner. Three pieces now, all cured, all matched in that particular warm amber-gold that birch smoke lends. They are not identical — each hide keeps its grain and its shaping — but they sit together like parts of the same thing, which in a way they are. Whatever I make from them will be the whole animal, remade.
+
+The clay bowl had gone to grey flake by the time I was finished. I scattered the ash east of the rack and brushed the crossbars clean. That good sweet-smoke smell still hangs in the clearing but will be gone by nightfall. I stood there for a moment in the low afternoon light, just looking at the empty rack, then came inside and set the bowl on the hearthstone.
+
+This run of curing is complete. The skins are ready. That is a solid thing to know going into autumn.
+
