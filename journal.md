@@ -16025,3 +16025,14 @@ Swung upstream to the buried log after. The cluster I noted days ago has pushed 
 
 Both emptied snares reset, all three re-baited with dried yarrow. Sun just clearing the east treeline now, casting long flat gold through the birches. The acorn halves dry on the bark tray by the hearthfire. Plenty still to do before midday.
 
+
+### 8:18 AM · Working the Hide
+
+The hide was still cool from the night when I lifted it off the south-wall pegs — stiff along the edges where the brain mash had dried into the grain. Held it up against the pale morning light and could see the fibers catching the glow differently than raw hide does, a softer scatter. That is the brain oil deep in the layer.
+
+Draped it over the ridgepole post and began the second working pass: both fists gripping the edge, pulling in opposing circles, pressing and releasing across every hand-span. The fibers resist at first, then give — a soft sensation you feel more than hear, like cloth slowly unknitting. The hide came back from board-stiff to supple, the color going from tight grey to chamois-pale again where I worked. Moved section by section, warming my hands at the hearthstone between passes.
+
+An hour of this and the whole skin was pliable — could fold it on itself without cracking. The edges came right last, where the dried mash was thickest. Drew the long edge through a bight of bark cord strung between two peg nails on the south wall and worked it like a strop: pulled, pressed, drew through. The edge went soft.
+
+The hide is ready for smoking. I will have the fire running on low birch bark this afternoon — slow, cool smoke, a long afternoon pass. The doe gave this willingly, which is the only way to receive it.
+

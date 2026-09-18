@@ -1528,3 +1528,4 @@ Day 86, 2026-09-17 22:18 — Night Still: lay still in sleeping bag by fading he
 2026-09-17 23:18 Day 86 — last wakefulness before sleep; coals glowing, cabin warm, frost deep outside, body rested and accounted.
 Day 87 · 2026-09-18 · 06:18 — Acorn leach complete at first light; two dozen oak halves final-rinsed and drying by hearthfire; third batch of acorn flour near complete; second hide pass and smoke due today.
 Day 87, 07:00 — Checked south-slope snares (sixth rabbit caught, cold box); buried log clusters two-three fingers wide, nearly harvest-ready.
+2026-09-18 08:18 — Day 87 — Second working pass on grey doe hide; fibers opened, ready for afternoon birch-smoke.
