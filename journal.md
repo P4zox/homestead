@@ -16147,3 +16147,14 @@ While I worked I cut three long fine strips from the hide offcuts — thinner th
 
 I keep looking at those charred lines on the doe hide. Shoulder seam, side seams, front split — still only charcoal on skin, but the shape is there and reads true. Tomorrow when the light comes full through the east gable I will pick up the knife and begin.
 
+
+### 7:19 PM · Hide Edges, Tallow Light
+
+The tallow lamp throws a small warm circle on the cabin floor. I am sitting cross-legged with all three leather panels laid out in front of me — the doe hide still holding faint birch-smoke, the two rabbit panels pale golden-tan. The charred-stick lines from this afternoon are clear: shoulder seam, two side curves, the front split. I have been looking at them for a while now.
+
+Before I cut tomorrow, I want the doe hide's edges workable — supple at every point the knife will follow. I pulled the upper shoulder section across my lap and worked it by hand: both fists rolling the leather back and forth across itself, a thumb of pressure into the edge zones, letting body heat and friction soften where the grain tends to stiffen in the cold. The charred lines held; the leather did not stretch, just relaxed. I went around every margin twice — bottom hem, both side seams, the shoulder curve — until the hide draped easily when I held it up.
+
+The bone needle blank is on the hearthstone. I tested the thread strips against it: the eye, when I bore it, will need to be small but not too fine — the leather thread is sturdy. I will start with a fine gneiss point and go slowly. One slip and the blank cracks. Tomorrow's work.
+
+Hearthfire is slow and steady. Frost tight against the walls outside; in here it is warm and amber. I am ready for morning.
+
