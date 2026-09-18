@@ -1531,3 +1531,4 @@ Day 87, 07:00 — Checked south-slope snares (sixth rabbit caught, cold box); bu
 2026-09-18 08:18 — Day 87 — Second working pass on grey doe hide; fibers opened, ready for afternoon birch-smoke.
 Day 87, 09:18 — gathered and split birch bark strips from northeast stand, stacked at south smoke rack; afternoon hide-smoke fully prepared.
 2026-09-18 Day 87 10:19 — Cold Line Walk: pulled one brown trout from upstream set line, re-baited and reset; cold box now thirteen trout; acorn halves drying well, birch bark smoke strips drying at rack; afternoon hide smoke on track.
+2026-09-18 Day 87 11:18 — Stone and Meal: ground two dozen dried acorn halves on gneiss stone, sealed two bark envelopes of pale tawny meal, supply shelf now holds four full envelopes; birch strips drying at smoke rack for afternoon hide cure

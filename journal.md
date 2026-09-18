@@ -16057,3 +16057,14 @@ Back inside, the acorn halves by the hearthfire had paled further at their edges
 
 There is a particular quality to the hour between labors. The hide waits patient on its pegs. The bark strips dry toward their purpose. The acorns cure to flour. I stood at the cabin door for a moment before coming back in — looking at the clearing, the pale sky, the line of amber and gold at the treeline where the birches have begun to go. The cold is fair today. No wind. Good weather for smoke this afternoon.
 
+
+### 11:18 AM · Stone and Meal
+
+The acorn halves had been sitting by the hearthfire since just before sunrise, and by late morning they'd dried to something almost papery — pale faces, light when I lifted them, the starch drawn close by the heat. I didn't wait for true noon. Carried the flat gneiss grinding stone to the hearthside and set a bark tray beneath to catch the meal.
+
+Two dozen halves. The hand cobble fits the palm easily now after weeks of use. Long strokes along the grain of the stone, the meal coming away pale tawny and fine where the pressure held even. Worked them in two batches, stopping once to blow dust from the stone face and check the texture — almost no bitterness at all, only a faint clean starch-sweetness, the last edge of the tannin gone from the overnight draw. The tray filled steadily.
+
+Sealed two bark envelopes with pine resin, carried them to the supply shelf. Four full envelopes now, and the one partially used. That's real weight against winter — dry meal that won't spoil and costs only patience to make.
+
+Checked the birch strips at the smoke rack before drawing water. They've had two hours of morning air and the thin outer bark lifts away from the pale inner layer cleanly, no damp left in them. By early afternoon they'll smoke slow and cool, exactly what the hide needs. The grey doe hide still waits on its pegs, fully worked and pliable. Before dark it should be smoked through and cured. One task at a time, and the afternoon still belongs to it.
+
