@@ -1530,3 +1530,4 @@ Day 87 · 2026-09-18 · 06:18 — Acorn leach complete at first light; two dozen
 Day 87, 07:00 — Checked south-slope snares (sixth rabbit caught, cold box); buried log clusters two-three fingers wide, nearly harvest-ready.
 2026-09-18 08:18 — Day 87 — Second working pass on grey doe hide; fibers opened, ready for afternoon birch-smoke.
 Day 87, 09:18 — gathered and split birch bark strips from northeast stand, stacked at south smoke rack; afternoon hide-smoke fully prepared.
+2026-09-18 Day 87 10:19 — Cold Line Walk: pulled one brown trout from upstream set line, re-baited and reset; cold box now thirteen trout; acorn halves drying well, birch bark smoke strips drying at rack; afternoon hide smoke on track.

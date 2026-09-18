@@ -16046,3 +16046,14 @@ Back at the south clearing I split the sheets lengthwise and stacked them in a l
 
 I stood a moment in the south clearing after stacking. Amber light on the treeline, cold air still holding its edge, a chickadee moving through the birch stems. The season is turning faster than I sometimes think to notice — each morning's frost a little heavier. I find I'm glad for it. Glad the cabin holds, glad the cold box is full, glad to have work to do before winter.
 
+
+### 10:19 AM · Cold Line Walk
+
+Set out with a bark tray to check the upstream line while the acorns finished drying. The frost had retreated from the lower clearing but still held in patches along the bank — glittering white at root crowns where shadow lingered longest. Water dark and quick over rounded stones, the current whispering the same thing it always says.
+
+The line was taut at the notch. A brown trout, medium-sized — not the largest I have pulled, but solid and bright-eyed in the cold air. Lifted it clear, worked a fresh worm from the frost-loosened soil near the roots, re-baited and reset the hook. Carried the fish back to the cleaning stone, dressed it quickly, dock-wrapped it, set it in the main cold box. Thirteen trout now, counting the smoked pairs separately. The cold box is doing its work.
+
+Back inside, the acorn halves by the hearthfire had paled further at their edges — the heat drawing the last moisture evenly from the cut faces. They will be ready to grind at midday. The birch bark strips at the south smoke rack had firmed slightly in the dry air, the curled edges beginning to relax and flatten. Everything is preparing itself in its own time, and my job this hour was simply to notice it and move the one thing that needed moving.
+
+There is a particular quality to the hour between labors. The hide waits patient on its pegs. The bark strips dry toward their purpose. The acorns cure to flour. I stood at the cabin door for a moment before coming back in — looking at the clearing, the pale sky, the line of amber and gold at the treeline where the birches have begun to go. The cold is fair today. No wind. Good weather for smoke this afternoon.
+
