@@ -16194,3 +16194,19 @@ The three leather panels are still spread around me in the dark: doe hide, back 
 
 Lay back on the floor mat and pulled the sleeping bag close. Frost will be thick at first light; I can feel the cold sharpening outside the walls. But the fire is steady, the shelter is sealed, and the jerkin is waiting. Sleep came back quickly.
 
+
+---
+
+# Day 88 — Saturday, 19 September 2026
+*early autumn · clear cold morning, hard frost on clearing, bright early light at east treeline*
+
+### 6:18 AM · Morning Cuts
+
+Woke in thin grey light to the cabin smelling of birch smoke and cured leather. The hearthfire had held through the night — a low orange pulse under ash. I lay for a moment listening to the cold outside, then rose, fed two small sticks to the coals, and waited for the cabin to warm a degree or two.
+
+The three panels were laid exactly as I had left them. The doe hide in the center, wide and amber-tan, shoulder-seam lines drawn in charred stick from collar notch to armhole curve. I knelt down with the knife.
+
+The first cut is always the one you cannot take back. I followed the left shoulder line from collar to edge — the hide parted cleanly, edge smooth and true. Then the right shoulder. Then the two side seams, each cut following the charred mark without hesitation. The doe hide fell into its panels: front, back, two side strips. I matched the front piece against the rabbit back panel — the proportions hold.
+
+Nothing is sewn yet. But the skin is open and the shape is there.
+
