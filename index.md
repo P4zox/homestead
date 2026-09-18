@@ -1541,3 +1541,4 @@ Day 87, 2026-09-18 15:18 — Grey doe hide smoke cure complete; amber-tan throug
 2026-09-18 18:18 — Day 87 — Needle by Firelight: fashioned bone needle blank from rabbit shank-bone fragment by lamplight; fine leather thread strips cut and softened for jerkin stitching; jerkin cutting set for tomorrow morning.
 2026-09-18 | Day 87 | 7:19 PM — softened doe hide edges by hand; jerkin pattern confirmed by lamplight; bone needle blank and thread ready for morning
 2026-09-18 20:19 Day 87 — Bone needle eye bored by tallow lamp; needle threaded and complete; hearthfire banked for night; jerkin cut ready for morning.
+2026-09-18 21:18 Day 87 — Sat by tallow lamp tracing jerkin seam pattern across three cured leather panels; needle threaded, all ready for morning cut; quiet reflection before sleep.

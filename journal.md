@@ -16167,3 +16167,12 @@ I held the finished needle up to the lamp flame: a pale taper of rabbit shinbone
 
 The fire has settled to deep coals. I added one split log and banked it low. Stars and frost outside, lamp steady on the shelf.
 
+
+### 9:18 PM · Last Lamp, First Seam
+
+The cabin is settled. Hearthfire down to a low orange glow behind the clay hearth walls; tallow lamp still burning on the hearthstone, its small light enough to see by if I lean close. The three leather panels are still spread across the cabin floor — doe hide center, rabbit panels flanking — and the charred jerkin pattern lines arc across them in the lamplight, clean and deliberate.
+
+I sit beside them and trace the shoulder seam with one finger. The charcoal line does not smear. The needle is threaded and waiting on the hearthstone. Tomorrow the knife goes in. Tonight I only look — reading the hide the way you read a plan before you commit to it. The doe's grain runs long and even from shoulder to hem; the rabbit panels are smaller, softer, darker in tone, and will rest against my chest and face inward. I think through the sequence: cut before stitch, small holes before thread, every decision made from the center outward so nothing pulls wrong.
+
+Satisfied. Clear night, cold enough to see breath, and somewhere on the south slope a snare sits reset. The stream is down to its autumn murmur. I will let the lamp burn a little longer, then sleep, and wake to the needle first thing.
+
