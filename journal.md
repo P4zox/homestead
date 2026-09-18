@@ -16176,3 +16176,12 @@ I sit beside them and trace the shoulder seam with one finger. The charcoal line
 
 Satisfied. Clear night, cold enough to see breath, and somewhere on the south slope a snare sits reset. The stream is down to its autumn murmur. I will let the lamp burn a little longer, then sleep, and wake to the needle first thing.
 
+
+### 10:18 PM · Frost Out, Coals In
+
+The tallow lamp burned down to a slick on the clay bowl rim. I watched the wick-tip glow a moment after the flame winked out, then cupped my hand around it until the ember died. The three leather panels were still spread on the floor — rabbit chest pieces and the wide doe body, charred-stick seam lines clean and intact. Tomorrow the knife goes in. I wanted to sit with that fact one more hour before sleep.
+
+I unlatched the door and stepped out onto the doorsill bench. The clearing was all frost and stars — air sharp enough to feel in the lungs, not a breath of wind from the treeline. I stood long enough for the cold to settle into me fully, then went back inside and latched the door. Fed the fire two small lengths and shifted the fire-frame stone across the draw to slow it down — a long, quiet burn that should hold warmth until morning.
+
+The bone needle rests on the hearthstone, thread coiled through its eye. All three panels spread soft and amber on the floor. Everything ready. I lay down on the floor mat, pulled the sleeping bag close, and let the day settle. First cut at morning light.
+
