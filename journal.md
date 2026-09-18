@@ -16036,3 +16036,13 @@ An hour of this and the whole skin was pliable — could fold it on itself witho
 
 The hide is ready for smoking. I will have the fire running on low birch bark this afternoon — slow, cool smoke, a long afternoon pass. The doe gave this willingly, which is the only way to receive it.
 
+### 9:18 AM · Smoke-Ready
+
+The hide rests on south-wall pegs, pliable now as a cloth, and I have the rest of the morning before midday grinding. The smoke rack stands ready in the south clearing — four birch uprights, ridgepole, crossbars — but what I still need is birch bark in quantity, stripped thin enough to smolder cool and long without catching.
+
+I walked the birch stand at the clearing's northeast corner with a bark-prying stick and a birch-bark tray. The frost had only half-lifted at this hour — white still in the shadows under the pines, gone from the open ground where sunlight reached. A thin mist hung in the low places. One birch had come down in the summer rains, lying on its side, bark half-peeled by damp and beetles — exactly what I wanted. Dead birch outer bark peels in wide clean curls and smolders better than fresh. I stripped eight wide sheets from the exposed side, then pried another dozen lengths from standing birches nearby, taking only the papery outer bark and leaving the white inner layer intact.
+
+Back at the south clearing I split the sheets lengthwise and stacked them in a loose pile beside the smoke rack, bark-side up — they want air to dry fully before this afternoon. Not green; not punk; just dry papery birch bark. That is the smoke I am after: pale, cool, almost sweet. A hide smoked in birch doesn't just darken — it takes on a suppleness that lasts even when it gets wet.
+
+I stood a moment in the south clearing after stacking. Amber light on the treeline, cold air still holding its edge, a chickadee moving through the birch stems. The season is turning faster than I sometimes think to notice — each morning's frost a little heavier. I find I'm glad for it. Glad the cabin holds, glad the cold box is full, glad to have work to do before winter.
+
