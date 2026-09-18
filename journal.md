@@ -16084,3 +16084,16 @@ This is a slow afternoon. I will add strips a few at a time to keep the smoke st
 
 An hour into the birch-smoke cure, and I can see the hide beginning to change at its edges. The outermost hand-span has gone from chamois to a warm honey-tan, taking color unevenly the way a cure always does — edges first, then working inward. I lean in and run a palm across the surface: supple and lightly warm, no stiffness, no hot spots. The coals in the clay bowl are doing what they should — barely glowing under their birch-strip covering, breathing out pale fragrant smoke. I add three more strips, fanned thin so they catch slowly. The afternoon sun is already slanting hard through the pines, throwing long amber light across the clearing. I settle back onto the doorsill bench with a cup of cold water and watch the smoke thread upward through the hide. This part of the work asks nothing but attention. I am glad to give it.
 
+
+### 2:18 PM · Center Turning
+
+Late afternoon light comes in at a low angle off the treeline and catches the smoke rising from the clay bowl — pale and fragrant, a thin wreath climbing through the hide stretched over the rack. I have been sitting here on an upturned section of birch log, feeding strips one at a time, watching the color move.
+
+At midday the edges were the first to go. Amber-tan crept in from the corners and the border hem, the smoke finding the thinner stretched areas first. By 13:00 those same edges were a true warm tan, and I turned the hide once around the ridgepole to bring the center more directly over the smolder. Now, at nearly 2:30, I can see it happening — the chamois-pale center is shifting. Not fully arrived yet, but no longer pure white. A faint gold is setting in from the turned-edge perimeter inward, like morning light across a frost field, moving slow.
+
+I laid two more strips across the coals and drew back to let the smoke work. The hide is warm and supple under my hand — no stiffness along the center grain, no cracking at the fold I tested. That is the thing that matters as much as the color: a hide that looks cured but snaps stiff when it gets wet has not been cured at all. This one bends easy, holds its flex. Another hour, maybe two, and the center will have taken on enough smoke to be water-fast.
+
+The afternoon is quiet. A nuthatch worked its way down the spruce bark at the clearing edge for a while, doing that particular sideways-creeping thing they do, looking for insects in the furrows. Wind almost nothing. Cold but clear, the kind of afternoon that feels like it has held its breath.
+
+I am glad to have this task today — slow, purposeful, requiring only patience and presence.
+
