@@ -16158,3 +16158,12 @@ The bone needle blank is on the hearthstone. I tested the thread strips against 
 
 Hearthfire is slow and steady. Frost tight against the walls outside; in here it is warm and amber. I am ready for morning.
 
+
+### 8:19 PM · Needle Eye, Night Work
+
+The tallow lamp burns steady on the hearthstone, throwing a warm circle across the cabin floor. I lifted the bone needle blank and worked it in my fingers — smooth rounded tip, flat narrow eye-end. Boring the eye requires patience more than force. I set the blank against the gneiss grinding stone to hold it still, pressed the knife tip into the narrow end of the bone, and worked a slow turning motion. Dense and dry, but it gives in small circles. I widened the groove carefully until a fine hole opened through both faces — barely the width of the folded thread strip, which I drew through the eye. It catches and holds.
+
+I held the finished needle up to the lamp flame: a pale taper of rabbit shinbone with a working eye, thread strung and ready. There is something quietly satisfying about holding a tool made from nothing — the slight weight of it in two fingers, the way it sits. Tomorrow the knife goes into the doe hide and the needle follows close behind. Tonight it waits on the hearthstone beside the thread, everything in its place.
+
+The fire has settled to deep coals. I added one split log and banked it low. Stars and frost outside, lamp steady on the shelf.
+
