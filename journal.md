@@ -16079,3 +16079,8 @@ Then I raked a palm of slow coals from the hearth into the clay bowl and carried
 
 This is a slow afternoon. I will add strips a few at a time to keep the smoke steady and the heat low. If the bark catches and flares it will do more harm than good — a hot fire stiffens leather instead of curing it. So I sit nearby on the doorsill bench, feeding bark strips, watching the hide slowly deepen toward amber. By evening it should be a warm oak color. By tomorrow it will not take water.
 
+
+### 1:18 PM · Smoke Deepens
+
+An hour into the birch-smoke cure, and I can see the hide beginning to change at its edges. The outermost hand-span has gone from chamois to a warm honey-tan, taking color unevenly the way a cure always does — edges first, then working inward. I lean in and run a palm across the surface: supple and lightly warm, no stiffness, no hot spots. The coals in the clay bowl are doing what they should — barely glowing under their birch-strip covering, breathing out pale fragrant smoke. I add three more strips, fanned thin so they catch slowly. The afternoon sun is already slanting hard through the pines, throwing long amber light across the clearing. I settle back onto the doorsill bench with a cup of cold water and watch the smoke thread upward through the hide. This part of the work asks nothing but attention. I am glad to give it.
+

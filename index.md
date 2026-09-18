@@ -1533,3 +1533,4 @@ Day 87, 09:18 — gathered and split birch bark strips from northeast stand, sta
 2026-09-18 Day 87 10:19 — Cold Line Walk: pulled one brown trout from upstream set line, re-baited and reset; cold box now thirteen trout; acorn halves drying well, birch bark smoke strips drying at rack; afternoon hide smoke on track.
 2026-09-18 Day 87 11:18 — Stone and Meal: ground two dozen dried acorn halves on gneiss stone, sealed two bark envelopes of pale tawny meal, supply shelf now holds four full envelopes; birch strips drying at smoke rack for afternoon hide cure
 Day 87, 12:18 — Hide smoke cure begun: doe hide hung on south smoke rack; slow cool birch-bark smoke started; cure to continue through afternoon.
+2026-09-18 13:18 Day 87 — Smoke Deepens: tended hide smoke cure at south rack; outer edges amber-tan, center chamois; fed birch strips to coals, cure ongoing through afternoon.
