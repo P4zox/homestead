@@ -16123,3 +16123,16 @@ I charred the tip of a thin stick at the hearth edge and used it to mark fold-li
 
 The fire is low, burning patient. I will feed it for the evening before supper. The frost tonight will be sharp and the stars very clear, and tomorrow the buried log mushrooms will be ready to pull, and the snares. But this evening belongs to these three panels and what they are about to become.
 
+
+### 5:19 PM · Broth at Dusk
+
+The light went low and golden by the time I set down the charred-stick. Three panels on the cabin floor — rabbit back, belly liner, doe hide — with seam lines traced plain and ready. The knife can wait for morning. Pattern reads better in clean daylight than by lamplight and tallow.
+
+So I turned to supper.
+
+One dock-wrapped trout from the cold box, a bark package of smoked oyster mushrooms. Into the clay pot with a cup of stream water, set over slow coals on the hearthstone — enough heat to simmer gently, no hurrying it. A half-spoonful of hazelnut paste for body, a small pinch of sloe syrup for tart edge. Let it sit and breathe while I refed the hearth with two logs from the pile.
+
+The smell changed the cabin. Birch smoke and cured leather giving way to something richer — trout and mushroom and autumn steam. A real supper smell.
+
+Ate on the doorsill bench with the door cracked an inch, watching frost settle white across the clearing. Stars appearing early out of a deep cold sky. Everything very still. Whatever winter brings, there is food on the shelf and warmth at the hearth and a roof that holds the weather out. I am ready to sleep, and to cut leather when the morning light is good.
+
