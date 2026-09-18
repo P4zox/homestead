@@ -16210,3 +16210,7 @@ The first cut is always the one you cannot take back. I followed the left should
 
 Nothing is sewn yet. But the skin is open and the shape is there.
 
+
+### 7:18 AM · First Stitches
+
+The panels lie on the cabin floor in the shape I cut them at first light — front, back, two side strips. I knelt beside them after the hearthfire caught properly, threaded the bone needle for the first time with a length of fine leather thread, and pulled the first stitch through the right shoulder seam: doe back to doe front, two layers of cured amber hide pressed together. The needle takes some coaxing — the eye is narrow, the hide thick at the shoulder ridge — but it goes, and when I draw the thread through, the seam closes clean. I worked the whole right shoulder this way, stitch by stitch, spacing them a finger-width apart. Then the left. By the time the cabin had warmed enough to unlatch the door, both shoulder seams were done. I held the half-joined piece up in the doorframe and could see the shape of a garment where before there were only panels. The light is good this morning. My hands are steady. The side seams are next.

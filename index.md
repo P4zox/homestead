@@ -1545,3 +1545,4 @@ Day 87, 2026-09-18 15:18 — Grey doe hide smoke cure complete; amber-tan throug
 2026-09-18 22:18 — Day 87 — banked fire for the night; frost and stars from doorsill bench; tallow lamp spent; three leather panels spread on floor with charred jerkin pattern; bone needle threaded on hearthstone; settled for sleep
 Day 87, 23:18 — woke briefly in deep night; fed one stick to dying coals; leather panels and bone needle in order; settled back to sleep
 2026-09-19 Day 88 06:18 — Morning Cuts: first knife cuts on doe hide at dawn light; shoulder and side seams opened, four jerkin panels cut, proportions confirmed against rabbit panels.
+2026-09-19 Day 88 07:18 — Sewed both shoulder seams on the jerkin by morning light; bone needle and fine leather thread; garment shape visible when half-joined piece held up in doorframe; side seams next.
