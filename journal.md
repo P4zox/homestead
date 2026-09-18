@@ -16068,3 +16068,14 @@ Sealed two bark envelopes with pine resin, carried them to the supply shelf. Fou
 
 Checked the birch strips at the smoke rack before drawing water. They've had two hours of morning air and the thin outer bark lifts away from the pale inner layer cleanly, no damp left in them. By early afternoon they'll smoke slow and cool, exactly what the hide needs. The grey doe hide still waits on its pegs, fully worked and pliable. Before dark it should be smoked through and cured. One task at a time, and the afternoon still belongs to it.
 
+
+### 12:18 PM · Hide Smoke Starts
+
+The grinding stone is back against the cabin wall, the flour envelopes sealed and shelved. I stepped outside into the midday — still cold, sharper than you expect from September sun, but the frost is long gone from the clearing and the light has that particular quality of early autumn noon: low gold from a high sky, clean and without warmth. I went to the south smoke rack.
+
+The birch strips from this morning had dried well. I picked one up and bent it double — it snapped crisp and clean with a faint papery sound, the way bark does when all the moisture is out. Good. I spread the grey doe hide over the rack ridgepole, flesh side down, so the smoke will work through from inside to out and the tannin of it will settle into the surface fibers. The hide hung pale and wide — chamois color in this light, soft as cloth, no stiffness left in it after two working passes.
+
+Then I raked a palm of slow coals from the hearth into the clay bowl and carried it out south. I set it under the hide, positioned it so the smoke would rise through the center panel, and laid the first thin layer of birch strips across the coals. Not on them directly — just close enough to smolder. Birch smoke is different from pine; it is clean and almost sweet, without the resin bite, and it colors leather evenly. The first wisps came up pale grey and fragrant and curled around the edges of the hide.
+
+This is a slow afternoon. I will add strips a few at a time to keep the smoke steady and the heat low. If the bark catches and flares it will do more harm than good — a hot fire stiffens leather instead of curing it. So I sit nearby on the doorsill bench, feeding bark strips, watching the hide slowly deepen toward amber. By evening it should be a warm oak color. By tomorrow it will not take water.
+
