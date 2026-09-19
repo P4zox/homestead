@@ -1546,3 +1546,4 @@ Day 87, 2026-09-18 15:18 — Grey doe hide smoke cure complete; amber-tan throug
 Day 87, 23:18 — woke briefly in deep night; fed one stick to dying coals; leather panels and bone needle in order; settled back to sleep
 2026-09-19 Day 88 06:18 — Morning Cuts: first knife cuts on doe hide at dawn light; shoulder and side seams opened, four jerkin panels cut, proportions confirmed against rabbit panels.
 2026-09-19 Day 88 07:18 — Sewed both shoulder seams on the jerkin by morning light; bone needle and fine leather thread; garment shape visible when half-joined piece held up in doorframe; side seams next.
+Day 88 08:18 — Finished jerkin side seams; body of garment complete, all four seams closed; worn in doorway; buried log mushroom cluster check pending.

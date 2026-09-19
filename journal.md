@@ -16214,3 +16214,14 @@ Nothing is sewn yet. But the skin is open and the shape is there.
 ### 7:18 AM · First Stitches
 
 The panels lie on the cabin floor in the shape I cut them at first light — front, back, two side strips. I knelt beside them after the hearthfire caught properly, threaded the bone needle for the first time with a length of fine leather thread, and pulled the first stitch through the right shoulder seam: doe back to doe front, two layers of cured amber hide pressed together. The needle takes some coaxing — the eye is narrow, the hide thick at the shoulder ridge — but it goes, and when I draw the thread through, the seam closes clean. I worked the whole right shoulder this way, stitch by stitch, spacing them a finger-width apart. Then the left. By the time the cabin had warmed enough to unlatch the door, both shoulder seams were done. I held the half-joined piece up in the doorframe and could see the shape of a garment where before there were only panels. The light is good this morning. My hands are steady. The side seams are next.
+
+### 8:18 AM · Side Seams, Closed
+
+The cabin was warm enough by the time I threaded the needle a second time. Both shoulder seams held — the jerkin already had shape in the doorframe light — but the flanks were still open, the side panels loose and shifting whenever I lifted the garment. I spread front and back across the doorsill bench, traced the charred seam lines with a finger, and began at the bottom hem.
+
+The bone needle moves slower through the doubled-hide thickness where the side strips overlap, but it finds the grain if I angle the point slightly. Left side first: two dozen stitches, finger-width apart, held true from hem to armhole. I kept the thread snug without pulling the hide into a pucker — the doe leather is supple enough that it wants to lie flat. Right side: the same count, the same spacing, tied off with a doubled knot at the armhole edge.
+
+When I lifted the jerkin for the last time this morning it was a garment. All four seams closed. It needs a hem trim and likely a cord tie at the neck, but the body is whole. I put it on over my shirt and stood in the doorway with the frost still sharp on the clearing outside. The shoulders sit right. The hem falls to my hips. There is something about standing in a thing you made from hides you handled from the beginning — the weight of it is familiar in a way that nothing bought ever is. I stood there a moment, frost on the grass, fire at my back, warm.
+
+The buried log cluster still on my mind for midday.
+
