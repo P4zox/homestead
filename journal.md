@@ -16341,3 +16341,14 @@ I ran through the plan once more in the dark: hazel digging stick cut at first l
 
 The new jerkin hangs on the supply peg. I wore it through the whole day and it never felt wrong — shoulders right, hem hitting the hip, the rabbit-hide side strips moving easy with the arms. There is a particular quiet that comes from wearing something you made end to end. The sleeping bag unrolled on the floor mat, bracken fronds springy underneath. I lay back and the cabin settled around me, coals breathing, night outside still and clean. The lamp will find its own dark. Tomorrow starts at first frost light.
 
+
+### 9:18 PM · Lamp Gone Dark
+
+The lamp burned itself out sometime in the last hour — I know it without opening my eyes because the faint orange ring that had been playing on the inside of my eyelids is simply gone. Cabin all black now, just the faint tick of contracting hearthstone and, outside, a slow wind working through the birches.
+
+I got up to check the coals — just a habit, the way you check a door you know is latched. They were right: low orange beneath grey ash, settled in for the night. I built the fire correctly at 19:00 and it needed nothing from me.
+
+Stood a moment barefoot on the cold floor planks, hand on the hearthstone. The cabin was very quiet. The door held. The wind found no gap in the gables. After eighty-eight days, the place keeps itself.
+
+Lay back down. Tomorrow: a digging stick, the south snares, the stream bank for tubers. The body is ready to sleep. Let it.
+
