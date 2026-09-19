@@ -1560,3 +1560,4 @@ Day 88 (2026-09-19) 18:18 — Sat by tallow lamp in the new jerkin, reviewed sup
 Day 88, 2026-09-19, 19:18 — Fire Fed for Night: banked hearth; gear by door; tomorrow's forage plan set.
 2026-09-19 20:18 Day 88 — settled to sleep; lamp burned low; all ready for tomorrow root forage dawn start
 2026-09-19 21:18 Day 88 — Lamp burned out; rose briefly in the dark, checked hearth coals — properly banked, needed nothing; cabin tight and quiet; back to sleep
+2026-09-19 22:18 Day 88 — Banked and Dark — sleeping, cabin tight, coals banked, tomorrow planned (hazel stick, snares, tuber forage)

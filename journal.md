@@ -16352,3 +16352,12 @@ Stood a moment barefoot on the cold floor planks, hand on the hearthstone. The c
 
 Lay back down. Tomorrow: a digging stick, the south snares, the stream bank for tubers. The body is ready to sleep. Let it.
 
+
+### 10:18 PM · Banked and Dark
+
+I half-surfaced once after the lamp went cold — not enough to call it waking. A flicker of awareness: the cabin tight around me, the faint orange of hearth coals through the corner of one eye. Wind moving in the birches outside. My own breath. Nothing that needed attending.
+
+The jerkin hangs on the supply peg. The basket and belt pouch are at the door. Tomorrow is already set — hazel stick at first light, south snares, downstream tuber forage mid-morning. Nothing to decide now. I pulled the sleeping bag tighter and went back under.
+
+The coals will hold until morning.
+
