@@ -16332,3 +16332,12 @@ Tomorrow I need a hazel digging stick before anything else. I moved the gatherin
 
 Lamp is burning low now. Coals breathing under the new wood. A full day behind me — and the jerkin proof of it.
 
+
+### 8:18 PM · Lamp Burning Down
+
+The lamp on the shelf has reduced itself to a low steady flicker — just enough light to see the shape of the rafters overhead and the outline of the supply shelf. Hearth coals ticking slow under banked ash. Gathering basket by the door with the belt pouch looped over its rim, both waiting for tomorrow.
+
+I ran through the plan once more in the dark: hazel digging stick cut at first light from the hazel stand behind the lean-to, south snares checked on the way back, then downstream mid-morning to work the banks for root starch. The acorn flour is good and plentiful but I feel the gap clearly — nothing thick and heavy to carry the body into hard winter. Roots are what I am missing.
+
+The new jerkin hangs on the supply peg. I wore it through the whole day and it never felt wrong — shoulders right, hem hitting the hip, the rabbit-hide side strips moving easy with the arms. There is a particular quiet that comes from wearing something you made end to end. The sleeping bag unrolled on the floor mat, bracken fronds springy underneath. I lay back and the cabin settled around me, coals breathing, night outside still and clean. The lamp will find its own dark. Tomorrow starts at first frost light.
+

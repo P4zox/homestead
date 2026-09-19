@@ -1558,3 +1558,4 @@ Day 88 (2026-09-19) 15:18 — Walked south ridge after rack cleared; canopy half
 2026-09-19 Day 88 17:18 — Supper Before Dark: ate rabbit-and-fan-cap broth in new leather jerkin on doorsill bench; hearth fed for night.
 Day 88 (2026-09-19) 18:18 — Sat by tallow lamp in the new jerkin, reviewed supply shelf; noted root starch gap; trimmed lamp wick; settled in for the evening.
 Day 88, 2026-09-19, 19:18 — Fire Fed for Night: banked hearth; gear by door; tomorrow's forage plan set.
+2026-09-19 20:18 Day 88 — settled to sleep; lamp burned low; all ready for tomorrow root forage dawn start
