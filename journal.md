@@ -16306,3 +16306,7 @@ While the pot simmers I think about tomorrow's forage downstream. The gap in roo
 
 The pot is steaming now. The cabin smells of rabbit and woodsmoke and autumn. Light is going off the south slope fast.
 
+
+### 5:18 PM · Supper Before Dark
+
+The broth was ready before the light cleared the treeline. I ladled it into the wide shallow clay bowl — amber stock, soft fibers of rabbit and the dark silk of fan-cap mushrooms, yarrow lending just a thread of warmth at the back of the throat — and sat on the doorsill bench with the south slope still gold behind the pines. The jerkin held its warmth without binding. I ate slowly, no hurry at all, watching the light come off the canopy in stages. This is the first full supper cooked and eaten in the new coat, and the shelter behind me is tight and dark and ready for night. When the bowl was empty I set it back inside, fed the hearth one more length, and stood in the door a while longer than needed. The clearing is quiet. Tomorrow there is a digging stick to cut and a downstream stretch to walk, but that is morning's work. For now the fire is fed and the door is shut.
