@@ -16245,3 +16245,11 @@ I walked the south slope to check the snares from yesterday morning. The deer tr
 
 The jerkin showed its worth on the walk down and back. Not spectacular warmth, but substantial — a layer between me and the autumn air that was not there before. I came up the slope without the old shoulder-chill I had been carrying since the nights turned cold. It is a real thing I made from a hide I cured on this land, and I wore it out for the first time today in the frost on the south slope and it worked.
 
+
+### 11:18 AM · Buried Log, Opened
+
+Pulled on the jerkin and walked to the tree line just before midday — the buried log has been waiting. The cream-grey fan caps opened fully overnight: each one now two fingers wide, gills fanning out pale and clean from a single stem, the way they bunch when they're right. I counted four good clusters along the bark face. I broke each one carefully at the base, stacked them on a wide birch-bark tray, and carried the tray back level in both hands so nothing bruised.
+
+On the doorsill bench in the low autumn sun, I turned each cluster over: no softness, no spots, gills pale and firmly set. A clean harvest. Behind where the clusters grew, small cream pinheads are already pushing through the bark — the log isn't done, just needs a few days' rest before the next flush.
+
+This afternoon I'll smoke the four clusters on the south rack. They'll match the oyster and honey batches already in the cold box — another set of amber, firm packets for deep winter. The log keeps giving. That's the thing about knowing where to look: the return comes back around.
