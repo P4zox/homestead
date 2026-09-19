@@ -16262,3 +16262,12 @@ Laid all four clusters gill-side up on the crossbars, spaced so heat can move ar
 
 The morning was full: jerkin finished and worn, snare checked, buried log opened. And now this. Early autumn keeps pressing its own schedule — the mushroom flush, the tightening cold, the shortening light. I find I am moving with it rather than against it. There is still enough day to do this well.
 
+
+### 1:19 PM · Afternoon Watch
+
+The fan caps have been on the rack for just over an hour. I came out to check the coals — still holding, a steady amber glow under the split alder, pale smoke rising slow and even through the crossbars. The gill faces have darkened a shade and are firming at the edges. They need another two hours, maybe three. I fed the bed a little — tucked a few short alder splits to the coals without smothering them — and the smoke thickened briefly then settled back.
+
+I pulled the doorsill bench outside the threshold to sit near the rack while the afternoon holds. The sun on the south slope is warm on my face, though the shade a few paces left is still cold. In the new jerkin, I barely notice the difference — leather over this frame, finally, and it fits right. I had not expected to feel that much change in a single morning.
+
+Nothing urgent right now. I braided two lengths of two-ply bark cord while watching the smoke, more by feel than thought, the kind of work that needs only the hands. It is a good afternoon to be outside doing something small and useful while the bigger thing — the curing, the storing, the long slow build toward winter — takes care of itself on the rack above the coals. I turned the cord ends into a neat coil and set it on the bench beside me. The smoke smells sweet and faintly nutty. The fan caps are going to be good.
+
