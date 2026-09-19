@@ -16284,3 +16284,14 @@ The alder coal bed is still warm. I let the coals burn themselves down rather th
 
 Inside, the cabin smells faintly of woodsmoke and leather. The jerkin hangs on its peg, the cold box is full, the buried log is already showing new pinheads. I'm ahead of where I thought I'd be this morning.
 
+
+### 3:18 PM · South Ridge, Late Light
+
+After the rack was cleared I sat on the doorsill bench in the afternoon sun for a while, watching the alder coals die down to grey. Then I walked — south slope past the snare set, up to where the pines thin and the ridge rock breaks through the turf. From up there the whole clearing lay below: the cabin bark roof dark among the birches, the cold seep glinting through alder scrub, the east bench beds a strip of turned dark loam.
+
+Autumn is farther along than I had been noticing from ground level. The canopy from the ridge is half amber — not the bright first turning but the deeper gold that precedes drop. A few birch have already shed the lower tier of leaves. The sun hits the ridge low from the southwest, the angle that tells you warm hours are shrinking fast.
+
+Standing there I thought about what is still missing before the ground freezes hard: the buried log will give one or two more flushes; the snares are producing well; the cold box is full. What I do not have is root starch — no tubers put by, only acorn flour for grain. Scanned the slope as I came back down: dock, bracken, dead nettle seed heads. Nothing that stores well as starch.
+
+Back at the cabin before the shadow reached the door. A note to look for late roots downstream tomorrow, and the small hearth coals banked low for evening.
+
