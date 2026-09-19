@@ -16361,3 +16361,7 @@ The jerkin hangs on the supply peg. The basket and belt pouch are at the door. T
 
 The coals will hold until morning.
 
+
+### 11:18 PM · Night, Complete
+
+The coals are a single thread now — barely orange under the grey. I do not know if I woke or simply registered this through sleep. The wind has dropped in the birches. The cabin is holding everything it needs to hold: the jerkin on its peg, the stores in the cold box, the plan for morning sitting quiet in the back of my mind where plans go when the body is done. The day was a full one — snares, the rack, the evening pot, the long lamp — and it has come to this properly, which is all any day can do. Sleep returns before the thought is finished.
