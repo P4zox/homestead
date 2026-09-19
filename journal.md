@@ -16253,3 +16253,12 @@ Pulled on the jerkin and walked to the tree line just before midday — the buri
 On the doorsill bench in the low autumn sun, I turned each cluster over: no softness, no spots, gills pale and firmly set. A clean harvest. Behind where the clusters grew, small cream pinheads are already pushing through the bark — the log isn't done, just needs a few days' rest before the next flush.
 
 This afternoon I'll smoke the four clusters on the south rack. They'll match the oyster and honey batches already in the cold box — another set of amber, firm packets for deep winter. The log keeps giving. That's the thing about knowing where to look: the return comes back around.
+
+### 12:18 PM · Smoke Over Alder
+
+The four clusters have been sitting on the doorsill bench since late morning — caps open and pale, gills clean. I split good alder from the woodpile and built a slow fire under the south rack while the sun was still climbing. No hurry. Just let it catch easy and breathe.
+
+Laid all four clusters gill-side up on the crossbars, spaced so heat can move around each cap. The smoke off alder is pale and faintly sweet — nothing harsh, nothing that overpowers. I will tend the ember bed through the afternoon, keeping it slow and steady. By late day they should be golden and firm, sealed against damp, ready for the cold box.
+
+The morning was full: jerkin finished and worn, snare checked, buried log opened. And now this. Early autumn keeps pressing its own schedule — the mushroom flush, the tightening cold, the shortening light. I find I am moving with it rather than against it. There is still enough day to do this well.
+
