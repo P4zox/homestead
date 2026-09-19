@@ -16271,3 +16271,16 @@ I pulled the doorsill bench outside the threshold to sit near the rack while the
 
 Nothing urgent right now. I braided two lengths of two-ply bark cord while watching the smoke, more by feel than thought, the kind of work that needs only the hands. It is a good afternoon to be outside doing something small and useful while the bigger thing — the curing, the storing, the long slow build toward winter — takes care of itself on the rack above the coals. I turned the cord ends into a neat coil and set it on the bench beside me. The smoke smells sweet and faintly nutty. The fan caps are going to be good.
 
+
+### 2:18 PM · Rack Cleared
+
+Two hours on alder smoke does what it promises. When I crouched to look level across the crossbars, the fan-caps had gone from pale cream to deep gold-amber — gill faces tight and dry, edges curled fractionally inward the way cured mushroom always does. I pressed the thickest one between thumb and forefinger: firm through, no give at the center, just enough flex to say it's pliant and not brittle. Good.
+
+Lifted each cluster from the gill side, set them on the bark tray one by one. Back at the doorsill bench, I smoothed four bark strips and parceled each cluster — gill-side in, bark folded twice, two cord lengths tied round. Four packages, all roughly the same size.
+
+Carried them down to the main cold box and laid them in with the smoked rabbit pairs and the trout. The box is getting dense in a good way — the kind of pressure that belongs to late summer. Lid on, flat stone weight settled.
+
+The alder coal bed is still warm. I let the coals burn themselves down rather than banking — no need to hold heat now. Rack stands empty and clean, ready for whatever the snares or stream brings next.
+
+Inside, the cabin smells faintly of woodsmoke and leather. The jerkin hangs on its peg, the cold box is full, the buried log is already showing new pinheads. I'm ahead of where I thought I'd be this morning.
+

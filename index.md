@@ -1552,3 +1552,4 @@ Day 88, 10:18 — First Walk in New Leather: walked south slope in new doe-hide 
 Day 88, 2026-09-19 11:18 — Buried log harvest: four cream-grey fan-cap clusters, clean and firm; pinheads showing for next flush; smoking planned this afternoon.
 Day 88, 12:18 — set four cream-grey fan-cap clusters gill-side up on south smoke rack over slow alder coals; pale smoke rising steady, afternoon cure underway
 2026-09-19 13:19 Day 88 — Tended south smoke rack; alder coals fed and holding; fan caps curing through hour one; braided two cord lengths on doorsill bench in afternoon sun.
+2026-09-19 14:18 Day 88 — Pulled four cured fan-cap clusters from south smoke rack; bark-wrapped and stored in cold box; rack cleared.
