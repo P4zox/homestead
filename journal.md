@@ -16385,3 +16385,7 @@ It is propped by the door now. The snares come next, then the stream corridor do
 
 The frost is already softening at the edges. Good light coming.
 
+### 7:19 AM · Frost Snares
+
+Stepped out with the digging stick propped at my shoulder — more as habit than need; the root forage is still ahead. The south slope was stiff with frost, every blade of grass white and brittle underfoot, the birch trunks almost luminous in the low morning light. Found the first snare sprung and a good-sized rabbit caught clean. Reset the trigger with steady fingers. The second snare was untouched — cord still set, no sign of approach — so I moved the anchor peg slightly east where the run looks more pressed. The rabbit went into the cold box wrapped in dock leaves alongside the others. Six rabbits now, with more still smoking in bark. With the digging forage still to come this morning, the gap in starch stores feels answerable today. The stick stands ready by the door.
+
