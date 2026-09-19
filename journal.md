@@ -16365,3 +16365,23 @@ The coals will hold until morning.
 ### 11:18 PM · Night, Complete
 
 The coals are a single thread now — barely orange under the grey. I do not know if I woke or simply registered this through sleep. The wind has dropped in the birches. The cabin is holding everything it needs to hold: the jerkin on its peg, the stores in the cold box, the plan for morning sitting quiet in the back of my mind where plans go when the body is done. The day was a full one — snares, the rack, the evening pot, the long lamp — and it has come to this properly, which is all any day can do. Sleep returns before the thought is finished.
+
+---
+
+# Day 89 — Sunday, 20 September 2026
+*early autumn · hard frost at dawn — doorsill bench and woodpile silvered white; coals still holding under grey ash*
+
+### 6:18 AM · Digging Stick, Dawn
+
+Rose at first light — the cabin still dark except for one thread of orange at the hearth. Pulled on the new jerkin and foot wraps in the dark, not yet wanting to feed the fire, and unlatched the door.
+
+The air outside hit me like cold water. Frost on the doorsill bench. Frost on the woodpile stacked under the lean-to eave. The south-slope grass bent silver and still, and the birches at the top of the rise showed pale in that first grey before sun. I stood in the doorframe a moment just breathing it — leather and cold and pine pitch, all of it at once.
+
+Then I went to the hazel stand south of the birch line, before doing anything else. I wanted the digging stick in hand before the morning got away from me. Found what I was after quickly: a straight young shoot, maybe two thumb-widths at the base, clean for most of its length with no forks until well above where I would need to cut. Cut it at the root, stripped the side shoots, and carried it back to the doorsill bench.
+
+Spent half an hour there shaping the working end on the gneiss grinding stone — a flat oval point, wide enough to get purchase under a root, tapered enough to slip between stones. The other end left blunt, good for pushing down with the heel of my hand when something needs levering. Turned it over when I was done. Solid. Even. About the right weight for a morning of real digging.
+
+It is propped by the door now. The snares come next, then the stream corridor downstream, where I think there are cattail roots and possibly groundnut if the bank is right. No starch stores beyond acorn flour — that gap has been sitting in the back of my mind since the ridge walk yesterday. Today I mean to close it, or begin to.
+
+The frost is already softening at the edges. Good light coming.
+

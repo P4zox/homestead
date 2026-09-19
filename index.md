@@ -1562,3 +1562,4 @@ Day 88, 2026-09-19, 19:18 — Fire Fed for Night: banked hearth; gear by door; t
 2026-09-19 21:18 Day 88 — Lamp burned out; rose briefly in the dark, checked hearth coals — properly banked, needed nothing; cabin tight and quiet; back to sleep
 2026-09-19 22:18 Day 88 — Banked and Dark — sleeping, cabin tight, coals banked, tomorrow planned (hazel stick, snares, tuber forage)
 2026-09-19 23:18 Day 88 — Night, Complete: coals a single thread, wind dropped in birches; cabin sealed and quiet; fell back under without finishing the thought.
+Day 89, 2026-09-20, 06:18 — Cut hazel digging stick at dawn; hard frost; Day 89 begins with root forage planned downstream.
