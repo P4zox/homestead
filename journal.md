@@ -16225,3 +16225,14 @@ When I lifted the jerkin for the last time this morning it was a garment. All fo
 
 The buried log cluster still on my mind for midday.
 
+
+### 9:00 AM · Jerkin, Finished
+
+The hem trim took the better part of an hour. I laid the jerkin flat on the hearthstone and worked the knife along the bottom edge, pressing against the gneiss grinding stone for a clean line — shaving off the ragged ends where the hide had stretched through the seaming. All the way around. Front, back, both side strips joined and even.
+
+The neck cord was easier: a length of leather lacing threaded through the bone needle, drawn through a series of small holes punched around the neck opening. I had made those holes with the knife tip last evening without quite knowing why. The cord draws the neck in snug when pulled and tied off in front.
+
+I wore it outside on the doorsill step in the cold morning air — hard frost still on the grass, breath visible, bright low sun across the treeline. It sits right. Shoulders where they should be, hem at the hip, the whole thing snug enough to block wind. I stood there longer than I needed to.
+
+It went onto the supply peg to air. The buried log cluster is still for midday. Snares maybe tomorrow. For now I stood at the door and let the cold in a little, wearing a coat I made, which is its own kind of good.
+
