@@ -16321,3 +16321,14 @@ The fire clicks and settles. A log takes the coals down a notch. I trim the tall
 
 Outside: dark, clear, cold. Inside: small and enough.
 
+
+### 7:18 PM · Fire Fed for Night
+
+The hearth had burned down to low red coals by the time I thought to tend it — not urgent, but worth doing right before I sleep. I split one short birch round on the hearthstone, fed both halves in angled to last the night, and let the smoke unfurl upward in the still air.
+
+The new jerkin is warm in a way the blanket was not — it wraps close and stays where I put it. I've been wearing it since supper and barely noticed it, which is perhaps the best thing you can say about a garment.
+
+Tomorrow I need a hazel digging stick before anything else. I moved the gathering basket to just inside the door; hung the belt pouch on its hook beside it. If I cut the stick before the frost lifts, the rest of the morning falls into order: south snares checked, downstream forage by mid-morning while the ground is still soft from overnight damp. Root starch is the one real gap in the stores. Everything else on that shelf is solid.
+
+Lamp is burning low now. Coals breathing under the new wood. A full day behind me — and the jerkin proof of it.
+
