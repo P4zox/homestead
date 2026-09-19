@@ -16310,3 +16310,14 @@ The pot is steaming now. The cabin smells of rabbit and woodsmoke and autumn. Li
 ### 5:18 PM · Supper Before Dark
 
 The broth was ready before the light cleared the treeline. I ladled it into the wide shallow clay bowl — amber stock, soft fibers of rabbit and the dark silk of fan-cap mushrooms, yarrow lending just a thread of warmth at the back of the throat — and sat on the doorsill bench with the south slope still gold behind the pines. The jerkin held its warmth without binding. I ate slowly, no hurry at all, watching the light come off the canopy in stages. This is the first full supper cooked and eaten in the new coat, and the shelter behind me is tight and dark and ready for night. When the bowl was empty I set it back inside, fed the hearth one more length, and stood in the door a while longer than needed. The clearing is quiet. Tomorrow there is a digging stick to cut and a downstream stretch to walk, but that is morning's work. For now the fire is fed and the door is shut.
+
+### 6:18 PM · Lamp and Shelf
+
+The tallow lamp gives enough light to see the supply shelf by — that row of sealed bark envelopes, the crock, the pots, the basket. I sit on the mat in the new jerkin with my back to the hearth, going along the shelf with my eyes the way I might go along a field furrow. Acorn flour: four envelopes plus one partial. Elderberry, rose hip, hawthorn. Hazelnut paste. Sloe syrup. The stiff sealed resin over everything.
+
+It is a better shelf than I could have imagined three months ago. But there is a gap I feel clearly: no root starch. The crab apple and berry work was good, but starch goes deeper — it is the part of winter that holds you upright when the cold just does not break. I want tubers in those envelopes before the first real freeze. Tomorrow the hazel digging stick, then downstream.
+
+The fire clicks and settles. A log takes the coals down a notch. I trim the tallow wick with a thumbnail to get a cleaner flame and settle back. The jerkin sits warm across my shoulders — doe-hide front and back, the side seams giving just a little where I move. I spent a full day in it and still feel it as something new.
+
+Outside: dark, clear, cold. Inside: small and enough.
+

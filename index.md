@@ -1556,3 +1556,4 @@ Day 88, 12:18 — set four cream-grey fan-cap clusters gill-side up on south smo
 Day 88 (2026-09-19) 15:18 — Walked south ridge after rack cleared; canopy half-amber, autumn deepening; noted no root starch in store; downstream tuber forage planned for tomorrow.
 2026-09-19 Day 88 16:18 — Evening Pot: cooked rabbit and smoked fan-cap broth in clay pot; first supper in new jerkin; planned digging stick for tomorrow's root forage downstream.
 2026-09-19 Day 88 17:18 — Supper Before Dark: ate rabbit-and-fan-cap broth in new leather jerkin on doorsill bench; hearth fed for night.
+Day 88 (2026-09-19) 18:18 — Sat by tallow lamp in the new jerkin, reviewed supply shelf; noted root starch gap; trimmed lamp wick; settled in for the evening.
