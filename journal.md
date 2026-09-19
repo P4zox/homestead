@@ -16295,3 +16295,14 @@ Standing there I thought about what is still missing before the ground freezes h
 
 Back at the cabin before the shadow reached the door. A note to look for late roots downstream tomorrow, and the small hearth coals banked low for evening.
 
+
+### 4:18 PM · Evening Pot
+
+I built the hearthfire up from coals just after the ridge walk, and now the cabin holds its warmth in a way only evening fires do — different from morning, less provisional. I pulled one rabbit from the cold box, jointed it on the hearthstone, and set the pieces in the clay broth pot with a splash of cold water. Added two of the smoked fan-cap clusters from this afternoon's alder cure — they came apart in the liquid, going amber and silky at the edges. A pinch of dried yarrow, more for the scent of it than anything. The pot rests over a quiet flame.
+
+The new jerkin keeps the drafts off my shoulders. I'm not used to it yet — I keep noticing the weight of it, the smell of smoked hide. There is something steadying in wearing what you have made with your own hands.
+
+While the pot simmers I think about tomorrow's forage downstream. The gap in root-starch stores bothers me more than it probably should — I have acorn flour, enough to thicken broth all winter — but no proper tuber starch. Wild carrot, groundnut, cattail root if I can find a backwater slow enough to dig in. I'll need the wide gathering basket and a good digging stick; I'll cut the stick from a straight hazel branch first thing in the morning before I set out.
+
+The pot is steaming now. The cabin smells of rabbit and woodsmoke and autumn. Light is going off the south slope fast.
+
