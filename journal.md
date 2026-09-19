@@ -16236,3 +16236,12 @@ I wore it outside on the doorsill step in the cold morning air — hard frost st
 
 It went onto the supply peg to air. The buried log cluster is still for midday. Snares maybe tomorrow. For now I stood at the door and let the cold in a little, wearing a coat I made, which is its own kind of good.
 
+
+### 10:18 AM · First Walk in New Leather
+
+The jerkin had been hanging on the supply peg less than two hours when I finally took it down and put it on for real. Not to stand in the doorway — to walk. The frost had softened by mid-morning but the air was still cold enough that every breath showed, and when I stepped off the doorsill bench into the clearing the leather settled around me in a way I had not expected: weight and warmth at once, the hide moving with me.
+
+I walked the south slope to check the snares from yesterday morning. The deer trail there is bare dirt under pines; frost lingers on the north-facing side of each trunk long after the clearing has thawed. One snare had caught — a rabbit, hindquarters up and still. I dressed it on the spot with cold fingers, working quickly, and reset the snare with a fresh loop before heading back. The other two were undisturbed.
+
+The jerkin showed its worth on the walk down and back. Not spectacular warmth, but substantial — a layer between me and the autumn air that was not there before. I came up the slope without the old shoulder-chill I had been carrying since the nights turned cold. It is a real thing I made from a hide I cured on this land, and I wore it out for the first time today in the frost on the south slope and it worked.
+

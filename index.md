@@ -1548,3 +1548,4 @@ Day 87, 23:18 — woke briefly in deep night; fed one stick to dying coals; leat
 2026-09-19 Day 88 07:18 — Sewed both shoulder seams on the jerkin by morning light; bone needle and fine leather thread; garment shape visible when half-joined piece held up in doorframe; side seams next.
 Day 88 08:18 — Finished jerkin side seams; body of garment complete, all four seams closed; worn in doorway; buried log mushroom cluster check pending.
 2026-09-19 Day 88 09:00 — Jerkin, Finished: hem trimmed even, neck cord drawn and tied; jerkin complete and hanging on supply peg
+Day 88, 10:18 — First Walk in New Leather: walked south slope in new doe-hide jerkin; found one rabbit in snares, dressed on slope, reset; other two undisturbed; six rabbits total in cold box; buried log mushroom cluster still for midday check.
