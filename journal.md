@@ -16511,3 +16511,12 @@ By the time I coiled the spare strips back and hung the new lengths on the cord 
 
 Not every evening needs a hard thing.
 
+
+### 8:18 PM · Cabin Round, Still Night
+
+I set the last coil of cord on the peg and stood, back-popping from the floor mat. The tallow lamp burned steady, the cabin warm from a full day at the fire. I unlatched the door and stepped outside — the cold arrived at once, hard-frost cold, the kind that sharpens the stars and stings the nose in one breath. The sky was wide open above the treeline: a river of stars across the black, Jupiter steady and bright low in the east. The woodpile stood eave-high, bark-side up. The smoke rack ropes held tight. I walked the ten paces to the cold box and lifted the lid a finger-width — rabbits and trout holding cold, the bark-wrapped packages firm and dry. Lid back down, stone repositioned flush.
+
+Back inside I pulled the latch and stood a moment letting the warmth settle on my face. I added one short pine billet and drew the coal bed forward with a green stick — banked flat burns longer, holds the heat past midnight. Trimmed the wick down to a low glow. The day had been long and full: digging stick cut at frost-dawn, roots found downstream, three rabbits smoked to golden-tan, both mittens stitched and worn, cattail starch confirmed viable, two cord lengths braided by lamplight. The stores feel solid now. The cold box is full, the jerkin hangs on its peg, the mittens sit warm on the bench.
+
+I settled back on the floor mat and let the evening quiet in. The fire spoke low. The walls held the cold outside where it belonged. Tomorrow: more starch from the cattail beds, and the downstream burdock to check. But that is tomorrow. Tonight the night is still and cold and very clear.
+

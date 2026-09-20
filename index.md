@@ -1576,3 +1576,4 @@ Day 89, 16:19 — Mittens finished: both palm seams stitched closed; doe-hide mi
 Day 89, 17:18 — First cattail-starch flatcakes cooked and eaten on the hearthstone; starch confirmed viable as a winter ingredient.
 Day 89, 18:18 — Supper, Tallow Light: burdock-and-smoked-trout broth with watercress; winter stores accounted by hearthstone lamplight; fire banked.
 Day 89, 19:18 — Cord by lamplight: two two-ply birch-bark lengths braided at hearthside by tallow lamp; winter stores reviewed in mind; fire holding on pine billet.
+Day 89, 20:18 — Cabin Round, Still Night: stepped outside in hard frost to check cold box and smoke rack; Jupiter in the east; fire banked, wick trimmed; settled for evening.
