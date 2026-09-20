@@ -16551,3 +16551,17 @@ I think about what this life has become. Ten paces of shelter, a hearth that hol
 
 Sleep now.
 
+
+---
+
+# Day 90 — Monday, 21 September 2026
+*Early autumn · hard frost at dawn, clear and still*
+
+### 6:00 AM · Dawn Rekindled
+
+Woke in dark cabin, sleeping bag still holding warmth from the banked fire's long coals. Pulled on foot wraps and jerkin before leaving the floor mat, then unlatched the door to read the world: hard frost on the doorsill bench and woodpile again, the grass bowing under it, silver-white in the first grey light. Clear sky still dark in the west, a faint gold edge forming at the treeline east. Jupiter still visible overhead.
+
+Came back inside and crouched at the hearth. Thin birch kindling laid over the pale coals — blew gently once, twice. A small orange glow, thin curl of smoke, then a proper flame. Two pine splinters over it, then a billet once the fire was sure of itself. The cabin smell changed in that moment: cold stone and dead air becoming warm and alive. Sat on the hearthstone edge with hands out, listening to the fire settle into its rhythm.
+
+Day 90 beginning in frost and rekindled fire. Cattail beds downstream for more root starch, burdock to check, and the buried log should give its next flush in a day or two. Another good day to step into.
+
