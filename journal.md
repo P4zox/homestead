@@ -16473,3 +16473,7 @@ The left thumb went quicker — I know the stitch now, and the pieces were alrea
 
 I set both half-mittens on the doorsill bench. Two mittens, one more session away. Watched the shadow of the woodpile move slow across the cleared ground, and felt no urgency at all.
 
+
+### 4:19 PM · Mittens, Done
+
+The light was falling west and gold through the cabin door when I sat back down at the hearthside with the half-mittens. The starch paste on the bark tray had gone fully dry — a white film curling at the edges. I picked up the right mitten first: palm seam open along its length, two edges of doe-hide ready. Ran a running stitch close and pulled it tight, knotted; then whip-stitched over the edge for strength. The left mitten the same, stitch by stitch in the gold last light. By the time the second knot was done the light had shifted from gold to copper. I tried them on at the doorsill — leather stiff but ready to work in, thumbs sitting right, palms warm and close. They are done. First full cold morning — frost on the bench wood, breath hanging white in the air — I will have mittens. That matters more than I expected.
