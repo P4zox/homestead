@@ -16414,3 +16414,14 @@ The mid-depth bark-paddle rig had drifted a little, caught against a half-submer
 
 That number steadied something in me. I stood at the bank a moment longer than I needed to, watching the current carry a loose scatter of yellowed birch leaves around the downstream bend — each one spinning once, slowly, before the water took it out of sight. The light on the stream was that low amber gold that only September has. There was frost again by mid-afternoon somewhere in this, and hard cold by winter. But today the water was clear, the line held, and the box is fuller than it was at dawn.
 
+
+### 11:18 AM · Broth and Sun
+
+The frost was gone by mid-morning — the grass dark and wet where it had been white, the doorsill bench dry enough to sit on. I stoked the fire with two small pine billets and hung the clay pot low over the coals with two burdock rounds and a pinch of ash-salt. Ten minutes of simmer and the cabin was warm and smelling of good earth.
+
+Ate it outside on the bench in direct autumn sun. Not warm exactly — the air is too thin this far into September — but direct, and against the log wall it counted. Two jays crossed the open ground east of the clearing, unhurried, and I watched them go.
+
+I have been keeping a loose count in my head all morning: thirteen trout in the cold box, six rabbits, mushrooms in three separate cures, root pastes and berry syrups, acorn flour, the winter crock building full. The leather jerkin on my back. The woodpile past eye level on the lean-to wall. Day 89.
+
+The work is starting to compound — each thing built makes the next easier; each filled store makes the worry a little quieter. That is the shape of this life, I think. Slow accumulation. On a frost-bright still morning with good broth in hand, that is more than enough.
+
