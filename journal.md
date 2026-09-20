@@ -16389,3 +16389,14 @@ The frost is already softening at the edges. Good light coming.
 
 Stepped out with the digging stick propped at my shoulder — more as habit than need; the root forage is still ahead. The south slope was stiff with frost, every blade of grass white and brittle underfoot, the birch trunks almost luminous in the low morning light. Found the first snare sprung and a good-sized rabbit caught clean. Reset the trigger with steady fingers. The second snare was untouched — cord still set, no sign of approach — so I moved the anchor peg slightly east where the run looks more pressed. The rabbit went into the cold box wrapped in dock leaves alongside the others. Six rabbits now, with more still smoking in bark. With the digging forage still to come this morning, the gap in starch stores feels answerable today. The stick stands ready by the door.
 
+
+### 8:19 AM · Root-Finding, Downstream
+
+The frost was still white on the grass when I shouldered the gathering basket and set off downstream, digging stick tucked under one arm. The sun was only just clearing the eastern treeline, light lying gold and flat across the water.
+
+I worked the south bank where the ground softens and vegetation crowds — good root territory. The digging stick did what I had hoped: the flat-oval point prized into gravelly loam without dragging a furrow, let me feel my way around buried mass, and the blunt leverage end turned things up cleanly. At the muddy bend where the water slows I found cattail rhizomes — a good dense stand, white and starchy inside. I dug half a basket full, careful to leave the stand intact, and packed them in cold dock leaves to hold the moisture.
+
+Further upstream where the banks run soft and shadowed I found burdock — three good roots, pale under dark soil, long and tapered. They need long simmering to sweeten, but there is real food in them. A handful of wood sorrel from the shade edge rounded out the basket.
+
+The whole haul felt like a quiet gap in the stores being closed. Root starch has been the missing note, and now there is some. By the time I turned for home the sun was full above the trees and the frost had lifted completely. Basket heavy on my arm, digging stick over my shoulder.
+
