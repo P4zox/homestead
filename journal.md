@@ -16451,3 +16451,14 @@ Two washes. A good pale yield. I carried the basin back carefully, drained the c
 
 The cattail season is nearly past. Glad I went this morning when the frost was still on the bank.
 
+
+### 2:18 PM · Mitten Shapes
+
+The starch paste was still drying on the tray by the hearth — pale at the edges and faintly sweet-smelling — so I spread the remaining doe-hide scraps on the work surface near the doorsill and turned my mind to what has been waiting: mittens. The frost has whitened the woodpile two mornings running now, and the jerkin and foot wraps are sound, but bare hands on an axe handle in hard December would undo a lot of other good work.
+
+I pressed my right hand flat against the hide and traced the outline with the knife tip — wide palm piece, separate thumb piece — then did the same for the left. Four cuts in all. The leather is supple and amber-tan from the curing, more give than the stiffened rabbit panels that make up the jerkin sides. I worked slowly; the bone needle can stitch errors, but it cannot undo them.
+
+By mid-afternoon both sets of pieces were cut clean and I had the running seam started on the right thumb piece — tight and even, bone needle drawing the thread through without tearing. The left mitten pieces are cut and laid ready for tomorrow. Small, precise work, the kind that suits a quiet Sunday with good light slanting through the cabin door.
+
+Outside, a thrush called once from the birch stand and was answered by nothing. The starch paste had dried to a pale film at the bark-tray edges. Winter is still a thought, not yet a weight — but mittens in progress on a clear autumn afternoon is the right answer to the frost on the doorsill.
+
