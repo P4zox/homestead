@@ -1581,3 +1581,4 @@ Day 89, 21:18 (2026-09-20, Sunday): Last Watch — tallow lamp low, fire banked;
 2026-09-20 Day 89 22:18 — Night, Well-Banked: fire to coals, tallow spent, winter stores sound, settled to sleep on floor mat.
 2026-09-20 · Day 89 · 23:18 — Lying awake in dark cabin, coals fading and tallow lamp spent; listened to pines and stream through sealed walls; reviewed winter stores in mind — all sound; sleep taking hold.
 Day 90 (2026-09-21 Mon) 6:00 AM — Dawn Rekindled: new day rollover; fire rekindled from banked coals at dawn, hard frost outside, cattail and burdock run ahead, buried log flush ~Day 91.
+2026-09-21 Day 90 07:00 — Downstream in Frost: gathered cattail rhizomes and burdock roots in hard frost and gold birch light; roots set by hearth to dry for starch processing.

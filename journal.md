@@ -16565,3 +16565,12 @@ Came back inside and crouched at the hearth. Thin birch kindling laid over the p
 
 Day 90 beginning in frost and rekindled fire. Cattail beds downstream for more root starch, burdock to check, and the buried log should give its next flush in a day or two. Another good day to step into.
 
+
+### 7:00 AM · Downstream in Frost
+
+The frost held as I pulled on the new mittens at the door — first real wearing of them on a work trip, and the fingers stayed warm where they'd have been numb a week ago. The path runs east along the stream bank, water low and clear between ice-fringed stones. Light came up gold through the birches, catching frost crystals on every grass stem, turning the whole bank briefly beautiful before the sun climbed and the frost began to melt.
+
+The cattail stands were silver-white at stem and leaf, but the mud at the root zone was still unfrozen a hand's-breadth down, and the rhizomes came out full and heavy. Four armfuls before my back said enough. I checked the burdock bend while I was there — one last stand of thick-crowded roots along the outer curve; took six of the biggest, left the smaller ones to grow on. Filled the gathering basket to the rim and turned for home with the early sun full in my face.
+
+Back at the cabin, I set the rhizomes and burdock crowns by the hearth to let the outer skin dry before processing. The starch work is the usual patience: slice them open, pound the pulp under cold water, wait for the white starch to settle, pour off the milky water, spread the paste to dry. One more run like this and the starch store should see the coldest weeks through without worry. The cabin smells of clean mud and pine smoke. Outside, the frost is going off the woodpile; the birches are losing their gold faster now, one leaf at a time.
+
