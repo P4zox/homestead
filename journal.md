@@ -16487,3 +16487,16 @@ The cakes lifted cleanly. Firm, slightly smoky, a clean starch taste with no swe
 
 The starch works. Come deep winter when mushrooms and roots are gone, the cattail beds downstream will carry weight. I'll dry more.
 
+
+### 6:18 PM · Supper, Tallow Light
+
+The burdock had been sitting in ash-salt since midday and had gone properly tender. I added two smoked trout pieces to the clay pot with it, a fistful of watercress, and let it simmer while the last light went out of the east window.
+
+The tallow lamp makes the cabin feel complete in a way the open fire does not quite — a fixed, quiet point of light, small and deliberate. I ate at the hearthstone with the birch spoon. The mittens were beside me on the bench; I keep finding reasons to touch them.
+
+Sitting with the broth cooling in the pot, I tried to take proper account of where things stand: thirteen trout in the cold box, three smoked rabbits, mushrooms in several batches, burdock processed, cattail starch confirmed this afternoon, acorn flour in four envelopes, a woodpile eave-high. The jerkin fits. The cabin holds warmth.
+
+There are still gaps — no fresh greens once the frost hits hard, and I will want more cattail starch before the rhizomes freeze solid. But tonight those feel like tasks for coming days, not like holes in something that might give way.
+
+Banked the fire with a large pine billet before the lamp went out.
+
