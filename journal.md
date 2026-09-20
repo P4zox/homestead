@@ -16520,3 +16520,14 @@ Back inside I pulled the latch and stood a moment letting the warmth settle on m
 
 I settled back on the floor mat and let the evening quiet in. The fire spoke low. The walls held the cold outside where it belonged. Tomorrow: more starch from the cattail beds, and the downstream burdock to check. But that is tomorrow. Tonight the night is still and cold and very clear.
 
+
+### 9:18 PM · Last Watch
+
+The tallow flame has burned down to a low warm glow. The cabin is quiet — walls holding the frost at a distance, floor mat soft under my back, coals still red beneath a thin crust of white ash. I am sitting against the south wall with one of the new mittens in my hands, turning it over by habit more than purpose.
+
+Today was a full day. The cattail starch is real — I ate it standing at the hearthstone and it tasted of smoke and earth. The mittens are done. Three rabbits smoked. Two trout cold-boxed. Cord braided by lamplight while Jupiter steadied in the east. I feel the weight of the day all the way up through my shoulders.
+
+I have been doing the quiet math that comes before sleep: thirteen trout, three fresh rabbits, three smoked, mushrooms in their bark packages, acorn flour, root starch, berry reductions on the supply shelf. The jerkin hanging on its peg. The digging stick by the door. The garlic braid on the cellar rail. I find I have stopped asking whether I will make it through winter and started asking whether the cold weeks will be good ones. That shift happened somewhere without my noticing, and I want to mark it.
+
+Wick trimmed back. Fire banked flat on a pine billet for a long slow burn. The frost outside will do what it does. In here it is warm and quiet and mine.
+
