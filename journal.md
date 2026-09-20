@@ -16438,3 +16438,16 @@ Three hours of slow, cool smoke — by mid-afternoon the skins had taken on that
 
 The stores run deeper now. Three rabbits cured and sealed against whatever the season brings.
 
+
+### 1:18 PM · Root Starch, Clear Water
+
+The alder smoke has gone out and the three rabbit lengths are back in the cold box, firm and golden. The clearing is unusual today — completely still at early afternoon, birch leaves unmoving, the light coming in low and angled from the south-southwest the way it does now that autumn has the angle of it.
+
+I decided not to wait until tomorrow for the cattail rhizomes. I brought the half basket out of the cold box and carried it down to the stream with a bark basin and the grinding cobble. Worked each rhizome over the flat stone — not grinding, more pounding and squeezing, fibrous bundles in cold water until the water whitened. The color came quickly: pale, then thick white, almost opaque if you held the basin up to the light. The fiber I squeezed out was mostly clean.
+
+I left the basin on a flat stone at the stream edge and sat on the bank for a while. A dipper worked the shallows twenty paces upstream, bobbing its characteristic low bow on every stone. The starch settled while I watched — you can see it happen if you're patient, the water clearing from the top down, the white layer compacting at the bottom.
+
+Two washes. A good pale yield. I carried the basin back carefully, drained the clear water over the stream bank, and scraped the white paste onto a flat bark tray that I've set near the hearth. It will dry slowly in the cabin warmth over the next day or so — ending as a dry starch, good for thickening winter broth or patted into small flatbread cakes and dried further on the hearthstone.
+
+The cattail season is nearly past. Glad I went this morning when the frost was still on the bank.
+
