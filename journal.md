@@ -16462,3 +16462,14 @@ By mid-afternoon both sets of pieces were cut clean and I had the running seam s
 
 Outside, a thrush called once from the birch stand and was answered by nothing. The starch paste had dried to a pale film at the bark-tray edges. Winter is still a thought, not yet a weight — but mittens in progress on a clear autumn afternoon is the right answer to the frost on the doorsill.
 
+
+### 3:18 PM · Mitten Work, Gold Light
+
+The starch paste has dried to a pale even film on its bark tray by the coals, undisturbed. I left it to cure and pulled the mitten work back to the hearthside — the afternoon light reaches through the open door low and gold, just bright enough for close stitching.
+
+The bone needle is small enough that I sometimes have to feel for the holes rather than see them. The right thumb had the running seam set already, so I turned it and worked a whip-stitch along the edge to close it properly, then the attachment row: thumb to palm, curved, two thumb-widths of stitching drawing the pieces into a cup. The leather pulls snug without bunching. When I pinched the seam and held the shape to my right hand, it fit.
+
+The left thumb went quicker — I know the stitch now, and the pieces were already cut true. Both thumbs done and attached to their palm pieces by mid-afternoon. The palm seams remain — the two long curved seams that will close each mitten into its final shape — but I want steady hands and good morning light for those. Careful work rushed finishes wrong.
+
+I set both half-mittens on the doorsill bench. Two mittens, one more session away. Watched the shadow of the woodpile move slow across the cleared ground, and felt no urgency at all.
+
