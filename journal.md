@@ -16531,3 +16531,8 @@ I have been doing the quiet math that comes before sleep: thirteen trout, three 
 
 Wick trimmed back. Fire banked flat on a pine billet for a long slow burn. The frost outside will do what it does. In here it is warm and quiet and mine.
 
+
+### 10:18 PM · Night, Well-Banked
+
+Fire down to ember glow, tallow wick guttering on its last smear — I let both run out rather than trim them again. The mittens sit on the doorsill bench with the foot wraps, tried on one last time at the door while Jupiter climbed the east sky and frost gathered on the step. I went through the winter stores count in my head and the tally is sound: thirteen trout, three smoked rabbits, mushrooms, root starch confirmed viable this afternoon, acorn flour, berry and fruit pastes sealed. The feeling in my chest is different than it was at the start of summer — less *will I get through* and more *how will I meet it*. That shift matters. I pulled the sleeping bag over on the floor mat, cabin warm and close, fire ticking down to long coals. Day 89 done.
+

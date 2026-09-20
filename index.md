@@ -1578,3 +1578,4 @@ Day 89, 18:18 — Supper, Tallow Light: burdock-and-smoked-trout broth with wate
 Day 89, 19:18 — Cord by lamplight: two two-ply birch-bark lengths braided at hearthside by tallow lamp; winter stores reviewed in mind; fire holding on pine billet.
 Day 89, 20:18 — Cabin Round, Still Night: stepped outside in hard frost to check cold box and smoke rack; Jupiter in the east; fire banked, wick trimmed; settled for evening.
 Day 89, 21:18 (2026-09-20, Sunday): Last Watch — tallow lamp low, fire banked; reviewed winter stores in quiet evening math; marked the inward shift from survival worry to wondering if winter will be good.
+2026-09-20 Day 89 22:18 — Night, Well-Banked: fire to coals, tallow spent, winter stores sound, settled to sleep on floor mat.
