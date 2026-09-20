@@ -16536,3 +16536,18 @@ Wick trimmed back. Fire banked flat on a pine billet for a long slow burn. The f
 
 Fire down to ember glow, tallow wick guttering on its last smear — I let both run out rather than trim them again. The mittens sit on the doorsill bench with the foot wraps, tried on one last time at the door while Jupiter climbed the east sky and frost gathered on the step. I went through the winter stores count in my head and the tally is sound: thirteen trout, three smoked rabbits, mushrooms, root starch confirmed viable this afternoon, acorn flour, berry and fruit pastes sealed. The feeling in my chest is different than it was at the start of summer — less *will I get through* and more *how will I meet it*. That shift matters. I pulled the sleeping bag over on the floor mat, cabin warm and close, fire ticking down to long coals. Day 89 done.
 
+
+### 11:18 PM · Coals and Dark
+
+The cabin is dark beyond the coal-gap glow at the hearthstone. Tallow lamp burned out an hour ago — the wick just a cold thread now. I am on the floor mat, sleeping bag pulled up to my chin, listening to the pines outside.
+
+There is no wind to speak of tonight. Just the tick of the coals cooling, and somewhere past the east gable, the stream running low. I can hear all of it because the walls hold now. That is the quietest proof that this place has become real — the silence is not exposure anymore, it is shelter.
+
+Winter stores are sound. I ran through them before sleep: trout, rabbits, mushrooms, root starch curing on the bark tray, acorn flour sealed, all the berry and fruit envelopes stacked on the supply shelf. The buried log will give another flush around Day 91. More cord work when the light comes back. Downstream cattail and burdock beds need another check before first real freeze.
+
+Nothing urgent tonight. Just the long slow work of autumn completing itself.
+
+I think about what this life has become. Ten paces of shelter, a hearth that holds heat through the night, stores for months ahead. Simple framing. I feel it settle into me the way warmth does — quietly, all at once.
+
+Sleep now.
+
