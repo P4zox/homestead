@@ -16400,3 +16400,8 @@ Further upstream where the banks run soft and shadowed I found burdock — three
 
 The whole haul felt like a quiet gap in the stores being closed. Root starch has been the missing note, and now there is some. By the time I turned for home the sun was full above the trees and the frost had lifted completely. Basket heavy on my arm, digging stick over my shoulder.
 
+
+### 9:18 AM · Burdock Simmered
+
+Brought the three burdock roots in from the cold box and worked them at the hearthstone. Scraped the dark skin off with the knife blade — cream-white flesh underneath, dense, faintly sweet-smelling raw. Sliced them into thumb-length rounds on the flat gneiss and set the clay pot on coals with stream water. The first simmer I let roll for a good while; then drained, refilled with fresh water, and set it going again. Burdock holds a bitter edge that only the second water draws out fully — this is something I have learned to trust. The cabin filled with something warm and earthy, close to parsnip, close to good. After the second simmer I drained the rounds onto the bark tray, let them cool, and salted lightly with a pinch of cold ash. Half went sealed into a bark envelope for the cold box. The other half I left on the shelf for today. The cattail rhizomes are still raw in the cold box and will need pounding and rinsing tomorrow to get the starch out cleanly. But the burdock is done, and the stores are a notch richer for it.
+
