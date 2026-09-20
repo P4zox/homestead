@@ -1566,3 +1566,4 @@ Day 89, 2026-09-20, 06:18 — Cut hazel digging stick at dawn; hard frost; Day 8
 Day 89, 07:19 AM — South-slope snares checked: one rabbit harvested (six total in cold storage); both snares reset; root forage ahead.
 2026-09-20 08:19 Day 89 — Root-Finding, Downstream: cattail rhizomes (half basket) and burdock (3 roots) foraged from south bank and upstream bend; wood sorrel added; root starch gap in stores addressed.
 2026-09-20 09:18 Day 89 — Burdock Simmered: three burdock roots scraped, sliced, double-simmered; half in cold box, half on shelf; cattail rhizomes next.
+2026-09-20 (Day 89, 10:18) — Checked upstream fishing line; two brown trout caught, cold box now holds thirteen; mid-depth rig re-anchored.

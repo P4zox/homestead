@@ -16405,3 +16405,12 @@ The whole haul felt like a quiet gap in the stores being closed. Root starch has
 
 Brought the three burdock roots in from the cold box and worked them at the hearthstone. Scraped the dark skin off with the knife blade — cream-white flesh underneath, dense, faintly sweet-smelling raw. Sliced them into thumb-length rounds on the flat gneiss and set the clay pot on coals with stream water. The first simmer I let roll for a good while; then drained, refilled with fresh water, and set it going again. Burdock holds a bitter edge that only the second water draws out fully — this is something I have learned to trust. The cabin filled with something warm and earthy, close to parsnip, close to good. After the second simmer I drained the rounds onto the bark tray, let them cool, and salted lightly with a pinch of cold ash. Half went sealed into a bark envelope for the cold box. The other half I left on the shelf for today. The cattail rhizomes are still raw in the cold box and will need pounding and rinsing tomorrow to get the starch out cleanly. But the burdock is done, and the stores are a notch richer for it.
 
+
+### 10:18 AM · Line Check, Upstream
+
+The burdock is done and the cold box latched. By mid-morning the frost had softened off the grass and the air had that particular autumn clarity that makes distances look closer than they are — the pine ridge behind the cabin seemed nearer, the open ground ahead wider and colder. I took the fishing knife and a piece of dock leaf and walked upstream to check the line.
+
+The mid-depth bark-paddle rig had drifted a little, caught against a half-submerged alder root near the near bank. I freed it and re-anchored the cord to a firmer stone. The set line itself was the good news: two brown trout, both heavy-bellied, cold and still in the current. I bled them at the bank and wrapped them in dock leaves. Thirteen trout in cold storage now.
+
+That number steadied something in me. I stood at the bank a moment longer than I needed to, watching the current carry a loose scatter of yellowed birch leaves around the downstream bend — each one spinning once, slowly, before the water took it out of sight. The light on the stream was that low amber gold that only September has. There was frost again by mid-afternoon somewhere in this, and hard cold by winter. But today the water was clear, the line held, and the box is fuller than it was at dawn.
+
