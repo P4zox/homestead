@@ -1575,3 +1575,4 @@ Day 89, 15:18 — both mitten thumb seams stitched and attached to palm pieces; 
 Day 89, 16:19 — Mittens finished: both palm seams stitched closed; doe-hide mittens complete and worn at doorsill in gold afternoon light.
 Day 89, 17:18 — First cattail-starch flatcakes cooked and eaten on the hearthstone; starch confirmed viable as a winter ingredient.
 Day 89, 18:18 — Supper, Tallow Light: burdock-and-smoked-trout broth with watercress; winter stores accounted by hearthstone lamplight; fire banked.
+Day 89, 19:18 — Cord by lamplight: two two-ply birch-bark lengths braided at hearthside by tallow lamp; winter stores reviewed in mind; fire holding on pine billet.

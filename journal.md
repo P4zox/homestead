@@ -16500,3 +16500,14 @@ There are still gaps — no fresh greens once the frost hits hard, and I will wa
 
 Banked the fire with a large pine billet before the lamp went out.
 
+
+### 7:18 PM · Cord by Lamplight
+
+The pine billet has caught slowly — a long ember glow rather than open flame. The tallow lamp holds steady on the shelf, wick upright, yellow light pooling across the supply shelf and the far log wall. Outside: no wind, no birds. Hard frost setting in on the grass again.
+
+I pulled a bundle of inner birch bark from the stock by the south wall and sat on the floor mat with my back to the warm hearth logs, legs out. Good cord is never wasted — it holds rack poles, lashes bark repairs, hangs supply packages through the winter. I braided two full lengths, two-ply, keeping tension even in the low light. The bark pulls slightly stiff at first and then settles. Hands know this work without counting now.
+
+By the time I coiled the spare strips back and hung the new lengths on the cord peg, the lamp had dipped once and recovered. I leaned back against the wall and let the warmth soak through the jerkin. Cold box packed. Stores counted. Fire holding on the billet. Buried log two more days, I think — maybe three. The cattail cakes surprised me today; that starch is going to matter come February.
+
+Not every evening needs a hard thing.
+
