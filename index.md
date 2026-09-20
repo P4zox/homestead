@@ -1573,3 +1573,4 @@ Day 89, 13:18 — Cattail rhizome starch extracted: two cold-water washes, pale 
 Day 89 14:18 — Cut palm and thumb pieces for two mittens from doe-hide scraps; right thumb seam running-stitched; left mitten pieces ready; starch paste drying to pale film at tray edges.
 Day 89, 15:18 — both mitten thumb seams stitched and attached to palm pieces; palm seams remain; starch paste drying on bark tray
 Day 89, 16:19 — Mittens finished: both palm seams stitched closed; doe-hide mittens complete and worn at doorsill in gold afternoon light.
+Day 89, 17:18 — First cattail-starch flatcakes cooked and eaten on the hearthstone; starch confirmed viable as a winter ingredient.

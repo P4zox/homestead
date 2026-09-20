@@ -16477,3 +16477,13 @@ I set both half-mittens on the doorsill bench. Two mittens, one more session awa
 ### 4:19 PM · Mittens, Done
 
 The light was falling west and gold through the cabin door when I sat back down at the hearthside with the half-mittens. The starch paste on the bark tray had gone fully dry — a white film curling at the edges. I picked up the right mitten first: palm seam open along its length, two edges of doe-hide ready. Ran a running stitch close and pulled it tight, knotted; then whip-stitched over the edge for strength. The left mitten the same, stitch by stitch in the gold last light. By the time the second knot was done the light had shifted from gold to copper. I tried them on at the doorsill — leather stiff but ready to work in, thumbs sitting right, palms warm and close. They are done. First full cold morning — frost on the bench wood, breath hanging white in the air — I will have mittens. That matters more than I expected.
+### 5:18 PM · First Cattail Cakes
+
+The starch dried to pale powder by the time the last mitten seam was done. I scraped three small spoonfuls from the bark tray onto the grinding stone, added ash-salt and a little cold water, worked it into a stiff paste. Two thin rounds pressed flat between wet hands, laid on the clay hearth pad where the coals are low and steady.
+
+They hissed once and then went quiet. I sat on the doorsill bench with the new mittens on my knee — too proud of them to risk near the fire — and watched the light go long and gold across the east meadow. A crow passed high, heading somewhere with purpose.
+
+The cakes lifted cleanly. Firm, slightly smoky, a clean starch taste with no sweetness but a good crisp edge. I ate both standing at the hearthstone. Not bread — something plainer. But real food, made from something I dug with a stick I shaped at first light. That circle felt whole.
+
+The starch works. Come deep winter when mushrooms and roots are gone, the cattail beds downstream will carry weight. I'll dry more.
+
