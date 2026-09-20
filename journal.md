@@ -16425,3 +16425,16 @@ I have been keeping a loose count in my head all morning: thirteen trout in the 
 
 The work is starting to compound — each thing built makes the next easier; each filled store makes the worry a little quieter. That is the shape of this life, I think. Slow accumulation. On a frost-bright still morning with good broth in hand, that is more than enough.
 
+
+### 12:19 PM · Smoke, Still Air
+
+After the midday broth I sat on the doorsill bench a while, watching the jays cross the east meadow. Six rabbits dock-wrapped in the cold box is a good count, but raw and dock-wrapped they will not keep indefinitely through hard frosts — better to smoke them while the coals are still going and the air is calm and cold enough to help.
+
+Pulled three of the dock-wrapped rabbits from the cold box; rinsed each one clean at the stream, patted dry on a piece of flat bark. Stacked a double handful of split green alder lengths onto the hearth coals with two short birch billets underneath to keep the heat honest. No flame — only white smoke, thick and even. Carried the rack outside and hung the three rabbits at mid-height in the second tier, clear of any hot spots, the carcasses spaced so the smoke could move between them.
+
+Spent the early afternoon by the rack, tending: adding a green alder split when the smoke thinned, easing a billet aside when the heat climbed too high. The birch trunks were white in the low autumn light. A redstart worked the treeline, flicking its tail at nothing in particular. I did not mind being still.
+
+Three hours of slow, cool smoke — by mid-afternoon the skins had taken on that golden-tan colour I know from the back panel and the belly liner. Pressed each one lightly; firm and dry through. Wrapped them in bark and settled them into the cold box alongside the raw ones.
+
+The stores run deeper now. Three rabbits cured and sealed against whatever the season brings.
+
