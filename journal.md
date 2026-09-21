@@ -16647,3 +16647,14 @@ Three snares. Two intact: loops level, toggle sticks cocked, bait moss undisturb
 No catch today. The cold box can absorb the shortfall easily — fifteen trout and three rabbits, plus all the smoked stores. I did not mind. The walk through the south birches in this light was its own reward: every trunk white against amber, the ground layered in fallen leaves that muffled every step. I stood at the edge of the stand longer than I should have.
 
 Coming back I noticed a deadfall birch at the slope's foot — bark still peeling clean in wide sheets, dry and resin-scented. Stripped four broad pieces and carried them home under my arm. Good bark for storage or sealing; stacked on the lean-to shelf. Starch cakes still ahead when the light goes.
+
+### 3:18 PM · Starch Cakes, Hearthside
+
+The light is dropping into the amber hour now, slant and slow through the west gable. I brought the wide flat bark tray in from where it had been sitting near the coals — the cattail starch dry at last, pale and powdery as fine ash. Two full batches from this morning's processing. I scooped half into the clay bowl, added cold stream water a little at a time, working it with the birch spoon until the mix held together as a soft dough. A spoonful of hazelnut paste folded in — mostly for binding but also for the warmth of it, that deep roasted smell it gives off when heat hits it.
+
+I patted the dough into eight small flat rounds on the edge of the hearthstone, pressed each one slightly thinner at the center. The clay pad still held good heat from the midday fire. Within a few minutes they were sizzling faintly at the edges. I turned each one with a flat chip of bark, let the other side brown.
+
+Eating them warm off the stone: dense and faintly sweet from the root starch, the hazelnut threading through. Nothing fancy. But there is a particular satisfaction in eating something you pulled out of the frozen ground this morning and are holding in your hands by afternoon — the whole arc of it fitting inside a single day.
+
+Four cakes eaten standing at the hearthstone. Four more set on the supply shelf to cool, sealed under a bark strip for morning. Starch tray rinsed and propped by the east wall. The fire built up a little against the cooling air.
+

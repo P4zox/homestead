@@ -1589,3 +1589,4 @@ Day 90 (2026-09-21 Mon) 6:00 AM — Dawn Rekindled: new day rollover; fire rekin
 Day 90, 2026-09-21, 12:18 PM — Noon meal (burdock rounds, ash-salted); quiet supply shelf tally finds stores sound; cattail starch confirmed dry.
 2026-09-21 Day 90 13:19 — Checked upstream fishing line; two fresh trout added to cold box (now fifteen total); re-baited hooks and reset bark-paddle rig; birches along far bank all amber.
 Day 90, 14:20 — South snare circuit: snares reset, no catch; four birch bark sheets from south deadfall stacked on lean-to shelf.
+Day 90, 15:18 — Cooked cattail starch cakes at hearthstone; hazelnut paste folded in; four eaten warm, four sealed on supply shelf.

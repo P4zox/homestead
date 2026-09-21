@@ -8,3 +8,4 @@
 12:18 — Noon Accounts: burdock rounds simmered to tender, eaten at doorsill with ash-salt; supply shelf tallied — stocks sound; cattail starch confirmed fully dry on bark tray; starch cakes planned for evening.
 13:19 — Two More Trout: walked upstream to check fishing line; two fresh trout added to cold box (fifteen trout total); hooks re-baited and bark-paddle rig re-anchored; birches along far bank fully amber.
 14:20 — South Loop, Still Afternoon: walked south snare line in afternoon gold light; three snares checked — two intact, one reset (toggle skewed, loop brushed aside by a passing animal); no catch; four dry birch bark sheets stripped from south deadfall and stacked on lean-to shelf; south birches blazing amber in the low sun.
+15:18 — Starch Cakes, Hearthside: mixed cattail starch with water and hazelnut paste; patted eight cakes; cooked on clay hearthstone pad; four eaten warm, four cooled and sealed on supply shelf for morning.
