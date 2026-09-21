@@ -16685,3 +16685,7 @@ I add a second finished length to the cord pile beside the hearth. Ninety days. 
 
 One more length braided. Then the lamp goes out. The mushrooms will be ready at first light.
 
+
+### 7:18 PM · Edge, Kept Sharp
+
+Pulled the knife from the belt pouch and set it on my knee. The gneiss grinding stone still sits on the hearthstone from this morning — I turned it smooth-side up and began working the blade in slow, even strokes, heel to tip, both sides. The lamp held steady. Outside the frost is deep and the pines are black against the last grey light; in here the coals pulse and the cabin smells of pine smoke and tallow. The knife is not dull, but it wants tending, and tending it now means it will not let me down when I need it. I worked through maybe a hundred strokes per side, listening for the tone to shift — a softer hiss when the edge is right. Tested the blade on a strip of bark from the doorsill; clean slice. Wiped it dry and returned it to the belt pouch. Tomorrow the mushroom flush. Tonight the cabin is warm and everything is in its place.
