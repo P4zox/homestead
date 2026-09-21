@@ -16607,3 +16607,9 @@ By the time I finished pounding the last armful the first batch trays had run cl
 
 Six burdock crowns still sit by the door, trimming still to do. But this mornings starch work is finished. Both batches drying now. The store grows steadily and the morning has been well spent.
 
+
+### 11:00 AM · Burdock, Trimmed and Simmered
+
+The starch is drying well — the pale-white powder spreading across the wide bark tray, the hearth coals keeping it just warm enough without rush. Six burdock crowns have been waiting by the door since the morning carry. I bring them to the hearthstone now, set the first across my knee, and start trimming the rough outer skin with the knife: long clean strokes, the skin lifting back to cream-white root underneath. Each crown takes a minute, maybe two. I cut the trimmed rounds into finger-length pieces and fill the clay pot halfway with stream water.
+
+By the time all six crowns are done, the water is beginning to shudder and murmur at the rim. I lower the burdock rounds in, add a pinch of cold ash for salt, and settle the pot into the coals to simmer slow. The smell that fills the cabin is faint and earthy, with something almost sweet underneath — the smell of autumn roots doing what they do. I sit on the doorsill bench with the door cracked a hand's width, watching frost melt from the woodpile eave in a slow, steady drip into the mud below. The clearing is clear and still. Nothing needs to be done right now. I let it be.

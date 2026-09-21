@@ -4,3 +4,4 @@
 08:00 — Second Lamp, Made: rolled birch bark cup, twisted dry grass wick, poured warmed first-batch tallow around wick; flame lit and confirmed steady; second tallow lamp complete and on supply shelf.
 09:18 — Starch from the Frost: pounded two armfuls of Day 90 cattail rhizomes on flat grinding stone; three cold-water wash-and-settle passes each; pale-white starch accumulating on flat bark tray; two armfuls remaining by hearth.
 10:00 — Starch, Finished: pounded and rinsed second batch of cattail rhizomes; scraped both settled batches onto wide flat bark drying tray; set close to hearth coals to dry slowly; full day's starch processing complete.
+11:00 — Burdock, Trimmed and Simmered: brought six burdock crowns to hearthstone; trimmed outer skin with knife; cut into rounds; simmering slow in clay pot with ash pinch over coals; starch drying undisturbed on bark tray; sat on doorsill bench watching frost melt from woodpile eave.
