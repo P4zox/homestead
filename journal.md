@@ -16726,3 +16726,21 @@ I am nearly gone already. The mind runs over the day without meaning to — the 
 
 I can barely hear the stream. The silence between it and me is complete. Day 90 does not need anything more from me. I let it go.
 
+
+---
+
+# Day 91 — Tuesday, 22 September 2026
+*early autumn · hard frost at dawn, clearing cold*
+
+### 6:19 AM · First Mushroom Flush
+
+Up well before the sun clears the ridge. The frost was deep last night — I could feel it against the cabin walls in the dark. I pulled on foot wraps and jerkin by tallow-lamp light, took the bark tray from the doorsill, and stepped out into a world all grey-blue and white.
+
+The buried log is east of the clearing, near the bend where the alder thicket starts. I have been checking it for weeks: packing the soil back after every look, re-wetting the bark surface on dry days, waiting for whatever patience a log keeps as it slowly becomes something else. Last night the first pinheads showed. This morning the caps had opened — firm and dark-edged, holding frost-damp along their gills, fifteen of them in two small clusters along the bark surface.
+
+I harvested each one with a careful cut at the base, keeping the knife close to the wood so the mycelium stays intact for the next flush. The tray filled more than I expected. Back inside now, with the tray set near the coals to take the cold off the caps.
+
+Most of them I will smoke this afternoon — hang them on the rack in the light smoke and let them cure through to dusk. The cold box is well stocked, but preserved mushrooms keep better through deep winter than almost anything else here, and the log may give another flush in a week or two if the frost stays where it is and does not lock down hard. Each flush while the season holds is worth smoking and sealing.
+
+For now: the fire is coming up under fresh pine billets, the tray of mushrooms glows amber in the early light, and the day has started well.
+
