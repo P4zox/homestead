@@ -16613,3 +16613,16 @@ Six burdock crowns still sit by the door, trimming still to do. But this morning
 The starch is drying well — the pale-white powder spreading across the wide bark tray, the hearth coals keeping it just warm enough without rush. Six burdock crowns have been waiting by the door since the morning carry. I bring them to the hearthstone now, set the first across my knee, and start trimming the rough outer skin with the knife: long clean strokes, the skin lifting back to cream-white root underneath. Each crown takes a minute, maybe two. I cut the trimmed rounds into finger-length pieces and fill the clay pot halfway with stream water.
 
 By the time all six crowns are done, the water is beginning to shudder and murmur at the rim. I lower the burdock rounds in, add a pinch of cold ash for salt, and settle the pot into the coals to simmer slow. The smell that fills the cabin is faint and earthy, with something almost sweet underneath — the smell of autumn roots doing what they do. I sit on the doorsill bench with the door cracked a hand's width, watching frost melt from the woodpile eave in a slow, steady drip into the mud below. The clearing is clear and still. Nothing needs to be done right now. I let it be.
+
+### 12:18 PM · Noon Accounts
+
+The burdock rounds have been simmering an hour and have softened into something almost sweet beneath the earthiness. I lifted the clay pot off the coals, tipped a few onto the wide bowl, pinched in ash-salt, and sat on the doorsill bench in the thin noon sun to eat.
+
+The frost is long gone from the woodpile. The clearing holds a still gold light — the birches have been yellowing steadily all week, and at noon you can see almost every leaf individually, each one separate and lit. The bench is warm where the sun falls on the pine planks.
+
+After eating I went through the supply shelf slowly. Twelve sealed bark packages. Garlic braid on the rail. Hawthorn haw and rose hip envelopes, elderberry reduction, hazelnut paste, acorn flour in four full envelopes. Smoked mushrooms of four kinds in the cold box — hen-of-the-woods, oyster, honey, fan-caps. Thirteen trout and six rabbits in various forms. The wide-bellied storage crock. Strained resin. Sloe syrup. Rowan berries.
+
+I stood there and looked at it for a while. Not counting exactly — just running my eyes along the shelf and knowing, the way you know the weight of a pack before you lift it: enough. Not certain, not plenty, but enough. Another month of gathering and smoking will build the difference between barely-enough and comfortable. The buried log should flush tomorrow. The upstream line is still baited.
+
+The cattail starch on the bark tray is dry now — pale and fine as talcum when I dragged a finger through it. I will shape it into small cakes this evening and add them to the shelf.
+
