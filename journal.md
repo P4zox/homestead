@@ -16744,3 +16744,14 @@ Most of them I will smoke this afternoon — hang them on the rack in the light 
 
 For now: the fire is coming up under fresh pine billets, the tray of mushrooms glows amber in the early light, and the day has started well.
 
+
+### 7:18 AM · Morning Line Check
+
+The frost was still on the grass when I walked down to the stream, my boots crushing silver crystals with each step. The upstream line had been set since yesterday afternoon — baited hooks hanging below the slow pool where the current bends around the mossy boulder. The bark-paddle rig, too, anchored mid-depth where the fish have been most consistent.
+
+Both lines produced. Two trout — one from each rig — hung cold and still in the pale light when I pulled them free. Good-sized, clean catches. I re-baited both hooks with grubs turned from a soft spot under a rotting birch along the bank, reset the paddle rig anchor, and started back before the frost had lifted from the shadows.
+
+Carrying them through the amber birches, I kept thinking of the mushrooms waiting on the bark tray. Fifteen log-cap caps, firm and pale-gilled, for the smoke rack this afternoon. Two trout and fifteen mushrooms — that is what a good autumn day looks like when it is still barely morning.
+
+Both fish went into the cold-storage box, dock-wrapped and settled beside the others. By the time I got back the fire had found itself, and the cabin was warm enough to strip off the outer layer.
+
