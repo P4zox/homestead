@@ -1595,3 +1595,4 @@ Day 90, 2026-09-21 17:19 — Checked buried log at forest edge in fading dusk; f
 Day 90, 18:18 — Evening cord-braiding by tallow lamp; mushroom harvest confirmed for Day 91 dawn; cabin warm and still.
 Day 90, 19:18 — knife sharpened on gneiss grinding stone by lamplight; blade tested clean; cabin warm before sleep
 Day 90, 20:00 — Sat by the dying fire in autumn-night silence; mittens on, lamp steady, mushroom harvest set for dawn.
+2026-09-21 21:19 Day 90 — Night Before Harvest: lamp low, bark tray laid for dawn mushroom harvest, cabin quiet and warm; settled toward sleep.

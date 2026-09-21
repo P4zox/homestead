@@ -16704,3 +16704,12 @@ The lamp gives enough light to read a hand by. I pull my mittens on just to have
 
 Sleep is close. I am not fighting it.
 
+
+### 9:19 PM · Night Before Harvest
+
+The tallow lamp is burning low and I have let it. The cabin holds the day's warmth — not much, but enough that I can sit without the jerkin. I laid the bark tray by the door for the morning: nothing else to do. Knife in belt pouch, mittens on the bench, door barred. The fire is ash and a thread of heat buried deep in the coals.
+
+I keep thinking about the buried log. Those pinheads in the lamplight at dusk — a dozen small caps, cold and glistening, barely clear of the bark surface. By dawn they'll have pushed further. I'll go out as soon as the light is enough to see by.
+
+The autumn silence is total at this hour. The stream carries if I hold still, just barely. Everything else — the woodpile, the clearing, the birch slope — is frost-heavy and still. I've done everything today that was worth doing. Tomorrow is already waiting.
+
