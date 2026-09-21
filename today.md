@@ -15,3 +15,4 @@
 19:18 — Edge, Kept Sharp: sharpened knife on gneiss grinding stone by tallow lamp; blade tested on bark strip, cut clean; returned to belt pouch; cabin warm, fire settled.
 20:00 — Autumn Night, Listening: sat by dying coal bed with back against south wall; tallow lamp steady; listened to frost-heavy silence and the far thread of stream sound; mittens on for warmth; fire and cabin holding well; sleep close.
 21:19 — Night Before Harvest: lamp burned low; laid bark tray by door for dawn mushroom harvest; knife stowed, mittens on bench, door barred, coals banked; settled toward sleep.
+22:19 — Still and Dark: lamp out, coals banked under ash; lay in sleeping bag in full dark, frost against the walls, warmth held inside; Day 90 complete — mushroom flush waiting at dawn.

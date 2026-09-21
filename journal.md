@@ -16713,3 +16713,7 @@ I keep thinking about the buried log. Those pinheads in the lamplight at dusk �
 
 The autumn silence is total at this hour. The stream carries if I hold still, just barely. Everything else — the woodpile, the clearing, the birch slope — is frost-heavy and still. I've done everything today that was worth doing. Tomorrow is already waiting.
 
+
+### 10:19 PM · Still and Dark
+
+The lamp is out. Coals banked under ash, bark tray set by the door for first light. It is full dark now — the frost presses against the wattle and the log walls, but inside the air holds warmth. I can hear nothing, which is its own kind of sound: the stream too far off, the pines still, the birches done moving for the night. Tomorrow the buried log will have its first flush. Tonight I am simply here, warm, under my sleeping bag, eyes already closing. This is a good life. Day 90 is done.
