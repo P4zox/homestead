@@ -16637,3 +16637,13 @@ The stream ran perfectly clear in the still autumn air. You could see each piece
 
 Fifteen trout in the cold box now. The starch is dry. The straw and bark cakes are still ahead of me this evening. Walking home in the cool, I had the quiet sense that this life is genuinely working — not finished or perfect, just honestly working.
 
+
+### 2:20 PM · South Loop, Still Afternoon
+
+The frost had long burned off by the time I walked the south snare line — mid-afternoon, amber light across the clearing, the cabin's smoke rising straight up in the still air. I pulled on the jerkin and went out.
+
+Three snares. Two intact: loops level, toggle sticks cocked, bait moss undisturbed. The third had been visited — toggle skewed, loop brushed aside by something that passed too high or too cautiously to trip. I knelt and reset it: lower loop, tighter grass walls on either side to steer whatever comes through next time.
+
+No catch today. The cold box can absorb the shortfall easily — fifteen trout and three rabbits, plus all the smoked stores. I did not mind. The walk through the south birches in this light was its own reward: every trunk white against amber, the ground layered in fallen leaves that muffled every step. I stood at the edge of the stand longer than I should have.
+
+Coming back I noticed a deadfall birch at the slope's foot — bark still peeling clean in wide sheets, dry and resin-scented. Stripped four broad pieces and carried them home under my arm. Good bark for storage or sealing; stacked on the lean-to shelf. Starch cakes still ahead when the light goes.
