@@ -1587,3 +1587,4 @@ Day 90 (2026-09-21 Mon) 6:00 AM — Dawn Rekindled: new day rollover; fire rekin
 2026-09-21 Day 90 10:00 — Starch, Finished: finished pounding and rinsing the second batch of cattail rhizomes; both batches now drying together on flat bark tray by hearth coals
 2026-09-21 (Day 90, 11:00 AM) — Burdock crowns trimmed and simmering in clay pot; starch drying by coals; clearing quiet at midday.
 Day 90, 2026-09-21, 12:18 PM — Noon meal (burdock rounds, ash-salted); quiet supply shelf tally finds stores sound; cattail starch confirmed dry.
+2026-09-21 Day 90 13:19 — Checked upstream fishing line; two fresh trout added to cold box (now fifteen total); re-baited hooks and reset bark-paddle rig; birches along far bank all amber.

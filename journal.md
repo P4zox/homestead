@@ -16626,3 +16626,14 @@ I stood there and looked at it for a while. Not counting exactly — just runnin
 
 The cattail starch on the bark tray is dry now — pale and fine as talcum when I dragged a finger through it. I will shape it into small cakes this evening and add them to the shelf.
 
+
+### 1:19 PM · Two More Trout
+
+The afternoon pulled me upstream. After a busy morning grinding starch and simmering burdock, I felt settled enough to move — not urgently, just a slow walk along the frost-firm bank to see what the line had taken since yesterday.
+
+Two trout, both solid, silver-flanked in the clear current. I worked them off the hooks carefully and cleaned them on the flat bank stone, fingers cold in the water. Wrapped them in fresh dock leaves and added them to the main cold box. Re-baited both hooks and reset the mid-depth bark-paddle rig — it had drifted a hand-span east, so I re-anchored the guide stake.
+
+The stream ran perfectly clear in the still autumn air. You could see each piece of gravel on the bed. The birches along the far bank were all amber now — every leaf — catching the low-angle light and throwing it back gold. I stood there longer than strictly necessary.
+
+Fifteen trout in the cold box now. The starch is dry. The straw and bark cakes are still ahead of me this evening. Walking home in the cool, I had the quiet sense that this life is genuinely working — not finished or perfect, just honestly working.
+

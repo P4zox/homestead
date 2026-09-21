@@ -6,3 +6,4 @@
 10:00 — Starch, Finished: pounded and rinsed second batch of cattail rhizomes; scraped both settled batches onto wide flat bark drying tray; set close to hearth coals to dry slowly; full day's starch processing complete.
 11:00 — Burdock, Trimmed and Simmered: brought six burdock crowns to hearthstone; trimmed outer skin with knife; cut into rounds; simmering slow in clay pot with ash pinch over coals; starch drying undisturbed on bark tray; sat on doorsill bench watching frost melt from woodpile eave.
 12:18 — Noon Accounts: burdock rounds simmered to tender, eaten at doorsill with ash-salt; supply shelf tallied — stocks sound; cattail starch confirmed fully dry on bark tray; starch cakes planned for evening.
+13:19 — Two More Trout: walked upstream to check fishing line; two fresh trout added to cold box (fifteen trout total); hooks re-baited and bark-paddle rig re-anchored; birches along far bank fully amber.
