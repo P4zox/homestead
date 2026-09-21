@@ -11,3 +11,4 @@
 15:18 — Starch Cakes, Hearthside: mixed cattail starch with water and hazelnut paste; patted eight cakes; cooked on clay hearthstone pad; four eaten warm, four cooled and sealed on supply shelf for morning.
 16:18 — Evening Trout, Still Light: pulled two fresh trout and watercress from cold box; rinsed at stream edge; simmered in clay pot over afternoon coals; checked second tallow lamp (steady); swept floor mat; watched amber light on birch tops from doorsill; supper eaten warm at dusk.
 17:19 — Pinheads at Dusk: walked to buried log at forest edge in last dusk light; lifted bark cover — first pinheads clearly pushing clear of bark surface, a dozen small caps, cold-condensed; flush confirmed beginning; Day 91 harvest certain; returned inside, door barred, fire stocked, lamp steady.
+18:18 — Lamplight and Cord: braided two new two-ply cord lengths by tallow lamp; bark tray set out for tomorrow's mushroom harvest; cabin warm, door barred, ready for sleep.

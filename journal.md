@@ -16674,3 +16674,14 @@ The inoculant log is tucked at the forest edge, packed round with leaf litter an
 
 Back inside, door barred, fire stocked with a last pine billet for the night. I am sitting by the lamp with nothing that needs doing right now, which is its own kind of work. The stores are sound, the woodpile is eave-high, the mittens are on the bench. Tomorrow the mushrooms; tonight, the quiet.
 
+
+### 6:18 PM · Lamplight and Cord
+
+The cabin is warm and amber-lit. The second tallow lamp holds its flame steadily from the supply shelf — I can see it at the edge of my vision as I sit cross-legged near the hearth, working two long strips of birch inner bark into two-ply cord. My hands know the motion by now: twist, pull, feed new bark in, keep tension even. The rhythm is something close to prayer.
+
+Outside the barred door the frost will be setting again already. The buried log is waiting at the forest edge, its dozen pinheads pressing upward through the bark cover in the dark. Tomorrow I will have a real harvest. I find myself thinking through what I will need: the gathering basket, a clean dry bark tray spread near the smoke rack, the cord ties to hang what I decide to cure. Everything is already in its place. That is a new feeling — everything already in its place.
+
+I add a second finished length to the cord pile beside the hearth. Ninety days. The woodpile is eave-high, the cold box packed deep, the supply shelf solid in all its small sealed rows. I have been building this steadily and quietly for three months and tonight it all holds. It is enough to sit with that a moment before sleep.
+
+One more length braided. Then the lamp goes out. The mushrooms will be ready at first light.
+
