@@ -16574,3 +16574,14 @@ The cattail stands were silver-white at stem and leaf, but the mud at the root z
 
 Back at the cabin, I set the rhizomes and burdock crowns by the hearth to let the outer skin dry before processing. The starch work is the usual patience: slice them open, pound the pulp under cold water, wait for the white starch to settle, pour off the milky water, spread the paste to dry. One more run like this and the starch store should see the coldest weeks through without worry. The cabin smells of clean mud and pine smoke. Outside, the frost is going off the woodpile; the birches are losing their gold faster now, one leaf at a time.
 
+
+### 8:00 AM · Second Lamp, Made
+
+The roots are drying at the hearth — cattail rhizomes spread on the bark tray, burdock crowns stacked to one side. There is nothing to hurry. Mid-morning is soon enough for starch work; the roots need another hour near the coals.
+
+I rolled a strip of dry birch bark into a shallow cup, smaller than a bowl, just wide enough to hold a wick and an evening's worth of tallow. Stitched the curl with a short length of cord and pressed the seam flush with my thumb. Then a pinch of dry grass, twisted between fingers until the fibers ran one direction, laid across the lip so the tip rests at center. Simple as that. It still surprises me how little a light needs to be.
+
+The first tallow batch has sat on the shelf for weeks — pale amber, gone solid in the cold mornings. I warmed a spoonful in the tin over coals and poured it into the cup around the wick, watching it settle and cloud as it cooled back to white. Lit the wick with a twist of char cloth. A steady yellow flame, no bigger than a thumbnail, and the cabin felt warmer for it, though the air was the same.
+
+Two lamps now. One on the shelf, one ready to carry. When the dark starts coming early — and it will, soon — I will not be short of light.
+
