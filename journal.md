@@ -16658,3 +16658,10 @@ Eating them warm off the stone: dense and faintly sweet from the root starch, th
 
 Four cakes eaten standing at the hearthstone. Four more set on the supply shelf to cool, sealed under a bark strip for morning. Starch tray rinsed and propped by the east wall. The fire built up a little against the cooling air.
 
+
+### 4:00 PM · Evening Trout, Still Light
+
+The sun dropped behind the pines early; by four o'clock the clearing was in shade, though the birch tops still held gold. I pulled two fresh trout from the main cold box and brought the watercress bundle along — rinsed both at the stream's edge where a thin shelf of ice had formed in the morning shadow and never melted. The clay pot came to a quiet simmer over afternoon coals. While the fish poached, I checked the second tallow lamp, which I had only finished this morning — wick still steady, tallow holding — swept the floor mat of starch-cake crumbs, and stood a moment at the doorsill watching long light stripe amber across the woodpile eave.
+
+A full day: starch pounded, burdock eaten at noon, two trout caught and cold-boxed, snares walked, cakes cooked. The stores feel deep now in a way they did not a month ago. The cold box is heavy with smoked meat and fish; the supply shelf holds more than it ever has. There is a quality to the late afternoon of a day like this — not pride exactly, more like relief. The winter is out there, but the winter is, today, a more manageable thing. The trout and watercress simmered to done just as the sun touched the treeline. Supper eaten at the doorsill bench, warm broth, watercress soft and bright green.
+
