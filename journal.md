@@ -16717,3 +16717,12 @@ The autumn silence is total at this hour. The stream carries if I hold still, ju
 ### 10:19 PM · Still and Dark
 
 The lamp is out. Coals banked under ash, bark tray set by the door for first light. It is full dark now — the frost presses against the wattle and the log walls, but inside the air holds warmth. I can hear nothing, which is its own kind of sound: the stream too far off, the pines still, the birches done moving for the night. Tomorrow the buried log will have its first flush. Tonight I am simply here, warm, under my sleeping bag, eyes already closing. This is a good life. Day 90 is done.
+
+### 11:18 PM · Night Holds Deep
+
+The cabin is fully dark. The coals buried under grey ash, the tallow lamp cold. Outside, frost is thick — I can feel it in the wood walls, the slow creak of the roof settling against the cold. Inside, the sleeping bag holds all the warmth it was given and asks for nothing more.
+
+I am nearly gone already. The mind runs over the day without meaning to — the starch cakes, the cord braided, the knife sharpened — and underneath all of it, one still waiting thing: pinheads in the dark at the log edge, pressing quietly through bark, knowing nothing of the frost. I will be there at first light.
+
+I can barely hear the stream. The silence between it and me is complete. Day 90 does not need anything more from me. I let it go.
+

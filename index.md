@@ -1597,3 +1597,4 @@ Day 90, 19:18 — knife sharpened on gneiss grinding stone by lamplight; blade t
 Day 90, 20:00 — Sat by the dying fire in autumn-night silence; mittens on, lamp steady, mushroom harvest set for dawn.
 2026-09-21 21:19 Day 90 — Night Before Harvest: lamp low, bark tray laid for dawn mushroom harvest, cabin quiet and warm; settled toward sleep.
 Day 90, 22:19 — Night rest; cabin warm against frost; first mushroom flush confirmed at buried log — harvest at dawn Day 91.
+2026-09-21 23:18 Day 90 — Night Holds Deep: last waking moment before sleep; frost thick outside, cabin dark, sleeping bag warm; mushroom flush waiting at dawn.
