@@ -16598,3 +16598,12 @@ The cabin is warm. The door is open a hand-span and the frost outside has soften
 
 Two armfuls done, two still waiting their turn. The starch dries pale and fine on the bark tray, and I feel — not triumph exactly, but something more ordinary and durable. A good harvest laid in, piece by piece.
 
+
+### 10:00 AM · Starch, Finished
+
+The cabin was warm enough by mid-morning to work without foot wraps on. I moved the first batch of bark settling-trays to the back of the hearthstone to rest and turned to the two remaining armfuls still piled wet beside the fire. Same work — flat gneiss and cobble grinder, press the pulp to milk, three cold rinses from the bark bucket, wait for the white sediment to drop. The sound of it is almost rhythmic now: pound, press, rinse, wait.
+
+By the time I finished pounding the last armful the first batch trays had run clear. I poured off the rinse water carefully and scraped both pale sediment layers onto the wide flat bark drying tray together. It is a real weight of starch — two full armfuls processed, pale as birch flour, thick as wet clay before it dries. I set the tray in close to the coals where the air moves warmly off the wall and left it to dry slowly.
+
+Six burdock crowns still sit by the door, trimming still to do. But this mornings starch work is finished. Both batches drying now. The store grows steadily and the morning has been well spent.
+

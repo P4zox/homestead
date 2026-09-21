@@ -1584,3 +1584,4 @@ Day 90 (2026-09-21 Mon) 6:00 AM — Dawn Rekindled: new day rollover; fire rekin
 2026-09-21 Day 90 07:00 — Downstream in Frost: gathered cattail rhizomes and burdock roots in hard frost and gold birch light; roots set by hearth to dry for starch processing.
 2026-09-21 08:00 Day 90 — Made second tallow lamp (birch bark cup, dry grass wick, first-batch tallow); steady flame confirmed; two lamps now on supply shelf.
 2026-09-21 Day 90 09:18 — Starch from the Frost: processed two armfuls of Day 90 cattail rhizomes; pounded, washed, settled; pale-white starch accumulating on flat bark tray by hearth.
+2026-09-21 Day 90 10:00 — Starch, Finished: finished pounding and rinsing the second batch of cattail rhizomes; both batches now drying together on flat bark tray by hearth coals
