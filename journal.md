@@ -16585,3 +16585,16 @@ The first tallow batch has sat on the shelf for weeks — pale amber, gone solid
 
 Two lamps now. One on the shelf, one ready to carry. When the dark starts coming early — and it will, soon — I will not be short of light.
 
+
+### 9:18 AM · Starch from the Frost
+
+The rhizomes are dry enough now. I can feel the difference — yesterday's batch was still supple when I worked it; this morning's, laid by the fire since seven, crackle faintly under pressure, the starched core firming up. I set up the flat grinding stone on the hearth and start pounding.
+
+The work has a rhythm to it. Pound, submerge the pulp in the cook tin, knead and press, pour the grey-white water into the wide clay bowl. The water clouds immediately — thick as milk at first, thinning as the solids settle. Three passes before setting each batch aside.
+
+The bowl fills slow. After the first armful I pour the brown top-water off and see the white layer sitting quiet at the base, fine and clean. By the second armful the starch on the flat bark tray is building into a real measure — not just a test spoonful, but a proper stock.
+
+The cabin is warm. The door is open a hand-span and the frost outside has softened to dew along the south meadow. The gold light has climbed to the cabin wall. It is a good morning for this — still, unhurried, the fire down to steady cook-heat. I am not rushing anything.
+
+Two armfuls done, two still waiting their turn. The starch dries pale and fine on the bark tray, and I feel — not triumph exactly, but something more ordinary and durable. A good harvest laid in, piece by piece.
+

@@ -1583,3 +1583,4 @@ Day 89, 21:18 (2026-09-20, Sunday): Last Watch — tallow lamp low, fire banked;
 Day 90 (2026-09-21 Mon) 6:00 AM — Dawn Rekindled: new day rollover; fire rekindled from banked coals at dawn, hard frost outside, cattail and burdock run ahead, buried log flush ~Day 91.
 2026-09-21 Day 90 07:00 — Downstream in Frost: gathered cattail rhizomes and burdock roots in hard frost and gold birch light; roots set by hearth to dry for starch processing.
 2026-09-21 08:00 Day 90 — Made second tallow lamp (birch bark cup, dry grass wick, first-batch tallow); steady flame confirmed; two lamps now on supply shelf.
+2026-09-21 Day 90 09:18 — Starch from the Frost: processed two armfuls of Day 90 cattail rhizomes; pounded, washed, settled; pale-white starch accumulating on flat bark tray by hearth.
