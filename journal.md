@@ -16689,3 +16689,18 @@ One more length braided. Then the lamp goes out. The mushrooms will be ready at 
 ### 7:18 PM · Edge, Kept Sharp
 
 Pulled the knife from the belt pouch and set it on my knee. The gneiss grinding stone still sits on the hearthstone from this morning — I turned it smooth-side up and began working the blade in slow, even strokes, heel to tip, both sides. The lamp held steady. Outside the frost is deep and the pines are black against the last grey light; in here the coals pulse and the cabin smells of pine smoke and tallow. The knife is not dull, but it wants tending, and tending it now means it will not let me down when I need it. I worked through maybe a hundred strokes per side, listening for the tone to shift — a softer hiss when the edge is right. Tested the blade on a strip of bark from the doorsill; clean slice. Wiped it dry and returned it to the belt pouch. Tomorrow the mushroom flush. Tonight the cabin is warm and everything is in its place.
+
+### 8:00 PM · Autumn Night, Listening
+
+The fire has burned down to a deep, steady coal bed — no flame left but plenty of heat. I fed it a birch billet an hour ago and now it just breathes, orange and quiet, under its grey ash mantle. The tallow lamp is burning clean on the shelf, casting its small amber light across the bark-clad wall.
+
+I have been sitting on the floor mat with my back against the south wall, not doing much of anything. It feels earned. The day was full — starch cakes, a knife edge restored, cord braided, the pinheads confirmed at dusk. Tomorrow the mushroom harvest at the buried log. But tonight there is nothing left to do, and I am letting that be simple rather than restless.
+
+Outside: silence with weight to it. The kind of quiet that comes when frost has settled hard and everything living has gone still. The birches stopped moving hours ago. I can hear the stream if I listen for it — a low thread of sound beneath the silence — and occasionally a pop from the cooling log rounds in the woodpile. The cabin holds its warmth well tonight. The daub on both gables is holding; no draft through either panel.
+
+I am thinking, loosely, about the mushrooms. The pinheads I saw at dusk were good — pale-tan caps, cold-damp, clustered tight at the bark surface. They will be ready at first light. I have set the bark tray and the wide basket by the door. Tomorrow's first hour: lift the bark lid, harvest what is there, bring them in from the frost. After that, the smoking frame, and by evening another batch sealed in the cold box.
+
+The lamp gives enough light to read a hand by. I pull my mittens on just to have the warmth of them — supple, good-fitted doe-hide, the seams tight. I made them myself two days ago and I am still slightly amazed. Small things, but they are mine and they will do their work all winter.
+
+Sleep is close. I am not fighting it.
+
