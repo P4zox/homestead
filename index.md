@@ -1591,3 +1591,4 @@ Day 90, 2026-09-21, 12:18 PM — Noon meal (burdock rounds, ash-salted); quiet s
 Day 90, 14:20 — South snare circuit: snares reset, no catch; four birch bark sheets from south deadfall stacked on lean-to shelf.
 Day 90, 15:18 — Cooked cattail starch cakes at hearthstone; hazelnut paste folded in; four eaten warm, four sealed on supply shelf.
 Day 90, 2026-09-21 16:18 — Evening trout and watercress simmered in clay pot; supper eaten as sun touched the treeline.
+Day 90, 2026-09-21 17:19 — Checked buried log at forest edge in fading dusk; first pinheads confirmed pushing through — full flush expected Day 91.

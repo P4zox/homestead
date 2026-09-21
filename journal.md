@@ -16665,3 +16665,12 @@ The sun dropped behind the pines early; by four o'clock the clearing was in shad
 
 A full day: starch pounded, burdock eaten at noon, two trout caught and cold-boxed, snares walked, cakes cooked. The stores feel deep now in a way they did not a month ago. The cold box is heavy with smoked meat and fish; the supply shelf holds more than it ever has. There is a quality to the late afternoon of a day like this — not pride exactly, more like relief. The winter is out there, but the winter is, today, a more manageable thing. The trout and watercress simmered to done just as the sun touched the treeline. Supper eaten at the doorsill bench, warm broth, watercress soft and bright green.
 
+
+### 5:19 PM · Pinheads at Dusk
+
+The supper dishes are rinsed and the clay pot is back on its shelf ledge. The second tallow lamp is burning steady — a small, honest light in the dimming cabin. Outside, the birches have gone grey-silver and the pines are just dark shapes against the last amber band above the treeline. I walked out to check the buried log before full dark arrived.
+
+The inoculant log is tucked at the forest edge, packed round with leaf litter and a weighted bark cover. I lifted the cover in the fading light and bent close. There they are: a clutch of new pinheads, pale and just pushing clear of the bark surface — a dozen small caps bunched at one end, glistening with cold condensation. Day 91 tomorrow. I set the cover back carefully and came home through the dusk.
+
+Back inside, door barred, fire stocked with a last pine billet for the night. I am sitting by the lamp with nothing that needs doing right now, which is its own kind of work. The stores are sound, the woodpile is eave-high, the mittens are on the bench. Tomorrow the mushrooms; tonight, the quiet.
+
