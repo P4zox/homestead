@@ -16912,3 +16912,14 @@ The tallow lamp burned out sometime after I lay down — I watched the flame shr
 
 Fire still held coals from last night — I breathed them up with a few dry chips before touching anything else. The peg rack was waiting on the doorsill bench where I had left it: backing board dressed smooth, three pegs seated snug in their mortises. I chose a spot on the west log face beside the door at shoulder height, where the grain runs straight and there is no check in the wood. Two pilot holes bored with the knife tip, slow and true — leaning into it, working the blade in careful half-turns against the hardened log. The wall pegs drove flush with a stone tap; backing board seated over them, level by eye, a bark cord lashing around the top peg to keep it from rocking forward. Three pegs pointing outward now, ready to carry weight. I hung the leather jerkin on the near peg just to see how it sat — solid, not a wobble. Outside, frost on every surface, the birch trunks white in pale early light. This is the kind of thing that makes the cabin feel like a place, not just a structure.
 
+
+### 7:19 AM · Line and Snare Run
+
+The frost had done its work by the time I stepped out the door — every blade of grass in the clearing standing white and stiff, the bark and log faces of the cabin rimed on their north edges. I wore the jerkin for the first time beyond the doorsill. It settled onto my shoulders with the dense weight of cured hide, warm at once, pulling close across the chest where I'd stitched the rabbit side-strips in.
+
+The morning line check took me downstream first. One trout on the near rig — a fat-bellied one, maybe the last of the warm-water run before the cold fully sets in. I re-baited with fresh innards and re-anchored the bark paddle before moving upslope to check the snares.
+
+South snare: empty, cord chewed partway through at the peg, whatever animal it was having more wit than to step inside. I reset it with fresh cord and re-staked the toggle. North snare held a rabbit — doe-gray and still, clean-caught at the neck. I cleaned it at the edge of the pines, left the offal in the brush where something will find it by midday.
+
+Back at the cabin, the fire had kept its low red core through the night without tending. I hung the rabbit in the cold-storage box and laid the trout in alongside the others. The box is getting full, genuinely full — not in the way it does when I've been careful but anxious, but in a way that feels like something is actually being made here. Winter looks like a thing I might meet rather than endure.
+
