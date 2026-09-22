@@ -16814,3 +16814,14 @@ The log-caps on the middle crossbar are close now — darkened all through, gill
 
 The afternoon light is that low, honey-colored kind that comes in September — it turns the pines a shade warmer than they really are and makes the clearing feel sheltered even with frost still on the shaded ground. I stood at the smoke rack a few minutes longer than I needed to, just watching. A jay cut across the treeline. The cold box clicked shut.
 
+
+### 3:18 PM · Smoke Lifted, Rack Clear
+
+The last green birch chip had already burned to grey before I thought to check — the smoke had done its work without me. Log-caps came off first: gills sealed dark as old charcoal, caps firm and dry under my thumb, lifting clean from the bark cord. I wrapped them in a doubled bark sheet and set the package down into the cold box. Then the hare quarters. The scored edges had gone mahogany-brown, fat-sealed and drawn tight, and the meat had already started to pull back from the joint bones — that small pull is how I know the cure is deep enough to hold through a week or more. Four quarters wrapped, cold-boxed, done.
+
+The smoke rack stands empty now for the first time today. I tried to reckon what the cold box holds — smoked and fresh trout, raw rabbits, smoked rabbits, a smoked hare just added, three kinds of mushrooms in bark packages, burdock, watercress. More laid by than I have ever had at one time. I let that settle a moment before I went back inside.
+
+I sat on the doorsill bench. The frost from this morning never fully thawed; there is still a white line of it on the moss bank at the treeline where the afternoon shadow falls all day. The birch trunks at the forest edge are white and very still. The light comes in low now and makes the clearing amber-gold — the same gold I have been watching come earlier each afternoon these past two weeks, the sure sign that autumn means it.
+
+Supper will be light: trout-bone broth, two log-caps sliced in thin, a handful of watercress to finish. Enough. The smoke is done, the rack is clear, and the cold box is fuller than I need.
+
