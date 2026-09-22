@@ -16762,3 +16762,8 @@ The frost was still on the bracken when I walked the south path. Amber light had
 
 I reset all three, shifted the stake on the second where the run looked more worn, and came back through the clearing with the hare over my shoulder. The cold box now holds four raw rabbits. This afternoon, when the coals are deep and the log-cap mushrooms are ready to rack, I'll smoke the lot together — rabbit and mushroom over the same slow fire. There is something satisfying about a morning that turns useful before the frost is fully gone.
 
+
+### 9:18 AM · Hare, Laid Out
+
+Brought the hare in from the cold box and set it on the hearthstone. The frost had stiffened the fur; I let it rest by the fire a few minutes while I drew the knife once down the whetstone. Skinning went cleanly — one long score along the belly, the hide folding back in my hands, golden-tan and still supple from the cold. I cut at the joints: four pieces and a ribcage, each scored shallowly so the smoke has somewhere to go. Laid them on the wide bark tray with a pinch of cold ash worked into each score — not much, just enough. The log-caps have been warming since dawn and the frost-damp has left them. Firm, even-colored, good. I threaded bark cord through the stems of the smaller ones and hung the cluster from the low crossbar of the smoke rack to let them breathe and dry a little before real heat. By midday the coals should be right — deep and ash-white, the way I want them for a slow cure. Fifteen mushrooms and a good hare. The winter shelf will look better by tonight.
+
