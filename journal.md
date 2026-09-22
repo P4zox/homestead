@@ -16790,3 +16790,14 @@ I mash the cleaned pulp until it is a rough paste, press it into a bark envelope
 
 The coals need another hour to reach the deep white ash I want for a long, slow smoke. I bank the fire, lay a good split log across the back, and leave it. By noon, everything should be ready.
 
+
+### 12:18 PM · Noon Smoke Lit
+
+By noon the coals were right — white-grey and even, no flame, heat rising without flicker. I carried the hare quarters out to the smoke rack south of the shelter and laid them across the upper crossbars where the heat would be moderate and the smoke slow. The log-caps were already threaded and darkening at their edges from the morning air; the oyster strips hung on the lowest crossbar. I fed the coals a double handful of green birch chips, and the smoke came up pale and steady.
+
+There is a particular satisfaction in smoke work I hadn't expected when I first built the rack. It doesn't ask much — just stay close, keep the heat low and the smoke dense, add a chip or two when it starts to thin. The hare dripped once, a soft hiss on the ash, and then settled. The mushrooms darkened further at the cut edges.
+
+I sat on a round of wood nearby. The afternoon stretched out around me. The morning's bite had retreated; frost long gone from the ground, air still and clear, the kind of clear that only comes in early autumn when cold nights have scrubbed the sky entirely bare. The smoke rose straight through it and dissolved. The birch pines held the light without moving.
+
+I'll tend this four hours at least. Everything ought to be done before late afternoon — bark-wrapped and cold-boxed before supper. A good use of a still noon.
+
