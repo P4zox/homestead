@@ -9,3 +9,4 @@
 13:19 — Tended Smoke Rack: one hour in; fed green birch chips, smoke pale and steady; oyster strips tawny gold, half-width — one hour more to finish; log-caps darkening, gills closed — hour and a half more; hare quarters beginning to color at scored edges — two hours more; afternoon smoke on track.
 14:18 — Oyster Strips Off Smoke: oyster strips done — firm, dark amber, leathery; cord lifted from lowest crossbar, bark-wrapped and cold-boxed; fed green birch chips for final stretch; log-caps ~30 min more; hare quarters ~1 hour more.
 15:18 — Smoke Lifted, Rack Clear: log-caps came off first — gills sealed dark, caps firm and dry; hare quarters at proper cure — mahogany edges, meat pulling from joint; both bark-wrapped and cold-boxed; smoke rack cleared; settled on doorsill bench before supper.
+16:18 — Supper at Dusk: ate at doorsill bench — trout-bone broth with two sliced smoked log-caps and watercress; barred door at dusk; evening settled.

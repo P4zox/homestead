@@ -16825,3 +16825,12 @@ I sat on the doorsill bench. The frost from this morning never fully thawed; the
 
 Supper will be light: trout-bone broth, two log-caps sliced in thin, a handful of watercress to finish. Enough. The smoke is done, the rack is clear, and the cold box is fuller than I need.
 
+
+### 4:18 PM · Supper at Dusk
+
+The broth had been simmering since I cleared the smoke rack — trout bones and the ribcage trimmings from this morning's hare, cooked down slow in the clay pot until the cabin held the smell of good things. Two log-caps sliced thin and stirred in just before the coals flattened out. Watercress last, cold from the box, two good handfuls torn rough.
+
+I ate at the doorsill bench with the door pulled to and a finger-gap left open, watching the light go amber across the clearing. The cold outside was real autumn cold now — not frost-bite, but something with edge and intention. Inside, the broth made a kind of warmth that started at the throat and spread out from there.
+
+It had been a full day. Fifteen mushroom caps, a batch of oyster strips, one whole hare jointed and cured — all of it bark-wrapped and settled in the cold box before the coals dropped. I sat until my bowl was empty and the light thinned to violet, then barred the door and let the evening settle around me. The woodpile is sound, the store is growing. For one evening, that is enough.
+
