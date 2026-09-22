@@ -16805,3 +16805,12 @@ I'll tend this four hours at least. Everything ought to be done before late afte
 ### 1:19 PM · Pale Smoke Holds
 
 One hour into the afternoon smoke. I fed the coals another fistful of green birch chips and watched the column settle back to pale and cool — that is the temperature you want, slow enough that the meat takes color without tightening too fast. The oyster strips on the lowest crossbar have shrunk to half their fresh width, edges curling tight, color deepened from grey-white to tawny gold. I pinched one: still a trace of give at the center, a hint of moisture left in the core. One more hour should finish them. The log-cap mushrooms are holding their shape better than I expected — the ribs of the cap darkening, gills closed and pressing firm, the whole cap glossy with smoke. Another hour and a half for those. The hare quarters on the upper crossbars are just beginning to color at the scored edges, the pale flesh turning amber where the ash rub caught the heat first. They will need two hours more, maybe three. I stepped back from the rack and watched the smoke drift south in still cold air, catching the low September light and going amber for a moment before thinning to nothing. The clearing is quiet. Just the slow work of smoke and time.
+
+### 2:18 PM · Oyster Strips Done
+
+At two o'clock I lifted the oyster strips off the lowest crossbar — firm and leathery, dark amber, curled inward at the edges, the smoke-scent strong and clean. I slid the cord free and laid them in bark wrap, then carried the bundle to the cold box. Three caps, sliced and smoked: not much on their own, but another batch sealed away before winter and that matters.
+
+The log-caps on the middle crossbar are close now — darkened all through, gills shut tight, a faint sweet-earthy smell off them. Maybe thirty minutes more. I fed in a small handful of green birch chips and nudged the fire to keep the smoke pale and cool. The hare quarters are doing well: fat glistening at the scored edges, small drips sizzling on the coals below, skin just beginning to tighten. Another hour, maybe more.
+
+The afternoon light is that low, honey-colored kind that comes in September — it turns the pines a shade warmer than they really are and makes the clearing feel sheltered even with frost still on the shaded ground. I stood at the smoke rack a few minutes longer than I needed to, just watching. A jay cut across the treeline. The cold box clicked shut.
+
