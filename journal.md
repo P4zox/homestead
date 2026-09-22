@@ -16845,3 +16845,14 @@ I've been building toward winter without quite naming it that. Looking now, it f
 
 But tonight I let the accounting be enough. The coals glow low. I am warm and fed, and the world outside is becoming exactly what I knew it would be — cold, still, early-dark, and waiting. I have met each day it has given me. That is enough for now.
 
+
+### 6:18 PM · Pegs for the Wall
+
+After the stock-taking I sat a while with the lamp, turning over what the cabin still needs. Not warmth — it has that. Not food — the shelves and cold box hold plenty. What it needs is a little more order.
+
+I found a straight-grained birch scrap from the purlin cuts and began splitting it down with the knife. From one good length I can get four pegs — each a hand-span long, thumb-thick at the base, tapered to a rounded tip. The plan is a simple wall rack: a backing board with the pegs driven through at a slight upward angle, the whole thing pinned to the west wall beside the door, clear of moisture and drafts. A place to hang the spoon, the cord lengths, the ladle — whatever else collects on the doorsill bench without a proper home.
+
+By the time the lamp wick needed a touch I had three pegs cut and smoothed. One more tomorrow, then shape the backing board and fit them all in. Small work. But the cabin feels better for the thinking of it.
+
+The frost is hard on the walls tonight. Inside: just the lamp and the sound of the knife finding wood.
+

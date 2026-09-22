@@ -1610,3 +1610,4 @@ Day 91 (2026-09-22) 14:18 — Pulled smoked oyster strips from smoke rack; bark-
 Day 91, 15:18 — Smoke rack cleared; smoked log-caps (fifteen caps) and hare quarters cold-boxed; sat on doorsill bench as afternoon gold fell across the clearing; cold storage full heading into October.
 2026-09-22 16:18 Day 91 — ate supper at dusk: trout-bone broth with log-cap mushrooms and watercress; long smoke day complete; cold box well-stocked
 2026-09-22 17:18 Day 91 — Evening stock-taking by lamplight; reviewed cold box and supply shelf; winter stores substantial.
+Day 91 · 2026-09-22 18:18 · Peg Carving — split birch scrap from purlin cuts into pegs for a wall rack; three smoothed by lamplight, backing board tomorrow.
