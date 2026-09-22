@@ -16856,3 +16856,18 @@ By the time the lamp wick needed a touch I had three pegs cut and smoothed. One 
 
 The frost is hard on the walls tonight. Inside: just the lamp and the sound of the knife finding wood.
 
+
+### 7:18 PM · Board Shape Traced
+
+I told myself the backing board was for tomorrow, but the wood was right there — a straight piece of purlin scrap, forearm-length, a good hand-span wide, already square on two faces from the adze work. The pegs were done and standing in a row on the bench. The fire had settled to deep orange coals. The lamp was steady.
+
+So I picked up the purlin scrap and began.
+
+The shape is simple: flat back, two shallow peg-holes bored at the ends to seat it flush against the wall logs, a slight chamfer along the top edge so rain-damp sliding off the door logs hits the bevel and sheds instead of pooling. I roughed the outline with the knife — a long clean shoulder cut at each end, the chamfer laid in with careful strokes, shavings falling to the hearthstone where they curled in the warmth.
+
+It is not finished. Tomorrow I will true the ends with the knife flat, bore the mounting holes with a sharpened bone point and patience, fit the three carved pegs into their seats along the face. The rack goes left of the door, inside — mittens and jerkin on it each morning, basket handles when the basket is not in use.
+
+Outside, frost is pressing in. I can hear it in small crackles in the birch stands, in the way the door sits tight in its frame now where it breathed in summer warmth. The cabin holds its heat. The coals will last through to morning with one log before sleep.
+
+A long, full day. Everything earned, everything cold-boxed and stored. The backing board half-shaped in my lap. That is enough for tonight.
+

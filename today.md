@@ -12,3 +12,4 @@
 16:18 — Supper at Dusk: ate at doorsill bench — trout-bone broth with two sliced smoked log-caps and watercress; barred door at dusk; evening settled.
 17:18 — Evening Stock-Taking: sat by coals after supper; reviewed cold box and supply shelf by lamplight; winter stores noted as substantial — trout, smoked meats, mushrooms, foraged pastes and syrups; second mushroom flush expected in ~10–12 days; evening quiet and settled.
 18:18 — Peg Carving: split birch scrap from purlin cuts into hand-span pegs at doorsill bench by lamplight; three cut and smoothed; backing board to be shaped tomorrow, rack to go on west wall beside door.
+19:18 — Board Shape Traced: picked up purlin scrap at doorsill bench; rough-shaped backing board for west-wall peg rack — shoulder cuts at both ends, chamfer along top edge; three finished pegs ready to fit; rack to be fully assembled and mounted tomorrow.
