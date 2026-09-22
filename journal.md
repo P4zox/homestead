@@ -16886,3 +16886,14 @@ I sat on the doorsill bench for a while after the fire was settled, not doing an
 
 The day was a good one. I will sleep well.
 
+
+### 10:18 PM · Lamp to Wick
+
+The lamp is burning low on the supply shelf, just enough light to see the cabin by. I moved it closer to the hearthside after the coals were banked — not to work by, just for company while the night comes fully down. The two split logs are settled over the coal pile, and I can hear them tick occasionally as the pine gives up its last moisture to the heat.
+
+The peg rack sits finished on the doorsill bench: backing board shaped, mortises bored, three pegs seated snug. Tomorrow morning I will bore the mounting holes and drive it into the west wall beside the door, and the jerkin and mittens and belt pouch will have a proper place at last. Small thing. The kind of thing that makes a shelter feel less provisional and more like a home.
+
+I counted the cold stores by lamplight an hour ago, and I am still sitting with what that felt like. Fifteen trout. Smoked hare, four quarters. Three kinds of mushroom, two or three batches of each. Pastes and flour and syrups and dried herbs lined along the supply shelf. I have been preparing for so long that I almost forgot what prepared looks like — but it looks like that shelf right now, and the cold box beside the seep, and the garlic braid hanging on the cellar rail. There is a fullness to the cabin I did not have at the start of summer, and I can feel it even in the dark.
+
+Frost is pressing the walls. I can sense it as a particular stillness — no wind, just cold settling against the bark and daub. I will fix the north corner again before the hard freeze, but tonight I only need to sleep well. The lamp is guttering. I will let it find its end, then pull the sleeping bag close and let the coals do the rest.
+
