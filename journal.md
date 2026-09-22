@@ -16767,3 +16767,14 @@ I reset all three, shifted the stake on the second where the run looked more wor
 
 Brought the hare in from the cold box and set it on the hearthstone. The frost had stiffened the fur; I let it rest by the fire a few minutes while I drew the knife once down the whetstone. Skinning went cleanly — one long score along the belly, the hide folding back in my hands, golden-tan and still supple from the cold. I cut at the joints: four pieces and a ribcage, each scored shallowly so the smoke has somewhere to go. Laid them on the wide bark tray with a pinch of cold ash worked into each score — not much, just enough. The log-caps have been warming since dawn and the frost-damp has left them. Firm, even-colored, good. I threaded bark cord through the stems of the smaller ones and hung the cluster from the low crossbar of the smoke rack to let them breathe and dry a little before real heat. By midday the coals should be right — deep and ash-white, the way I want them for a slow cure. Fifteen mushrooms and a good hare. The winter shelf will look better by tonight.
 
+
+### 10:18 AM · Frost-Edge Forage
+
+The frost had burned off the bracken by nine, but the clearing still wore that still, cold brightness — each blade of grass separate and white-edged, the air carrying the smell of pine resin and turned earth. The hare pieces and mushrooms were set and waiting; the fire was fed with a length of pine and left to climb its own way to coals. I would not need deep white ash for another few hours.
+
+I took the wide gathering basket and went south along the wood edge, following the deer trail past the second snare to where the thicket thins and the hawthorn and rose canes grow tangled together at the treeline. The rose hips I had seen three weeks ago had finally softened — frost-kissed twice over now, a few even splitting at the tip, which is when they are sweetest. I stripped what was left: two good handfuls, wine-red and fat, skins yielding under the thumbnail. Last of the season. I have learned not to pass them.
+
+Continued east along the top of the bank, checking snags as I went. The big birch that fell last spring had a cluster I had cleaned out in summer; I looked anyway, and there was a small new flush — three oyster mushroom caps, pale grey-cream, shelf-out from the bark, firm and clean. Knife-cut them at the base, laid them in the basket beside the hips.
+
+Came back into the clearing with the sun still low over the east ridge and the cabin smoke rising straight. Not much — a small take — but the walk was its own thing. This late in the year the woods are quiet in a way that is almost kind. The cold makes everything clear-edged and near.
+

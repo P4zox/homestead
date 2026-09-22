@@ -1602,3 +1602,4 @@ Day 90, 22:19 — Night rest; cabin warm against frost; first mushroom flush con
 2026-09-22 07:18 — Day 91 — Checked upstream fishing lines at dawn; two trout pulled and cold-boxed; re-baited both rigs; mushrooms warming by fire, smoking planned for afternoon.
 Day 91 (2026-09-22) 08:18 — South snare run; third snare sprung with hare; four raw rabbits cold-boxed; afternoon smoking planned for hare and mushrooms.
 Day 91, 09:18 — Hare butchered and scored; log-cap mushrooms hung on smoke rack to dry; afternoon smoking fully prepped.
+Day 91, 10:18 — Forage walk, south wood edge: two handfuls last rose hips of the season stripped from south thicket; small oyster mushroom cluster (three caps) cut from east birch snag; basket home before noon.
