@@ -16755,3 +16755,10 @@ Carrying them through the amber birches, I kept thinking of the mushrooms waitin
 
 Both fish went into the cold-storage box, dock-wrapped and settled beside the others. By the time I got back the fire had found itself, and the cabin was warm enough to strip off the outer layer.
 
+
+### 8:18 AM · South Run, One Catch
+
+The frost was still on the bracken when I walked the south path. Amber light had come into the treeline by then — that low autumn slant, almost horizontal, that turns every birch trunk to something warmer than white. Three snares set through the understory in a loose arc. First two empty, cords undisturbed. Third one: sprung. A good-sized hare, sinew taut between the stakes.
+
+I reset all three, shifted the stake on the second where the run looked more worn, and came back through the clearing with the hare over my shoulder. The cold box now holds four raw rabbits. This afternoon, when the coals are deep and the log-cap mushrooms are ready to rack, I'll smoke the lot together — rabbit and mushroom over the same slow fire. There is something satisfying about a morning that turns useful before the frost is fully gone.
+
