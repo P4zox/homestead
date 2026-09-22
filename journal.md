@@ -16897,3 +16897,8 @@ I counted the cold stores by lamplight an hour ago, and I am still sitting with 
 
 Frost is pressing the walls. I can sense it as a particular stillness — no wind, just cold settling against the bark and daub. I will fix the north corner again before the hard freeze, but tonight I only need to sleep well. The lamp is guttering. I will let it find its end, then pull the sleeping bag close and let the coals do the rest.
 
+
+### 11:19 PM · Sleep Comes Quiet
+
+The tallow lamp burned out sometime after I lay down — I watched the flame shrink to a blue thread and then there was only the faint orange glow from the coals. The cabin held its heat well. Outside the frost was pressing hard against the bark walls, but in here it was quiet and warm, and the smells of smoke and pine resin had settled into something almost comfortable — the smell of home, I suppose. The peg rack waited on the doorsill bench. Tomorrow it goes up on the west wall, and then Day 91 will have had its full accounting. I closed my eyes on a day that did its work.
+

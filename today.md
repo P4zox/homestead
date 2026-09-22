@@ -16,3 +16,4 @@
 20:19 — Peg Holes Bored: took knife-tip to backing board by lamplight; trued both shoulder ends; bored three peg mortises through board face, tight to peg shoulders; all three pegs seated snug; tomorrow: bore mounting holes, cut wall-pegs, hang rack on west wall beside door.
 21:18 — Banking the Coals: raked hearth coals into tight pile; laid two split logs to hold warmth through the night; sat on doorsill bench in evening quiet; door barred; frost pressing outside; settling toward sleep.
 22:18 — Lamp to Wick: let tallow lamp burn low by hearthside; reflected on winter stores, cold box, the fullness of the shelf; peg rack ready on doorsill bench; settled toward sleep.
+23:19 — Sleep: lamp burned out; coals deep-orange; cabin warm; peg rack on doorsill bench; Day 91 closed; tomorrow: mount peg rack on west wall beside door.
