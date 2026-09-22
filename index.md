@@ -1616,3 +1616,4 @@ Day 91 · 2026-09-22 18:18 · Peg Carving — split birch scrap from purlin cuts
 Day 91, 21:18 — Banking the Coals: raked coals into tight pile, laid two split logs, fire banked for the night; sat at doorsill bench in evening quiet; frost pressing at door edge; slept well.
 Day 91, 2026-09-22, 22:18 — Lamp to Wick: last waking hour; lamp burning low by hearthside; reflected on winter stores and tomorrow's peg rack; settled toward sleep.
 2026-09-22 Day 91 23:19 — Lamp out; sleep; coals deep-orange; peg rack on doorsill bench waiting for morning mounting.
+2026-09-23 Day 92 06:18 — Rack Finds the Wall: mounted peg rack on west wall beside door; three pegs outward, jerkin hung solid.

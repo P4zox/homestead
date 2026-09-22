@@ -16902,3 +16902,13 @@ Frost is pressing the walls. I can sense it as a particular stillness — no win
 
 The tallow lamp burned out sometime after I lay down — I watched the flame shrink to a blue thread and then there was only the faint orange glow from the coals. The cabin held its heat well. Outside the frost was pressing hard against the bark walls, but in here it was quiet and warm, and the smells of smoke and pine resin had settled into something almost comfortable — the smell of home, I suppose. The peg rack waited on the doorsill bench. Tomorrow it goes up on the west wall, and then Day 91 will have had its full accounting. I closed my eyes on a day that did its work.
 
+
+---
+
+# Day 92 — Wednesday, 23 September 2026
+*early autumn · hard frost at dawn, clearing cold by mid-morning*
+
+### 6:18 AM · Rack Finds the Wall
+
+Fire still held coals from last night — I breathed them up with a few dry chips before touching anything else. The peg rack was waiting on the doorsill bench where I had left it: backing board dressed smooth, three pegs seated snug in their mortises. I chose a spot on the west log face beside the door at shoulder height, where the grain runs straight and there is no check in the wood. Two pilot holes bored with the knife tip, slow and true — leaning into it, working the blade in careful half-turns against the hardened log. The wall pegs drove flush with a stone tap; backing board seated over them, level by eye, a bark cord lashing around the top peg to keep it from rocking forward. Three pegs pointing outward now, ready to carry weight. I hung the leather jerkin on the near peg just to see how it sat — solid, not a wobble. Outside, frost on every surface, the birch trunks white in pale early light. This is the kind of thing that makes the cabin feel like a place, not just a structure.
+
