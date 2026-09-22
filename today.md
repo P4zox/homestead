@@ -14,3 +14,4 @@
 18:18 — Peg Carving: split birch scrap from purlin cuts into hand-span pegs at doorsill bench by lamplight; three cut and smoothed; backing board to be shaped tomorrow, rack to go on west wall beside door.
 19:18 — Board Shape Traced: picked up purlin scrap at doorsill bench; rough-shaped backing board for west-wall peg rack — shoulder cuts at both ends, chamfer along top edge; three finished pegs ready to fit; rack to be fully assembled and mounted tomorrow.
 20:19 — Peg Holes Bored: took knife-tip to backing board by lamplight; trued both shoulder ends; bored three peg mortises through board face, tight to peg shoulders; all three pegs seated snug; tomorrow: bore mounting holes, cut wall-pegs, hang rack on west wall beside door.
+21:18 — Banking the Coals: raked hearth coals into tight pile; laid two split logs to hold warmth through the night; sat on doorsill bench in evening quiet; door barred; frost pressing outside; settling toward sleep.

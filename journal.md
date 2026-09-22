@@ -16875,3 +16875,14 @@ A long, full day. Everything earned, everything cold-boxed and stored. The backi
 ### 8:19 PM · Peg Holes Bored
 
 Evening settled in with the fire low and the lamp burning steady. I brought the backing board inside and worked it across my knees at the hearthstone — knife at a shallow angle, both shoulder ends trued down to flat. The chamfer along the top edge cleaned up nicely too, shavings thin as ribbon curling to the floor. Then the peg mortises: knife-tip twisting slow through the board face, three holes bored in a clean row at hand-span intervals, each tight to the peg shoulders. Seated each peg in its hole — snug fits, no rattle, no gaps. Tomorrow the board gets its two mounting holes bored near the ends, wall-pegs cut to match, and the whole rack goes up on the west wall beside the door. Everything cut and ready. I set the board with its three pegged shafts standing on the doorsill bench and let the lamp burn a little longer. Outside, frost settling again in the dark. The cabin holds it well.
+
+### 9:18 PM · Banking the Coals
+
+The lamp is lower now. I set the backing board aside — three pegs seated tight, ready for tomorrow — and knelt at the hearth to rake the coals into a tight pile and lay two split logs across them. The wood caught slowly, just enough to hold warmth through the night without burning too fast.
+
+There is a particular pleasure in this moment, the end of a full day. The cold box holds more than it ever has. The supply shelf is stacked with sealed envelopes and cured meats, smoked mushrooms nested in bark wrap, pastes and syrups lined up in their corner. The peg rack waits one more morning of work before it goes on the west wall.
+
+I sat on the doorsill bench for a while after the fire was settled, not doing anything in particular. The frost had already started outside — I could feel it seeping at the door edge. By morning the ground will be white-crusted again and my breath will cloud at the stream. But inside it is warm and the lamp flame is steady and the door bar is down.
+
+The day was a good one. I will sleep well.
+
