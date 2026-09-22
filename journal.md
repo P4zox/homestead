@@ -16834,3 +16834,14 @@ I ate at the doorsill bench with the door pulled to and a finger-gap left open, 
 
 It had been a full day. Fifteen mushroom caps, a batch of oyster strips, one whole hare jointed and cured — all of it bark-wrapped and settled in the cold box before the coals dropped. I sat until my bowl was empty and the light thinned to violet, then barred the door and let the evening settle around me. The woodpile is sound, the store is growing. For one evening, that is enough.
 
+
+### 5:18 PM · Counting What's There
+
+The lamp flame holds steady on the supply shelf — the cabin smells of old smoke and tallow and pine resin, the good close smell of a day well-used. Supper is done. The door is barred. I let myself sit by the coals and just look at what is here.
+
+The cold box is heavy with it: fifteen trout, three raw rabbits, three smoked, one smoked hare in four quarters, mushrooms in half a dozen batches from different days — hen-of-the-woods, oyster, honey caps, today's log-caps, the fan-caps. The supply shelf holds things I couldn't have named in the early weeks — acorn flour, hazelnut paste, rose hip envelopes, elderberry reduction, sloe syrup, crab apple paste. The medicine shelf: dried yarrow, resin, five sealed storage envelopes still ready. All of it found or made by hand, one hour at a time.
+
+I've been building toward winter without quite naming it that. Looking now, it feels close to ready — not finished, nothing out here is finished, but close. The second mushroom flush should come in ten or twelve days. The cattail beds still have roots worth digging if the frost holds above a full freeze. There is cord to braid and perhaps another afternoon's bark to strip for extra fuel cover.
+
+But tonight I let the accounting be enough. The coals glow low. I am warm and fed, and the world outside is becoming exactly what I knew it would be — cold, still, early-dark, and waiting. I have met each day it has given me. That is enough for now.
+
