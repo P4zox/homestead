@@ -16778,3 +16778,15 @@ Continued east along the top of the bank, checking snags as I went. The big birc
 
 Came back into the clearing with the sun still low over the east ridge and the cabin smoke rising straight. Not much — a small take — but the walk was its own thing. This late in the year the woods are quiet in a way that is almost kind. The cold makes everything clear-edged and near.
 
+### 11:18 AM · Rose Hip Work
+
+The fire has been building since early morning and now holds a deep orange bed with white ash creeping in at the edges. The hare pieces and log-cap mushrooms from this morning are already strung across the upper crossbars of the smoke rack, waiting. I use this mid-morning hour to ready the rest.
+
+The three oyster mushroom caps from the east birch snag are still in the gathering basket. I slice them lengthwise into thumb-wide strips — pale, faintly scented, still firm from the cold — and thread them on a fresh length of bark cord, knotting between each piece so they hang free. This goes on the lowest crossbar of the rack, where the heat will be gentlest.
+
+Then the rose hips. I pull the bark tray onto my knee and sit on the doorsill bench in the late-morning sun, which has come around warm enough to be pleasant against a south-facing wall. The work is close and small: pinch the dried blossom cap from each hip, ease out the seeds and fine white hairs — they are tiny and catch on everything if you are careless. But the hips are frost-soft and give easily, and I get through both handfuls before the sun moves off the bench. The pulp is deep rose-red, sweet-tart on the tongue when I taste a smear off the spoon.
+
+I mash the cleaned pulp until it is a rough paste, press it into a bark envelope, seal the edges with a smear of pine resin, and set it on the supply shelf. It will thicken further as it dries. Good for winter broths; good for a hard morning when something sweet is needed.
+
+The coals need another hour to reach the deep white ash I want for a long, slow smoke. I bank the fire, lay a good split log across the back, and leave it. By noon, everything should be ready.
+
