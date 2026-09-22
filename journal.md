@@ -16801,3 +16801,7 @@ I sat on a round of wood nearby. The afternoon stretched out around me. The morn
 
 I'll tend this four hours at least. Everything ought to be done before late afternoon — bark-wrapped and cold-boxed before supper. A good use of a still noon.
 
+
+### 1:19 PM · Pale Smoke Holds
+
+One hour into the afternoon smoke. I fed the coals another fistful of green birch chips and watched the column settle back to pale and cool — that is the temperature you want, slow enough that the meat takes color without tightening too fast. The oyster strips on the lowest crossbar have shrunk to half their fresh width, edges curling tight, color deepened from grey-white to tawny gold. I pinched one: still a trace of give at the center, a hint of moisture left in the core. One more hour should finish them. The log-cap mushrooms are holding their shape better than I expected — the ribs of the cap darkening, gills closed and pressing firm, the whole cap glossy with smoke. Another hour and a half for those. The hare quarters on the upper crossbars are just beginning to color at the scored edges, the pale flesh turning amber where the ash rub caught the heat first. They will need two hours more, maybe three. I stepped back from the rack and watched the smoke drift south in still cold air, catching the low September light and going amber for a moment before thinning to nothing. The clearing is quiet. Just the slow work of smoke and time.

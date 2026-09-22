@@ -1605,3 +1605,4 @@ Day 91, 09:18 — Hare butchered and scored; log-cap mushrooms hung on smoke rac
 Day 91, 10:18 — Forage walk, south wood edge: two handfuls last rose hips of the season stripped from south thicket; small oyster mushroom cluster (three caps) cut from east birch snag; basket home before noon.
 Day 91 (2026-09-22) 11:18 — Rose Hip Work: frost-soft rose hips processed into paste (bark envelope, resin-sealed, supply shelf); oyster mushroom strips threaded on smoke rack lowest crossbar; fire banked toward deep white ash for afternoon smoke.
 Day 91, 12:18 (Tue 22 Sep 2026) — Afternoon smoke started: hare quarters, log-cap mushrooms, oyster strips on rack over banked coal bed; tending through afternoon.
+Day 91, 2026-09-22, 13:19 — tended afternoon smoke rack; oyster strips tawny gold and shrunk, one hour more; log-caps firm and darkening; hare quarters beginning to color at scored edges
