@@ -17006,3 +17006,9 @@ The rabbit bones sat by the hearthstone after supper — I had not let them go c
 
 Outside the light dropped fast. September is earnest about its darkness. The birches went amber, then grey, then silhouette against the pale sky in the space of half an hour. I shut the latch bar and let the fire hold the cabin. Everything is in its place: rack on the wall, mat rolled on the sleeping shelf, sheath on the peg beside the jerkin. The second lamp burns steady on the supply shelf. There is nothing urgent this evening, which is its own kind of good.
 
+
+### 6:18 PM · Lamp Filled, Fire Low
+
+The bones from the afternoon had one more rendering left in them. I set the cook tin back over the slow coals — not much heat, just the patient residue of a long day — and waited. The tallow came thin and gold. I skimmed the last few spoonfuls into the first bark cup until it sat brim-full and level. Both lamps rest on the supply shelf now: one burning low and steady, one full and ready. The fire came down to a flat orange bed while I worked, and I banked it with a short round to hold through the night. The cabin is warm, closed, latch bar down.
+
+Day 92 has been full in the best sense — rack solid on the west wall, mat on the sleeping shelf, sheath hanging beside the jerkin, stew eaten, tallow rendered and sealed. I sat at the doorsill bench for a little while after and just counted myself: warm, fed, sheltered, stocked deep for winter. The birches outside are only shapes in the dark now. The stream sounds quieter when the frost begins to set the air still. It is all you can ask at the end of a day.
