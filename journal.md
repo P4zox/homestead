@@ -16999,3 +16999,10 @@ Then back to the sheath. Throat loop first: three hand-widths of thin lacing mea
 I fitted the knife. It slid in, stopped at the throat, sat level. Handle proud and ready. The stitching looked clean.
 
 The sheath hangs now on the rack peg beside the jerkin. Bowl washed at the stream bucket, hearth banked for evening. The clearing amber-still, birch trunks glowing white past the woodpile. Warm in the jerkin, supper eaten, tools away. A good end.
+
+### 5:19 PM · Tallow at Dusk
+
+The rabbit bones sat by the hearthstone after supper — I had not let them go cold yet. The clay pot rinsed, I cracked the larger leg bones on the flat gneiss stone and set them in the cook tin with a splash of water over low coals to render what fat remained. Marrow and joint grease rose to the surface in a thin gold slick as the evening settled in. I skimmed it carefully into the first lamp's bark cup — not enough for a full fill, but enough for a shallow burn. It will want one more rendering, maybe from the next rabbit, before the wick catches clean.
+
+Outside the light dropped fast. September is earnest about its darkness. The birches went amber, then grey, then silhouette against the pale sky in the space of half an hour. I shut the latch bar and let the fire hold the cabin. Everything is in its place: rack on the wall, mat rolled on the sleeping shelf, sheath on the peg beside the jerkin. The second lamp burns steady on the supply shelf. There is nothing urgent this evening, which is its own kind of good.
+

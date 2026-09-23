@@ -1627,3 +1627,4 @@ Day 92, 2026-09-23, 13:18 — Afternoon walk south to check buried log; no secon
 Day 92, 14:19 — Slow Afternoon Stew: one raw rabbit jointed and set to simmer in clay pot with watercress and yarrow; sat at doorsill in afternoon gold light
 2026-09-23 Day 92 15:19 — Sheath at the Doorsill: tended stew (close to ready, fire banked); sorted doe-hide scraps at doorsill bench; cut knife sheath from squared piece — single fold, back seam saddle-stitched, throat loop remaining; stitch is true, basic shape clear; amber birch light across clearing.
 2026-09-23 16:18 Day 92 — Sheath and Supper: knife sheath completed (throat loop laced, edge trimmed); rabbit stew eaten at supper; sheath on rack peg.
+Day 92, 2026-09-23 17:19 — Tallow rendered from rabbit bones at dusk; first lamp cup receiving partial refill; latch bar down, fire banked, evening quiet
