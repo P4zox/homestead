@@ -16989,3 +16989,13 @@ The sheath is simple: a single fold around the blade's width, saddle-stitched do
 
 The stew is still murmuring low. The light has gone more sideways across the clearing while I worked; the birch trunks have gone white-gold in it. Soon.
 
+
+### 4:18 PM · Sheath and Supper
+
+The stew had finished murmuring by the time I sat back at the doorsill. Two hours on banked coals had done it — rabbit broth gone deep and settled, watercress limp and silky, yarrow just a faint green note underneath. I ladled it into the clay bowl and ate slowly at the bench while the afternoon light went amber across the clearing.
+
+Then back to the sheath. Throat loop first: three hand-widths of thin lacing measured and cut, two holes pierced through the fold at the throat with the bone needle, the strip threaded and knotted off with a half-twist. The blade now seats snug at the mouth with no rattle. Edge trim last — a running stitch along the full fold hem, every finger-width pulled tight. The leather has relaxed into its final shape, outer face honey-dark.
+
+I fitted the knife. It slid in, stopped at the throat, sat level. Handle proud and ready. The stitching looked clean.
+
+The sheath hangs now on the rack peg beside the jerkin. Bowl washed at the stream bucket, hearth banked for evening. The clearing amber-still, birch trunks glowing white past the woodpile. Warm in the jerkin, supper eaten, tools away. A good end.
