@@ -17036,3 +17036,11 @@ The cabin smells of resin and wood smoke, and faintly of this afternoon's rabbit
 
 No urgency anywhere. In autumn, that is a good feeling to end a day on.
 
+
+### 9:19 PM · First Night on the Mat
+
+The first lamp burned through the evening and was nearly out when I checked it last — just a thin pale thread of smoke rising from the bark cup. I left it to die on its own.
+
+I unrolled the cattail mat from the sleeping shelf and spread it over the bracken floor. I had built it for winter practicality, for a layer between my body and the ground on the cold nights ahead. Lying down on it, the texture of the plaiting pressed softly through the sleeping bag, and it held a quiet warmth already from the cabin air. Quieter underfoot than loose bracken alone. That surprised me.
+
+Day 92: peg rack on the wall, knife sheath on its peg, acorn flour sealed, cold box full, woodpile high, fire banked low and holding. A long, good day. Enough to close my eyes here.

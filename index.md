@@ -1631,3 +1631,4 @@ Day 92, 2026-09-23 17:19 — Tallow rendered from rabbit bones at dusk; first la
 Day 92 18:18 — Lamp Filled, Fire Low: last rendering topped first bark-cup lamp full; fire banked; both lamps on shelf; evening settled.
 2026-09-23 19:19 — Day 92 · Evening Shelf — went shelf by shelf by lamplight; took stock of winter stores; noted a tighter bark wrap for the acorn flour is needed; the cold box is full, the firewood high, the evening quiet.
 2026-09-23 Day 92 20:19 — Sealed acorn flour envelope with pine resin by lamplight; all four full envelopes checked and sound; fire banked, second lamp out, evening settled.
+Day 92, 21:19 — first night on new cattail mat; first lamp burned out; fire holding; settled to sleep
