@@ -17044,3 +17044,14 @@ The first lamp burned through the evening and was nearly out when I checked it l
 I unrolled the cattail mat from the sleeping shelf and spread it over the bracken floor. I had built it for winter practicality, for a layer between my body and the ground on the cold nights ahead. Lying down on it, the texture of the plaiting pressed softly through the sleeping bag, and it held a quiet warmth already from the cabin air. Quieter underfoot than loose bracken alone. That surprised me.
 
 Day 92: peg rack on the wall, knife sheath on its peg, acorn flour sealed, cold box full, woodpile high, fire banked low and holding. A long, good day. Enough to close my eyes here.
+
+### 10:19 PM · Owl, Dark, and Mat
+
+Both lamps are out. The hearth is down to slow coals, just a low orange thread along the front face, enough to feel the air is warm. The new cattail mat is firm under my back — firmer than bare bracken and somehow cleaner; it smells like dry reeds and still water, and I can feel each plait slightly through the blanket. It holds well.
+
+An owl called once from the pines upslope and went quiet. I listened for a second call and none came. Outside must be cold and still — I can feel the night pressing at the west gable, but the bark layers over the daub are doing their work. No draft. No light but coals.
+
+Ninety-two days. I try to count what that means and mostly what I feel is tiredness in a good form — the kind that comes from work finished, not work abandoned. The cold box is dense with smoked meat and mushroom. The woodpile stands high. The shelf is sealed tight. I have a mat under me for the first time, a sheath on the rack peg, a jerkin on the hook above it.
+
+I let the day settle out through the soles of my feet and lie still. Winter will come hard. Tonight feels ready for it.
+

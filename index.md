@@ -1632,3 +1632,4 @@ Day 92 18:18 — Lamp Filled, Fire Low: last rendering topped first bark-cup lam
 2026-09-23 19:19 — Day 92 · Evening Shelf — went shelf by shelf by lamplight; took stock of winter stores; noted a tighter bark wrap for the acorn flour is needed; the cold box is full, the firewood high, the evening quiet.
 2026-09-23 Day 92 20:19 — Sealed acorn flour envelope with pine resin by lamplight; all four full envelopes checked and sound; fire banked, second lamp out, evening settled.
 Day 92, 21:19 — first night on new cattail mat; first lamp burned out; fire holding; settled to sleep
+Day 92, 22:19 — lay on new cattail mat in dark cabin; owl once from the pines; coals holding; both lamps out; night still and cold outside; felt ready.
