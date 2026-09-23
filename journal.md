@@ -16949,3 +16949,16 @@ Brought the half-finished cattail mat from the lean-to shelf and settled back at
 
 The light at this hour slants low across the clearing in a way that makes everything look deliberate — the stacked firewood, the pale grass beyond the garden mounds, the birch trunks catching gold at the edge. I do not know if autumn makes you notice more, or if the year's long work has finally made the clearing feel like somewhere real. Probably both. I set the mat back on the lean-to shelf and came inside. One more good hour will finish it.
 
+
+### 12:18 PM · Mat Comes Full
+
+The mat lay on the lean-to shelf where I set it at eleven — five hand-widths wide, its weave tight and even except for the last loose fringe of leaves still uncut. I carried it back to the doorsill bench and set the remaining dry cattail leaves beside me in a tidy stack.
+
+The finishing work is different from starting: no choosing your rhythm, just continuing it. Leaf over, leaf under, press the row firm toward the last. Noon light came slant through the doorway and made the pale gold of the weave seem almost warm, which is a pleasant lie — the air is cold and the frost-shadow still sits in the north corner of the clearing.
+
+I added the last two hand-widths slowly, pressing each row tight before the next. When I reached the edge I folded the trailing leaf-ends back into the weave on both sides, tacking them through with a length of two-ply cord at the folded selvage. It is not a fine hem, but it will hold and it will not fray.
+
+When I stood up and set the finished mat on the bench flat and open, it was a full sleeping-length: eight hand-widths long, seven wide. Enough to lie on without my hip touching cold bark floor. I rolled it loosely and tied it with a bark strip and set it on the sleeping shelf inside, unrolled once to be sure it lay flat and even. It did.
+
+Small thing, done. The shelf looks fuller than it did this morning.
+

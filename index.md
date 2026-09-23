@@ -1622,3 +1622,4 @@ Day 92, 2026-09-23, 08:19 — Morning broth from fresh trout and watercress in c
 2026-09-23 09:18 Day 92 — Cattail in the Light: gathered cattail fluff and dried leaves from downstream beds; fluff sealed in bark envelope, leaves airing on lean-to bench.
 2026-09-23 Day 92 10:18 — Began weaving dry cattail leaves into a sleeping mat; half done, set on lean-to shelf.
 2026-09-23 11:18 — Day 92: continued weaving cattail sleeping mat (three-quarters done, ~5 hand-widths)
+Day 92, 12:18 — Finished cattail sleeping mat; last two hand-widths woven, selvage folded and cord-tacked; mat rolled and set on sleeping shelf — eight by seven hand-widths, full sleeping-length.

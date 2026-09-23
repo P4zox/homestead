@@ -5,3 +5,4 @@
 09:18 — Cattail in the Light: downstream to cattail beds; gathered burst flower-spike fluff (sealed bark envelope) and armload of dry tan leaves for weaving; laid out on lean-to bench to air.
 10:18 — Plaiting the Leaves: sat at doorsill bench; wove dry cattail leaves in over-under plaiting — mat half-done (~3 hand-widths wide), set on lean-to shelf to finish later.
 Day 92, 11:18 — continued weaving cattail sleeping mat at doorsill bench; two more hand-widths added, three-quarters done (~5 hand-widths); set back on lean-to shelf
+12:18 — Mat Comes Full: finished cattail sleeping mat at doorsill bench; last two hand-widths woven, selvage folded and cord-tacked on both sides; mat full sleeping-length (eight by seven hand-widths), rolled, tied with bark strip, set on sleeping shelf.
