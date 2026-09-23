@@ -16978,3 +16978,14 @@ I stood at the doorsill a moment before going in. The afternoon light was sittin
 
 After the walk south, the cabin felt warm against the outdoor chill. I took one of the raw rabbits from the cold box — firm, well-dressed from this morning — and jointed it at the doorsill bench. Pieces into the clay pot with a ladle of stream water, a handful of watercress, and a pinch of dried yarrow. Hung the pot over the coals on the green-branch crane I keep beside the hearth. The stew took only a few minutes to begin murmuring: that low, periodic bubble from deepening liquid is one of the better sounds of this season. I left the door open a hand-width and sat on the bench, watching the afternoon light lie gold across the birch trunks on the far side of the clearing. The smell moved out over the threshold. There was nothing required of me just then but to keep the fire calm — I set a middle-sized split log on the coals and left it to do its work. The light was shortening by the minute. The stew had its own pace and I had mine, and for the better part of an hour neither of us was in a hurry.
 
+
+### 3:19 PM · Sheath at the Doorsill
+
+Lifted the pot lid somewhere in the third hour after midday and the smell settled over me — rabbit, yarrow, watercress, the amber warmth of a long simmer. The broth had gone clear-gold; I tasted it off the back of a spoon and found it close but not quite ready. Set the lid back, banked the fire to a slow hold, and came to the doorsill bench.
+
+The doe-hide scraps have been sitting in a pile at the bench end all day. Three good pieces left after the jerkin and mitten cuts — each palm-wide or better, pliable from the cure, still faintly smoky. I laid them out and turned them in the afternoon light to see what each one held. The long strip could be useful; the squared piece could make a knife sheath if I cut it right. I sat with that thought for a moment, then fetched the bone needle and a length of lacing from the shelf.
+
+The sheath is simple: a single fold around the blade's width, saddle-stitched down the back seam, a small loop at the throat to hang from the belt. I worked the stitches close and even. The seam holds true, and the basic shape is already clear in the leather. I'll finish the throat loop and trim the edges after supper — or tonight, if the lamp holds.
+
+The stew is still murmuring low. The light has gone more sideways across the clearing while I worked; the birch trunks have gone white-gold in it. Soon.
+
