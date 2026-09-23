@@ -16973,3 +16973,8 @@ On the way back I walked slower than I needed to. The birches have gone fully go
 
 I stood at the doorsill a moment before going in. The afternoon light was sitting on the hearthstone. There was nothing urgent, and that felt right.
 
+
+### 2:19 PM · Slow Afternoon Stew
+
+After the walk south, the cabin felt warm against the outdoor chill. I took one of the raw rabbits from the cold box — firm, well-dressed from this morning — and jointed it at the doorsill bench. Pieces into the clay pot with a ladle of stream water, a handful of watercress, and a pinch of dried yarrow. Hung the pot over the coals on the green-branch crane I keep beside the hearth. The stew took only a few minutes to begin murmuring: that low, periodic bubble from deepening liquid is one of the better sounds of this season. I left the door open a hand-width and sat on the bench, watching the afternoon light lie gold across the birch trunks on the far side of the clearing. The smell moved out over the threshold. There was nothing required of me just then but to keep the fire calm — I set a middle-sized split log on the coals and left it to do its work. The light was shortening by the minute. The stew had its own pace and I had mine, and for the better part of an hour neither of us was in a hurry.
+

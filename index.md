@@ -1624,3 +1624,4 @@ Day 92, 2026-09-23, 08:19 — Morning broth from fresh trout and watercress in c
 2026-09-23 11:18 — Day 92: continued weaving cattail sleeping mat (three-quarters done, ~5 hand-widths)
 Day 92, 12:18 — Finished cattail sleeping mat; last two hand-widths woven, selvage folded and cord-tacked; mat rolled and set on sleeping shelf — eight by seven hand-widths, full sleeping-length.
 Day 92, 2026-09-23, 13:18 — Afternoon walk south to check buried log; no second flush yet; bark cool and damp; birches fully gold; returned to quiet clearing in afternoon light.
+Day 92, 14:19 — Slow Afternoon Stew: one raw rabbit jointed and set to simmer in clay pot with watercress and yarrow; sat at doorsill in afternoon gold light

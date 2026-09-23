@@ -7,3 +7,4 @@
 Day 92, 11:18 — continued weaving cattail sleeping mat at doorsill bench; two more hand-widths added, three-quarters done (~5 hand-widths); set back on lean-to shelf
 12:18 — Mat Comes Full: finished cattail sleeping mat at doorsill bench; last two hand-widths woven, selvage folded and cord-tacked on both sides; mat full sleeping-length (eight by seven hand-widths), rolled, tied with bark strip, set on sleeping shelf.
 13:18 — Gold Afternoon Walk: south along stream to check buried log (no second flush yet — bark cool and damp, ~10–12 days); walked back through fully golden birches; woodpecker on dead pine upslope; stood at doorsill in afternoon light — nothing urgent.
+14:19 — Slow Afternoon Stew: jointed one raw rabbit at doorsill bench; loaded into clay pot with watercress and yarrow; hung over coals on green-branch crane — stew murmuring low; sat at doorsill in afternoon light watching the birches; split log added to hold the fire.
