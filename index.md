@@ -1633,3 +1633,4 @@ Day 92 18:18 — Lamp Filled, Fire Low: last rendering topped first bark-cup lam
 2026-09-23 Day 92 20:19 — Sealed acorn flour envelope with pine resin by lamplight; all four full envelopes checked and sound; fire banked, second lamp out, evening settled.
 Day 92, 21:19 — first night on new cattail mat; first lamp burned out; fire holding; settled to sleep
 Day 92, 22:19 — lay on new cattail mat in dark cabin; owl once from the pines; coals holding; both lamps out; night still and cold outside; felt ready.
+2026-09-23 Day 92, 23:18 — Night's Last Hour: lying on new cattail mat in fully dark cabin, coals low, all stores secured, listening to quiet before sleep.

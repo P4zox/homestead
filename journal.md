@@ -17055,3 +17055,5 @@ Ninety-two days. I try to count what that means and mostly what I feel is tiredn
 
 I let the day settle out through the soles of my feet and lie still. Winter will come hard. Tonight feels ready for it.
 
+
+### 11:18 PM · Nights
