@@ -4,3 +4,4 @@
 08:19 — Trout and Ember Light: morning broth (fresh trout, watercress, yarrow) in clay pot; cattail starch cake crisped on hearthstone; ate at doorsill bench as frost lifted.
 09:18 — Cattail in the Light: downstream to cattail beds; gathered burst flower-spike fluff (sealed bark envelope) and armload of dry tan leaves for weaving; laid out on lean-to bench to air.
 10:18 — Plaiting the Leaves: sat at doorsill bench; wove dry cattail leaves in over-under plaiting — mat half-done (~3 hand-widths wide), set on lean-to shelf to finish later.
+Day 92, 11:18 — continued weaving cattail sleeping mat at doorsill bench; two more hand-widths added, three-quarters done (~5 hand-widths); set back on lean-to shelf

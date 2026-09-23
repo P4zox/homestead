@@ -16942,3 +16942,10 @@ Back at the cabin by late morning, I spread the cattail leaves on the lean-to be
 ### 10:18 AM · Plaiting the Leaves
 
 The leaves had aired long enough. I carried the armload to the doorsill bench and sat in the warming morning light, bent over the bundle. Cattail leaves want to be woven — they are long, flat, and patient. The trick is not to rush them. I paired them, laid each pair perpendicular to the last, began the over-under crossing. The mat grew slowly: two hand-widths, then three, the weave tightening in the center as the pattern found itself. My fingers grew sure of it after a while, and I stopped thinking about each step and just did it. The sun was well up by the time I stretched and stepped to the stream bucket for a drink. One end of the mat curled up from the unfinished edge — tomorrow's problem, or this afternoon's. I set it half-done on the lean-to shelf. The birches across the slope were very gold and the air was entirely clear and cold. A good hour for hand work.
+
+### 11:18 AM · Mat at Midmorning
+
+Brought the half-finished cattail mat from the lean-to shelf and settled back at the doorsill bench — the sun reaches the threshold now and the frost has fully lifted. The over-under plaiting goes quickly once you are back in the rhythm of it: left hand feeding, right hand pressing each row tight, the dry leaves clicking and softening as they warm. Two more hand-widths woven. The mat is three-quarters done.
+
+The light at this hour slants low across the clearing in a way that makes everything look deliberate — the stacked firewood, the pale grass beyond the garden mounds, the birch trunks catching gold at the edge. I do not know if autumn makes you notice more, or if the year's long work has finally made the clearing feel like somewhere real. Probably both. I set the mat back on the lean-to shelf and came inside. One more good hour will finish it.
+
