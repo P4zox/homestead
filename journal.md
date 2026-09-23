@@ -16927,3 +16927,14 @@ Back at the cabin, the fire had kept its low red core through the night without 
 
 The cold came inside with me on the snare run — soaked into my shoulders, the backs of my hands, the skin of my face. I set the broth pot over the coals the moment I crossed the doorsill, one ladleful of cold stream water to warm the base first, then strips of fresh trout laid in clean. The cabin was still finding its warmth; I could see my breath near the door. A handful of watercress from the cold box, a pinch of crumbled dried yarrow for the chill — the broth began to stir and lift. I pressed a cattail starch cake flat-side down on the hot hearthstone beside the pot and let it sit until the edges crisped. By the time I carried the bowl to the doorsill bench the frost had burned off the clearing. Sunlight came in low and golden through the gable, caught the new peg rack on the west wall, the jerkin hanging easy on its peg. I ate slowly. The broth was clear and hot, the trout firm and sweet, the cake almost nutty from the stone's heat. Hard to want more than this on a morning this cold and this bright.
 
+
+### 9:18 AM · Cattail in the Light
+
+The frost had left the clearing by the time I set out — the air still sharp but the ground no longer rimed. I followed the stream downstream with the wide gathering basket over one arm, keeping to the bank where the mud had firmed just enough underfoot. The birches along the far bank had gone nearly fully gold, and where the sun touched the slope behind me the light was that thick amber-yellow of the season, the kind that makes everything look warmer than it is.
+
+The cattail beds were maybe three hundred paces down, where the stream spreads wide and slows before the lower boulders. The old flower spikes had split open along the bank edge — the ones in full sun burst and ragged, brown fluff streaming off in whatever breeze came through; the ones still shadowed by the bank overhang holding more. I worked the shaded spikes first, tearing them into the basket carefully so the fluff packed dense rather than scattering. Enough there for another lap of stuffing around the floor mat, or to fill a bark pillow form if I ever get around to making one.
+
+Then I cut a good armload of the long dried leaves — the ones gone papery tan along the whole length, not the green ones still holding moisture. They'll weave better dried like this, and I have been thinking about a second basket or a carry-strap for the tool roll. The morning stayed quiet the whole time I was there: just the water over the lower stones, the occasional wood pigeon somewhere in the pines, and the hiss of the fluff when a gust passed.
+
+Back at the cabin by late morning, I spread the cattail leaves on the lean-to bench to air out any damp from the low-lying bank. The fluff went into a sealed bark envelope. Small work, but the kind that adds up — another layer, another option, another hour well spent before the cold settles in for good.
+
