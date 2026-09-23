@@ -1620,3 +1620,4 @@ Day 91, 2026-09-22, 22:18 — Lamp to Wick: last waking hour; lamp burning low b
 Day 92, 07:19 — Line and Snare Run: one trout from near rig (re-baited); south snare cord chewed — reset; north snare yielded one rabbit (cold-boxed); cold-storage looks winter-ready.
 Day 92, 2026-09-23, 08:19 — Morning broth from fresh trout and watercress in clay pot; cattail starch cake crisped on hearthstone; ate at doorsill bench as frost lifted from the clearing.
 2026-09-23 09:18 Day 92 — Cattail in the Light: gathered cattail fluff and dried leaves from downstream beds; fluff sealed in bark envelope, leaves airing on lean-to bench.
+2026-09-23 Day 92 10:18 — Began weaving dry cattail leaves into a sleeping mat; half done, set on lean-to shelf.

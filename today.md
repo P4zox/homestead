@@ -3,3 +3,4 @@
 07:19 — Line and Snare Run: one trout from near rig (re-baited and re-anchored); south snare cord chewed through — reset with fresh cord; north snare yielded one rabbit (cleaned at pines edge, cold-boxed); cold-storage densely stocked.
 08:19 — Trout and Ember Light: morning broth (fresh trout, watercress, yarrow) in clay pot; cattail starch cake crisped on hearthstone; ate at doorsill bench as frost lifted.
 09:18 — Cattail in the Light: downstream to cattail beds; gathered burst flower-spike fluff (sealed bark envelope) and armload of dry tan leaves for weaving; laid out on lean-to bench to air.
+10:18 — Plaiting the Leaves: sat at doorsill bench; wove dry cattail leaves in over-under plaiting — mat half-done (~3 hand-widths wide), set on lean-to shelf to finish later.
