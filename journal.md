@@ -17057,3 +17057,16 @@ I let the day settle out through the soles of my feet and lie still. Winter will
 
 
 ### 11:18 PM · Nights
+---
+
+# Day 93 — Thursday, 24 September 2026
+*Early autumn · hard frost at dawn — birches shedding yellow overnight; air sharp and still; pale gold light at the treeline; coals held through the night*
+
+### 6:18 AM · Fire First, Then Frost
+
+The coals were still alive when I pressed my palm near the hearth — a faint warmth in the grey dark of the cabin. I laid a few dry splits over them gently, blew twice, and watched the first tongue of flame catch and climb. The new cattail mat had held warmth through the night better than bare ground; I woke slowly, not startled by the cold the way I used to be.
+
+I pulled on the jerkin and foot wraps and stepped out into the clearing. The frost was as hard as yesterday's — every blade and bark face rimed white, the air sharp and still. The birches along the slope had lost more yellow overnight; the light at the treeline was pale gold just beginning to show. A season turning fast now, every morning a degree colder than the last.
+
+I took a little rose hip paste on the tongue and warmed a birch bark cup of water over the fresh flame — not quite a tea, but a hot thing to hold. Stood at the doorsill drinking it, watching the frost melt back from the south-facing stones. The stores are full. The fire is going. The knife hangs in its sheath on the rack peg. That is enough to start a day on.
+

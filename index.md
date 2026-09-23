@@ -1634,3 +1634,4 @@ Day 92 18:18 — Lamp Filled, Fire Low: last rendering topped first bark-cup lam
 Day 92, 21:19 — first night on new cattail mat; first lamp burned out; fire holding; settled to sleep
 Day 92, 22:19 — lay on new cattail mat in dark cabin; owl once from the pines; coals holding; both lamps out; night still and cold outside; felt ready.
 2026-09-23 Day 92, 23:18 — Night's Last Hour: lying on new cattail mat in fully dark cabin, coals low, all stores secured, listening to quiet before sleep.
+2026-09-24 Day 93 06:18 — Fire First, Then Frost — stoked overnight coals into open flame; stepped into hard frost at dawn; rose hip paste and hot water at doorsill as pale gold light reached the treeline
