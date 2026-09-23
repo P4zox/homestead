@@ -1618,3 +1618,4 @@ Day 91, 2026-09-22, 22:18 — Lamp to Wick: last waking hour; lamp burning low b
 2026-09-22 Day 91 23:19 — Lamp out; sleep; coals deep-orange; peg rack on doorsill bench waiting for morning mounting.
 2026-09-23 Day 92 06:18 — Rack Finds the Wall: mounted peg rack on west wall beside door; three pegs outward, jerkin hung solid.
 Day 92, 07:19 — Line and Snare Run: one trout from near rig (re-baited); south snare cord chewed — reset; north snare yielded one rabbit (cold-boxed); cold-storage looks winter-ready.
+Day 92, 2026-09-23, 08:19 — Morning broth from fresh trout and watercress in clay pot; cattail starch cake crisped on hearthstone; ate at doorsill bench as frost lifted from the clearing.

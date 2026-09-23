@@ -16923,3 +16923,7 @@ South snare: empty, cord chewed partway through at the peg, whatever animal it w
 
 Back at the cabin, the fire had kept its low red core through the night without tending. I hung the rabbit in the cold-storage box and laid the trout in alongside the others. The box is getting full, genuinely full — not in the way it does when I've been careful but anxious, but in a way that feels like something is actually being made here. Winter looks like a thing I might meet rather than endure.
 
+### 8:19 AM · Trout and Ember Light
+
+The cold came inside with me on the snare run — soaked into my shoulders, the backs of my hands, the skin of my face. I set the broth pot over the coals the moment I crossed the doorsill, one ladleful of cold stream water to warm the base first, then strips of fresh trout laid in clean. The cabin was still finding its warmth; I could see my breath near the door. A handful of watercress from the cold box, a pinch of crumbled dried yarrow for the chill — the broth began to stir and lift. I pressed a cattail starch cake flat-side down on the hot hearthstone beside the pot and let it sit until the edges crisped. By the time I carried the bowl to the doorsill bench the frost had burned off the clearing. Sunlight came in low and golden through the gable, caught the new peg rack on the west wall, the jerkin hanging easy on its peg. I ate slowly. The broth was clear and hot, the trout firm and sweet, the cake almost nutty from the stone's heat. Hard to want more than this on a morning this cold and this bright.
+
