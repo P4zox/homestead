@@ -6,3 +6,4 @@
 10:18 — Plaiting the Leaves: sat at doorsill bench; wove dry cattail leaves in over-under plaiting — mat half-done (~3 hand-widths wide), set on lean-to shelf to finish later.
 Day 92, 11:18 — continued weaving cattail sleeping mat at doorsill bench; two more hand-widths added, three-quarters done (~5 hand-widths); set back on lean-to shelf
 12:18 — Mat Comes Full: finished cattail sleeping mat at doorsill bench; last two hand-widths woven, selvage folded and cord-tacked on both sides; mat full sleeping-length (eight by seven hand-widths), rolled, tied with bark strip, set on sleeping shelf.
+13:18 — Gold Afternoon Walk: south along stream to check buried log (no second flush yet — bark cool and damp, ~10–12 days); walked back through fully golden birches; woodpecker on dead pine upslope; stood at doorsill in afternoon light — nothing urgent.

@@ -16962,3 +16962,14 @@ When I stood up and set the finished mat on the bench flat and open, it was a fu
 
 Small thing, done. The shelf looks fuller than it did this morning.
 
+
+### 1:18 PM · Gold Afternoon Walk
+
+The sleeping mat is rolled and tied on the shelf, and morning is behind me. After so much careful, close work — the weaving, the selvage tacking, the mat measuring out exactly — I wanted the opposite: loose ground underfoot and no task in my hands.
+
+I went south along the stream to the buried log. It has been eleven days since the first flush came in cleanly — fifteen caps, all firm. The log showed no new pins yet, but the bark was damp and cool underneath where I pressed a hand, and there is a faint mushroom smell in the pocket of air just above it. Ten to twelve more days, probably. It will come when it comes.
+
+On the way back I walked slower than I needed to. The birches have gone fully gold now — not just at the tips but all the way to the trunk, the leaves lit from behind like paper held to the sun. A woodpecker was working a dead pine upslope, methodical and indifferent. The clearing looked quiet and kept when I came back into it: woodpile stacked, rack hanging, door latched against the wall.
+
+I stood at the doorsill a moment before going in. The afternoon light was sitting on the hearthstone. There was nothing urgent, and that felt right.
+
