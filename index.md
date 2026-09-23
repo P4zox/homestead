@@ -1630,3 +1630,4 @@ Day 92, 14:19 — Slow Afternoon Stew: one raw rabbit jointed and set to simmer 
 Day 92, 2026-09-23 17:19 — Tallow rendered from rabbit bones at dusk; first lamp cup receiving partial refill; latch bar down, fire banked, evening quiet
 Day 92 18:18 — Lamp Filled, Fire Low: last rendering topped first bark-cup lamp full; fire banked; both lamps on shelf; evening settled.
 2026-09-23 19:19 — Day 92 · Evening Shelf — went shelf by shelf by lamplight; took stock of winter stores; noted a tighter bark wrap for the acorn flour is needed; the cold box is full, the firewood high, the evening quiet.
+2026-09-23 Day 92 20:19 — Sealed acorn flour envelope with pine resin by lamplight; all four full envelopes checked and sound; fire banked, second lamp out, evening settled.

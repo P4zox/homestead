@@ -17025,3 +17025,14 @@ But I made a small list in my head. More cattail root starch — there is still 
 
 For now, though: lamp glowing. Latch down. Fire holding. The shelf is full enough for tonight, and that is enough.
 
+
+### 8:19 PM · Flour Sealed Right
+
+The lamp is still steady — maybe half the tallow left. I bring the acorn flour envelopes down one by one from the supply shelf. The partial one was the worry: I could feel the bark had dried open along the fold, just enough to let the cold night air at the flour inside. I work a thin line of pine resin along the gap with my thumbnail, fold the bark tight, press it flat against the shelf edge. It tacks quickly. The seal holds.
+
+I check all four full envelopes too — folds firm, no soft spots, resin sound at every corner. Back on the shelf in order.
+
+The cabin smells of resin and wood smoke, and faintly of this afternoon's rabbit stew. Everything is where it belongs. The fire is a slow red pulse under the ash. I blow out the second lamp — only the first burning now, just enough light to see by without wasting tallow. It will burn down on its own tonight.
+
+No urgency anywhere. In autumn, that is a good feeling to end a day on.
+
