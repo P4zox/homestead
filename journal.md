@@ -17012,3 +17012,16 @@ Outside the light dropped fast. September is earnest about its darkness. The bir
 The bones from the afternoon had one more rendering left in them. I set the cook tin back over the slow coals — not much heat, just the patient residue of a long day — and waited. The tallow came thin and gold. I skimmed the last few spoonfuls into the first bark cup until it sat brim-full and level. Both lamps rest on the supply shelf now: one burning low and steady, one full and ready. The fire came down to a flat orange bed while I worked, and I banked it with a short round to hold through the night. The cabin is warm, closed, latch bar down.
 
 Day 92 has been full in the best sense — rack solid on the west wall, mat on the sleeping shelf, sheath hanging beside the jerkin, stew eaten, tallow rendered and sealed. I sat at the doorsill bench for a little while after and just counted myself: warm, fed, sheltered, stocked deep for winter. The birches outside are only shapes in the dark now. The stream sounds quieter when the frost begins to set the air still. It is all you can ask at the end of a day.
+
+### 7:19 PM · Evening Shelf
+
+The first lamp burns steady on the supply shelf, its flame small and amber in the dark cabin. I lit it after banking the fire — just enough light to see by, not enough to waste.
+
+I went shelf by shelf with my hands, not to count exactly but to feel what was there: the sealed bark packages, the resin-wrapped rose hip envelopes, the acorn flour, the hazelnut paste. The smoked rabbit and hare and mushrooms in the cold box. The starch cakes wrapped under bark strip. The jerkin hanging on its peg. The knife in its sheath.
+
+It is a lot. That is the honest answer. More than I had going into last winter, more than I feared having in midsummer when the rains ran long. The root cellar is stocked; the firewood is eave-high; the cold box is full. What I do not have I can mostly live without.
+
+But I made a small list in my head. More cattail root starch — there is still time before the beds freeze hard. The buried log may give another flush around Day 103. A second tallow rendering if I catch another rabbit before the snows settle in. And something I keep putting off: a better lidded crock for the acorn flour, or at least a tighter bark wrap — the current one is sound but I noticed a slight give at the seam today.
+
+For now, though: lamp glowing. Latch down. Fire holding. The shelf is full enough for tonight, and that is enough.
+

@@ -12,3 +12,4 @@ Day 92, 11:18 — continued weaving cattail sleeping mat at doorsill bench; two 
 16:18 — Sheath and Supper: rabbit stew done — eaten at doorsill bench; knife sheath completed (throat loop laced and knotted, edge-trimmed with running stitch) — hanging on rack peg beside jerkin.
 17:19 — Tallow at Dusk: cracked rabbit leg bones on gneiss stone; rendered in cook tin over low coals; skimmed gold fat into first lamp bark cup — partial refill; latch bar down; birches gone silhouette; evening quiet.
 18:18 — Lamp Filled, Fire Low: last rendering of afternoon rabbit bones over slow coals; final tallow spoonfuls into first lamp bark cup — now full; fire banked with short round for the night; both lamps on supply shelf; latch bar down; evening settled.
+19:19 — Evening Shelf: went shelf by shelf by lamplight; cold box full, firewood high, bark envelopes sealed; noted acorn flour wrap needs tightening; lamp glowing steady; latch down; fire holding.
