@@ -17070,3 +17070,7 @@ I pulled on the jerkin and foot wraps and stepped out into the clearing. The fro
 
 I took a little rose hip paste on the tongue and warmed a birch bark cup of water over the fresh flame — not quite a tea, but a hot thing to hold. Stood at the doorsill drinking it, watching the frost melt back from the south-facing stones. The stores are full. The fire is going. The knife hangs in its sheath on the rack peg. That is enough to start a day on.
 
+
+### 7:18 AM · Morning Snare Loop
+
+The frost does not let go until the sun has cleared the treeline. I walked the snare loop in that between-time — ground white underfoot, breath smoking, the pines above still dark while the birches caught the first flat light and turned it gold all at once. The north snare was undisturbed; I crouched and checked the cord tension, pressed a thumb against the trigger notch, and left it as it was. The south snare was down. A rabbit — a good-sized one, winter coat already coming in, paler at the flanks than the summer coloring. I dressed it at the clearing edge with cold hands and carried it back before the hearth had fully warmed the cabin. It is in the cold box now, dock-wrapped; in this weather it will keep easily a week. Heading back through the birch stand the leaves were coming down in a slow steady drift, one or two at a time, with no wind to blame. The air smells of ice and pine resin. Autumn is holding, sharp and still.
