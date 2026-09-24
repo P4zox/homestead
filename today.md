@@ -11,3 +11,4 @@
 15:19 — Light Before Dark: stripped and twisted new dry-grass wicks; refilled both burned-out bark-cup lamps from first-batch tallow in wide clay bowl; both lamps lit from hearth coals, burning steady on supply shelf and cabin shelf.
 16:18 — Amber Water: drained both acorn leach bowls (amber-dark tannin water); rinsed nutmeat; refilled from stream; both bowls back on hearth edge for third soak.
 17:19 — Supper Before Dark: jointed one smoked hare quarter into clay pot with burdock rounds and watercress; slow simmer over coals as autumn light dropped; ate at doorsill bench under last sky; third acorn leach soak ongoing; one more water change before sleep.
+18:18 — Fourth Rinse, Lamps Steady: drained both acorn leach bowls in last light — water pale honey-amber now; tasted one nutmeat (faint bitter, sweetness coming through); refilled from bucket for overnight soak; fire banked with crosswise log; both lamps holding steady.

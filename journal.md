@@ -17149,3 +17149,7 @@ While it cooks I do small things. Recoil the loose bark cordage hanging on the r
 
 I eat at the doorsill bench as the last pale strip of sky goes grey above the pines. The hare is rich and dark, the burdock soft, the watercress slightly sharp against the smokiness of the meat. The lamps inside flicker in the draft from the cracked door. Afterward I pull the door shut and latch it, bank the coals, and sit for a while with the pot warming my hands.
 
+
+### 6:18 PM · Fourth Rinse, Lamps Steady
+
+Drained both acorn bowls at the end of the light — the water has gone from dark amber to pale honey-color over the day's changes. Tasted one nutmeat before setting it back in; faint bitterness still, but the sweetness is coming through underneath, the meat almost milky. Set both bowls back on the hearth edge, cold water to soak through the night; by morning they should be ready to strain and dry for grinding. Banked the fire with a good log laid crosswise over the coals. The lamps are steady on their shelves. The evening holds nothing urgent — full stomach, wood stacked high, the clearing outside already dark and frost-quiet.

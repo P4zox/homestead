@@ -1646,3 +1646,4 @@ Day 93, 14:19 — Split birch snags from south treeline; woodpile past eave-high
 Day 93, 15:19 — Refilled both tallow lamps from first-batch tallow; new dry-grass wicks twisted and lit from hearth coals; both lamps burning steady on supply and cabin shelves before dark.
 Day 93, 16:18 — Second acorn leach water change; amber tannin water poured off, fresh cold water set on hearth edge; evening quiet and still.
 Day 93, 17:19 — Smoked hare quarter simmered with burdock and watercress at slow-coal hearth; ate at doorsill bench in last light; third acorn leach soak underway.
+Day 93, 18:18 — Fourth acorn leach-water change; water pale honey-amber; both bowls reset for overnight soak; fire banked; both lamps steady.
