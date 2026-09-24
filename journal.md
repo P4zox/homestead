@@ -17200,3 +17200,19 @@ The fire holds in its long pulse. No wind — the frost outside is simply there,
 
 There is a particular quality to the homestead at this hour. The banked coals keep the dark at bay not by fighting it but by persisting — a slow amber patience. That is what the whole season has been teaching me: winter is not made all at once. It is made one banked fire at a time, one sealed envelope, one cord twist, one morning on the line. By morning the acorns will be sweet and ready for drying and grinding. The stores are deep. The walls hold. I will sleep well.
 
+
+---
+
+# Day 94 — Friday, 25 September 2026
+*Early autumn · Heavy frost overnight, clear cold dawn*
+
+### 6:19 AM · Acorns at First Light
+
+The fire woke easier than I expected — coals held deep and orange under the ash all night, just a few breaths and a small feeding of dry birch bark and the flame came back up. The cabin warm again within minutes. A small mercy I notice every time.
+
+The acorn bowls were the first thing after that. Both had sat overnight on the hearth edge, water nearly still, and when I drained them in the lamplight the rinse ran clear — clean as stream water. I tasted one nutmeat from each bowl, turning it on my tongue: mild, faintly sweet, the bitterness entirely gone. Six changes of water over two days, and the tannins have surrendered at last.
+
+I spread the nutmeat in a single layer across two flat birch bark sheets and laid them close to the hearth — not over the flame, just in the warm rising air. They will dry through the morning. By midday I should be able to grind the first batch; acorn flour sealed in bark envelopes by tonight if the fire holds and I am patient.
+
+Outside, the clearing was silvered and still at that first light, frost on every surface, sky pale grey above the treeline just beginning to go cold blue. A new day. Already something to show for it before the light has fully come.
+
