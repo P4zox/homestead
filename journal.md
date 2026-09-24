@@ -17184,3 +17184,12 @@ Inside, the cabin holds warmth well. I noticed that tonight — noticed it the w
 
 I have been thinking about winter not with dread but with something like readiness. The stores are good. The firewood is past the eaves. I have cord, and leather, and clay pots that ring true, and a lamp that stays lit. I do not know what the hardest thing will be. But sitting here tonight, listening to the fire breathe, I feel like whatever it is I will have enough to work with.
 
+
+### 10:19 PM · Cold Stars, Wicks Down
+
+Stepped outside one last time before bed — the cold had deepened past sharp, into the still kind that sits quietly on everything. The sky was clear and full of stars, more than I usually see when both lamps are lit. Stood at the doorframe for a moment with my coat pulled around me, letting the cold and the quiet settle in.
+
+Back inside, I trimmed both wicks down to a thin, steady blue-gold thread — enough to carry through the night without burning out before dawn. The fire is banked well. The acorn soak water looked nearly clear when I lifted the bark lid; by morning the nutmeat should be mild and sweet through, ready to spread and dry for grinding.
+
+Lay down on the cattail mat. The sleeping bag holds the warmth. Outside, the birches are going quiet in the frost.
+

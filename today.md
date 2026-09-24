@@ -15,3 +15,4 @@
 19:19 — Cord by Lamplight: twisted two two-ply cord lengths from dry birch inner bark strips by lamplight; added to cord stock; both lamps steady; acorn overnight soak continuing — water pale honey-gold now.
 20:19 — Water Running Clear: drained both acorn leach bowls (water nearly clear — tannins nearly gone); tasted nutmeat from each bowl — mild, faintly sweet, almost no bitterness; refilled both bowls from bucket for overnight soak; acorns ready to dry and grind by morning; lamps and fire steady.
 21:19 — Still and Banked: checked fire banked well; sat at doorsill bench in cold evening air; both lamps steady; acorns in overnight soak; quiet reflection on stores and winter readiness as season deepens.
+22:19 — Cold Stars, Wicks Down: stepped outside briefly into clear cold night; stars overhead in still frost; trimmed both lamp wicks to low night setting; acorns in overnight soak — water nearly clear; settled to sleep on cattail mat; fire banked.
