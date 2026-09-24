@@ -1644,3 +1644,4 @@ Day 93, 11:19 AM — Walked the oak edge at midday; gathered two basketfuls of f
 Day 93 (2026-09-24) 13:18 — Hulled second acorn envelope; wide shallow clay bowl started in cold-water leach soak #2 on hearth edge; both bowls now leaching together.
 Day 93, 14:19 — Split birch snags from south treeline; woodpile past eave-high; first leach-water change done, both bowls back on hearth edge.
 Day 93, 15:19 — Refilled both tallow lamps from first-batch tallow; new dry-grass wicks twisted and lit from hearth coals; both lamps burning steady on supply and cabin shelves before dark.
+Day 93, 16:18 — Second acorn leach water change; amber tannin water poured off, fresh cold water set on hearth edge; evening quiet and still.

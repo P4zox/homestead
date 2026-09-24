@@ -17135,3 +17135,7 @@ I lit the first lamp off the hearth coals. The flame caught low, wavered once, t
 
 The afternoon felt right after that. Something finished before dark came and asked for it, rather than fumbled in the dark when it was too late.
 
+
+### 4:18 PM · Amber Water
+
+The afternoon light has gone the color of the birch leaves — pale gold, almost horizontal through the east gable. I carried both acorn bowls to the doorsill and tipped the leach water out onto the cold ground: it ran amber-dark with tannins, thick-smelling, the color of weak tea. Good — that means the soaking is working. Rinsed both bowls with cold stream water, turned the nutmeat gently with my fingers, then carried fresh water up from the stream and set both bowls back on the hearth edge to sit. The clay pot holds a quiet warmth there; the water will rise slowly from stream-cold through the evening. Three or four more changes at this pace and the bitterness should be mostly leached through. I stood a moment at the doorsill after — the clearing was completely still, the frost-smell already back in the air though the sun has not set, birch leaves drifting down one at a time in no wind at all. The lamps are burning steady inside. Everything is tipping slowly toward evening.

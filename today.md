@@ -9,3 +9,4 @@
 13:18 — Two Bowls Leaching: hulled second bark envelope of whole acorns at doorsill bench; nutmeat sorted into wide shallow clay bowl; cold-water leach soak #2 underway on hearth edge beside first bowl; both leaching — waters to be changed before dark and again before sleep.
 14:19 — Standing Dead: felled two dry birch snags on south treeline, split and stacked new row along lean-to north face (bark-side up); first leach-water change done on both acorn bowls — rinse cloudy with tannins; broth pot set to warm.
 15:19 — Light Before Dark: stripped and twisted new dry-grass wicks; refilled both burned-out bark-cup lamps from first-batch tallow in wide clay bowl; both lamps lit from hearth coals, burning steady on supply shelf and cabin shelf.
+16:18 — Amber Water: drained both acorn leach bowls (amber-dark tannin water); rinsed nutmeat; refilled from stream; both bowls back on hearth edge for third soak.
