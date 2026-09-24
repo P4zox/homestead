@@ -17139,3 +17139,13 @@ The afternoon felt right after that. Something finished before dark came and ask
 ### 4:18 PM · Amber Water
 
 The afternoon light has gone the color of the birch leaves — pale gold, almost horizontal through the east gable. I carried both acorn bowls to the doorsill and tipped the leach water out onto the cold ground: it ran amber-dark with tannins, thick-smelling, the color of weak tea. Good — that means the soaking is working. Rinsed both bowls with cold stream water, turned the nutmeat gently with my fingers, then carried fresh water up from the stream and set both bowls back on the hearth edge to sit. The clay pot holds a quiet warmth there; the water will rise slowly from stream-cold through the evening. Three or four more changes at this pace and the bitterness should be mostly leached through. I stood a moment at the doorsill after — the clearing was completely still, the frost-smell already back in the air though the sun has not set, birch leaves drifting down one at a time in no wind at all. The lamps are burning steady inside. Everything is tipping slowly toward evening.
+### 5:19 PM · Supper Before Dark
+
+The lamps are steady and the cabin smells of woodsmoke and the faint nuttiness of the soaking acorns. Outside the light is going gold-orange at the treeline — that low autumn angle that makes the birch trunks look almost warm, even as the cold is already regathering in the air, coming down off the slope in slow waves.
+
+I jointed one quarter of the smoked hare into the clay pot with half the remaining burdock rounds, a good handful of watercress from the cold box, and a cup of stream water to let it thin toward a proper broth. The pot sits over the coals at a slow simmer, just barely breathing. The smell fills the cabin well before the light outside has gone.
+
+While it cooks I do small things. Recoil the loose bark cordage hanging on the rack peg. Move the two acorn bowls a hand-width closer to the coals so the water stays cool but not dead-cold — the tannins work better with a little warmth in them. The third soak is well underway; one more change before sleep and the progress will be real.
+
+I eat at the doorsill bench as the last pale strip of sky goes grey above the pines. The hare is rich and dark, the burdock soft, the watercress slightly sharp against the smokiness of the meat. The lamps inside flicker in the draft from the cracked door. Afterward I pull the door shut and latch it, bank the coals, and sit for a while with the pot warming my hands.
+
