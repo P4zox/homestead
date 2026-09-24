@@ -17114,3 +17114,9 @@ The shells went straight onto the fire. They pop and blacken fast, and the smoke
 
 The second envelope of whole acorns is still on the supply shelf, waiting its turn.
 
+
+### 1:18 PM · Two Bowls Leaching
+
+The second bark envelope came off the supply shelf at midday. I settled at the doorsill bench again with the hand cobble, cracking hull after hull — the afternoon light low and angled now, gold on the doorsill planks, the air outside still sharp and cold but without the bite of early morning. The acorn flesh is pale and waxy-looking, faintly bitter just to smell. I worked through the full envelope in maybe an hour, shells and splitting hulls fed into the fire, nutmeat sorted into the wide shallow clay bowl. That bowl now sits on the hearth edge beside the first — two cold-water soaks running in parallel, both clouding slow and pale as the tannins draw out. I will change both waters before dark and once more before sleeping. Four or five changes over two or three days, and they will be ready to grind.
+
+Having both bowls going at once feels right. The leach does not rush. It is patient work — you set the water and wait. The fire holds steady; outside, a birch is dropping yellow leaves in the still afternoon, one or two at a time, bright against the dark pines. I sat longer than I needed to, watching that, hands warm on the clay bowl's rim.

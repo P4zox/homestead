@@ -6,3 +6,4 @@
 10:19 — The Line at Mid-Morning: walked upstream; checked bark-paddle rig; pulled one autumn trout (cold-boxed, dock-wrapped); re-baited and reset the line.
 11:19 — Acorns at the Edge: walked forest edge to oak stand; filled gathering basket twice with fallen acorns; sorted and shelved the best in bark envelopes — two envelopes of whole acorns on supply shelf, ready to hull and leach.
 12:18 — Cracking the Hull: hulled first bark envelope of acorns at doorsill bench with hand cobble; full clay bowl of pale nutmeat now in cold-water leach soak #1 on hearth edge; acorn shells burned off; second whole acorn envelope on supply shelf.
+13:18 — Two Bowls Leaching: hulled second bark envelope of whole acorns at doorsill bench; nutmeat sorted into wide shallow clay bowl; cold-water leach soak #2 underway on hearth edge beside first bowl; both leaching — waters to be changed before dark and again before sleep.

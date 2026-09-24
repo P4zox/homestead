@@ -1641,3 +1641,4 @@ Day 93 09:18 — Walked to stream; gathered fresh watercress from the alder-root
 Day 93, 10:19 — upstream line checked; one autumn trout pulled, dressed, cold-boxed; line re-baited and reset; standing at the riffle in the softened frost.
 Day 93, 11:19 AM — Walked the oak edge at midday; gathered two basketfuls of fallen acorns; sorted out split and wormy ones; shelved good whole acorns in bark envelopes — winter flour stock deepened.
 2026-09-24 12:18 Day 93 — Cracking the Hull: hulled first acorn envelope; clay bowl of nutmeat in cold-water leach soak #1 on hearth edge; second envelope whole on shelf
+Day 93 (2026-09-24) 13:18 — Hulled second acorn envelope; wide shallow clay bowl started in cold-water leach soak #2 on hearth edge; both bowls now leaching together.
