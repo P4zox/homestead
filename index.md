@@ -1637,3 +1637,4 @@ Day 92, 22:19 — lay on new cattail mat in dark cabin; owl once from the pines;
 2026-09-24 Day 93 06:18 — Fire First, Then Frost — stoked overnight coals into open flame; stepped into hard frost at dawn; rose hip paste and hot water at doorsill as pale gold light reached the treeline
 Day 93, 07:18 — Morning snare loop in hard frost: south snare yields a rabbit (cold box); north snare undisturbed.
 2026-09-24 Day 93 08:18 — Broth by the Doorsill: morning rabbit jointed and slow-simmered in clay pot with smoked log-cap caps and burdock rounds; watercress nearly spent from cold box; ate at doorsill bench while birch leaves fell in still gold light.
+Day 93 09:18 — Walked to stream; gathered fresh watercress from the alder-root bend; cold box topped up; low autumn light on the water.

@@ -17083,3 +17083,7 @@ While it worked I sat at the doorsill bench with the door pushed half-open. The 
 
 The broth was ready when the steam stopped curling sideways and just rose straight up. I ate it at the bench, the clay cup warm between both hands, picking the meat clean from the joints with the birch spoon. Full broth, honest protein, the earthy mushroom in every sip. I noted the watercress is nearly gone from the cold box — the stream still has fresh stems showing; today or tomorrow I should bring a fresh bundle in before the water drops too cold to wade.
 
+
+### 9:18 AM · Green Stems, Cold Stream
+
+The frost had softened by the time I came down to the bank — barely, but enough. The stream still ran clear and quick, stones slick with cold. I found the watercress beds where they always are, tucked in the shallower bend where the current slows against a tangle of alder roots. The stems were dense and dark green, clean, running just under the surface film. I pulled a good double-handful, enough to top the cold box and have some loose for the evening pot. Hands were red and stiff by the time I climbed back up the bank, but the pull of cold water on skin is not an unpleasant thing — wakes you up past any amount of breakfast. Back at the clearing, I laid the stems on the bark tray to drip before packing them into the cold box beside the dock-wrapped fish. The stream was beautiful this morning. Low autumn light hitting the water sideways, every ripple throwing a bright seam. I did not want to come away too quickly. I did not.
