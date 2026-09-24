@@ -5,3 +5,4 @@
 09:18 — Green Stems, Cold Stream: walked to stream in softening frost; gathered double-handful of watercress from alder-root bend; cold box topped up with fresh stems.
 10:19 — The Line at Mid-Morning: walked upstream; checked bark-paddle rig; pulled one autumn trout (cold-boxed, dock-wrapped); re-baited and reset the line.
 11:19 — Acorns at the Edge: walked forest edge to oak stand; filled gathering basket twice with fallen acorns; sorted and shelved the best in bark envelopes — two envelopes of whole acorns on supply shelf, ready to hull and leach.
+12:18 — Cracking the Hull: hulled first bark envelope of acorns at doorsill bench with hand cobble; full clay bowl of pale nutmeat now in cold-water leach soak #1 on hearth edge; acorn shells burned off; second whole acorn envelope on supply shelf.

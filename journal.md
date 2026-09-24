@@ -17103,3 +17103,14 @@ The frost had lifted fully by the time I walked the forest edge toward midday. W
 I sat a moment on a root with my back to the oak trunk, tipping the basket to sort out the split or gone-soft ones before heading back. The good ones — round, firm, no weevil holes — went into their own bark envelopes at the cabin. I'll hull and leach them over the next few days. A thick stock of acorn flour before the deep cold sets in would take real weight off the winter.
 
 By the time I stepped back through the door, the coals had held and the cabin smelled of smoke and dried grass. Mid-morning had passed quietly into midday, which felt like the right pace for a day that had already given me a rabbit, a trout, and fresh watercress.
+
+### 12:18 PM · Cracking the Hull
+
+Sat at the doorsill bench in the noon sun — the morning frost gone from the open ground, a rime still holding in the hollow east of the cabin where the birches cast shade. I pulled out the first bark envelope of acorns and set to work with the hand cobble: one flat tap to split the hull, fingers in to pry out the pale nutmeat, cracked shells into a side pile. The rhythm of it is satisfying in the way that most small repetitive work is — the hand cobble warm after a few strikes, the bowl filling slowly, the clearing quiet except for birdsong and the faint sound of the stream.
+
+Acorn nutmeat raw has a tannin grip at the back of the throat that makes it useless until leached. So when the bowl was full — almost the whole first envelope's worth — I carried it to the stream and filled it with cold water, then set it back on the hearth stone edge away from direct heat to soak. First leach underway. Tonight I'll pour it off and refill; by tomorrow afternoon or the next morning, after two or three changes, the bitterness should mellow enough to dry and grind.
+
+The shells went straight onto the fire. They pop and blacken fast, and the smoke that comes off them is clean and faintly sweet. For a moment the cabin smelled like something roasted, and I thought briefly about autumn markets I have never actually been to — some half-memory of crowds and warm food and woodsmoke on cold air. I do not know where that came from. It was pleasant.
+
+The second envelope of whole acorns is still on the supply shelf, waiting its turn.
+

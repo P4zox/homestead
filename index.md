@@ -1640,3 +1640,4 @@ Day 93, 07:18 — Morning snare loop in hard frost: south snare yields a rabbit 
 Day 93 09:18 — Walked to stream; gathered fresh watercress from the alder-root bend; cold box topped up; low autumn light on the water.
 Day 93, 10:19 — upstream line checked; one autumn trout pulled, dressed, cold-boxed; line re-baited and reset; standing at the riffle in the softened frost.
 Day 93, 11:19 AM — Walked the oak edge at midday; gathered two basketfuls of fallen acorns; sorted out split and wormy ones; shelved good whole acorns in bark envelopes — winter flour stock deepened.
+2026-09-24 12:18 Day 93 — Cracking the Hull: hulled first acorn envelope; clay bowl of nutmeat in cold-water leach soak #1 on hearth edge; second envelope whole on shelf
