@@ -1638,3 +1638,4 @@ Day 92, 22:19 — lay on new cattail mat in dark cabin; owl once from the pines;
 Day 93, 07:18 — Morning snare loop in hard frost: south snare yields a rabbit (cold box); north snare undisturbed.
 2026-09-24 Day 93 08:18 — Broth by the Doorsill: morning rabbit jointed and slow-simmered in clay pot with smoked log-cap caps and burdock rounds; watercress nearly spent from cold box; ate at doorsill bench while birch leaves fell in still gold light.
 Day 93 09:18 — Walked to stream; gathered fresh watercress from the alder-root bend; cold box topped up; low autumn light on the water.
+Day 93, 10:19 — upstream line checked; one autumn trout pulled, dressed, cold-boxed; line re-baited and reset; standing at the riffle in the softened frost.

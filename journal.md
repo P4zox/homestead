@@ -17087,3 +17087,12 @@ The broth was ready when the steam stopped curling sideways and just rose straig
 ### 9:18 AM · Green Stems, Cold Stream
 
 The frost had softened by the time I came down to the bank — barely, but enough. The stream still ran clear and quick, stones slick with cold. I found the watercress beds where they always are, tucked in the shallower bend where the current slows against a tangle of alder roots. The stems were dense and dark green, clean, running just under the surface film. I pulled a good double-handful, enough to top the cold box and have some loose for the evening pot. Hands were red and stiff by the time I climbed back up the bank, but the pull of cold water on skin is not an unpleasant thing — wakes you up past any amount of breakfast. Back at the clearing, I laid the stems on the bark tray to drip before packing them into the cold box beside the dock-wrapped fish. The stream was beautiful this morning. Low autumn light hitting the water sideways, every ripple throwing a bright seam. I did not want to come away too quickly. I did not.
+
+### 10:19 AM · The Line at Mid-Morning
+
+The frost was all but gone from the open ground by the time I went upstream to check the line. The bark-paddle rig was still seated where I had set it — anchor pebble in the shallows, line running at mid-depth along the far bank where the current slows. I felt the tension before I looked closely. One trout, autumn-dark along the back, solid through the middle — already putting on fat for the cold months. I dressed it on a flat stone at the water edge and wrapped it in dock leaves for the cold box.
+
+The stream is lower than it was in summer. The far stones show above the waterline now, pale and rounded, and the water moves slower through the channel between them. I re-baited with a grub from the bank soil and reset the anchor. Stood a minute watching the riffle where the current bends. No hurry to leave.
+
+I have stores enough by almost any measure I can make. And still the season pulls me toward more. I do not think that is anxiety — it feels more like the instinct of the land itself moving through me, the same pull that sends the squirrels into the oaks. Autumn teaches its own arithmetic: count what you have, then add a little more. I keep listening to it.
+
