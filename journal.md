@@ -17096,3 +17096,10 @@ The stream is lower than it was in summer. The far stones show above the waterli
 
 I have stores enough by almost any measure I can make. And still the season pulls me toward more. I do not think that is anxiety — it feels more like the instinct of the land itself moving through me, the same pull that sends the squirrels into the oaks. Autumn teaches its own arithmetic: count what you have, then add a little more. I keep listening to it.
 
+### 11:19 AM · Acorns at the Edge
+
+The frost had lifted fully by the time I walked the forest edge toward midday. Where the oaks shoulder up against the pines, the ground was deep with dropped leaves and, among them, acorns — this year's fall coming in heavy, the caps still pale, the nuts just brown. I filled the wide gathering basket twice over, picking my way beneath the low boughs, pressing into the damp loam to lift the ones that had tumbled into leaf hollows. A jay watched me from the canopy and made a single sharp complaint before moving off.
+
+I sat a moment on a root with my back to the oak trunk, tipping the basket to sort out the split or gone-soft ones before heading back. The good ones — round, firm, no weevil holes — went into their own bark envelopes at the cabin. I'll hull and leach them over the next few days. A thick stock of acorn flour before the deep cold sets in would take real weight off the winter.
+
+By the time I stepped back through the door, the coals had held and the cabin smelled of smoke and dried grass. Mid-morning had passed quietly into midday, which felt like the right pace for a day that had already given me a rabbit, a trout, and fresh watercress.
