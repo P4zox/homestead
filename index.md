@@ -1648,3 +1648,4 @@ Day 93, 16:18 — Second acorn leach water change; amber tannin water poured off
 Day 93, 17:19 — Smoked hare quarter simmered with burdock and watercress at slow-coal hearth; ate at doorsill bench in last light; third acorn leach soak underway.
 Day 93, 18:18 — Fourth acorn leach-water change; water pale honey-amber; both bowls reset for overnight soak; fire banked; both lamps steady.
 Day 93, 19:19 — braided two more two-ply cord lengths by lamplight from dry birch inner bark; acorn leach water now pale honey-gold; quiet evening, no wind, fire banked, both lamps steady.
+Day 93, 20:19 — Final acorn leach check — water nearly clear, nutmeat tasted sweet; refilled overnight; fire and lamps steady in autumn quiet.

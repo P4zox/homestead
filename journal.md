@@ -17162,3 +17162,14 @@ I twisted two lengths of two-ply cord from inner birch bark strips that had been
 
 Both lengths coiled up cleanly and went onto the cord stock. It is the kind of hour that does not require much of you. The fire is banked, the shelves are full, the lamps are steady. The morning will come cold again and there will be things to do. Tonight is just this — the small bright circle of the lamp, the bark going smooth between my fingers, the dark outside standing still.
 
+
+### 8:19 PM · Water Running Clear
+
+The lamps hold their flame without guttering. I got up from the cord-twisting to check the acorn bowls on the hearth edge — lifted each one and drained it slowly over the door threshold into the cold ground outside. The water that ran out was nearly clear now: pale gold only in the last drop, barely a ghost of the tannins that came off in dark amber this morning. I rinsed each bowl with a cup of clean water from the bucket, swirled it once, and poured that out too.
+
+Before I refilled them, I picked out a nutmeat from each bowl and tasted it. The first was mild and faintly sweet — the clean starchy note of the acorn, almost no bitterness at all. The second the same. I held one on my tongue for a moment, just to be sure, and it held. They are ready, or close enough that the overnight soak will settle it.
+
+I refilled both bowls from the bucket and set them back on the hearth edge. Tomorrow morning I will spread them thin on the bark tray near the coals to dry, and by midday I should be able to start grinding. Four or five envelopes of acorn flour from one oak stand on a hard-frost day — that is a good weight to carry into winter.
+
+The fire is banked on a thick cross-log laid at dusk. Both lamps are still steady in their tallow cups, the dry-grass wicks trimmed low and clean. The cabin is warm. Outside the frost will be falling hard again, white on the bark and the woodpile by first light, but it is nothing I need to go out and meet tonight.
+
