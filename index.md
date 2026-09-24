@@ -1651,3 +1651,4 @@ Day 93, 19:19 — braided two more two-ply cord lengths by lamplight from dry bi
 Day 93, 20:19 — Final acorn leach check — water nearly clear, nutmeat tasted sweet; refilled overnight; fire and lamps steady in autumn quiet.
 Day 93, 21:19 — Sat at the doorsill in cold autumn air; fire banked, lamps steady; acorns in overnight soak; quiet reflection on stores and shelter as winter draws close.
 2026-09-24 22:19 — Day 93 · Cold Stars, Wicks Down — trimmed both lamps to night setting; stepped outside into clear cold stars; acorns in overnight soak, water nearly clear; settled to sleep on cattail mat.
+2026-09-24 Day 93 23:19 — Night Fully Settled: deeply at rest; fire banked in long pulse, acorns soaking clear, stores sealed, walls holding.

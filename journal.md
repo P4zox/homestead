@@ -17193,3 +17193,10 @@ Back inside, I trimmed both wicks down to a thin, steady blue-gold thread — en
 
 Lay down on the cattail mat. The sleeping bag holds the warmth. Outside, the birches are going quiet in the frost.
 
+
+### 11:19 PM · Night Fully Settled
+
+The fire holds in its long pulse. No wind — the frost outside is simply there, settled and still, the way it will be for months now. I am barely awake, aware enough to know the acorns are in their overnight soak, the wicks at their lowest, the door latched and holding.
+
+There is a particular quality to the homestead at this hour. The banked coals keep the dark at bay not by fighting it but by persisting — a slow amber patience. That is what the whole season has been teaching me: winter is not made all at once. It is made one banked fire at a time, one sealed envelope, one cord twist, one morning on the line. By morning the acorns will be sweet and ready for drying and grinding. The stores are deep. The walls hold. I will sleep well.
+
