@@ -17124,3 +17124,14 @@ Having both bowls going at once feels right. The leach does not rush. It is pati
 ### 2:19 PM · Standing Dead
 
 The acorns have been leaching an hour — they will need three days still — which leaves the afternoon open in that useful way. I walked the treeline south and felled two dry birch snags I had been meaning to take down: pale, bare-limbed, drying since spring. Limbed them on the ground, dragged the rounds back to the splitting stump. Dry birch splits honest — clean strikes, no argument. I worked until my arms were good-tired, then stacked the new wood in a row along the lean-to north face, bark-side up. The woodpile was already eave-high; now it leans a little past that, which is a satisfying thing to see in late September with frost still on the ground at noon. Changed the leach-water in both bowls when I came back in — first rinse already cloudy with the bitter starch pulling out. Filled the broth pot and set it to warm, letting the afternoon quiet down around me.
+
+### 3:19 PM · Light Before Dark
+
+The afternoon light was still good — slanted gold through the pines, long and level — when I noticed both bark-cup lamps standing empty on the supply shelf. First and second alike, wicks spent and tallow dry, the little cups sitting where I left them after last night's accounts. I had burned through both during the quiet evening stock-taking and simply had not replaced them yet. With the days shortening fast this deep into autumn, that is not a thing to let slide past mid-afternoon.
+
+I stripped new wicks from the dry-grass bundle at the south wall — two good lengths, each twisted tight between my palms, then folded through the cup so the foot rested in tallow and the tip rose clean above the rim. The first-batch tallow in the wide clay bowl had firmed slightly in the cold air, going from clear amber to something closer to pale cream at the surface, but I ladled enough with the birch spoon to fill both cups properly. Each wick settled into place easily.
+
+I lit the first lamp off the hearth coals. The flame caught low, wavered once, then stood steady without smoking. I set it on the supply shelf in its old spot. The second lamp the same — flame up, steady, shelf space found. Two small lights in the cabin, the acorn bowls warm on the hearth edge and beginning to cloud again with a second hour of tannins loosening.
+
+The afternoon felt right after that. Something finished before dark came and asked for it, rather than fumbled in the dark when it was too late.
+
