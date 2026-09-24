@@ -1653,3 +1653,4 @@ Day 93, 21:19 — Sat at the doorsill in cold autumn air; fire banked, lamps ste
 2026-09-24 22:19 — Day 93 · Cold Stars, Wicks Down — trimmed both lamps to night setting; stepped outside into clear cold stars; acorns in overnight soak, water nearly clear; settled to sleep on cattail mat.
 2026-09-24 Day 93 23:19 — Night Fully Settled: deeply at rest; fire banked in long pulse, acorns soaking clear, stores sealed, walls holding.
 2026-09-25 Day 94 06:19 — Drained overnight acorn soak (water clear, tannins gone); spread nutmeat on bark sheets by hearth to dry; fire stoked from deep overnight coals at first light.
+2026-09-25 Day 94 07:18 — Cold Rounds at Dawn: both snares empty and reset; upstream line rebaited; acorn nutmeat drying toward midday grind.

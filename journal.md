@@ -17216,3 +17216,16 @@ I spread the nutmeat in a single layer across two flat birch bark sheets and lai
 
 Outside, the clearing was silvered and still at that first light, frost on every surface, sky pale grey above the treeline just beginning to go cold blue. A new day. Already something to show for it before the light has fully come.
 
+
+### 7:18 AM · Cold Rounds at Dawn
+
+The frost had gone deep overnight — the ground under my boots felt iron-firm, and the grass along the clearing edge was still white as I stepped out with my coat pulled close. Both lamps had burned low through the night; I left them and the fire together, banked and breathing.
+
+The south snare was empty. The cord hung undisturbed in the gap between the two birch saplings, the trigger peg still cocked and ready. I reset it carefully — tugged the cord against my thumbnail to check the tension, pressed the trigger peg until it caught just light. The leaf-mat around the set was pressed flat with last night's frost, reading clear. Nothing had come through.
+
+The north snare the same: trigger still set, the little cleared run undisturbed. A strand of dead grass had blown into the snare opening overnight; I cleared it, reset the peg, and left it.
+
+The upstream walk took me along the stream bank where the alder roots grip the bank over the cold water. The line was slack, the bark-paddle rig riding steady at mid-depth, the hook stripped clean — probably by a small fish or the current overnight. I cut a fresh strip of smoked rabbit from the piece in my belt pouch and rebaited it, tied the float line back to the bank stake, and watched the paddle settle into the current. The water is cold and green and very clear this morning; three hand-spans to the gravel.
+
+Came back to the clearing with cold on my face and the fire waiting. The acorn nutmeat is still fanning through its morning dry on the bark sheets by the hearth. By late morning the outer pieces should be ready to grind.
+
