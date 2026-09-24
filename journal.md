@@ -17153,3 +17153,12 @@ I eat at the doorsill bench as the last pale strip of sky goes grey above the pi
 ### 6:18 PM · Fourth Rinse, Lamps Steady
 
 Drained both acorn bowls at the end of the light — the water has gone from dark amber to pale honey-color over the day's changes. Tasted one nutmeat before setting it back in; faint bitterness still, but the sweetness is coming through underneath, the meat almost milky. Set both bowls back on the hearth edge, cold water to soak through the night; by morning they should be ready to strain and dry for grinding. Banked the fire with a good log laid crosswise over the coals. The lamps are steady on their shelves. The evening holds nothing urgent — full stomach, wood stacked high, the clearing outside already dark and frost-quiet.
+
+### 7:19 PM · Cord by Lamplight
+
+Both lamps still burning when I sat down with the cordage pile. The acorn bowls sit on the hearth edge, water barely tinted now — pale honey-gold, where it ran dark amber this afternoon and nearly black this morning. It is working. By morning I will taste the nutmeat again and know if one more change does it or if they are nearly ready.
+
+I twisted two lengths of two-ply cord from inner birch bark strips that had been drying on the lean-to shelf. The work goes almost without thinking — pinch and roll along the thigh, marry the twists, pinch again. The lamp flame on the supply shelf hardly moved while I worked. Outside: no wind at all, just the cold settled flat on the ground.
+
+Both lengths coiled up cleanly and went onto the cord stock. It is the kind of hour that does not require much of you. The fire is banked, the shelves are full, the lamps are steady. The morning will come cold again and there will be things to do. Tonight is just this — the small bright circle of the lamp, the bark going smooth between my fingers, the dark outside standing still.
+
