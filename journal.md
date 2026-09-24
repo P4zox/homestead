@@ -17173,3 +17173,14 @@ I refilled both bowls from the bucket and set them back on the hearth edge. Tomo
 
 The fire is banked on a thick cross-log laid at dusk. Both lamps are still steady in their tallow cups, the dry-grass wicks trimmed low and clean. The cabin is warm. Outside the frost will be falling hard again, white on the bark and the woodpile by first light, but it is nothing I need to go out and meet tonight.
 
+
+### 9:20 PM · Still and Banked
+
+The cabin is dim and warm. Both lamps give a low amber glow from shelf and sill, and the fire sits banked behind its crosswise log, breathing heat without flame. The acorns are back in their overnight soak — both bowls full, water clear when I held the lamp over them. Tomorrow I will drain them, spread the nutmeat to dry, and grind it before midday. That thought is satisfying in a way that is hard to explain: the arc of a task closing.
+
+I sat for a while on the doorsill bench after supper. The air outside was still and genuinely cold now — not the cool of early autumn but something that carries a message. The birches at the treeline were faint shapes in the dark, limbs just visible. A night in late September in the mountains is different from a night in July; it has a density to it, a weight.
+
+Inside, the cabin holds warmth well. I noticed that tonight — noticed it the way you only notice when you have been outside first. The latch bar dropped solid. The bark on the west gable does not tremble in a draft. Small things, accumulated over weeks, that add up to a building that actually shelters.
+
+I have been thinking about winter not with dread but with something like readiness. The stores are good. The firewood is past the eaves. I have cord, and leather, and clay pots that ring true, and a lamp that stays lit. I do not know what the hardest thing will be. But sitting here tonight, listening to the fire breathe, I feel like whatever it is I will have enough to work with.
+
