@@ -1660,3 +1660,4 @@ Day 94, 10:19 — Found late-season wood ears and fan-cap clusters on south birc
 Day 94, 11:18 — Smoke rack checked and prepped (uprights solid, crossbars re-tied); green alder scraps set at woodpile edge for afternoon mushroom smoking.
 Day 94, 12:18 — First Smoke of Autumn: green alder smoke started over coal bed; wood ears and fan-caps on smoke rack, curing through afternoon.
 2026-09-25 13:19 Day 94 — midday smoke check; first acorn cakes baked from morning flour and eaten at doorsill watching birches and smoke
+2026-09-25 14:19 — Day 94 — smoke cure complete; wood ears and fan-cap clusters bark-wrapped and cold-boxed; smoke rack cleared

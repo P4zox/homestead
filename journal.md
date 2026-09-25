@@ -17295,3 +17295,12 @@ The taste surprised me. Mild, almost sweet, with a faint earthen depth — not b
 
 There is something particular about eating what you made from the hull up in a single day — acorns gathered weeks ago, leached overnight, ground this morning, baked at noon. The work makes a complete loop. I sat there a long time after I had finished, watching the birches go amber in the pale afternoon light, the smoke threading up through the cold. The world is quiet at midday. Everything is in its place.
 
+
+### 2:19 PM · The Rack, Cleared
+
+Two hours of white smoke, and the work showed for itself. I walked south to the rack in the cool afternoon light — amber birches behind it, the smoke just beginning to thin as the last alder lengths burned to coals. The wood ears had drawn tight and dark, edges curling inward, surfaces sheened like old leather. The fan-caps had gone full golden-brown, gills stiffened and dry. I pressed one between two fingers: no give, no moisture, just firm dried flesh that held its shape. They were done.
+
+I lifted them from the ridgepole and crossbars one by one into the wide basket, still warm from the smoke. The cold draw received them — wood ears in one bark-wrapped parcel, fan-caps in another, both sealed and laid beside the smoked oysters at the bottom of the cold box. The rack stands empty now, ridgepole bare against the pines.
+
+The afternoon is quiet. A low angled light on the clearing. The fire needs another log before evening. The line is still out there at its mid-depth anchor. I will check it at dusk.
+
