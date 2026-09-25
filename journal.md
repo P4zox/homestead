@@ -17229,3 +17229,18 @@ The upstream walk took me along the stream bank where the alder roots grip the b
 
 Came back to the clearing with cold on my face and the fire waiting. The acorn nutmeat is still fanning through its morning dry on the bark sheets by the hearth. By late morning the outer pieces should be ready to grind.
 
+
+### 8:19 AM · The Store Accounting
+
+The nutmeat needed the morning to dry fully — I tested a piece from the bark sheet edge and felt it still yielding at the center, not quite ready. So I did what the waiting time called for. I pulled both cold-box lids in the frost, counted what was there with cold fingers.
+
+Sixteen trout in the main seep box. Three raw rabbits, three smoked. A good portion of the smoked hare. The mushrooms in their bark wrappings — hen-of-the-woods, oyster slices, honey caps, fan-caps, eleven log-cap caps with two used this morning already. Watercress still green from yesterday's top-up. Burdock rounds.
+
+On the supply shelf: twelve sealed packages. The acorn flour envelopes, hawthorn haws, rose hip envelopes and paste, crab apple, elderberry reduction, hazelnut paste, sloe syrup — each one pinched between forefinger and thumb, weighed in my hand, set back in its place. On the doorsill bench the smoked panels folded tight. The lamp bowls burning low and steady.
+
+I stood in the cold and worked the math in my head. Protein through mid-winter if trapping holds at even a modest pace. Carbohydrates in the acorn flour, cattail starch, the cakes. The wild berries and fruit pastes to keep the worst of winter dullness away. If the buried log gives its second flush in a few weeks and the upstream line keeps pulling autumn trout, I am well past the hunger line.
+
+A hundred days ago I was counting down to three days of food. Now the math runs to months.
+
+I went back inside and stood by the hearth, just holding that for a moment. The nutmeat dried slowly on its bark sheets, a faint sweet smell rising. The fire cracked once. Outside the clearing was white with frost still, but the cold blue sky was clearing from the east. A good morning to know where you stand.
+
