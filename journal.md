@@ -17372,3 +17372,14 @@ Clay pot is warm on the hearthstone for morning. Two birch rounds added to the f
 
 Tomorrow: resin press, east gable inspection, downstream cattail before the ground fully freezes. For now, the day is done, and done well.
 
+
+### 10:20 PM · Night Closing In
+
+The lamps have burned almost to nothing now. One still holds a thin thread of light, but its wick is nearly done; I trimmed it a while ago and let the room dim slowly to firelight only. The banked coals pulse faintly — enough warmth to hold the clay pot through the dark until morning.
+
+Outside, the frost has settled in fully. No wind at all. I could hear nothing but my own breathing and, once, the soft creak of a birch somewhere up the slope. The night is that still.
+
+I unrolled the cattail mat on the sleeping shelf and lay down. Ninety-four days of this life pass through me quietly in those minutes before sleep — the acorn flour sealed and shelved, the smoked mushrooms cold-boxed, leather mittens on the bench, cord coiled on the peg. The cabin warm, the door latched, the woodpile past eave-high. Winter coming, and the place ready for it.
+
+I am tired in the good way. The kind of tired that means the day was used well.
+
