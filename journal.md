@@ -17326,3 +17326,14 @@ The day folded itself up quietly at the doorsill. Supper done, trout cold-boxed,
 
 I twisted two lengths of two-ply cord, the long kind, pulling fibres back against each other until they held. It is the sort of work the hands do without asking the mind — and the mind, freed, just drifted. The lamp held. The fire held its deep coal somewhere under its own ash. I set the two new lengths on the supply shelf and sat a little longer without doing anything in particular, which is its own thing.
 
+
+### 6:18 PM · Rose Hip, Sloe, Firelight
+
+The cord-twisting is done for the hour. Two lengths braided and shelved, and now the evening has a little room in it. The lamps glow low and steady from their shelf pegs. I set a bark cup of water on the hearth stone near the coals, and while it came to heat I unsealed one of the rose hip paste envelopes and lifted a small spoonful into the cup, then added a spoonful of sloe syrup from the cold shelf. Stirred it with the birch spoon until the paste dissolved into something dark and thick, the cup warm between both palms.
+
+Sat at the doorsill bench with the door pulled nearly shut, just a finger-wide crack to see the cold evening sky — still blue but deepening, one star already sharp over the south treeline. The drink is tart and sweet at the same time, the rose hip earthy, the sloe clean and cold-tasting. I can feel the warmth travel down.
+
+Thought about the days ahead. The buried log second flush in a week or two. More starch from downstream cattail beds before those freeze. I ought to press more pine resin while the light holds — morning work, the resin running cleaner before the deep cold sets it hard. And I want to look at the east gable come morning, where the frost sits longest; the daub held last winter but I want to be certain it is still sound before the real cold arrives.
+
+The clearing outside is quiet. Woodpile high. Cold draw full. Lamps steady. Fire breathing slow. I am content here at the threshold, cup in hand, watching the star grow brighter.
+
