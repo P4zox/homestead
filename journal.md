@@ -17284,3 +17284,14 @@ I tended the rack through the first half-hour, turning pieces where one side cau
 
 These will cure through the afternoon. By dark they should be golden and dry, sealed under bark strips in the cold box — one more package for the winter shelf. The season's logic is patient and repetitive. I have learned to match it.
 
+
+### 1:19 PM · First Taste of Flour
+
+Walked out to the smoke rack at the hour mark. The wood ears had darkened along their outer edges, surfaces beginning to firm and curl slightly inward — they were taking the smoke well. The fan-cap clusters had stiffened at the gill faces, gone a golden-brown where the heat and smoke met. Steady progress, good work. I added two more alder lengths over the coal bed and watched the smoke thicken back up before coming inside.
+
+At the hearthstone I measured out a small scoop of this morning's acorn flour — mixed it with cold water from the clay pot to a stiff dough, pinched in a little of the fine white ash from the hearthstone cup, just a faint mineral note. Two cakes, palm-sized, pressed flat on the clay hearth pad over a thin coal bed. They cooked slow — pale at first, then gold-edged, then done, the cabin filling with a smell I had not had before.
+
+The taste surprised me. Mild, almost sweet, with a faint earthen depth — not bitterness, but something older, the taste of the forest floor in the good way. All that leaching overnight did its work; I could not find the harshness in it anywhere. I ate both cakes at the doorsill with the door cracked open, watching the smoke from the rack drift up through the still cold air, feeling the warmth of it settle.
+
+There is something particular about eating what you made from the hull up in a single day — acorns gathered weeks ago, leached overnight, ground this morning, baked at noon. The work makes a complete loop. I sat there a long time after I had finished, watching the birches go amber in the pale afternoon light, the smoke threading up through the cold. The world is quiet at midday. Everything is in its place.
+
