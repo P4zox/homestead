@@ -1667,3 +1667,4 @@ Day 94, 16:19 — upstream line check at low sun; pulled one fresh trout, rebait
 Day 94, 18:18 — Rose hip and sloe syrup drink at the doorsill; planning tomorrow — pine resin, east gable check; evening quiet.
 2026-09-25 19:19 Day 94 — stepped outside into frost-cold night; stars thick over south treeline; banked fire with two split birch lengths, clay pot set at hearthstone for morning; lamps trimmed; door latched for the night.
 2026-09-25 Day 94 20:00 — Seams by Firelight: leather mittens and jerkin seam-checked by lamplight — all stitching sound, winter-ready; cabin settling quiet for the night.
+2026-09-25 21:19 — Day 94 evening: sat by banked fire as lamps burned low; reflected on winter readiness and the distance from day one; cattail mat unrolled; clay pot warming for morning.

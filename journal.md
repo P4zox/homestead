@@ -17359,3 +17359,16 @@ The fire is low and coaling well, both lamps burning steady on their shelves, th
 
 Put them back in order on the bench and set the bone needle on its shelf. The clearing beyond the latch-crack: deep frost, still air, silver-white grass under a thick scatter of stars. Tomorrow the resin press, the gable daub inspection, and the cattail beds downstream before the ground locks. I blew the near lamp down a little and settled in. The night is full and quiet. It is enough.
 
+
+### 9:19 PM · Fire's Long Patience
+
+The night is fully settled now, deep and still. The lamps have burned down to small steady flames — tallow almost spent, just enough to last the hour. The fire is in its long-coal patience, the kind that needs no tending and will hold until first light.
+
+I sat on the doorsill bench for a while with the door cracked a hand's-width, listening. Frost silence — the forest gone quiet, the stream muffled under the cold. Stars thick to the south. I pulled the door shut against the bite and latched the bar.
+
+Sitting there I thought about what the cabin now holds: sealed walls, bark-and-daub gables sound against weather, a full shelf of winter stores, mittens and jerkin on the peg, flour and paste and smoked meats and mushrooms enough to reach spring if I am careful and the traps continue to give. There was no year ago here — there was only day one, a tent, and cold hands on an axe handle. The distance between that first morning and this lamplight quiet is made entirely of small tasks done one at a time.
+
+Clay pot is warm on the hearthstone for morning. Two birch rounds added to the fire; they'll burn through without my help. Cattail mat unrolled on the sleeping shelf. The lamps will go out on their own.
+
+Tomorrow: resin press, east gable inspection, downstream cattail before the ground fully freezes. For now, the day is done, and done well.
+
