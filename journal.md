@@ -17337,3 +17337,18 @@ Thought about the days ahead. The buried log second flush in a week or two. More
 
 The clearing outside is quiet. Woodpile high. Cold draw full. Lamps steady. Fire breathing slow. I am content here at the threshold, cup in hand, watching the star grow brighter.
 
+
+### 7:19 PM · Stars and Frost
+
+I stepped outside after the rose hip drink, just to feel the night. The door swung open and the cold came in like a hand on my chest — sharp and clean, the way early autumn cold gets when the sky clears fully and there is nothing overhead to hold the warmth in.
+
+The clearing was already white at the edges. Frost on the grass stems, frost on the woodpile bark, frost rimming the cold-box lid stones out east. My breath showed in the lamplight from the doorway behind me. I walked out a few paces and stopped, looked up.
+
+Star-thick. The whole arc of it, the kind of sky you only get when the air is dry and cold and completely still. I stood there longer than I meant to — just taking it in, that old and ordinary wildness. The south treeline a dark jagged edge under it. No wind at all. A faint creak from somewhere in the pines as the cold deepened and the wood contracted, but otherwise silence all the way to the horizon.
+
+I came back in and banked the fire properly: two split birch lengths laid on the deep coals, the bark-side out so they catch slow and hold long, ash pulled in around the base to hold the heat. Set the clay pot half-full of water near the hearthstone so it will be warm by morning. Trimmed the lamp wicks back so they burn low and steady through the night without going out.
+
+Door latched. The latch bar dropped into the keeper groove with its small wood-on-wood sound. I sat a moment on the doorsill bench, coat still on, listening to the fire settle. The two lamps put a warm yellow around the walls. The supply shelf, the peg rack, the sleeping shelf with the cattail mat — all of it holds together, night after night. The cold outside is deep and real. In here, it is warm and quiet and sufficient.
+
+Tomorrow the pine resin press, and the east gable daub to check, and I want to get downstream to the cattail beds before the ground freezes the roots solid. But that is tomorrow. Tonight, it is only this: fire, lamplight, and a sky so full of stars it hums.
+

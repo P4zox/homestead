@@ -1665,3 +1665,4 @@ Day 94, 12:18 — First Smoke of Autumn: green alder smoke started over coal bed
 Day 94, 16:19 — upstream line check at low sun; pulled one fresh trout, rebaited and reset; supper eaten at doorsill as light fell; cold box and woodpile solid.
 2026-09-25 17:18 — Day 94 — By Lamplight, Cord: evening cord-twisting session; two lengths braided and shelved; fire and lamps holding steady.
 Day 94, 18:18 — Rose hip and sloe syrup drink at the doorsill; planning tomorrow — pine resin, east gable check; evening quiet.
+2026-09-25 19:19 Day 94 — stepped outside into frost-cold night; stars thick over south treeline; banked fire with two split birch lengths, clay pot set at hearthstone for morning; lamps trimmed; door latched for the night.
