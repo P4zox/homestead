@@ -17255,3 +17255,14 @@ When the last handful is done I scrape the stone and heap the meal into the wide
 
 The grinding stone goes back against the hearthstone. I dust my hands over the coals and the last fine flour glows briefly and is gone.
 
+
+### 10:19 AM · Cold Birch Walk
+
+The flour envelopes are sealed and stacked on the supply shelf, and the cabin has gone quiet. The frost has burned off the grass now — or most of it — and the sky is that hard clean blue you only get in the deep of September, low and still. Four hours of indoor work and it felt wrong to stay.
+
+I took the wide gathering basket and went south along the treeline, working the birch deadfall I pass most days without stopping. This time I crouched down, turned things over, looked. Found a good flush of wood ears on a fallen white birch — amber-grey, ear-shaped, still damp from overnight frost. Filled a quarter of the basket with them. A little farther along, three fan-cap clusters on an old birch stump, button-firm and cool to the touch. Added those as well. Not a planned harvest but a good one.
+
+The air smelled of leaf mold and pine sap. The light falls differently now — more slanted, gold at the edges even at this hour, shadows longer than they were a month ago. I stood still at the treeline a moment before turning back, watching how the birches up the slope had gone almost entirely yellow. One hard night and the leaves will come down.
+
+Back at the cabin now. Spread the find on the bark tray by the hearth. This afternoon I will smoke them while the fire is hot.
+
