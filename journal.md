@@ -17319,3 +17319,10 @@ The walk back was all amber — light low in the birch crowns, long blue-grey sh
 
 The hearthstone trout and burdock were still warm when I got back. I ate supper at the doorsill watching the last light flatten and the birches go from gold to pale, listening to the stream's faint sound from here. The cold box is heavy. The woodpile is solid past the eave. The fire is deep-coaled and steady. There is enough.
 
+
+### 5:18 PM · By Lamplight, Cord
+
+The day folded itself up quietly at the doorsill. Supper done, trout cold-boxed, smoke rack cleared — nothing left that must happen before morning. That is the best hour an autumn evening offers. I pulled a handful of dry inner bark strips from the lean-to shelf and sat on the sleeping-side floor with one lamp burning close. The flame barely moved. Outside, the cold would be settling hard into the frost-ground; inside the cabin it was just warm, the kind of warmth you notice only because you know what the outside is doing.
+
+I twisted two lengths of two-ply cord, the long kind, pulling fibres back against each other until they held. It is the sort of work the hands do without asking the mind — and the mind, freed, just drifted. The lamp held. The fire held its deep coal somewhere under its own ash. I set the two new lengths on the supply shelf and sat a little longer without doing anything in particular, which is its own thing.
+
