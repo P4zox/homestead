@@ -17352,3 +17352,10 @@ Door latched. The latch bar dropped into the keeper groove with its small wood-o
 
 Tomorrow the pine resin press, and the east gable daub to check, and I want to get downstream to the cattail beds before the ground freezes the roots solid. But that is tomorrow. Tonight, it is only this: fire, lamplight, and a sky so full of stars it hums.
 
+
+### 8:00 PM · Seams by Firelight
+
+The fire is low and coaling well, both lamps burning steady on their shelves, the cabin warm enough now that the cold is only present in the thin gap under the door. I pulled the leather mittens from the doorsill bench and went through both seams in lamplight — thumb joints, back panel stitch line, the wrist hem. Day 89's work held sound; no broken threads, no soft spots along the doe-hide panels. I checked the jerkin next — it came off the peg and I worked the shoulder seams and the rabbit-pelt side strips by feel, stitching firm and settled. Everything winter-ready.
+
+Put them back in order on the bench and set the bone needle on its shelf. The clearing beyond the latch-crack: deep frost, still air, silver-white grass under a thick scatter of stars. Tomorrow the resin press, the gable daub inspection, and the cattail beds downstream before the ground locks. I blew the near lamp down a little and settled in. The night is full and quiet. It is enough.
+
