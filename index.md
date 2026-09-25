@@ -1658,3 +1658,4 @@ Day 94, 08:19 — The Store Accounting: cold-box and supply shelf inventoried; s
 2026-09-25 09:18 Day 94 — Acorn Grinding: dried nutmeat ground on gneiss stone; two new bark envelopes of acorn flour sealed; stock now six full envelopes + one partial on supply shelf.
 Day 94, 10:19 — Found late-season wood ears and fan-cap clusters on south birch deadfall; spread on hearth tray; will smoke this afternoon.
 Day 94, 11:18 — Smoke rack checked and prepped (uprights solid, crossbars re-tied); green alder scraps set at woodpile edge for afternoon mushroom smoking.
+Day 94, 12:18 — First Smoke of Autumn: green alder smoke started over coal bed; wood ears and fan-caps on smoke rack, curing through afternoon.

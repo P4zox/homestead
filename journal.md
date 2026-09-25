@@ -17275,3 +17275,12 @@ Then I went south of the shelter and walked the smoke rack, checking each uprigh
 
 Stood there a minute in the cold blue air looking back at the cabin, smoke threading out of the smoke hole, pines above the ridge going still in no wind. The whole setup felt ready. Fire needs to build through midday — I will not rush it. A deep coal bed is better for a long slow smoke than a hasty hot one. When the fire is right, I will lay the green alder over the coals, hang the mushrooms, and let the afternoon do the work.
 
+
+### 12:18 PM · First Smoke of Autumn
+
+The fire has been burning since first light, and the coals are ready — deep orange under pale ash, steady and even. I carried the wood ears and fan-caps out to the smoke rack on the bark tray: ears laid flat to catch smoke on both sides, fan-caps gills down on the upper crossbars. Then green alder over the coal bed — two lengths, then two more when they caught — and the smoke came up thick and white-grey, that clean sharp alder smell filling the cold noon air.
+
+I tended the rack through the first half-hour, turning pieces where one side caught more draft, watching steam rise off the wood ears as residual moisture cooked out. The clearing was quiet: hiss of sap in the alder wood, two jays in the birch above the east bench. The smoke drifted south-west, slow and even.
+
+These will cure through the afternoon. By dark they should be golden and dry, sealed under bark strips in the cold box — one more package for the winter shelf. The season's logic is patient and repetitive. I have learned to match it.
+
