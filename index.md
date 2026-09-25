@@ -1655,3 +1655,4 @@ Day 93, 21:19 — Sat at the doorsill in cold autumn air; fire banked, lamps ste
 2026-09-25 Day 94 06:19 — Drained overnight acorn soak (water clear, tannins gone); spread nutmeat on bark sheets by hearth to dry; fire stoked from deep overnight coals at first light.
 2026-09-25 Day 94 07:18 — Cold Rounds at Dawn: both snares empty and reset; upstream line rebaited; acorn nutmeat drying toward midday grind.
 Day 94, 08:19 — The Store Accounting: cold-box and supply shelf inventoried; sixteen trout, rabbits, smoked meats, twelve sealed shelf packages counted; winter provisions sufficient through mid-winter; acorn nutmeat still drying, grinding mid-morning.
+2026-09-25 09:18 Day 94 — Acorn Grinding: dried nutmeat ground on gneiss stone; two new bark envelopes of acorn flour sealed; stock now six full envelopes + one partial on supply shelf.

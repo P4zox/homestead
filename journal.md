@@ -17244,3 +17244,14 @@ A hundred days ago I was counting down to three days of food. Now the math runs 
 
 I went back inside and stood by the hearth, just holding that for a moment. The nutmeat dried slowly on its bark sheets, a faint sweet smell rising. The fire cracked once. Outside the clearing was white with frost still, but the cold blue sky was clearing from the east. A good morning to know where you stand.
 
+
+### 9:18 AM · Acorn Grinding
+
+The nutmeat has been drying by the hearth since first light — three hours now. I press a piece between two fingers and feel the resistance: firm at the edges, still giving a little at the heart of the thicker pieces, but the color has deepened to pale cream-gold and the surface is no longer wet. Close enough. I brush the hearthstone clear of ash and set the flat gneiss grinding stone down, then pull both bark sheets close and begin.
+
+A handful at a time. I press the round hand cobble into the pieces and lean my weight into the stroke — they crush cleanly, first into rough fragments, then into a coarse meal that compacts and whitens as I work. The smell is quiet and pleasant: something between dried hazelnut and corn, not strong, just clean. I work through both sheets without hurry, sweeping the meal to the edges of the stone with a fingertip, loading fresh pieces from the center. Each batch takes only a minute or two; the dried nutmeat is docile, nothing like damp grain.
+
+When the last handful is done I scrape the stone and heap the meal into the wide bark tray. It fills it nearly a hand-depth deep — a real yield. I reach for two clean bark envelopes and pack them firm with the new flour, press the ends tight, run a pine resin seal along each join. Two full envelopes, one more three-quarters full. Carried to the supply shelf and set beside the four already there and the partial one I resealed a few days ago — six full envelopes now, one partial. I stand at the shelf a moment and look at the row of them, and something settles in my chest. That is February flour. That is March, maybe, if I am careful.
+
+The grinding stone goes back against the hearthstone. I dust my hands over the coals and the last fine flour glows briefly and is gone.
+
