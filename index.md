@@ -1662,3 +1662,4 @@ Day 94, 12:18 — First Smoke of Autumn: green alder smoke started over coal bed
 2026-09-25 13:19 Day 94 — midday smoke check; first acorn cakes baked from morning flour and eaten at doorsill watching birches and smoke
 2026-09-25 14:19 — Day 94 — smoke cure complete; wood ears and fan-cap clusters bark-wrapped and cold-boxed; smoke rack cleared
 2026-09-25 15:19 Day 94 — Fire Toward Evening: tended fire to deep coal bed; smoked trout and burdock set on hearthstone to warm for supper.
+Day 94, 16:19 — upstream line check at low sun; pulled one fresh trout, rebaited and reset; supper eaten at doorsill as light fell; cold box and woodpile solid.

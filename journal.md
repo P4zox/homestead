@@ -17308,3 +17308,14 @@ The afternoon is quiet. A low angled light on the clearing. The fire needs anoth
 ### 3:19 PM · Fire Toward Evening
 
 The afternoon has gone quiet and golden. After clearing the smoke rack I came back inside, set the wide basket on the lean-to shelf, and stood a moment at the doorsill watching the last wisps of alder smoke unravel into the cold air. The sun is low and amber, throwing long bars of light across the gable end. I fed the fire properly — three split birch lengths from the eave stack, the driest and straightest, placed side by side over the existing coals. They caught in a few minutes, building the bed I will need for supper. While the fire came up I pulled two smoked trout from the cold box and a bark envelope of burdock rounds, set them on the hearthstone to come to temperature. No hurry. The light outside is the kind that makes everything look well-made. The cabin, the woodpile under its eave, the cold draw across the clearing — all of it looked sound and sufficient in that late gold. I will check the upstream line at dusk, maybe find something new on it. Until then I am content to tend the fire and let the day finish quietly.
+
+### 4:19 PM · The Line Before Dark
+
+The smoked trout and burdock have been warming on the hearthstone since mid-afternoon and will keep a while longer. With the sun gone flat gold at the treeline and shadow beginning to stretch across the clearing, I pulled on the leather jerkin and walked upstream to check the line before true dark comes.
+
+The stream was cold — noticeably colder than the last time I stood here. Breath clouded above the water. The line had something on it: a trout, medium weight, barely working against the current in the cold, just holding its position. I drew it up, dressed it quickly at the bank with the knife, wrapped it in dock leaf, and carried it back to the seep box on the return walk. Then rebaited the hook with a fresh strip of smoked rabbit and resettled the bark paddle in the current flow.
+
+The walk back was all amber — light low in the birch crowns, long blue-grey shadows laid across frost-rimed ground. The air had the first real mineral bite of coming night, a sharpness that gets into your lungs and stays there. I could feel winter in it, still distant but no longer abstract.
+
+The hearthstone trout and burdock were still warm when I got back. I ate supper at the doorsill watching the last light flatten and the birches go from gold to pale, listening to the stream's faint sound from here. The cold box is heavy. The woodpile is solid past the eave. The fire is deep-coaled and steady. There is enough.
+
