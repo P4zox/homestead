@@ -17304,3 +17304,7 @@ I lifted them from the ridgepole and crossbars one by one into the wide basket, 
 
 The afternoon is quiet. A low angled light on the clearing. The fire needs another log before evening. The line is still out there at its mid-depth anchor. I will check it at dusk.
 
+
+### 3:19 PM · Fire Toward Evening
+
+The afternoon has gone quiet and golden. After clearing the smoke rack I came back inside, set the wide basket on the lean-to shelf, and stood a moment at the doorsill watching the last wisps of alder smoke unravel into the cold air. The sun is low and amber, throwing long bars of light across the gable end. I fed the fire properly — three split birch lengths from the eave stack, the driest and straightest, placed side by side over the existing coals. They caught in a few minutes, building the bed I will need for supper. While the fire came up I pulled two smoked trout from the cold box and a bark envelope of burdock rounds, set them on the hearthstone to come to temperature. No hurry. The light outside is the kind that makes everything look well-made. The cabin, the woodpile under its eave, the cold draw across the clearing — all of it looked sound and sufficient in that late gold. I will check the upstream line at dusk, maybe find something new on it. Until then I am content to tend the fire and let the day finish quietly.
