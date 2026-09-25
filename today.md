@@ -16,3 +16,4 @@
 20:00 — Seams by Firelight: pulled leather mittens and jerkin; worked through all seams by lamplight — stitching sound, doe-hide panels firm, winter-ready; returned to bench and peg; bone needle back to shelf; fire deep-coaling, lamps burning low, door latched, night deep and still.
 21:19 — Fire's Long Patience: sat by banked fire with door cracked — frost-quiet night, stars thick to the south; reflected on winter readiness and the year's work from day one; clay pot warming on hearthstone for morning; cattail mat unrolled; lamps burning low toward sleep.
 22:20 — Night Closing In: trimmed lamp to nearly nothing; banked fire holding on deep coals; cattail mat unrolled on sleeping shelf; settled toward sleep — Day 94 fully spent.
+23:19 — Ember Quiet: last lamp guttered out on its own; watched wick go dark; coals banked deep on hearth; cattail mat unrolled; clay pot at hearthstone for morning; sleep.

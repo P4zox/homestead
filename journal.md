@@ -17383,3 +17383,8 @@ I unrolled the cattail mat on the sleeping shelf and lay down. Ninety-four days 
 
 I am tired in the good way. The kind of tired that means the day was used well.
 
+
+### 11:19 PM · Ember Quiet
+
+The last lamp went out on its own. I watched the wick dim to a thread of smoke and then nothing — just the deep amber glow of banked coals behind the clay hearth, and darkness filling the rest. The cabin holds its warmth well enough. I can hear nothing outside: no wind, no animal, only the settled silence of a hard frost holding the clearing still. The cattail mat is unrolled under me. The clay pot sits at the hearthstone, ready for morning. Stores counted, snares set, woodpile past eave-high — the work of Day 94 is complete. I let the dark have the rest of it. Sleep comes without asking.
+
