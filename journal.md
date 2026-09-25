@@ -17266,3 +17266,12 @@ The air smelled of leaf mold and pine sap. The light falls differently now — m
 
 Back at the cabin now. Spread the find on the bark tray by the hearth. This afternoon I will smoke them while the fire is hot.
 
+
+### 11:18 AM · Ready for Smoke
+
+The wood ears and fan-caps are still spread on the bark tray by the hearth where I left them — they will need another hour or so before they are ready for the rack. So I used this time well: went around the back of the lean-to and pulled six lengths of green alder I had stacked there last week when I cleared the brush edge. Green alder is what I want — burns slow and cool, makes long pale smoke. I laid the lengths along the east face of the woodpile where they will be easy to reach this afternoon without a trip in the cold.
+
+Then I went south of the shelter and walked the smoke rack, checking each upright in turn. The ground has hardened well under the frost, and the Y-fork posts are solid — no give when I push against them. Ridgepole firm in its forks. All three crossbar lashings tight. I untied and re-tied the top crossbar cord just to be sure; it had been out through many wet mornings and the bark fiber had stiffened. It holds well now.
+
+Stood there a minute in the cold blue air looking back at the cabin, smoke threading out of the smoke hole, pines above the ridge going still in no wind. The whole setup felt ready. Fire needs to build through midday — I will not rush it. A deep coal bed is better for a long slow smoke than a hasty hot one. When the fire is right, I will lay the green alder over the coals, hang the mushrooms, and let the afternoon do the work.
+

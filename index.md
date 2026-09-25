@@ -1657,3 +1657,4 @@ Day 93, 21:19 — Sat at the doorsill in cold autumn air; fire banked, lamps ste
 Day 94, 08:19 — The Store Accounting: cold-box and supply shelf inventoried; sixteen trout, rabbits, smoked meats, twelve sealed shelf packages counted; winter provisions sufficient through mid-winter; acorn nutmeat still drying, grinding mid-morning.
 2026-09-25 09:18 Day 94 — Acorn Grinding: dried nutmeat ground on gneiss stone; two new bark envelopes of acorn flour sealed; stock now six full envelopes + one partial on supply shelf.
 Day 94, 10:19 — Found late-season wood ears and fan-cap clusters on south birch deadfall; spread on hearth tray; will smoke this afternoon.
+Day 94, 11:18 — Smoke rack checked and prepped (uprights solid, crossbars re-tied); green alder scraps set at woodpile edge for afternoon mushroom smoking.
