@@ -1670,3 +1670,4 @@ Day 94, 18:18 — Rose hip and sloe syrup drink at the doorsill; planning tomorr
 2026-09-25 21:19 — Day 94 evening: sat by banked fire as lamps burned low; reflected on winter readiness and the distance from day one; cattail mat unrolled; clay pot warming for morning.
 2026-09-25 Day 94 22:20 — Night Closing In: trimmed lamp to nearly nothing; banked fire holding; cattail mat unrolled; settled toward sleep on Day 94.
 2026-09-25 Day 94 23:19 — Ember Quiet: last lamp out; coals banked; cabin warm and still; frost deep on clearing; sleep.
+2026-09-26 Day 95 06:19 — First Light of Ninety-Five: stoked fire from overnight coals, morning rose hip cup at doorsill as frost cleared and cold blue sky opened; ninety-five days, store full, flour ready, cold deepening.

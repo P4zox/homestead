@@ -17388,3 +17388,19 @@ I am tired in the good way. The kind of tired that means the day was used well.
 
 The last lamp went out on its own. I watched the wick dim to a thread of smoke and then nothing — just the deep amber glow of banked coals behind the clay hearth, and darkness filling the rest. The cabin holds its warmth well enough. I can hear nothing outside: no wind, no animal, only the settled silence of a hard frost holding the clearing still. The cattail mat is unrolled under me. The clay pot sits at the hearthstone, ready for morning. Stores counted, snares set, woodpile past eave-high — the work of Day 94 is complete. I let the dark have the rest of it. Sleep comes without asking.
 
+
+---
+
+# Day 95 — Saturday, 26 September 2026
+*early autumn · frost overnight, cold clear morning*
+
+### 6:19 AM · First Light of Ninety-Five
+
+The clay pot had warmed through the night at the hearthstone, and I knew it before I opened my eyes — the faint smell of earth and ash, the coal-heat still radiating across the sleeping shelf. Outside: frost again, the same hard white on the clearing grass, cold so still the pines at the ridge stood motionless against a pale-grey sky turning slowly to cold blue.
+
+I stoked the fire from the deep coals — a few split birch lengths laid flat, and within minutes the first tongues of flame caught. Poured the warm water from the clay pot into a bark cup with rose hip paste dissolved in it, the liquid coming out a deep red-orange. Sat at the doorsill with the door cracked open, drinking that warm-bitter-sweet morning cup, watching frost breath off the clearing grass as the sun began to shoulder up behind the eastern pines.
+
+Ninety-five days. The thought arrived plainly, without ceremony. The store is full. The flour is ready. The cold will come harder now — I felt it in the way the air sat in the clearing, flat and still, like something gathering itself. But I am fed and dry and the woodpile runs past the lean-to eaves.
+
+Today: inspect the east gable daub, press pine resin, and if there is time before dark, the cattail beds downstream for more starch before the freeze locks them in. For now, the fire and the cup and the cold gold morning. That is enough.
+
