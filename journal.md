@@ -17538,3 +17538,8 @@ Ninety-five days. I lay back and thought it quietly, without ceremony. The first
 ### 10:00 PM · Deep in the Dark
 
 Lying on the cattail mat, fire down to a steady orange-low. The northeast wind presses against the west gable — I can hear it move through the pines up the slope, a long slow sound. Cabin warm. The bark-sheet starch dries at the hearthstone edge; I catch the faint dusty sweetness of it. Both lamps still burning, twin small flames barely needed but good to have. I pull the cattail mat over my shoulder and let the sound of fire and wind work together. Ninety-five days in this place, and some nights I catch myself counting them — not to track progress but simply because it is good to count them. Tomorrow the starch will be powder. That is the last thing I think before I stop thinking.
+
+### 11:00 PM · Northeast, Still
+
+Last waking of the night — half-conscious, not quite up. The northeast wind is still running against the west gable, low and persistent. I came alert enough to hear it, then felt the cold in the log walls even through the sleeping mat. Reached an arm out to the hearthstone edge and touched the starch sheets — dry and crisp at the corners now, lighter than they were this evening. Added one thin birch round to the coals without sitting fully upright. Fire caught softly, a low orange curl, and I lay back down. The cold in these walls feels settled now — the kind that comes with the turn of the season and doesn't leave until March. Ninety-five days ended like this: in the dark, wind at the gable, both lamps burning quiet and low, starch drying toward morning. I will sleep until the frost lifts.
+

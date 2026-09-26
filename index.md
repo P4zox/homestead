@@ -1687,3 +1687,4 @@ Day 95, 18:18 — Ate evening broth (burdock, log-cap, rabbit) at doorsill; firs
 2026-09-26 Day 95 20:18 — Stars on the Frost: brief doorsill stand in sharp clear frost; northeast cold, stars close; starch sheets curling dry at edges, fire deep on green logs; settled toward sleep.
 Day 95, 21:00 — Night Embers: stirred from near-sleep to tend fire; added two birch rounds; starch sheets drying well; quiet reflection on ninety-five days of building.
 2026-09-26 Day 95 22:00 — Deep in the Dark: lay on cattail mat, northeast wind pressing west gable, fire low and steady, both lamps lit, starch drying; counted ninety-five days before sleep.
+2026-09-26 Day 95 23:00 — Northeast, Still: final waking; touched starch sheets (dry and crisp); added one thin birch round; fire caught low; wind at west gable; Day 95 closes.

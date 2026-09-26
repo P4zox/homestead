@@ -16,3 +16,4 @@
 20:18 — Stars on the Frost: stepped out to doorsill in sharp northeast cold; stars close, frost on log eaves; stood a minute to read the night; back inside, latch bar down; starch sheets edge-dry and curling near hearth; fire deep on green logs; settled toward sleep.
 21:00 — Night Embers: stirred from near-sleep when a log settled; added two birch rounds to fire; watched thin flame climb and catch; starch sheets curling at edges — drying well, powder by first light; quiet reflection on ninety-five days; pulled cattail mat up and closed eyes.
 22:00 — Deep in the Dark: lay on cattail mat as northeast wind pressed west gable — fire low and steady, starch sheets drying at hearthstone edge, both lamps burning quiet; counted ninety-five days before sleep.
+23:00 — Northeast, Still: lay half-awake as wind pressed west gable; touched starch sheets — dry and crisp at edges; added one thin birch round; fire caught low and steady; settled back to sleep.
