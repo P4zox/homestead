@@ -1681,3 +1681,4 @@ Day 95, 13:18 — Rendered rabbit fat into new tallow batch; pale-amber, cooling
 2026-09-26 14:18 Day 95 — Tallow Sealed — stored new pale-amber tallow batch; topped up both bark-cup lamps for the evening
 2026-09-26 Day 95 15:00 — Poured off clear water from starch tray; paste spread thin on two bark sheets near hearthstone to dry toward powder by morning.
 Day 95, 2026-09-26, 16:18 — Baked three acorn flatcakes on hearthstone coal bed; ate warm at doorsill with smoked oyster strips and rose hip tea; partial flour envelope used up.
+2026-09-26 Day 95 17:00 — walked east seep cache; full tally of winter stores: mushrooms, rabbit, trout, watercress all sound; evening broth set on hearth; sky rose-hip orange at treeline.

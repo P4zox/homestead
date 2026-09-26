@@ -17489,3 +17489,12 @@ I had been meaning to bake all day. The partial acorn flour envelope was on the 
 
 Ate them warm at the doorsill with two smoked oyster mushroom strips warmed against the hearthstone beside them, and a cup of rose hip tea from the clay pot. That is an honest supper. The starch sheets are still drying by the fire, white and fine. Both lamps burning steady. By the time I finished eating, frost was already lacing the doorsill moss — the cold comes on fast now at this hour.
 
+
+### 5:00 PM · Counting the Cold Box
+
+The flatcakes had cooled and the afternoon had gone quiet around me. With the lamps trimmed, the starch drying in pale sheets near the hearth, and nothing urgent left on my hands, I did something I rarely take time for in the press of a busy day: I walked to the east seep cache and opened it properly, tallied what I had.
+
+Eighty paces in cold-soft ground, birch leaves dropping one by one through still air. I lifted the bark lid and stood in the damp-earth smell: mushroom packages stacked neat — smoked oyster, log-cap, hen-of-the-woods, fan-cap, wood ear — more variety than I thought I had room for. Three kinds of rabbit in bark wraps. The trout bundled in dock-grass, still firm. Watercress green and cool. I counted with one finger moving along each row. Then I counted again, not because I doubted myself, but because it was good to count. This is what the summer and autumn were for.
+
+When I came back to the cabin I built the hearth up from afternoon coals and set the clay pot: stream water, a handful of burdock rounds, two smoked log-cap mushrooms, a thick piece of smoked rabbit. The broth is simmering now — I can smell the earthiness of it from the doorsill where I am writing. The sky above the pines is going the colour of rose hips, deep orange fading toward a cold grey-blue. The days are short enough now that by the time the broth is ready the stars will be out. I am not in a hurry. I have enough, and the night is mine.
+
