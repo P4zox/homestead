@@ -17434,3 +17434,12 @@ The work took about an hour and left my hands sticky even after birch sap washin
 ### 10:18 AM · South Snare Walk
 
 The cold air had lifted just enough that walking south felt good rather than sharp. I took the gathering basket along the tree margin to check the snare — reset three days back with fresh cord, stake moved a hand-span east of the old hole. A good-sized rabbit had come through in the night: winter coat already thickening along the flanks, pale belly still showing summer white. I reset the snare, drove the stake one hand-span deeper into the frost-softened ground, and re-baited it. The birches along the south margin are nearly stripped now, silver trunks catching low morning light and flickering in the still cold air. On the way back I spotted two small oyster mushroom clusters on a downed pine at the wood edge — not quite enough for a full smoke batch, but worth adding to the cold box alongside the three already there. Came home with the basket holding one rabbit and two fresh clusters. The morning is running clear and cold. The afternoon starch press is still ahead.
+
+### 11:18 AM · Pale Harvest, White Powder
+
+Brought the mornings basket of rhizomes in from the cold draw and set to work at the hearthstone. Pounded each root section in the clay bowl with the round river cobble, adding a little stream water, working the fibrous flesh apart until the water ran white and silky. Squeezed through bark mesh twice — the first pressing heavy and cloudy, the second almost clear. Tipped both washes into the wide flat tray and carried it close to the hearth, not over the flame, just warm enough to encourage settling.
+
+The white layer is already forming at the bottom — starch separating from the water like snow sifting down through pale sky. I will drain the tray in a few hours, pour off what sits above, and leave the pale cake to finish drying. By evening it should be a solid full batch — enough to dry and crumble into powder to join the remaining first batch on the supply shelf.
+
+The roots gave well. A full basket in, a full batch out. The work is straightforward but satisfying — standing at the hearthstone in the late-morning cold, the smell of clean water and bruised starch, the rhythmic pound and press. Outside the frost has long since lifted; the sky is cold blue and the birches are burning amber beyond the clearing. Winter food is settling in a tray by the fire. That is enough for an hour.
+
