@@ -17430,3 +17430,7 @@ Back at the hearth I set the tray on the stone beside the fire where the warmth 
 
 The work took about an hour and left my hands sticky even after birch sap washing. But the resin stock is replenished — and with frost already hard on the ground each morning, resin-sealed stores will matter more every week from here to deep winter.
 
+
+### 10:18 AM · South Snare Walk
+
+The cold air had lifted just enough that walking south felt good rather than sharp. I took the gathering basket along the tree margin to check the snare — reset three days back with fresh cord, stake moved a hand-span east of the old hole. A good-sized rabbit had come through in the night: winter coat already thickening along the flanks, pale belly still showing summer white. I reset the snare, drove the stake one hand-span deeper into the frost-softened ground, and re-baited it. The birches along the south margin are nearly stripped now, silver trunks catching low morning light and flickering in the still cold air. On the way back I spotted two small oyster mushroom clusters on a downed pine at the wood edge — not quite enough for a full smoke batch, but worth adding to the cold box alongside the three already there. Came home with the basket holding one rabbit and two fresh clusters. The morning is running clear and cold. The afternoon starch press is still ahead.

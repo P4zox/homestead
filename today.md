@@ -3,3 +3,4 @@
 07:00 — Daub Rounds: walked full daub perimeter, tapped east and west gables — all sound; patched one hairline crack above north rafter seat with ash-clay paste; walls sealed.
 08:18 — Downstream Root Pull: headed to the wide-bend cattail bed with hazel digging stick and gathering basket; pulled a full basket of cattail rhizomes from the muck — wrists cold, roots pale gold and dense; stored in cold draw for afternoon starch press.
 09:18 — Amber from the Pines: walked south slope pines collecting amber resin weeps from old axe-wound seams; melted over hearth fire, strained three passes through bark mesh — two new envelopes of golden-clear resin cooling on hearthstone.
+10:18 — South Snare Walk: walked south snare line; one fresh rabbit taken overnight (winter coat coming in); snare reset and stake deepened; found two fresh oyster mushroom clusters on downed pine at wood edge; all to cold box.
