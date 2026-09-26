@@ -1673,3 +1673,4 @@ Day 94, 18:18 — Rose hip and sloe syrup drink at the doorsill; planning tomorr
 2026-09-26 Day 95 06:19 — First Light of Ninety-Five: stoked fire from overnight coals, morning rose hip cup at doorsill as frost cleared and cold blue sky opened; ninety-five days, store full, flour ready, cold deepening.
 Day 95, 2026-09-26, 07:00 — gable daub inspection; east and west walls sound; hairline crack above north rafter seat patched with ash-clay paste; cabin sealed for winter.
 2026-09-26 08:18 — Day 95 — pulled cattail roots from downstream bend; roots in cold draw for afternoon starch press
+2026-09-26 09:18 Day 95 — Pine resin collected from south slope pines, strained clear over hearth fire, two new envelopes worth poured and cooling on hearthstone.

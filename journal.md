@@ -17421,3 +17421,12 @@ Good haul. The roots are in the cold draw now, sitting in the seep water to keep
 
 I will let the roots sit until afternoon and make the decision then. For now the fire needs feeding and the clay pot is empty.
 
+
+### 9:18 AM · Amber from the Pines
+
+The cold had settled into the ground overnight and the pines along the south slope were weeping freely — thick amber tears caught at old axe-wound seams and bark-scrape scars from the summer felling work. I went out with a flat birch-bark tray and a small stick for coaxing, working methodically from tree to tree along the lower row. The resin came off in slow curls and sticky lumps, some amber-clear, some clouded with bark dust and needles. I scraped what I could without rushing, letting the tray fill until my fingers had gone numb at the tips from the cold air.
+
+Back at the hearth I set the tray on the stone beside the fire where the warmth is steady but not fierce, and watched the lumps slowly melt and run together into one dark amber pool. Took a doubled strip of bark mesh as a rough filter, ladled the liquid resin through it into a second bark tray, leaving the grit and bark behind. Three passes. What remained was golden-clear, faintly translucent, smelling of pine and something deeper and earthier. Enough for two sealed envelopes and still warm enough to handle. Poured it off carefully and let it begin to cool on the hearthstone edge.
+
+The work took about an hour and left my hands sticky even after birch sap washing. But the resin stock is replenished — and with frost already hard on the ground each morning, resin-sealed stores will matter more every week from here to deep winter.
+
