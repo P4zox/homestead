@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Frost Starch Morning: peeled dry starch sheets at hearthstone; white powder folded off both bark sheets and funneled into second bark envelope, pine-resin sealed, placed on supply shelf — two full starch batches now; fire stoked from overnight coals with birch-bark scraps and two fresh splits.
+07:00 — Snare Line, Frost Lift: walked south snare — disturbed but empty, fur in cord; reset trigger peg and tightened noose; two trout taken from upstream line, re-baited with cold grubs; first thin ice skim on stream outer curve; trout dock-wrapped to cold box; watched frost smoke lift off clearing at doorsill in first sun.

@@ -17559,3 +17559,18 @@ The fire took three dry birch-bark scraps and two fresh splits to come back. Sto
 
 Day ninety-six. First light slow gold at the treeline. Good morning.
 
+
+### 7:00 AM · Snare Line, Frost Lift
+
+After the starch work at the hearthstone, I pulled on the leather jerkin and foot wraps and stepped out into the still cold. The frost was still thick in the shade of the lean-to, pale and dry underfoot. The clearing itself was just beginning to let it go — a ghost of mist lifting off the grass in the first pale light.
+
+I walked the south snare first. Nothing caught, but the trigger peg had been nudged and there was a tuft of pale fur in the cord loop — something had come through in the night, likely before dawn, and slipped the noose. I reset the peg at the right angle, tightened the noose a finger-width smaller, and cleared a few stones that had shifted against the wire path.
+
+The upstream line was better. The mid-depth bark-paddle rig was still well-anchored, swinging slow in the current. Two trout on the main line — both good-sized, silver-sided in the cold morning light. I unhooked them, dropped fresh grubs from under a loose bark flap (they were moving sluggishly, almost too cold, but still useful), and re-baited both hooks. The stream edge had a thin skim of ice on the slow outer curve, paper-thin and clear as glass. First ice of the season. Not threatening yet, but a marker.
+
+Carried the trout back dock-wrapped and packed them into the main cold box. Cold storage is growing heavy — I am more ready for winter than I have been any autumn yet. That thought is not complacent; it is simply true, and I am glad of it.
+
+On the way back I paused at the doorsill. The first real sun had just cleared the pine ridge to the east — low and gold, the way it gets in late September, long shadows from every blade of grass still standing. The frost smoke was lifting off the clearing in slow curls. Very quiet. A woodpecker somewhere in the birch slope behind, and that was all.
+
+I stood there for a while. No reason not to.
+
