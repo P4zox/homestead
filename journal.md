@@ -17498,3 +17498,12 @@ Eighty paces in cold-soft ground, birch leaves dropping one by one through still
 
 When I came back to the cabin I built the hearth up from afternoon coals and set the clay pot: stream water, a handful of burdock rounds, two smoked log-cap mushrooms, a thick piece of smoked rabbit. The broth is simmering now — I can smell the earthiness of it from the doorsill where I am writing. The sky above the pines is going the colour of rose hips, deep orange fading toward a cold grey-blue. The days are short enough now that by the time the broth is ready the stars will be out. I am not in a hurry. I have enough, and the night is mine.
 
+
+### 6:18 PM · Bowl and Stars
+
+The broth was ready before the last light left the pines. I lifted the clay pot from the coals with bark mittens, settled it on the flat hearthstone, and ladled into the wide shallow bowl — burdock rounds gone soft and sweet, smoked log-cap mushrooms opened dark and rich, a piece of rabbit that pulled apart easily in the warmth. I ate at the doorsill with the bowl held in both hands, watching the last orange fade out of the sky and the first stars arrive hard and clear above the ridge.
+
+The cold came in with the dark, but the cabin held its heat at my back. After the meal I banked the fire with two green-wood logs for a slow overnight burn, and settled to cord-twisting by the first lamp's light — splitting inner bark, doubling the strands, rolling against my thigh. Two more lengths added to stock before my hands stiffened. I checked the lamps, checked the latch bar, and sat a moment just listening: the fire settling, the stream faint through the walls, the trees still in cold night air.
+
+The stores are honest and full. Tomorrow the starch will be dry. Winter can keep coming.
+

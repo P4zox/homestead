@@ -1682,3 +1682,4 @@ Day 95, 13:18 — Rendered rabbit fat into new tallow batch; pale-amber, cooling
 2026-09-26 Day 95 15:00 — Poured off clear water from starch tray; paste spread thin on two bark sheets near hearthstone to dry toward powder by morning.
 Day 95, 2026-09-26, 16:18 — Baked three acorn flatcakes on hearthstone coal bed; ate warm at doorsill with smoked oyster strips and rose hip tea; partial flour envelope used up.
 2026-09-26 Day 95 17:00 — walked east seep cache; full tally of winter stores: mushrooms, rabbit, trout, watercress all sound; evening broth set on hearth; sky rose-hip orange at treeline.
+Day 95, 18:18 — Ate evening broth (burdock, log-cap, rabbit) at doorsill; first stars arrived above the ridge; banked fire with green-wood logs; two cord lengths twisted by lamplight.
