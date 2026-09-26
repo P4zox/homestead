@@ -17543,3 +17543,19 @@ Lying on the cattail mat, fire down to a steady orange-low. The northeast wind p
 
 Last waking of the night — half-conscious, not quite up. The northeast wind is still running against the west gable, low and persistent. I came alert enough to hear it, then felt the cold in the log walls even through the sleeping mat. Reached an arm out to the hearthstone edge and touched the starch sheets — dry and crisp at the corners now, lighter than they were this evening. Added one thin birch round to the coals without sitting fully upright. Fire caught softly, a low orange curl, and I lay back down. The cold in these walls feels settled now — the kind that comes with the turn of the season and doesn't leave until March. Ninety-five days ended like this: in the dark, wind at the gable, both lamps burning quiet and low, starch drying toward morning. I will sleep until the frost lifts.
 
+
+---
+
+# Day 96 — Sunday, 27 September 2026
+*early autumn · frost overnight; wind dropped to still before dawn; cold and clear at first light, pale grey sky brightening to cold blue, first pale gold at the eastern treeline*
+
+### 6:18 AM · Frost Starch Morning
+
+Woke to a white clearing — frost thick on the log eaves, hearthstone ash grey and settled, coals still breathing deep red underneath. The northeast wind had fallen off to nothing in the night, which made stepping to the doorsill a clean cold stillness instead of a bite.
+
+First thing: the starch sheets. Both bark sheets near the hearthstone dry and crisp — I peeled them back and ran a finger across the surface, and the white powder lifted in a small cloud. Not completely bone-dry at the very center, but close. I folded each sheet gently so the powder fell to the center crease, then tapped it into the grinding bowl. A full second batch — pale as birch inner bark dust. Funneled into a bark envelope and sealed with two dots of pine resin. On the supply shelf beside the first.
+
+The fire took three dry birch-bark scraps and two fresh splits to come back. Stood at the hearthstone watching the flame establish — cabin still dim and frost-cold, the pale starch powder safe in its envelope above me.
+
+Day ninety-six. First light slow gold at the treeline. Good morning.
+
