@@ -17408,3 +17408,16 @@ Today: inspect the east gable daub, press pine resin, and if there is time befor
 ### 7:00 AM · Daub Rounds
 
 The sun found the east gable straight on at this hour — that low autumn slant that casts every irregularity in sharp relief. I wrapped the knife handle in my palm and walked the outside perimeter in a slow circuit, tapping the daub as I went. East gable first, where the clay-straw mix has cured longest: the sound was good — a soft, settled thud, no hollow patches, no loose skin lifting from the wattle behind. Pressed a thumb into the base courses where winter cold would push hardest. Firm throughout, no give. West gable held as well; the extra bark layering from Day 83 has knit with the daub beneath it, no separation showing at any course edge. One small hairline above the north rafter seat — no wider than a fingernail — where the roof settling in the first hard frosts had pulled the clay a fraction. I scored it open with the knife tip, worked a stiff paste from fine ash and wet hearthside clay, packed it in with my thumb and pressed it flat. The patch was already setting by the time the sun moved a hand-span up the sky. I stood back and looked at the whole structure — the bark roof gray-green in cold morning light, the daubed panels tight and matte. It is not a grand thing. But it is mine and it is good.
+
+### 8:18 AM · Downstream Root Pull
+
+Breakfast was quick — the remaining acorn cake from yesterday, a cup of warm broth from the clay pot, still faintly sweet from the rowan berries I added before bed. Leather jerkin on, belt pouch at my hip, the hazel digging stick in one hand and the wide gathering basket in the other. The frost was still white in the shadows of the north tree line when I set off downstream.
+
+The cattail beds at the wide bend run thick — a quarter-mile down where the stream flattens into slow water and the sedge grows knee-high on both banks. I know this bed well; I have pulled roots from it three times already. But the season is closing. Two more hard frosts and the ground will begin to lock from the top, and then there will be no getting at what is stored below the muck. I wanted one more pull before that happens.
+
+The work is cold and simple: hazel stick in to loosen the rhizomes, both hands down into the dark water, pull steady along the root until it gives. My wrists were red inside the first ten minutes. The roots come out pale gold at the break, dense and heavy. The basket filled slowly but surely — by the time I straightened up and looked back toward the clearing, the sun had lifted well above the eastern ridge and the cold had settled to something merely brisk instead of biting.
+
+Good haul. The roots are in the cold draw now, sitting in the seep water to keep them fresh while I decide between pressing the starch today or resting my hands first. The starch is the task — once ground and settled and dried, it is flour. Good flour, better than acorn for baking. Every envelope of it I put up is a day of winter eating that does not touch the smoked meat or the dried fish.
+
+I will let the roots sit until afternoon and make the decision then. For now the fire needs feeding and the clay pot is empty.
+
