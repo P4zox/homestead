@@ -17507,3 +17507,12 @@ The cold came in with the dark, but the cabin held its heat at my back. After th
 
 The stores are honest and full. Tomorrow the starch will be dry. Winter can keep coming.
 
+
+### 7:00 PM · Stitch by Lamplight
+
+The two lamps burn even on their shelves, filling the cabin with a low amber glow. I pulled the bone needle and a short length of bark cord from the supply peg and turned to the belt pouch — one seam at the lower fold had worked a finger-length loose; small gap, small fix, but small things are how a homestead holds together through winter. I ran the needle through the leather in the saddle-stitch pattern, pulling each pass snug against the one before, the cord biting into the hide cleanly without fraying. Done in ten minutes. Two tight knots through the fold. The pouch is back on the doorsill bench and will outlast the season.
+
+Outside, through the gap above the door, a wind has come up from the northeast — cold and dry, no wet in it. The frost will be sharp tonight, sharper than last. The starch sheets near the hearth are drying well; the edges have already gone white-powdery and are lifting slightly off the bark. Tomorrow morning I will rake the powder into the supply envelope and seal it — another half-batch added to the shelf.
+
+The fire is settled coals now, breathing slow. The cabin holds its warmth. I sit with the lamplight and the faint smell of tallow and pine resin and feel, for the moment, that I have done enough today.
+
