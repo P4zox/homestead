@@ -17516,3 +17516,12 @@ Outside, through the gap above the door, a wind has come up from the northeast �
 
 The fire is settled coals now, breathing slow. The cabin holds its warmth. I sit with the lamplight and the faint smell of tallow and pine resin and feel, for the moment, that I have done enough today.
 
+
+### 8:18 PM · Stars on the Frost
+
+Stepped out just now to the doorsill — the cold came straight off the northeast, a clean biting edge, not damp. Stars very sharp and close overhead, the ridge a black silhouette against them. Frost already on the log eaves; I ran a thumb along the uppermost course and it came away white. No wind in the pines, which means the sky will stay clear and the temperature will keep dropping. Good sleeping weather if you are inside.
+
+Stood there a minute only, long enough to feel the night settle over the clearing. The lamp inside made a warm square in the dark behind me. Then back in, latch bar down. The starch sheets are holding their warmth near the hearthstone, edges just starting to curl dry — by morning they should be powder enough to scrape. The fire is good on its green-wood logs, slow and dense; it will last till well after first light.
+
+There is something about standing outside after a full day like this one. Everything done that could be done. The stores tallied, the seams mended, the tallow sealed, the lamps burning clean. The frost is not a threat tonight — just the season doing what it does, pressing in at the edges the way cold always does, and the cabin holding against it the way it is meant to. I have no complaint to make of this day. Sleep now.
+

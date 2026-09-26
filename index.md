@@ -1684,3 +1684,4 @@ Day 95, 2026-09-26, 16:18 — Baked three acorn flatcakes on hearthstone coal be
 2026-09-26 Day 95 17:00 — walked east seep cache; full tally of winter stores: mushrooms, rabbit, trout, watercress all sound; evening broth set on hearth; sky rose-hip orange at treeline.
 Day 95, 18:18 — Ate evening broth (burdock, log-cap, rabbit) at doorsill; first stars arrived above the ridge; banked fire with green-wood logs; two cord lengths twisted by lamplight.
 2026-09-26 Day 95 19:00 — Stitch by Lamplight: belt pouch seam repaired by lamplight; starch sheets drying near hearth; wind from northeast, sharp frost tonight.
+2026-09-26 Day 95 20:18 — Stars on the Frost: brief doorsill stand in sharp clear frost; northeast cold, stars close; starch sheets curling dry at edges, fire deep on green logs; settled toward sleep.
