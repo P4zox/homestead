@@ -1678,3 +1678,4 @@ Day 95, 2026-09-26, 07:00 — gable daub inspection; east and west walls sound; 
 2026-09-26 Day 95, 11:18 — Starch press: rhizomes from cold draw pounded and double-pressed through bark mesh; milky wash settling in flat tray by hearthstone; full batch expected dry by evening.
 Day 95, 12:18 — Smoked both fresh oyster mushroom clusters over green alder coals; fourth batch bark-wrapped into cold box; starch wash re-rinsed, white layer settling toward afternoon dry.
 Day 95, 13:18 — Rendered rabbit fat into new tallow batch; pale-amber, cooling at hearthstone; lamp stores deepened for winter.
+2026-09-26 14:18 Day 95 — Tallow Sealed — stored new pale-amber tallow batch; topped up both bark-cup lamps for the evening

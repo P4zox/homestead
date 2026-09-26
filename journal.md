@@ -17458,3 +17458,14 @@ The jointed rabbit went back to the cold box — the meat fine, the fat served i
 
 Standing at the door after, bowl cooling beside me, the clearing spread out in afternoon light. The birches along the east edge are half-turned now, amber and still pale green in the same branch. The woodpile looks solid. The cabin behind me is sealed and warm. Days like this — tallow cooling, starch drying, fire steady, walls sound — feel like something built correctly, piece by piece.
 
+
+### 2:18 PM · Tallow Sealed
+
+The wide shallow bowl had been sitting at the hearthstone since midday rendering — an hour and a half, enough. I lifted the edge with a knifetip and it held shape: pale amber, not quite rigid, with a faint waxy give that meant it had set fully through. The smell was clean now, a little fatty, nothing sharp.
+
+I cut a bark strip and ran it around the inside of the bowl to lift the disk in two halves, then pressed each half into a fresh bark envelope, folded the top twice, and sealed the fold with a smear of pine resin — finger-width bead along the crease, pressed flat. Both envelopes went to the supply shelf beside the prior rendered stores. Tallow stock solid now going into the long nights.
+
+Then the lamps. I prised the dried wick from the first cup with the knifetip, replaced it with a fresh length of dry grass from the twist I keep wound above the shelf, and poured a small finger of new tallow in from the remaining heel-scraping in the bowl — barely a spoonful, but enough to keep the flame going till late. Same for the second cup on the cabin shelf. Both lit cleanly: small amber flames, no smoke, even and still.
+
+Stood a moment and watched them. The starch tray is still settling by the hearth edge — the white layer distinct now, pale as chalk dust, the water above it cleared mostly off. Tomorrow morning that layer will be dry enough to scrape. Everything has its pace here. The day is moving along its own current, and I am moving with it.
+
