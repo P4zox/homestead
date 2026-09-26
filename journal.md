@@ -17534,3 +17534,7 @@ Outside: absolute silence now except for the cold itself, which seems to have a 
 
 Ninety-five days. I lay back and thought it quietly, without ceremony. The first weeks were all fear and motion — every hour spent just holding on. Now an evening like this exists: enough food for months in the cold box, two lamps burning, leather on my feet and back, fire I can read like a familiar face. The distance between then and now is too large to hold all at once. But it is real, and I made it with two hands, so I let myself feel it for a moment before pulling the cattail mat up and closing my eyes.
 
+
+### 10:00 PM · Deep in the Dark
+
+Lying on the cattail mat, fire down to a steady orange-low. The northeast wind presses against the west gable — I can hear it move through the pines up the slope, a long slow sound. Cabin warm. The bark-sheet starch dries at the hearthstone edge; I catch the faint dusty sweetness of it. Both lamps still burning, twin small flames barely needed but good to have. I pull the cattail mat over my shoulder and let the sound of fire and wind work together. Ninety-five days in this place, and some nights I catch myself counting them — not to track progress but simply because it is good to count them. Tomorrow the starch will be powder. That is the last thing I think before I stop thinking.
