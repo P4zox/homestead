@@ -17480,3 +17480,12 @@ I spread it thin across two dry bark sheets with the birch spoon, set them near 
 
 By evening the paste may have crusted. More likely the powder will be ready by first light — a full pale-white batch to join the other envelope on the supply shelf. Six full envelopes of acorn flour, and now two of cattail starch before the deep freeze. The winter will not find me empty-handed.
 
+
+### 4:18 PM · Flatcakes at the Doorsill
+
+By four in the afternoon the sun was already flat and gold through the eastern pines — that angled September light that arrives with a reminder. The clearing was quiet, a crow calling once from the high birches, and then nothing.
+
+I had been meaning to bake all day. The partial acorn flour envelope was on the shelf, and flour left sitting too long only becomes a number. I pulled it down, mixed in a pinch of cold ash from the hearthstone cup, worked in river water until the dough was stiff and even in the clay bowl, and let it rest while the fire built down to a good flat-coal bed. Three flatcakes pressed thin against the stone — a hand-span across, a thumb thick. They sizzled once and quieted. Two turns with the birch spoon, and they came out pale amber on both faces, crisp at the edges and soft through the middle.
+
+Ate them warm at the doorsill with two smoked oyster mushroom strips warmed against the hearthstone beside them, and a cup of rose hip tea from the clay pot. That is an honest supper. The starch sheets are still drying by the fire, white and fine. Both lamps burning steady. By the time I finished eating, frost was already lacing the doorsill moss — the cold comes on fast now at this hour.
+
