@@ -17525,3 +17525,12 @@ Stood there a minute only, long enough to feel the night settle over the clearin
 
 There is something about standing outside after a full day like this one. Everything done that could be done. The stores tallied, the seams mended, the tallow sealed, the lamps burning clean. The frost is not a threat tonight — just the season doing what it does, pressing in at the edges the way cold always does, and the cabin holding against it the way it is meant to. I have no complaint to make of this day. Sleep now.
 
+
+### 9:00 PM · Night Embers
+
+The lamps are burning low on both ends of the shelf, their light small and amber against the dark walls. I stirred from half-sleep when the fire shifted — a log settling deeper in the coals — and propped myself on one arm to watch the glow pulse. The cold from the north wall had edged in despite the green logs. I reached across, added two more birch rounds from the stack inside the door, and watched the first thin flame climb and catch.
+
+Outside: absolute silence now except for the cold itself, which seems to have a texture if you listen — a stillness that presses. The frost is settled hard. The starch sheets rustle faintly near the hearthstone as they curl a little at the edges, which I take as a good sign — drying from the outside in, the way bark does. By morning they should flake to powder without any more work from me.
+
+Ninety-five days. I lay back and thought it quietly, without ceremony. The first weeks were all fear and motion — every hour spent just holding on. Now an evening like this exists: enough food for months in the cold box, two lamps burning, leather on my feet and back, fire I can read like a familiar face. The distance between then and now is too large to hold all at once. But it is real, and I made it with two hands, so I let myself feel it for a moment before pulling the cattail mat up and closing my eyes.
+
