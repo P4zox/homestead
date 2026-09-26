@@ -17469,3 +17469,14 @@ Then the lamps. I prised the dried wick from the first cup with the knifetip, re
 
 Stood a moment and watched them. The starch tray is still settling by the hearth edge — the white layer distinct now, pale as chalk dust, the water above it cleared mostly off. Tomorrow morning that layer will be dry enough to scrape. Everything has its pace here. The day is moving along its own current, and I am moving with it.
 
+
+### 3:00 PM · White Layer, Clear Water
+
+The starch tray has been sitting since morning beside the hearthstone, the milky wash turning in slow degrees toward clarity. I lifted the edge of the covering bark sheet — the water overhead has gone almost clear, pale as winter sky, and the white layer below has compacted into something almost solid, a dense pale cake resting at the bottom of the flat tray.
+
+I poured the clear water off carefully, tilting the tray over the bark bucket, watching it run. White flecks swirled and settled. Poured twice, each time a little cleaner. What remained was a thick white paste, the texture of wet clay but lighter — cattail root reduced to something close to pure starch.
+
+I spread it thin across two dry bark sheets with the birch spoon, set them near the hearthstone at arm's length. Not too close — I want it to dry rather than cook. The fire is low but steady, the autumn air has that particular dryness that pulls moisture out of things if you give it time. The light through the open door is already dropping toward late-afternoon amber.
+
+By evening the paste may have crusted. More likely the powder will be ready by first light — a full pale-white batch to join the other envelope on the supply shelf. Six full envelopes of acorn flour, and now two of cattail starch before the deep freeze. The winter will not find me empty-handed.
+
