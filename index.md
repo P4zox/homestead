@@ -1692,3 +1692,4 @@ Day 96, 27 Sep 2026, 06:18 — second starch batch dried and sealed; fire stoked
 Day 96, 07:00 — South snare reset (disturbed, fur caught, nothing taken); two trout pulled from upstream line, re-baited; first ice skim on stream edge; trout to cold box; frost lifting off clearing at sunrise.
 Day 96, 2026-09-27, 08:19 — Starch porridge at the doorsill: cattail starch with hazel paste and smoked oyster mushrooms; frost gone, cold blue sky, no wind, long cabin shadow on the ground.
 2026-09-27 Day 96 09:18 — South Walk, Frost Edge: buried log quiet (no flush yet); two pale oyster clusters and birch inner bark cut from south birch deadfall; oysters curing on smoke rack.
+Day 96 (2026-09-27) 10:19 — Smoke rack tended, oysters turned; two cord lengths braided from morning birch bark.
