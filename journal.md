@@ -17683,3 +17683,12 @@ Seventeen trout, the rabbits, the mushrooms, the flour, the tallow in the lamps 
 
 Drank cold rose hip water from the cup on the shelf. Pulled the sleeping bag to my chin. The fire settles and breathes, slow and low, the amber pulse of something that has learned to last.
 
+
+### 7:19 PM · Frost, Lamp, and Quiet
+
+Both lamps are down to slow threads — thin gold lines on the log ceiling, barely moving. The banked fire has a deep coal mound under a thick cap of grey ash; a single pine split on top will feed it slowly through the night. Outside the frost is settling hard — I can hear the occasional tick of a plank contracting against the cold, the silence thickening beyond the eaves. The cabin is barred, the sleeping bag warm.
+
+I have been lying here with my eyes open, going over the day in my head. The raven on the smoke rack keeps coming back to me — the way it stood there without ceremony, tilted its head at me, and lifted off without explaining itself. And the noon tally by the doorsill: seventeen trout, the smoked rabbits and hare, five batches of oyster mushrooms, the full woodpile, the two lamps, acorn flour and starch, all of it sound and sealed against the cold. Ninety-six days, one action at a time. It does not feel like I built this — it feels like it grew, and I just kept showing up each morning.
+
+The lamps will last till I sleep. The fire will carry through. Tomorrow will come cold and clear, and I will rise into it.
+

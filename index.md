@@ -1701,3 +1701,4 @@ Day 96, 15:18 — Ate slow stew at doorsill in late-afternoon gold light; remain
 Day 96 (2026-09-27) 16:18 — Walked east treeline as afternoon cooled; collected dry birch kindling from deadfall; fire stoked for evening
 Day 96, 17:18 — Warmed leftover stew at dusk, ate at doorsill as clearing went grey; braided two final cord lengths by lamplight; fire low and dampered; frost settling hard outside.
 2026-09-27 18:18 Day 96 — Fire-Watch, Settling: banked hearth for overnight frost; lamps dimmed; cabin sealed; stores and woodpile sound.
+Day 96, 19:19 — Evening reflection in sleeping bag; frost settling hard, both lamps slow, fire banked deep; ninety-six days of work resting in full stores and sound shelter.
