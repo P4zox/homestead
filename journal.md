@@ -17617,3 +17617,14 @@ I do not know if it is enough. Winter in this place does not announce its worst 
 
 The raven called again from the east pines just now — same bird as this morning, I think, working this part of the clearing. It landed on the smoke rack post for a moment, tilted its head at the empty rack, and lifted off into the cold blue sky.
 
+
+### 1:00 PM · Ice at the Bend
+
+After the noon rest I pulled on the jerkin and mittens and walked upstream to check the lines. The stream was quieter than morning — frost smoke long gone, water running low and glass-clear between the ice-white banks. The bark-paddle rig was still holding at mid-depth, tether undisturbed. Upstream hook still baited.
+
+At the alder-root bend the slow outer curve had grown since morning. What was paper-thin at dawn was two sheets thick by early afternoon — the kind that rings softly when you press a fingernail to it. The current still ran dark and quick beneath, but the near bank was white and sealed a full hand-breadth from the grass. The stream is beginning to sleep at its edges.
+
+I cut a small handful of watercress from the alder-root tangle — stems still cold-green, leaf tips just beginning to bronze. Rinsed them in the current, rolled them into the bark tray, and turned back.
+
+The clearing was very still when I came up the slope. The raven had returned and was sitting the ridgepole now, not the smoke rack. It watched me all the way to the door before lifting off into the cold blue.
+
