@@ -1706,3 +1706,4 @@ Day 96, 20:18 — Night Sounds, Frost: lying in sleeping bag by slow lamplight; 
 2026-09-27 21:18 Day 96 — Last Watch, Deep Frost: last lamp-watch before sleep; frost deep and still outside; reflection on ninety-six days — stores full, shelter sound, fire banked under ash.
 Day 96, 22:19 — Lamp at Low: lay in sleeping bag as second lamp guttered to nothing; frost in east pines; banked fire breathing under ash; closed out Day 96 with stores full and walls sound.
 Day 96, 11:00 PM — Into the Dark: both lamps out, cabin fully dark, frost ticking in east pines, banked coals under grey ash, sleep arrived.
+2026-09-28 Day 97 06:19 — Coals and Cold Morning: woke Day 97, stoked fire from banked coals with birch bark and split, warmed and ate leftover burdock-trout stew at hearthstone; frost deep on clearing, pale light at treeline; new week begun.

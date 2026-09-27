@@ -17723,3 +17723,17 @@ Both lamps have guttered out. The cabin is fully dark now — only the faint red
 
 Day ninety-six ends in the dark and the quiet. Stores full. Shelter sound. Two lamp wicks to cut fresh in the morning — that will be the first thing. But sleep is already here, and I am letting it come.
 
+
+---
+
+# Day 97 — Monday, 28 September 2026
+*Early autumn · deep frost overnight, cold clear morning*
+
+### 6:19 AM · Coals and Cold Morning
+
+Woke in full dark, the cabin cold past the sleeping bag's edge. Grey light pressing under the door. Frost-tick in the east pines, no wind at all.
+
+Uncovered the hearthstone coals — red-orange under thick grey ash, still breathing well. A strip of birch bark, then a split, and the flame took hold quietly. Pulled the covered stew pot to the hearthstone edge.
+
+Day 97. Ninety-seven mornings woken here. The stew is hot now, burdock soft in the broth, trout still good from last night. I ate by the hearthstone with the sleeping bag still around my shoulders, watching new flame in old coals, the clearing outside frost-white in first pale light. A new week beginning.
+
