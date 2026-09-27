@@ -17595,3 +17595,12 @@ The walk south held a different quality — frost still gripping the shaded grou
 ### 10:19 AM · Smoke and Cord
 
 The oyster clusters from the morning walk are an hour into the smoke now. I lifted each one and turned them on the crossbars — gill sides have gone a pale tan at the edges, caps still firm and cool through the middle. Another hour, perhaps two, before they will be ready to wrap and go down to the cold draw. While they cured I sat at the doorsill bench with the two widths of birch inner bark from the deadfall, split each strip lengthwise and braided two-ply cord through the quiet mid-morning light. The hands know this motion now; it turns into a kind of thinking. Ended with two new lengths coiled and added to stock. The clearing is very still, cold-blue sky, a raven calling twice from the east pines and then gone.
+
+### 11:18 AM · Cured and Wrapped
+
+Two hours on the smoke rack is enough for oyster clusters this size — I knew without thinking by the way the gill sides looked when I lifted the first one. Deep amber-gold, edges curled just slightly inward, no softness left in them. I pressed a fragment loose from one cap and tasted: firm, dense, the mild sweetness replaced by something woodsy and lasting. Ready.
+
+I trimmed the tough base plugs from both clusters and wrapped each in a double layer of dock leaves first, then birch bark, the seams pressed with the last of the resin on my fingers. Packed them side by side in the cold box, alongside the fourth batch already there. Fifth batch of smoked oysters. The rack stands empty now in the cold noon light, the ridgepole bare against pale sky.
+
+Ate one dried hawthorn berry from the supply shelf on the way back. Just for sweetness. The clearing is very still.
+
