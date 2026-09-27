@@ -1697,3 +1697,4 @@ Day 96 (2026-09-27) 10:19 — Smoke rack tended, oysters turned; two cord length
 2026-09-27 12:18 Day 96 — Counting the Store: midday rest; rose hip tea at doorsill; tallied winter stores mentally — seventeen trout, five oyster batches, twelve bark packages, acorn flour, two starch batches, woodpile past eave-high; raven on empty smoke rack post; clearing still, cold blue sky, full pantry confirmed
 2026-09-27 13:00 Day 96 — walked upstream; bark-paddle rig and lines checked; ice at outer bend two sheets thick; watercress cut from alder-root tangle; raven on ridgepole at return
 2026-09-27 14:19 — Day 96 — Afternoon Pot, Short Light: started slow burdock-trout-watercress stew on hearthstone; cabin quiet, low pale-gold light slanting through east gable, clearing still.
+Day 96, 15:18 — Ate slow stew at doorsill in late-afternoon gold light; remaining stew covered on cool hearthstone side for morning.

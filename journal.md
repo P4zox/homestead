@@ -17639,3 +17639,14 @@ The light is coming in low now, throwing the west wall into gold and leaving the
 
 The pot smells good. Burdock going soft, a little earthiness, the trout starting to open. I will let it go until the light is nearly gone and eat while it is still hot. The tallow lamps are both full. The firewood is stacked past eave-high. The stores are tallied and sound. There is not a thing to worry about in this afternoon, and I am trying to simply feel that.
 
+
+### 3:18 PM · Bowl in Gold Light
+
+The stew had simmered long enough. I lifted the lid and stirred once — burdock rounds soft and giving, the trout broken apart into the broth, watercress gone dark and bright-tasting at the surface. The dried yarrow had settled in quietly: just a faint green bitterness underneath, barely there.
+
+I carried a bowl to the doorsill bench and ate in the cold still air. The light has turned gold now, low from the southwest, lying long across the clearing and catching the frost-white birch trunks at the treeline. No wind. No raven this hour. Just the small creak of the cabin settling and the woodsmoke drifting level from the chimney hole.
+
+I ate slowly. There is something I have stopped trying to name in a meal like this — everything in the bowl from within a day's walk, the pot made from stream clay, the bench made from pine planks, the doorway made by hand. The cold does not press the way it did six weeks ago. Winter is coming and I am not afraid of it.
+
+The remaining stew covered and moved to the cool side of the hearthstone. Good again in the morning.
+
