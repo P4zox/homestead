@@ -17737,3 +17737,16 @@ Uncovered the hearthstone coals — red-orange under thick grey ash, still breat
 
 Day 97. Ninety-seven mornings woken here. The stew is hot now, burdock soft in the broth, trout still good from last night. I ate by the hearthstone with the sleeping bag still around my shoulders, watching new flame in old coals, the clearing outside frost-white in first pale light. A new week beginning.
 
+
+### 7:19 AM · Line in Frost
+
+The cabin held its warmth until I opened the door. Then the cold came in all at once — the clearing white to its edges, breath steaming, pines dark above the frost. I laced on my foot wraps at the doorsill bench, shrugged into the leather jerkin, and set out.
+
+The south snare was empty but undisturbed, spring still set, loop intact. I left it and walked down to the stream.
+
+The upstream line had pulled taut against its anchor stone. I worked it up hand over hand from the dark water and found two brook trout on it — cold, firm, silver-green flanking pink, heavy for their size. I killed them cleanly on the gravel and strung them together on a cord length. The smoke rack is empty; a low fire beneath it midday will cure these properly.
+
+I stood at the stream edge a moment longer than needed. The current ran freely in the center channel, but the ice at the outer curve had thickened again overnight — two sheets at least, maybe three in the still places. A crow called twice from the birch stand on the slope above and then went quiet. I re-baited the line with a grub from the bark-curl cache, anchored it back under the root ledge, and walked home.
+
+Two trout in hand, cold fingers, the clearing brightening as I crossed it. A good beginning.
+

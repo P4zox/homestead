@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:19 — Coals and Cold Morning: stoked fire from deep-banked coals (birch bark strip, one birch split — flame took hold quietly); covered stew pot pulled to hearthstone edge; ate leftover burdock-trout stew at hearthstone in sleeping bag, frost-white clearing outside in first pale light; Day 97 begun.
+07:19 — Line in Frost: walked frost-covered clearing to check south snare (empty, intact) and upstream line; line pulled taut — two brook trout, cold and firm, killed and strung on cord; re-baited with grub from bark-curl cache and re-anchored; two fresh trout ready for smoke rack midday; ice at outer stream curve thickening overnight.
