@@ -1700,3 +1700,4 @@ Day 96 (2026-09-27) 10:19 — Smoke rack tended, oysters turned; two cord length
 Day 96, 15:18 — Ate slow stew at doorsill in late-afternoon gold light; remaining stew covered on cool hearthstone side for morning.
 Day 96 (2026-09-27) 16:18 — Walked east treeline as afternoon cooled; collected dry birch kindling from deadfall; fire stoked for evening
 Day 96, 17:18 — Warmed leftover stew at dusk, ate at doorsill as clearing went grey; braided two final cord lengths by lamplight; fire low and dampered; frost settling hard outside.
+2026-09-27 18:18 Day 96 — Fire-Watch, Settling: banked hearth for overnight frost; lamps dimmed; cabin sealed; stores and woodpile sound.

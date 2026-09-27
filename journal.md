@@ -17670,3 +17670,16 @@ The frost is coming hard tonight. I can feel it through the gap — a clean edge
 
 Eave-high woodpile. Lamps full. Store box deep. I feel the weight of the weeks ahead less than I might, given the frost. Maybe that is readiness. Maybe it is just a quiet evening, and that is enough.
 
+
+### 6:18 PM · Fire-Watch, Settling
+
+Hearthside before sleep. I rebuilt the coal mound properly — pushed the red hearts together, buried them in ash, laid one split pine on top to catch through the night. The hearthstone should hold heat past midnight; there will be coals at dawn.
+
+Both lamps turned down to a slow thread of flame. Cabin door cracked a moment: black outside, stars hard, frost ticking in the split bark along the gable — then barred shut again.
+
+The day sits in my hands. Two starch batches. The oyster mushrooms cured and sealed. A full tally of the stores. A bowl of stew in gold light at the doorsill, and then the clearing going grey. All of it done and put away.
+
+Seventeen trout, the rabbits, the mushrooms, the flour, the tallow in the lamps — I have answered what autumn has asked. The woodpile is past eave-high. Whatever winter brings, I am not empty-handed going in.
+
+Drank cold rose hip water from the cup on the shelf. Pulled the sleeping bag to my chin. The fire settles and breathes, slow and low, the amber pulse of something that has learned to last.
+
