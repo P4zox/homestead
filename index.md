@@ -1690,3 +1690,4 @@ Day 95, 21:00 — Night Embers: stirred from near-sleep to tend fire; added two 
 2026-09-26 Day 95 23:00 — Northeast, Still: final waking; touched starch sheets (dry and crisp); added one thin birch round; fire caught low; wind at west gable; Day 95 closes.
 Day 96, 27 Sep 2026, 06:18 — second starch batch dried and sealed; fire stoked from overnight coals at first frost-light of the new day
 Day 96, 07:00 — South snare reset (disturbed, fur caught, nothing taken); two trout pulled from upstream line, re-baited; first ice skim on stream edge; trout to cold box; frost lifting off clearing at sunrise.
+Day 96, 2026-09-27, 08:19 — Starch porridge at the doorsill: cattail starch with hazel paste and smoked oyster mushrooms; frost gone, cold blue sky, no wind, long cabin shadow on the ground.

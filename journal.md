@@ -17574,3 +17574,16 @@ On the way back I paused at the doorsill. The first real sun had just cleared th
 
 I stood there for a while. No reason not to.
 
+
+### 8:19 AM · Starch Porridge, Clear Sky
+
+The frost had nearly gone from the clearing by the time I set the clay pot on the hearthstone. I measured out a double-handful of cattail starch — the new batch, pale white and fine — and stirred it into a tin of cold stream water, then let it come up to a slow simmer. It thickens fast in the cold season; I kept the spoon moving.
+
+While it cooked I went to the cold box and peeled back a bark wrap — a few smoked oyster mushroom slices, golden-edged and faintly cedar-scented. Laid them over the porridge in the wide clay bowl. Stirred in a generous spoon of hazel paste until it melted into a pale cream.
+
+Sat at the doorsill with the bowl in both hands. The clearing was still. Not a leaf moving. The sky above the pines was a hard clear blue, the kind that only comes in late September, when the air has been washed clean and there is nothing left to filter the light. My breath came in small clouds and faded. The frost-smoke was long gone. The first thin ice on the stream had probably melted by now — I would check on the afternoon round.
+
+The porridge was warm all the way down. I ate it slowly, watching the light advance across the ground, noticing where the shadow of the cabin falls in the morning — that long shadow reaching northeast, a record of where the sun stands, written in shade on cold earth.
+
+This is the kind of morning that asks nothing of you except to be in it.
+
