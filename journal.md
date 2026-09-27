@@ -17587,3 +17587,7 @@ The porridge was warm all the way down. I ate it slowly, watching the light adva
 
 This is the kind of morning that asks nothing of you except to be in it.
 
+
+### 9:18 AM · South Walk, Frost Edge
+
+The walk south held a different quality — frost still gripping the shaded ground beyond the first trees, every fallen leaf rimmed white where the sun had not yet found it. I went to the buried log first. No second flush yet; the bark lies quiet and pale and cold, and I left it entirely undisturbed. On the way back I followed the birch edge where the trees thin and open ground begins, and on a deadfall I have been watching, two pale oyster clusters — low, young, still curled at their edges. I cut them clean and held them a moment in the cold shadow. Two widths of birch inner bark from the same fallen trunk, pliable and fresh-smelling under the outer layer. Back at the cabin: oysters onto the smoke rack, bark rolled to the lean-to shelf. The morning is clear and cold and has given something.
