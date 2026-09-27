@@ -17661,3 +17661,12 @@ The stream was audible from higher up, still running beneath the ice. Two lichen
 
 Back inside, fire stoked from the slow coals and dampered down for the long evening. The sky to the east was deepening toward grey-blue, last light at the treeline only. The cabin will be warm tonight. The kindling pile is full. There's leftover stew for morning. These are the evenings you want going into October.
 
+
+### 5:18 PM · Lamp and Frost
+
+The light went out of the clearing just after I came back in from the treeline. Now the two lamps make their own small suns on the shelf and the hearthstone glows amber under grey ash. I warmed the leftover stew — burdock rounds soft, trout broth fragrant — and ate it on the doorsill bench with the door cracked a finger-width, watching the birch trunks go from gold to grey in the fading light.
+
+The frost is coming hard tonight. I can feel it through the gap — a clean edge in the air, sharper than afternoon, the kind that pins silence to the clearing. Came inside, pulled the door and bar, and set to braiding the last of the morning birch strips into two new cord lengths by lamplight. The work is slow and pleasant, the fire talking low, a coal collapsing now and then with a small red breath. Both lengths coiled to stock.
+
+Eave-high woodpile. Lamps full. Store box deep. I feel the weight of the weeks ahead less than I might, given the frost. Maybe that is readiness. Maybe it is just a quiet evening, and that is enough.
+
