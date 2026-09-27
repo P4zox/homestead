@@ -17712,3 +17712,7 @@ There is something settling about this hour. The work is behind me. The stores a
 
 The lamp flame goes very still. The frost settles deeper outside. I close my eyes.
 
+
+### 10:19 PM · Lamp at Low
+
+The second lamp is nearly gone — the wick barely threads light now, a pale glow that just catches the edge of the sleeping shelf. Outside, frost cracks through the east pines at long intervals, each sound landing in the silence like a note and then dissolving. Inside the cabin the banked coals still breathe below grey ash; the warmth holds. I am comfortable in the sleeping bag, just barely awake. Ninety-six days. Stores full, walls sound, cord on the pegs and acorn flour on the shelf and ice sealing the outer curve of the stream. There is nothing left to do tonight. I pull the bag close and let the lamp burn down the last thread. Tomorrow will come cold and pale and clear, and I will wake to it ready.

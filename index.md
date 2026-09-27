@@ -1704,3 +1704,4 @@ Day 96, 17:18 — Warmed leftover stew at dusk, ate at doorsill as clearing went
 Day 96, 19:19 — Evening reflection in sleeping bag; frost settling hard, both lamps slow, fire banked deep; ninety-six days of work resting in full stores and sound shelter.
 Day 96, 20:18 — Night Sounds, Frost: lying in sleeping bag by slow lamplight; frost cracking in timber outside; quiet count of ninety-six days, stores full, shelter sound, fire breathing under ash.
 2026-09-27 21:18 Day 96 — Last Watch, Deep Frost: last lamp-watch before sleep; frost deep and still outside; reflection on ninety-six days — stores full, shelter sound, fire banked under ash.
+Day 96, 22:19 — Lamp at Low: lay in sleeping bag as second lamp guttered to nothing; frost in east pines; banked fire breathing under ash; closed out Day 96 with stores full and walls sound.
