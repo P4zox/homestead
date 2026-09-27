@@ -17628,3 +17628,14 @@ I cut a small handful of watercress from the alder-root tangle — stems still c
 
 The clearing was very still when I came up the slope. The raven had returned and was sitting the ridgepole now, not the smoke rack. It watched me all the way to the door before lifting off into the cold blue.
 
+
+### 2:19 PM · Afternoon Pot, Short Light
+
+Mid-afternoon and the cabin has been quiet since I came back from the stream. The sky is still that cold pale blue — no cloud, no movement — and the light has that September quality of coming in flat and slant through the east gable. Warmer in here than out, just, and I am not in a hurry to be outside again.
+
+I set the clay pot on the hearthstone over slow coals and started a stew. Burdock rounds from the cold box, sliced thin and dropped in first — they take the longest. Two trout next, the freshest pair from today, split open and laid in. A handful of watercress torn in from what I just cut at the alder bend. A small pinch of dried yarrow for the flavor and for the warmth of it. I pushed two pieces of birch under the coals and left it to work.
+
+The light is coming in low now, throwing the west wall into gold and leaving the sleeping corner in shadow. I sat on the doorsill bench for a while with the door half open, watching the clearing go still. The raven did not return. Nothing moved at the treeline. The frost smoke is long gone; the clearing is just ground now, pale and dry, with a strip of yellow birch leaves where the wind laid them this morning.
+
+The pot smells good. Burdock going soft, a little earthiness, the trout starting to open. I will let it go until the light is nearly gone and eat while it is still hot. The tallow lamps are both full. The firewood is stacked past eave-high. The stores are tallied and sound. There is not a thing to worry about in this afternoon, and I am trying to simply feel that.
+
