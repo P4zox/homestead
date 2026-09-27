@@ -17716,3 +17716,10 @@ The lamp flame goes very still. The frost settles deeper outside. I close my eye
 ### 10:19 PM · Lamp at Low
 
 The second lamp is nearly gone — the wick barely threads light now, a pale glow that just catches the edge of the sleeping shelf. Outside, frost cracks through the east pines at long intervals, each sound landing in the silence like a note and then dissolving. Inside the cabin the banked coals still breathe below grey ash; the warmth holds. I am comfortable in the sleeping bag, just barely awake. Ninety-six days. Stores full, walls sound, cord on the pegs and acorn flour on the shelf and ice sealing the outer curve of the stream. There is nothing left to do tonight. I pull the bag close and let the lamp burn down the last thread. Tomorrow will come cold and pale and clear, and I will wake to it ready.
+
+### 11:00 PM · Into the Dark
+
+Both lamps have guttered out. The cabin is fully dark now — only the faint red breath through the ash where the coals sit banked and slow. Frost still working in the east pines in small tight cracks, coming at intervals. The sleeping bag is warm enough that I am not thinking about the cold outside anymore, only hearing it.
+
+Day ninety-six ends in the dark and the quiet. Stores full. Shelter sound. Two lamp wicks to cut fresh in the morning — that will be the first thing. But sleep is already here, and I am letting it come.
+

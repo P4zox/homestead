@@ -16,3 +16,4 @@
 20:18 — Night Sounds, Frost: lying in sleeping bag by slow lamplight; frost cracking in east pines outside; quiet reflection on ninety-six days — shelter sound, stores full, fire breathing under ash.
 21:18 — Last Watch, Deep Frost: last lamp-watch in sleeping bag; frost settled deep and hard outside; quiet reflection on ninety-six days — stores full, shelter sound, fire banked.
 22:19 — Lamp at Low: lay in sleeping bag as second lamp guttered to its last thread; frost cracking through east pines at intervals; banked coals breathing below grey ash; Day 96 closed with stores full and shelter sound.
+23:00 — Into the Dark: both lamps out; lying in sleeping bag in full dark cabin; frost ticking in east pines; banked coals breathing under grey ash; sleep arrived fully.
