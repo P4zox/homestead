@@ -17692,3 +17692,14 @@ I have been lying here with my eyes open, going over the day in my head. The rav
 
 The lamps will last till I sleep. The fire will carry through. Tomorrow will come cold and clear, and I will rise into it.
 
+
+### 8:18 PM · Night Sounds, Frost
+
+The cabin has settled around me. Both lamps burn at a slow thread, throwing just enough amber to see the ridgepole, the rough wall logs, the dark shape of the peg rack by the door. The fire is a low mound under ash — I can hear it breathing sometimes, a small shift of coals, and once in a while a slow tick from the heat in the logs around the hearth.
+
+Outside, the frost is doing its work. I can hear it in the timber — tiny contractions, the occasional far creak from a tree in the east pines as the temperature drops hard. There is no wind at all. The silence is the particular silence of deep cold: total and crystalline, the kind where a raven on the ridgepole at noon felt important just because of the noise it made.
+
+Ninety-six days. I have been turning that number over since I lay down. The first week I did not know if the shelter would hold. I remember the exact weight of the flint in my hand the first time I struck a fire here. Now the walls are full courses, the roof double-barked, the gables daubed and sealed. The woodpile is past eave-high. The stores are fuller than I thought possible when I stood here at the start.
+
+I am going to sleep well tonight. That is not a small thing.
+

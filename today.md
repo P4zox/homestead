@@ -13,3 +13,4 @@
 17:18 — Lamp and Frost: warmed leftover stew, ate at doorsill as light faded and clearing went grey; braided two final cord lengths from morning birch strips by lamplight; fire dampered low for long night; frost setting hard outside.
 18:18 — Fire-Watch, Settling: banked coal mound in ash with one pine split; both lamps to slow thread; cabin barred for deep frost night; sleeping bag pulled close.
 19:19 — Frost, Lamp, and Quiet: lying in sleeping bag by slow lamplight; frost settling hard outside, fire banked under thick ash; quiet evening reflection on ninety-six days of accumulated work — stores full, shelter sound.
+20:18 — Night Sounds, Frost: lying in sleeping bag by slow lamplight; frost cracking in east pines outside; quiet reflection on ninety-six days — shelter sound, stores full, fire breathing under ash.
