@@ -17650,3 +17650,14 @@ I ate slowly. There is something I have stopped trying to name in a meal like th
 
 The remaining stew covered and moved to the cool side of the hearthstone. Good again in the morning.
 
+
+### 4:18 PM · Treeline at Dusk Edge
+
+The afternoon is cooling fast. After the stew, the clearing had gone quiet and the light had shifted — that low-angled gold that means there are only a couple of hours before full dark. I pulled on my jerkin and walked the east treeline while the light was still good for it.
+
+The birch trunks were almost white at this hour, bark catching the slanted light cleanly. I walked up the slope past where it steepens toward the pines and found three dry birch branches from the old deadfall I marked months back — snapped clean, dry all the way through, no sign of rot. Picked them up and kept walking. The cold was back in the air with a sharpness I had not felt at midday — every exhale visible, the kind of chill that sits in the back of your nose. Frost already forming in the hollows of the root tangles at the slope base.
+
+The stream was audible from higher up, still running beneath the ice. Two lichen-covered snag limbs, perfectly dry. I carried the lot back and added it to the kindling pile at the cabin wall, tucked under the eave out of any night moisture.
+
+Back inside, fire stoked from the slow coals and dampered down for the long evening. The sky to the east was deepening toward grey-blue, last light at the treeline only. The cabin will be warm tonight. The kindling pile is full. There's leftover stew for morning. These are the evenings you want going into October.
+
