@@ -1694,3 +1694,4 @@ Day 96, 2026-09-27, 08:19 — Starch porridge at the doorsill: cattail starch wi
 2026-09-27 Day 96 09:18 — South Walk, Frost Edge: buried log quiet (no flush yet); two pale oyster clusters and birch inner bark cut from south birch deadfall; oysters curing on smoke rack.
 Day 96 (2026-09-27) 10:19 — Smoke rack tended, oysters turned; two cord lengths braided from morning birch bark.
 2026-09-27 11:18 Day 96 — Oyster clusters lifted from smoke rack after two-hour cure; wrapped in dock leaves and birch bark, packed to cold box — fifth smoked oyster batch complete.
+2026-09-27 12:18 Day 96 — Counting the Store: midday rest; rose hip tea at doorsill; tallied winter stores mentally — seventeen trout, five oyster batches, twelve bark packages, acorn flour, two starch batches, woodpile past eave-high; raven on empty smoke rack post; clearing still, cold blue sky, full pantry confirmed

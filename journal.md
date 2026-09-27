@@ -17604,3 +17604,16 @@ I trimmed the tough base plugs from both clusters and wrapped each in a double l
 
 Ate one dried hawthorn berry from the supply shelf on the way back. Just for sweetness. The clearing is very still.
 
+
+### 12:18 PM · Counting the Store
+
+The smoke rack stands empty in the cold noon light. I have been moving since before dawn — starch sheets at the hearthstone, the snare line in the frost, porridge at the doorsill, the south walk, cord braiding, and finally lifting those oyster clusters and sealing the bark wrapping. By the time that last package settled into the cold box, something in me wanted to simply stop.
+
+I brewed rose hip tea from a pinch of the supply shelf stock, drew the doorsill bench close to the threshold, and sat. The clearing is completely still. The sky has gone that particular deep blue you only see in autumn when there is no haze at all — everything sharp-edged and clean in the overhead light. The birch trunks on the slope look very white against the dark pines behind them.
+
+I spent the sitting time doing arithmetic in my head. Seventeen trout in the cold box. Three raw rabbits, three smoked ones, a hare with three quarters remaining. Five batches of oyster mushrooms, hen-of-the-woods, honey mushrooms, fan-caps, wood ears, log-caps. Twelve sealed bark packages on the supply shelf. Acorn flour, two full starch batches, cattail cakes. Garlic on the cellar rail. Rose hip, hawthorn haw, sloe syrup. Two lamps burning. Woodpile past eave-high.
+
+I do not know if it is enough. Winter in this place does not announce its worst days in advance. But sitting here in the midday quiet with the numbers running through my mind, I feel something close to readiness. Not certainty. Just that I have done what I can, and what I can has been considerable.
+
+The raven called again from the east pines just now — same bird as this morning, I think, working this part of the clearing. It landed on the smoke rack post for a moment, tilted its head at the empty rack, and lifted off into the cold blue sky.
+
