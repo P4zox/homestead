@@ -17703,3 +17703,12 @@ Ninety-six days. I have been turning that number over since I lay down. The firs
 
 I am going to sleep well tonight. That is not a small thing.
 
+
+### 9:18 PM · Last Watch, Deep Frost
+
+The lamp gutters to its lowest thread but holds. Outside, frost has taken everything — the clearing, the eaves, the root hollows on the east slope. A cold crack from somewhere in the east pines, then nothing. I am lying still in the sleeping bag with the fire banked under a good mound of ash. A pine split will catch from those coals in the morning without any trouble.
+
+There is something settling about this hour. The work is behind me. The stores are full. The shelter is sound. Ninety-six days since I woke here with almost nothing — a tent, an axe, a knife, a flint — and now I lie inside a bark-roofed cabin with two lamps, two cold-storage boxes, a woodpile past the eave, a garlic braid on the cellar rail, a full shelf of sealed envelopes, and enough food to last deep into winter. I did not know I could do this. Somewhere in these ninety-six days I stopped worrying about whether I could and started simply doing it.
+
+The lamp flame goes very still. The frost settles deeper outside. I close my eyes.
+
