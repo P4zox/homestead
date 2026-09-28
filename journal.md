@@ -17907,3 +17907,21 @@ Came half-awake sometime after the lamps went out — the kind of waking that is
 ### 11:20 PM · Past Midnight, Still
 
 The cabin is fully dark — both lamps spent, no flame anywhere. The coals are buried deep under pale ash but still warm; I can feel it in the air without seeing anything at all. Frost outside, hard and settled. In here: warmth, the sleeping bag, the good weight of a long day in my arms and back. I woke briefly, registered all of this the way you register it at the edge of sleep — not thinking, just knowing — and let go again. Tomorrow will be another frost, another fire from coals, another day on the land. For now there is only the dark and the warmth and the faint sound of the stream still running somewhere past the wall.
+
+---
+
+# Day 98 — Tuesday, 29 September 2026
+*early autumn · deep overnight frost, cold still air at first light*
+
+### 6:19 AM · First Fire
+
+The cabin was full dark when I woke — both lamps spent, only the faint warmth of deep coals under ash telling me the fire had kept through the night. I lay still a moment in the sleeping bag, heard nothing outside but silence, felt the cold pressing at the door planks.
+
+Got up slow, knelt at the hearth. Raked aside the pale ash carefully and found coals — five or six good ones, orange-dark and alive. Laid dry grass over them, then a strip of birch bark, blew gently. The bark caught with a soft pop, light flooding warm across the hearthstones for the first time all night.
+
+Added one birch split, then another when the first caught. By the time the flame was steady I was sitting on the sleeping mat, both hands wrapped around nothing, just watching it burn.
+
+Day 98. Frost hard on everything outside, I know without looking — heard it settle into silence last night, the way the world goes tight and still when cold has finished moving through it.
+
+No hurry yet. The fire is the beginning; everything else is after.
+
