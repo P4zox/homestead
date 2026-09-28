@@ -17761,3 +17761,14 @@ Back inside I took the two trout from their dock-wrap — firm, cold, clean from
 
 I'll check them at midday. By afternoon they should be golden and set.
 
+
+### 9:18 AM · Midmorning Smoke
+
+I went out to check the rack around half past nine. The birch-split fire had burned down to a steady bed of coals with one tongue of flame still working at a fresh split — good. I added two more lengths and settled them crosswise so the smoke would pull up through evenly. The trout have been hanging about an hour now and they are already different: the cut edges have opened a little in the heat and turned pale copper where the smoke touches deepest, the skin tightening across the flanks. That shift — from raw silver to this first amber — is always a small relief. They are taking the cure well.
+
+The cold this morning has not lifted. The frost is still white along the eave shadow and at the far edge of the clearing where the ground stays in shade until midmorning. No wind at all. The smoke from the rack climbs straight up and disperses into the cold blue sky. It smells of birch and fish and clean cold, which is a particular smell I have come to recognize as this place in this season.
+
+Back inside I settled at the hearthstone and braided cord — two-ply lengths from the bark stock I have been splitting down. I can hear the rack fire from here through the half-open door, a low steady pop every few minutes as a split settles. That sound is enough to know the smoke is running. There is not much else to do at this hour but keep the hands useful while the fire works. The pot on the hearthstone is warm; I filled it with water from the stream jug and let it come to a slow simmer, not really for anything yet, just to have something warm in the cabin.
+
+Midday is still a few hours off. The trout will be ready to move to cold storage by then.
+
