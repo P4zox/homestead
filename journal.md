@@ -17805,3 +17805,18 @@ The broth was clean and deep. I drank it from the wide bowl, spoonfuls slow, and
 
 It is mid-autumn, and the store is sound, and there is nothing urgent right now. I am letting the afternoon come in its own time.
 
+
+### 1:20 PM · Mulching the East Bench
+
+The afternoon opened clear and cold after broth. The cabin was warm and still, and I felt the pull of that doorsill rest — the kind that could stretch into evening if I let it. Instead I gathered the wide basket and the hazel stick and walked out to the east bench.
+
+The second plot lay dark and open in the pale afternoon light — ten rows turned, the loam loose and fine from weeks of work. Good soil, hard-won. But frost like this morning's, coming nightly, will work against it over winter: crusting the surface, heaving the clods, letting the cold strip out whatever warmth the turning captured. A layer of leaves and dead bracken over the surface could hold some of that in.
+
+I spent the hour raking deadfall leaves from under the birch stand — amber and gold, still dry and crackled in the frost-sharp air — and carrying armloads down to the bench. Six trips, seven. Spread them thick over the second plot, then thinner over the first where the garlic is set and the nettle crowns are dormant. Pressed down the edges with my boot so they would not catch the wind and blow clear overnight.
+
+The garlic strip shows no sign of trouble. The sorrel at the shadow edge is still low and green. The mint border stones hold everything in. I left the nettles' dried stalks standing at the edge of their rows — they will hold the leaf mulch in place and break down slowly over winter.
+
+The birch stand was still when I finished. One last amber leaf let go and spun down while I watched. The sky behind the ridge had gone that particular pale gold of late afternoon in early autumn, and the air smelled like cold stone and wet leaf.
+
+The plots are as ready as I can make them for whatever comes next.
+

@@ -1713,3 +1713,4 @@ Day 97, 09:18 — Tended smoke-rack fire (two birch splits added); trout at one-
 2026-09-28 Day 97 10:19 — Tended smoke rack (two-hour mark, trout flanks gold, coal bed steady); hot water at hearthstone; cord braiding; trout to finish curing by early afternoon.
 2026-09-28 11:18 — Day 97 — Smoke rack complete; two Day 97 trout cured and sealed in cold box; store sound.
 Day 97 (2026-09-28) 12:19 — Noon Broth, Clear Cold: midday meal of smoked mushroom and trout broth simmered at hearthstone; doorsill rest in pale autumn sun; store sound, afternoon open.
+Day 97, 13:20 — Mulched east bench garden plots (dry deadfall leaves, both plots, winter frost protection).
