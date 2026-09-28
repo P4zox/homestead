@@ -17833,3 +17833,14 @@ The upstream line is taut. I ease it up carefully and find one brook trout — s
 
 One more fish in the cold box. The afternoon light is low and flat on the clearing, the mulched plots dark against the pale grass. Everything feels ready for what comes next.
 
+
+### 3:20 PM · Stones and Larvae
+
+The afternoon light comes in at a flat gold angle by the time I pull on the leather jerkin and mittens and head down to the south bank. The air is cold and very still — the kind of still that tells you the frost will arrive early tonight, before full dark.
+
+The south bank bends gently here, where the current slows and flat stones have settled thick along the margin. I worked the edge, lifting each stone that had any weight to it, checking the wet underside before setting it downstream so the silt would not cloud the water I was working in. Under the third stone: a cluster of stonefly larvae, small and pale-brown, sluggish with the cold. I gathered maybe a dozen into a folded bark curl and tucked them into the belt pouch. Under two more stones I found caddisfly cases — each one a tiny tube of grit and pebble with a larva curled inside. Fragile to handle but serviceable bait, and they keep in the cold. Six of those, eased into a second curl.
+
+Not a summer bank full of grubs, but enough. The upstream line got fresh larvae on the hook before I walked back to the cabin. The center channel is still open, the line can still fish, the bait problem is for now answered.
+
+Coming back up the slope in the last amber light, I looked at the east bench — the mulched plots flat and settled under their leaf cover, the nettle stalks standing quiet like markers. Everything ready and put down for winter. I felt something simple and adequate about the afternoon. Stone-turned a cold bank, found what I needed, re-baited the line. Sometimes the work is exactly that small, and exactly enough.
+
