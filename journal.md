@@ -17885,3 +17885,16 @@ The day was good — I know that clearly, the kind of knowing that settles in yo
 
 Sleep will not be long coming.
 
+
+### 9:19 PM · Before the Dark
+
+The birch peg is done now — smooth in the hand, notch clean. I did not mean to stay awake this long, but there is a kind of pleasure in finishing a small thing completely. I set it on the supply shelf beside the lamps and sat a moment just looking at the cabin: coals banked deep under pale ash, door latch dropped, bark walls warm and amber in the tallow light.
+
+Both lamps are burning low. The tallow is nearly spent. I left them to gutter rather than blow them out — the flame has been company, and it will go when it is ready.
+
+Outside: nothing. No wind, no creak, only the cold stillness of hard frost settling in. Inside: woodsmoke, dried grass, the faint resin smell of pine walls. Everything is where it should be. The cold box is full. The firewood will last. The door holds.
+
+I lay down on the cattail mat and pulled the sleeping bag close. The lamps throw a small amber circle on the ceiling, then less, then barely. The dark comes in from the edges.
+
+This is how the good days end.
+

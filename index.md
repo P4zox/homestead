@@ -1720,3 +1720,4 @@ Day 97, 15:20 — Turned stones on south bank; collected stonefly larvae and cad
 Day 97 · 5:18 PM — Lit both lamps inside; broth of smoked trout flakes and rose hip paste simmered at hearthstone; deep coals banked under ash; frost settling on bench planks outside.
 2026-09-28 Day 97 19:20 — Ate evening broth by lamplight; whittled a birch peg from offcut; coals banked; settling in for sleep.
 2026-09-28 Day 97 20:20 — Evening by lamplight; turned the whittled birch peg by hearthglow; frost settling outside, cabin warm; sleep coming.
+2026-09-28 Day 97 21:19 — Before the Dark: lamps guttering low, birch peg finished and shelved, coals banked deep; lay down on cattail mat, frost settling outside, sleep arriving easily at end of a full day.
