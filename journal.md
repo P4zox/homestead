@@ -17792,3 +17792,16 @@ When they had cooled I wrapped each one in a broad dock-leaf layer, then bark, a
 
 I came back inside and sat by the hearthstone without adding anything to the fire. The morning work is done. Cold still air, frost almost gone from open ground, smoke gone. A quiet end to a working morning. The afternoon is open.
 
+
+### 12:19 PM · Noon Broth, Clear Cold
+
+The smoke rack fire is cold ash now, and the two cured trout are sealed in the cold box alongside fifteen others. The morning's work sits finished; the afternoon opens.
+
+I filled the clay pot at the stream — water coming in clear and sharp-cold, the ice shelf at the outer curve broader now, pale blue where frost set overnight. Back at the hearthstone I laid a small fire: bark curl, one birch split, a handful of dry kindling. Flame took easy.
+
+Into the pot went a pinch of smoked oyster mushroom, two strips of smoked log-cap, and a few flakes pulled from one of the older cured trout. Nothing more. The cabin warmed slowly as the pot came to simmer. I sat on the doorsill bench and watched the clearing through the open door — frost-burned grass silver at the treeline, the birches fully amber now, sky an even pale blue with no cloud.
+
+The broth was clean and deep. I drank it from the wide bowl, spoonfuls slow, and did not move for a long time after.
+
+It is mid-autumn, and the store is sound, and there is nothing urgent right now. I am letting the afternoon come in its own time.
+
