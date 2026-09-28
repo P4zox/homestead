@@ -1711,3 +1711,4 @@ Day 97 (2026-09-28) 07:19 — Upstream line checked in hard frost; two brook tro
 2026-09-28 08:18 — Day 97 — Scored two trout and lit smoke-rack fire; fish hung on cord over coals to cure through midday.
 Day 97, 09:18 — Tended smoke-rack fire (two birch splits added); trout at one-hour mark, cut edges coppering; cord braiding at hearthstone; cold still morning.
 2026-09-28 Day 97 10:19 — Tended smoke rack (two-hour mark, trout flanks gold, coal bed steady); hot water at hearthstone; cord braiding; trout to finish curing by early afternoon.
+2026-09-28 11:18 — Day 97 — Smoke rack complete; two Day 97 trout cured and sealed in cold box; store sound.

@@ -17781,3 +17781,14 @@ The clearing is half-thawed on the open ground but the tree shadow along the nor
 
 Pulled on the jerkin, settled at the hearthstone with the cord work, the water pot warm beside me. It came just shy of steaming while I braided — I pulled a cup of hot water, plain, and drank it slow. A small thing, but warmth moving down through the chest on a cold morning is not nothing. The trout should finish curing by early afternoon. When they come down I'll seal them in bark cord and move them to the cold box: two more for the winter count, the store growing a little deeper with each fire.
 
+
+### 11:18 AM · Smoke Done, Trout Sealed
+
+Three hours on the rack. I went out around eleven and the trout were finished — flanks old copper, skin tightened and slightly tacky, flesh firm when I pressed with a finger. I lifted both off the bark cord and laid them on the hearthstone edge to cool in the still cold air.
+
+While they rested I let the fire go: one last birch split on the coals, then nothing. The smoke thinned and drifted off through the pines. For a minute the clearing smelled of birch and cured fish, then just cold autumn air again.
+
+When they had cooled I wrapped each one in a broad dock-leaf layer, then bark, and moved them to the main cold box. Fifteen trout now, the Day 97 pair among them. The tally from yesterday still holds — the store is sound.
+
+I came back inside and sat by the hearthstone without adding anything to the fire. The morning work is done. Cold still air, frost almost gone from open ground, smoke gone. A quiet end to a working morning. The afternoon is open.
+
