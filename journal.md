@@ -17898,3 +17898,8 @@ I lay down on the cattail mat and pulled the sleeping bag close. The lamps throw
 
 This is how the good days end.
 
+
+### 10:20 PM · Dark and Warm
+
+Came half-awake sometime after the lamps went out — the kind of waking that is not quite waking, just a pause in the dark with full consciousness settling in for a moment before sleep remembers you. The cabin was still warm. The coals must have held their heat longer than I expected; there was no sharp cold anywhere inside, only the warmth I had laid in before dark. Frost was pressing against the bark walls — I could feel the silence it makes, the way a hard-frosted night has a quality of held breath that waking winter does not. Both lamps spent and cold. The dark total and quiet. I lay there a moment taking stock of nothing in particular — warm shelter, full belly, the store sound — then turned over on the cattail mat and let sleep have me again.
+
