@@ -17772,3 +17772,12 @@ Back inside I settled at the hearthstone and braided cord — two-ply lengths fr
 
 Midday is still a few hours off. The trout will be ready to move to cold storage by then.
 
+
+### 10:19 AM · Trout Turning Gold
+
+Walked out to the smoke rack around ten with another birch split tucked under my arm. The trout have been hanging two hours now — the scored flanks shifted from copper-pale to a deeper gold at the edges, skin pulling tight across the back. The smoke still climbs straight in the cold still air: no wind to disturb it. I added one split to the coal bed, keeping it steady without raising a flare, and crouched there a moment just watching the smoke curl up into the birch canopy above.
+
+The clearing is half-thawed on the open ground but the tree shadow along the north face still holds white frost, stiff as salt. Strange how sound changes in cold air — the stream sounds further than it is, a trick autumn always plays. I stood until the chill reminded me there was a hearthstone to sit at, then went back in.
+
+Pulled on the jerkin, settled at the hearthstone with the cord work, the water pot warm beside me. It came just shy of steaming while I braided — I pulled a cup of hot water, plain, and drank it slow. A small thing, but warmth moving down through the chest on a cold morning is not nothing. The trout should finish curing by early afternoon. When they come down I'll seal them in bark cord and move them to the cold box: two more for the winter count, the store growing a little deeper with each fire.
+
