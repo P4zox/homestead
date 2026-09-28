@@ -17864,3 +17864,13 @@ I sit on the sleeping mat with my back against the south wall, close enough to t
 
 The store is full. The line is re-baited and set. The mulch is down on the east bench. There is a particular ease that comes from having done the season's last outdoor work — knowing that tomorrow might be quiet work by lamplight, careful indoor work. I drink the broth slowly, spoon by spoon, watching the lamp flame hold steady on its shelf. Outside, frost is already settling white on the bench planks. I won't go back out tonight.
 
+
+### 7:20 PM · Broth and Lampglow
+
+The broth waited warm at the edge of the hearth when I finally sat down with it — smoked trout flakes gone soft in the heat, rose hip paste dissolved to a tangy ribbon at the surface, dried yarrow giving it something almost medicinal. I ate slowly, bowl in both hands, both lamps burning steady on shelf and bench. The cabin was quiet. Outside, frost was settling hard again on the bench planks; the latch bar sat firm in its keeper.
+
+The day was long in the good way. By noon the trout were smoked and sealed; by midday I had eaten a bowl of broth and rested; by afternoon the east bench plots were mulched and ready for whatever comes. A fresh trout from the afternoon line. Bait restocked from the south bank stones. The buried log checked — no second flush yet, but alive, waiting. The store is full and sound.
+
+After eating I picked up a small birch offcut from the splitting pile and whittled for a while — no urgent purpose, just to keep my hands moving while the coals settled. Notched one end into a smooth hanging peg, tapered the other, ran my thumb along the grain. It felt good to make a thing for no particular hour.
+
+The coals are deep and banked. Both lamps will last another while before they need tending. I think sleep will find me first.

@@ -1718,3 +1718,4 @@ Day 97, 13:20 — Mulched east bench garden plots (dry deadfall leaves, both plo
 Day 97, 15:20 — Turned stones on south bank; collected stonefly larvae and caddisfly cases for bait; upstream line re-baited before frost.
 2026-09-28 Day 97, 4:00 PM — checked buried log (no flush yet; mycelium alive); back to cabin, fire banked, settling before evening frost
 Day 97 · 5:18 PM — Lit both lamps inside; broth of smoked trout flakes and rose hip paste simmered at hearthstone; deep coals banked under ash; frost settling on bench planks outside.
+2026-09-28 Day 97 19:20 — Ate evening broth by lamplight; whittled a birch peg from offcut; coals banked; settling in for sleep.
