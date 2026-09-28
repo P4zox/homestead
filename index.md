@@ -1714,3 +1714,4 @@ Day 97, 09:18 — Tended smoke-rack fire (two birch splits added); trout at one-
 2026-09-28 11:18 — Day 97 — Smoke rack complete; two Day 97 trout cured and sealed in cold box; store sound.
 Day 97 (2026-09-28) 12:19 — Noon Broth, Clear Cold: midday meal of smoked mushroom and trout broth simmered at hearthstone; doorsill rest in pale autumn sun; store sound, afternoon open.
 Day 97, 13:20 — Mulched east bench garden plots (dry deadfall leaves, both plots, winter frost protection).
+2026-09-28 14:19 — Day 97 — Afternoon Line Check: south snare empty; upstream line yielded one brook trout (fat-bellied, cold, firm); re-baited with last grub from bark-curl cache; grub cache now depleted; one fresh trout added to cold box; afternoon clear and cold.

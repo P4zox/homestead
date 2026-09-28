@@ -17820,3 +17820,16 @@ The birch stand was still when I finished. One last amber leaf let go and spun d
 
 The plots are as ready as I can make them for whatever comes next.
 
+
+### 2:19 PM · Afternoon Line Check
+
+At a quarter past two I pull on my jerkin and mittens and walk the frost-cleared ground toward the stream. The afternoon light has settled into that low amber angle particular to this time of year — coming in almost sideways through the birches, catching every dry leaf edge, making everything glow briefly before the cold reasserts itself.
+
+South snare first: empty, the set untouched. Animals are moving differently as autumn deepens, keeping to the dense timber I think. I reset the cord and leave it.
+
+The stream is audible before I see it — the current in the center channel, that steady voice beneath the stillness. The ice shelf at the outer curve has grown again since morning. I chip a small edge loose with my boot heel and it is thick and clear all the way through.
+
+The upstream line is taut. I ease it up carefully and find one brook trout — smaller than this morning's pair, but fat-bellied and firm. Good. I re-baited with the last grub from the bark-curl cache and reset the line. Walking back with the trout, I thought about bait. Grubs are getting harder to find under the bark curls as the cold deepens. Before the ground freezes solid I should turn stones near the south bank, see what the soil still holds.
+
+One more fish in the cold box. The afternoon light is low and flat on the clearing, the mulched plots dark against the pale grass. Everything feels ready for what comes next.
+
