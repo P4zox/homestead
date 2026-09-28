@@ -17855,3 +17855,12 @@ Covered it back and stood in the amber light for a moment. The birches were moti
 
 Seventeen trout in the cold box. The line re-baited and waiting. The garden under its leaf mulch. Everything settling into its place before dark.
 
+
+### 5:18 PM · Evening Fire, First Lamp
+
+The clearing goes grey-gold at the edges as I settle in for the night. The cold comes fast now — that specific autumn-to-winter sharpness that means tonight's frost will be hard. I bring both lamps inside and light the first from the hearthstone coals. The clay pot has been simmering a simple broth — smoked trout flakes, a spoonful of rose hip paste for warmth and acid, dried yarrow pinched in. The lid holds; steam curls at the rim.
+
+I sit on the sleeping mat with my back against the south wall, close enough to the hearth to feel the flush on my face. The cabin is small enough that one fire and two lamps make it genuinely warm, and at the end of a full day — cold and labor and good work done — that warmth means more than warmth alone. I bank good deep coals before settling, ash-covered and patient. They will hold through the night.
+
+The store is full. The line is re-baited and set. The mulch is down on the east bench. There is a particular ease that comes from having done the season's last outdoor work — knowing that tomorrow might be quiet work by lamplight, careful indoor work. I drink the broth slowly, spoon by spoon, watching the lamp flame hold steady on its shelf. Outside, frost is already settling white on the bench planks. I won't go back out tonight.
+
