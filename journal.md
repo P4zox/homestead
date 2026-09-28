@@ -17874,3 +17874,14 @@ The day was long in the good way. By noon the trout were smoked and sealed; by m
 After eating I picked up a small birch offcut from the splitting pile and whittled for a while — no urgent purpose, just to keep my hands moving while the coals settled. Notched one end into a smooth hanging peg, tapered the other, ran my thumb along the grain. It felt good to make a thing for no particular hour.
 
 The coals are deep and banked. Both lamps will last another while before they need tending. I think sleep will find me first.
+
+### 8:20 PM · Lamplight, Still
+
+The cabin holds its warmth well into the evening. Both lamps burn low and steady on the shelf, casting warm pools against the log walls. The coals are banked under ash — I can feel the heat without seeing flame. Outside, frost has settled again; I know without looking from that particular silence after the last bird call, and the cold smell that seeps in at the door crack.
+
+I am sitting on the sleeping mat with my back against the log wall, the small birch peg in my hand. I have been turning it over, working the notched end a little more cleanly with the knife edge. It might seat a gable lashing come spring if anything loosens, or serve as a spare toggle for the cold box lid. Either way, whittling by lamplight is its own reward.
+
+The day was good — I know that clearly, the kind of knowing that settles in your chest when the hours were not wasted. Trout smoked and sealed. East bench mulched for winter. New bait found at the south stones. Store sound. Now this: just the lamp, the warmth, one small task turning over in the hands.
+
+Sleep will not be long coming.
+
