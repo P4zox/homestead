@@ -1708,3 +1708,4 @@ Day 96, 22:19 — Lamp at Low: lay in sleeping bag as second lamp guttered to no
 Day 96, 11:00 PM — Into the Dark: both lamps out, cabin fully dark, frost ticking in east pines, banked coals under grey ash, sleep arrived.
 2026-09-28 Day 97 06:19 — Coals and Cold Morning: woke Day 97, stoked fire from banked coals with birch bark and split, warmed and ate leftover burdock-trout stew at hearthstone; frost deep on clearing, pale light at treeline; new week begun.
 Day 97 (2026-09-28) 07:19 — Upstream line checked in hard frost; two brook trout caught, line re-baited, trout strung for smoking later.
+2026-09-28 08:18 — Day 97 — Scored two trout and lit smoke-rack fire; fish hung on cord over coals to cure through midday.

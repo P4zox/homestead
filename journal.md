@@ -17750,3 +17750,14 @@ I stood at the stream edge a moment longer than needed. The current ran freely i
 
 Two trout in hand, cold fingers, the clearing brightening as I crossed it. A good beginning.
 
+
+### 8:18 AM · Fire Lit, Trout Scored
+
+The frost had not lost its grip when I stepped outside to fetch wood for the smoke-rack fire. My breath came in steady plumes; the clearing still white-pale in the flat morning light, the pine shadows long and thin. I took four birch splits from the eave stack and carried them south to the rack, its four Y-uprights dark with old smoke.
+
+I knocked the old ash clear of the base, bedded a loose handful of pine tinder, and laid the birch in a tent over it. One strike from the flint caught the tinder; the flame crept up and settled into the birch quietly. I stood there a moment to be sure it would hold.
+
+Back inside I took the two trout from their dock-wrap — firm, cold, clean from overnight frost. I scored each flank three times with the knife, not deep, just enough to let the smoke find the flesh. Threaded a bark-strip cord through their tails, looped it over the crossbar, and carried them out. The fire by then was running well, the birch turning white at its edges. I hung the cord from the ridgepole and stepped back. The smoke was thin and pale — it will thicken in an hour as the wood falls to coals.
+
+I'll check them at midday. By afternoon they should be golden and set.
+
