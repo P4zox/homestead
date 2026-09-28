@@ -15,3 +15,4 @@
 20:20 — Lamplight, Still: sat on sleeping mat by banked hearthstone; turned whittled birch peg by lamplight, cleaned notch a little more; both lamps burning steady; frost settling outside; cabin warm; sleep coming.
 21:19 — Before the Dark: finished whittled birch peg (smooth, notch clean), set on supply shelf; both lamps guttering low on spent tallow; coals banked deep under pale ash, door latched; lay down on cattail mat in sleeping bag — frost hard outside, cabin warm and still inside, sleep came easy.
 22:20 — Dark and Warm: brief night waking — coals still warm in still cabin; frost hard outside; heard nothing; turned over and drifted back to sleep.
+23:20 — Past Midnight, Still: both lamps spent and dark; coals warm under ash; frost hard outside; brief waking, registered warmth and quiet, let go back into sleep.

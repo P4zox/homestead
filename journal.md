@@ -17903,3 +17903,7 @@ This is how the good days end.
 
 Came half-awake sometime after the lamps went out — the kind of waking that is not quite waking, just a pause in the dark with full consciousness settling in for a moment before sleep remembers you. The cabin was still warm. The coals must have held their heat longer than I expected; there was no sharp cold anywhere inside, only the warmth I had laid in before dark. Frost was pressing against the bark walls — I could feel the silence it makes, the way a hard-frosted night has a quality of held breath that waking winter does not. Both lamps spent and cold. The dark total and quiet. I lay there a moment taking stock of nothing in particular — warm shelter, full belly, the store sound — then turned over on the cattail mat and let sleep have me again.
 
+
+### 11:20 PM · Past Midnight, Still
+
+The cabin is fully dark — both lamps spent, no flame anywhere. The coals are buried deep under pale ash but still warm; I can feel it in the air without seeing anything at all. Frost outside, hard and settled. In here: warmth, the sleeping bag, the good weight of a long day in my arms and back. I woke briefly, registered all of this the way you register it at the edge of sleep — not thinking, just knowing — and let go again. Tomorrow will be another frost, another fire from coals, another day on the land. For now there is only the dark and the warmth and the faint sound of the stream still running somewhere past the wall.

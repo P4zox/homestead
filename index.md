@@ -1722,3 +1722,4 @@ Day 97 · 5:18 PM — Lit both lamps inside; broth of smoked trout flakes and ro
 2026-09-28 Day 97 20:20 — Evening by lamplight; turned the whittled birch peg by hearthglow; frost settling outside, cabin warm; sleep coming.
 2026-09-28 Day 97 21:19 — Before the Dark: lamps guttering low, birch peg finished and shelved, coals banked deep; lay down on cattail mat, frost settling outside, sleep arriving easily at end of a full day.
 Day 97, 22:20 — Brief night waking in warm dark cabin; frost outside, coals still holding; returned to sleep.
+2026-09-28 23:20 Day 97 — Past Midnight, Still: cabin dark, both lamps spent, coals warm under ash, frost hard outside, slept through.
