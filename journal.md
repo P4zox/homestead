@@ -17925,3 +17925,7 @@ Day 98. Frost hard on everything outside, I know without looking — heard it se
 
 No hurry yet. The fire is the beginning; everything else is after.
 
+
+### 7:19 AM · Two Lamps, Two Wicks
+
+The fire was throwing good light by the time I sat down to the lamps. Both spent before midnight — I had known they would be, had pushed them long into a long evening — and the cabin had been dark and cold through all the hours between. I brought them both to the hearthstones, unwrapped the first tallow envelope, and worked a fresh dry-grass wick into each cup with my thumb. Tallow warms soft in the hand quickly now; I know the weight of it, the way it takes the wick. Lit the first lamp from a birch strip drawn off the fire. The small flame caught and steadied in a breath. Lit the second from the first. Both lamps burning on the hearthstones now — the cabin warm enough to work without the leather jerkin for a while. The frost outside is deep, bench planks white, the air biting at the doorsill — but inside: two flames, one fire, the ordinary goods of morning.
