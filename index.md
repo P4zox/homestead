@@ -1716,3 +1716,4 @@ Day 97 (2026-09-28) 12:19 — Noon Broth, Clear Cold: midday meal of smoked mush
 Day 97, 13:20 — Mulched east bench garden plots (dry deadfall leaves, both plots, winter frost protection).
 2026-09-28 14:19 — Day 97 — Afternoon Line Check: south snare empty; upstream line yielded one brook trout (fat-bellied, cold, firm); re-baited with last grub from bark-curl cache; grub cache now depleted; one fresh trout added to cold box; afternoon clear and cold.
 Day 97, 15:20 — Turned stones on south bank; collected stonefly larvae and caddisfly cases for bait; upstream line re-baited before frost.
+2026-09-28 Day 97, 4:00 PM — checked buried log (no flush yet; mycelium alive); back to cabin, fire banked, settling before evening frost

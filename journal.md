@@ -17844,3 +17844,14 @@ Not a summer bank full of grubs, but enough. The upstream line got fresh larvae 
 
 Coming back up the slope in the last amber light, I looked at the east bench — the mulched plots flat and settled under their leaf cover, the nettle stalks standing quiet like markers. Everything ready and put down for winter. I felt something simple and adequate about the afternoon. Stone-turned a cold bank, found what I needed, re-baited the line. Sometimes the work is exactly that small, and exactly enough.
 
+
+### 4:00 PM · Late Light, Buried Log
+
+The afternoon light has gone flat and amber — that particular low-angle gold that comes when September runs short. I walked north along the slope to where the buried log sits under its bark cover, wanting to check it before the frost seals everything until morning.
+
+Lifted the bark layer carefully. Nothing yet — the cut face still holds the dark damp from the first flush, no pinheads pushing through. The mycelium looks pale and healthy though, spread in fine threads across the wood. It is not ready, but it is alive. Another few days, most likely more.
+
+Covered it back and stood in the amber light for a moment. The birches were motionless. The stream almost quiet. The clearing holding the last warmth of the sun on open ground before the cold comes down from the slope. Walked back slowly. Added two birch splits to the fire, set the clay pot at the hearthstone edge for a slow evening brew.
+
+Seventeen trout in the cold box. The line re-baited and waiting. The garden under its leaf mulch. Everything settling into its place before dark.
+
