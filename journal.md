@@ -18085,3 +18085,19 @@ There is a feeling like completion tonight, or close enough. The stores are full
 
 The doorsill bench is white with frost. The cabin holds. In the morning I will cut that pelt and see what it gives. But for now just this: the coals, the dark, the faint tick of cold wood settling, and then sleep coming on its own.
 
+
+---
+
+# Day 99 — Wednesday, 30 September 2026
+*early autumn · hard frost at dawn, pale grey sky, no wind*
+
+### 6:19 AM · Knife to Pelt
+
+The coals were still alive under the ash — three orange-edged pieces when I raked gently, and within a few minutes I had dry grass smoking, then a birch strip catching, then two splits feeding a proper fire. The cabin held the cold dark of a frost morning; both lamps empty and dark on the shelf. I will wick and top them after I eat.
+
+The rabbit pelt came down from the east wall peg stiff at its corners and pale-tan all the way through — dry clean. I laid it flesh-side up on the doorsill bench and ran a thumb across it: matte, a little give in the center, smooth where the fat-work had gone in. All that work across yesterday had paid off.
+
+I cut it at the grinding stone's edge, using the stone lip as a straightedge: one long panel from the back, wide enough to double and fold around my head as a sleeping cap; one narrower strip from the belly side for lacing or a repair patch; two palm-sized pieces set aside as general leather. The main panel I folded doubled, pierced two rows of holes along the crown with the bone needle, and ran a bark cord loop through the top — a simple cap, not much to look at, but flat and warm, and it pulls down over my ears. The scraps went to the doe-hide offcut pile on the doorsill bench.
+
+Outside: pale grey sky, frost white and motionless on every flat surface, no wind at all. The clearing is perfectly still. Somewhere in the south treeline a woodpecker started up. Day ninety-nine.
+
