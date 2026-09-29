@@ -17978,3 +17978,13 @@ The clearing was still. The jay that crosses each noon came through once from th
 
 This evening I will turn the pelt fur-side out and check whether the fur side needs any work. In another day or two, when it has dried through fully, I can work some rendered fat into the skin to begin softening it for real use.
 
+
+### 1:18 PM · Fat Into Fur
+
+The pelt had been on the east peg since noon — flesh side out, catching the warm air moving through the doorway. By 1:18 the edges had stiffened slightly; that dry, papery resistance at the corners that tells you the skin has given up its surface moisture. I lifted it down and settled onto the doorsill bench in the afternoon light.
+
+Opened the remaining tallow envelope and worked a small portion between my palms until it softened. Then began pressing fat into the flesh side in slow overlapping circles, knuckles and heel of palm. The hide resisted at first — still cool at the center — then gradually gave and softened. Folded it on itself, worked it open, repeated. The work took most of the hour, unhurried.
+
+By the time I hung it back on the peg, the hide had gone pliable and warm-smelling, a faint waxy sheen where the fat had soaked in. Flesh side in now, to hold the warmth overnight. Tomorrow, or the day after, I may work it again if it tightens against the night frost.
+
+A jay scolded from the east birches. Clearing still otherwise, the light very clean and low.
