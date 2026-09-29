@@ -17939,3 +17939,16 @@ Back at the cabin I cleaned it at the hearthstones, rinsed it with a bark-cup of
 
 The frost keeps deepening each morning. The stream keeps giving. I hold both things.
 
+
+### 9:18 AM · South Snare Circuit
+
+The frost was still white on the bench planks when I pulled on the jerkin and foot wraps and stepped outside. Breath came in long slow puffs. The sky had gone from pale grey to a thin clear blue — that cold autumn kind that gives you light without warmth, everything sharp-edged and shadowless in the early flat sun.
+
+I walked south along the treeline with the axe on my shoulder and the belt pouch hanging at my hip. The grass was stiff and silver underfoot, each blade encased, crunching softly with every step. The south snare sits where a rabbit run threads between two low juniper shrubs just inside the treeline — a place I found by watching the grass press down in the same direction for three mornings running.
+
+The snare had caught. A good-sized rabbit, stilled by the cold, lay in the noose — tawny-grey, well-furred for the season. I reset the snare with a fresh length of two-ply cord, adjusted the trigger stick at a slightly lower angle, and carried the rabbit back across the frost-crunched clearing.
+
+Back at the hearthstones I dressed it in the usual way — blade quick and clean, pelt off in one piece, organs to the edge of the clearing, meat jointed and dock-wrapped. The pelt is in good autumn condition, thick and supple. I added the jointed meat to the cold box and hung the pelt flesh-side out on the east wall peg to begin stretching.
+
+Fifteen steps of cold work, and the morning already feels earned. The fire still has good coals. I put on water for a small pot of broth.
+
