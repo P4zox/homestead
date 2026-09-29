@@ -1736,3 +1736,4 @@ Day 98, 15:00 — smoked fresh wood ears from east seep alder bend; two-hour slo
 Day 98, 16:18 — Finished final working of morning rabbit pelt; pale-tan leather, soft and folding, hung to dry overnight on east wall peg.
 2026-09-29 Day 98 17:00 — Evening Pot: jointed cold-box rabbit, simmered with smoked mushrooms and burdock; ate at hearthstones by lamplight; fire banked; pelt drying overnight on east wall peg.
 2026-09-29 Day 98 18:18 — Topped up both lamps with tallow and trimmed wicks; braided two cord lengths by firelight; cabin settled for the evening
+Day 98, 19:20 (Tue 29 Sep 2026) — Rendered rabbit fat in cook tin; sealed fresh tallow envelope for winter lamps.

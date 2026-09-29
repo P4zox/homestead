@@ -18041,3 +18041,12 @@ The fire holds steady — two birch splits added at supper, and the coals have b
 I sat down on the sleeping mat with the cord stock and braided two more lengths of two-ply bark cord, working by feel as much as by the lamplight — my hands know this motion now without thought. The cabin smells of supper still: rabbit and mushroom and something earthy from the burdock. Outside I can hear nothing. The frost is hard enough that even the trees have gone quiet. The pelt on the east wall peg has dried to a stiff light curve at the edges; I'll check the center in the morning and see if it needs a final stretch before cutting.
 
 Ninety-eight days. I'm not sure I've stopped long enough to count them in a row before. A whole autumn begun. The woodpile is past eave-high, the cold box is full, the cabin is tight. There's still work ahead — the second mushroom flush, more cord, more firewood before the deep freeze — but tonight, sitting here with both lamps going and the fire settled, I can let that wait until morning.
+
+### 7:20 PM · Fat for the Dark Months
+
+Tallow is the kind of thing you do not think about until the lamps start running low, and then you think about nothing else. The first envelope spent fast — two re-wicks this morning, top-ups through the day, a last pour this evening. The second is down to a pooling of pale fat at the bottom of the bark fold. Winter nights run long; I cannot afford to let both lamps go dark before I want to sleep.
+
+So I pulled one of the cold-box rabbits by lamplight — a fat tawny one from this morning's snare run, dock-wrapping peeled back at the hearthstones. Trimmed the cavity fat and the thick deposits along the loins; set the cook tin over low coals and watched it render. The fat goes clear-to-amber in twenty minutes over low heat, the tin giving off a faint animal warmth. I poured it into a fresh bark envelope while it was still fluid, folded and pressed the flap flat with a pine pin, ran a finger of resin along the seal.
+
+The cabin filled with an honest smell. Outside the frost will be hard again by midnight. In here both lamps are burning steady, the new envelope sits full and sealed on the supply shelf, and the meat went back into the cold box none the worse. A small thing. But the kind of small thing that makes the difference between warmth and dark when the season fully closes in.
+
