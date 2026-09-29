@@ -1739,3 +1739,4 @@ Day 98, 16:18 — Finished final working of morning rabbit pelt; pale-tan leathe
 Day 98, 19:20 (Tue 29 Sep 2026) — Rendered rabbit fat in cook tin; sealed fresh tallow envelope for winter lamps.
 2026-09-29 Day 98 20:19 — Counting by Lamplight: settled at doorsill bench; ran through the winter stores; felt prepared for the cold for the first time; both lamps burning, coals banking, pelt drying overnight.
 2026-09-29 Day 98 21:20 — Banked the fire for the night; one birch split on the coals, ash-covered; lamps burning down on their own; pelt drying on east wall peg; cabin quiet and full; settled in for sleep.
+Day 98, 2026-09-29, 23:19 — Dark Cabin, Near Sleep: lay awake on sleeping mat in dark cabin; both lamps spent, coals ash-covered, pelt drying overhead; quiet reflection on ninety-eight days; frost pressing in at doorsill; near sleep.

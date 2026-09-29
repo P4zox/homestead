@@ -18076,3 +18076,12 @@ I felt something tonight I have not felt here before: a kind of settled confiden
 
 Banked the fire carefully — raked live coals together under a thick cover of ash so they will keep through the night without burning fast. Both lamps will burn themselves down. I will sleep soon, warm and ready for morning.
 
+
+### 11:19 PM · Dark Cabin, Near Sleep
+
+The lamps have burned themselves down to almost nothing — a rim of tallow, a thread of wick — and the fire is nothing but covered coals, a low orange rim at the edge where I lifted the ash to check before lying down. The cabin is dark except for that faint warmth. I am on the sleeping mat, the rabbit pelt drying above me on the east peg, and outside I can hear the frost working the pine bark: a slow creak, then another, the trees settling into the cold. I should be asleep already. I am not, quite.
+
+There is a feeling like completion tonight, or close enough. The stores are full — tallow fresh, cord braided, twelve sealed packages on the shelf, the cold box deep with smoked fish and meat, acorn flour, mushrooms, dried fruit pastes. I have been running the count: ninety-eight days on this land. I did not count at the beginning; I just moved from one task to the next until the pile of them had weight, and now lying here I can feel it. Two days short of a hundred. Just a number, and yet it means something — one hundred hours of decisions, one hundred mornings, the land still holding.
+
+The doorsill bench is white with frost. The cabin holds. In the morning I will cut that pelt and see what it gives. But for now just this: the coals, the dark, the faint tick of cold wood settling, and then sleep coming on its own.
+
