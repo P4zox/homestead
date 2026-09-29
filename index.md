@@ -1725,3 +1725,4 @@ Day 97, 22:20 — Brief night waking in warm dark cabin; frost outside, coals st
 2026-09-28 23:20 Day 97 — Past Midnight, Still: cabin dark, both lamps spent, coals warm under ash, frost hard outside, slept through.
 Day 98, 2026-09-29 — 06:19 — New morning: woke in dark cabin, stoked five live coals into flame with birch bark and two birch splits; frost hard outside; fire steady by dawn.
 Day 98, 07:19 (Tue 29 Sep 2026) — re-wicked and refilled both bark-cup lamps from tallow stock; cabin lit again at first proper light
+Day 98, 08:19 — Upstream line in hard frost; one fat trout pulled, cleaned, cold box now sixteen trout; hook re-baited.
