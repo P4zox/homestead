@@ -18065,3 +18065,14 @@ I do not think I have ever felt this ready. That is a new feeling, and I want to
 
 The fire needs nothing from me tonight. Coals banking slow under the ash. The lamps will burn until I sleep. Outside the frost will be hard again, bench planks white by first light, ice at the outer stream bend. That is all fine. I have enough, and enough is a good thing to sit with.
 
+
+### 9:20 PM · Banked and Still
+
+The hour is late and the cabin holds its quiet warmth. I trimmed both lamps one last time — flames small and steady — then laid a single dry birch split on the coals, just enough to hold heat through the deepest part of the night without catching too fast when the cold presses in from the walls. The rabbit pelt hangs dark and soft on the east wall peg, catching the lamplight in a low orange wash. Tomorrow I will cut it. Tonight it just hangs, drying in the still air.
+
+I stayed on the doorsill bench a while after the stocktake, not really thinking, just sitting with the cabin around me. The coals settled. The lamps burned even and small. Outside, the frost lies deep and the clearing is absolutely still — no wind, no owl, nothing moving in the forest at all. Winter is very close.
+
+I felt something tonight I have not felt here before: a kind of settled confidence. Not pride, more like steadiness. The stores are full. The cabin is sealed. The fire will hold until morning. Every piece of it — the twelve sealed packages on the shelf, the tallow full again, the cold box packed deep — came from one decision at a time, one hour after another since the beginning. Standing on Day 98, the whole accumulation is visible at once, and it is enough.
+
+Banked the fire carefully — raked live coals together under a thick cover of ash so they will keep through the night without burning fast. Both lamps will burn themselves down. I will sleep soon, warm and ready for morning.
+
