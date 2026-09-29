@@ -1727,3 +1727,4 @@ Day 98, 2026-09-29 — 06:19 — New morning: woke in dark cabin, stoked five li
 Day 98, 07:19 (Tue 29 Sep 2026) — re-wicked and refilled both bark-cup lamps from tallow stock; cabin lit again at first proper light
 Day 98, 08:19 — Upstream line in hard frost; one fat trout pulled, cleaned, cold box now sixteen trout; hook re-baited.
 2026-09-29 09:18 — Day 98 — South snare caught a good-furred rabbit; jointed to cold box, pelt hung to stretch on east wall peg; snare reset with fresh cord.
+2026-09-29 10:18 Day 98 — Broth, Slow Morning — rabbit-and-mushroom broth eaten at doorsill bench, frost still in lean-to shadow, clearing gold and still

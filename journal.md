@@ -17952,3 +17952,7 @@ Back at the hearthstones I dressed it in the usual way — blade quick and clean
 
 Fifteen steps of cold work, and the morning already feels earned. The fire still has good coals. I put on water for a small pot of broth.
 
+
+### 10:18 AM · Broth, Slow Morning
+
+The water had been murmuring on the hearthstones for a good while by the time I turned to it. I added the rabbit neck, the collar fat, and the trimmed bits from this morning's dressing — things too small for the cold box but full of flavor. A few slices of smoked hen-of-the-woods from the cold draw went in next, then a pinch of rose hip paste from the bark envelope, and a handful of watercress fresh from the main box. The broth came up slow and dark, fragrant with smoke and game. I sat on the doorsill bench with the clay pot and ate it all, watching the frost still holding in the shadow of the lean-to. Outside the clearing was gold and still. Inside the cabin smelled of fire and food and warm animal fur — the fresh pelt on the east wall peg already giving off the raw, close smell of autumn hide. I could hear the frost-melt beginning to drip from the eave. One of the better mornings in recent memory.
