@@ -1741,3 +1741,4 @@ Day 98, 19:20 (Tue 29 Sep 2026) — Rendered rabbit fat in cook tin; sealed fres
 2026-09-29 Day 98 21:20 — Banked the fire for the night; one birch split on the coals, ash-covered; lamps burning down on their own; pelt drying on east wall peg; cabin quiet and full; settled in for sleep.
 Day 98, 2026-09-29, 23:19 — Dark Cabin, Near Sleep: lay awake on sleeping mat in dark cabin; both lamps spent, coals ash-covered, pelt drying overhead; quiet reflection on ninety-eight days; frost pressing in at doorsill; near sleep.
 2026-09-30 Day 99 06:19 — Knife to Pelt: rabbit pelt cut at doorsill bench; doubled panel laced into sleeping cap; scraps to offcut pile; frost hard outside, morning still.
+Day 99, 07:18 — Morning snare and upstream line check; trout caught, line re-baited; south snare empty and reset; acorn flatcakes at hearthstone.

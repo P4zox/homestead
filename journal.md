@@ -18101,3 +18101,12 @@ I cut it at the grinding stone's edge, using the stone lip as a straightedge: on
 
 Outside: pale grey sky, frost white and motionless on every flat surface, no wind at all. The clearing is perfectly still. Somewhere in the south treeline a woodpecker started up. Day ninety-nine.
 
+
+### 7:18 AM · Line in Frost
+
+The sleeping cap was still warm from my hands when I stepped outside. It found my ears immediately — I had forgotten how much of the cold lives in the ears. The frost had been thorough: every plank of the doorsill bench rimed white, every grass blade silvered and stiff, the eave-drip frozen mid-fall. I crossed to the south snare first. Empty — the loop clean, the two-ply cord intact, the bait nudged but nothing taken. I reset the trigger and moved on.
+
+The stream path crunched under my boots. The water itself runs clear and fast; only the still outer bend has frozen over, ice finger-thick and pale blue-green in the low light. My upstream line was taut against the root ledge — real weight on it, working against the current. I worked it up slowly, keeping tension, and brought in a trout: hand and a half, good condition, not too lean. Dressed it at the stream bank, hands quick and cold, and folded it into a fresh dock leaf for the cold box.
+
+Coming back, the sun had just cleared the ridgeline — thin gold, cutting low through the pines, raising a fine steam off the frost where it touched. I re-baited the upstream hook with a stonefly larva and settled it back under the root ledge. Inside, the fire had held well. I ate two acorn flatcakes standing at the hearthstone and let the warmth climb back into my fingers. The cold box is deep now. The shelf is settled. The cap fits over my ears. A good morning.
+
