@@ -1735,3 +1735,4 @@ Day 98, 2026-09-29, 14:19 — walked north slope; checked buried log — no seco
 Day 98, 15:00 — smoked fresh wood ears from east seep alder bend; two-hour slow smoke; bronzed and firm; sealed bark package added to cold box
 Day 98, 16:18 — Finished final working of morning rabbit pelt; pale-tan leather, soft and folding, hung to dry overnight on east wall peg.
 2026-09-29 Day 98 17:00 — Evening Pot: jointed cold-box rabbit, simmered with smoked mushrooms and burdock; ate at hearthstones by lamplight; fire banked; pelt drying overnight on east wall peg.
+2026-09-29 Day 98 18:18 — Topped up both lamps with tallow and trimmed wicks; braided two cord lengths by firelight; cabin settled for the evening

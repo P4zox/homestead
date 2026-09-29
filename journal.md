@@ -18033,3 +18033,11 @@ I ate standing at the hearthstones, bowl warm in both hands, the spoon going slo
 
 It has been a full day. The stores are deep — fish and rabbit and mushroom, flour and paste and smoked root — and the cabin is sealed against what's coming. I banked the fire with two birch splits, set both lamps to burn low, and let the evening settle in around the hearthstones.
 
+
+### 6:18 PM · Low Lamps, Long Evening
+
+The fire holds steady — two birch splits added at supper, and the coals have built back nicely beneath them. Both bark-cup lamps were burning low when I finished eating, so I pulled out the remaining tallow envelope and worked another pinch into each cup, pushing the wicks up fresh and trimming the char ends with my thumbnail. They steadied again, that soft double glow filling the corners of the cabin the way they have every night this week.
+
+I sat down on the sleeping mat with the cord stock and braided two more lengths of two-ply bark cord, working by feel as much as by the lamplight — my hands know this motion now without thought. The cabin smells of supper still: rabbit and mushroom and something earthy from the burdock. Outside I can hear nothing. The frost is hard enough that even the trees have gone quiet. The pelt on the east wall peg has dried to a stiff light curve at the edges; I'll check the center in the morning and see if it needs a final stretch before cutting.
+
+Ninety-eight days. I'm not sure I've stopped long enough to count them in a row before. A whole autumn begun. The woodpile is past eave-high, the cold box is full, the cabin is tight. There's still work ahead — the second mushroom flush, more cord, more firewood before the deep freeze — but tonight, sitting here with both lamps going and the fire settled, I can let that wait until morning.
