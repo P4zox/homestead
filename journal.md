@@ -17999,3 +17999,16 @@ On the way home I swung past the alder bend above the east seep. A small cluster
 
 Back at the cabin before the last of the gold. The rabbit pelt still hanging on the east peg, looking pliant. Fire steady. The clearing was so quiet I could hear a single birch leaf scrape across the doorsill bench and stop.
 
+
+### 3:00 PM · Wood Ears, Smoke
+
+Came inside with the gathering basket still holding the double-handful of wood ears from the alder bend above the east seep — thick, dark clusters, fresh and springy from the morning. Set them out on the hearthstones to sort through: twelve pieces, all firm caps, no soft spots. They would take smoke well.
+
+Built the fire under the smoke rack low — birch bark and one dry pine split. Strung the wood ears on a length of cord between two crossbars, caps facing down so moisture could drip rather than pool. The first thin smoke wrapped them within a minute; wood ears drink smoke fast, their texture almost spongy with it.
+
+Let the rack smolder for two hours, turning once at the midpoint. By the time the light had gone amber and low across the clearing, the pieces had bronzed at their edges and halved in size — firm but not brittle, the way well-cured mushrooms feel. Lifted them off the cord and let them cool on a birch bark square beside the hearth.
+
+One bark package, resin-pressed at the corners. Cold box, with the others.
+
+The clearing was very quiet through all of it. The frost from this morning still had not fully melted out of the north-facing lean-to shadow. The rabbit pelt is still hanging on the east wall peg — I will work it one more time before the fire gets banked down for the night.
+
