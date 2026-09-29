@@ -17988,3 +17988,14 @@ Opened the remaining tallow envelope and worked a small portion between my palms
 By the time I hung it back on the peg, the hide had gone pliable and warm-smelling, a faint waxy sheen where the fat had soaked in. Flesh side in now, to hold the warmth overnight. Tomorrow, or the day after, I may work it again if it tightens against the night frost.
 
 A jay scolded from the east birches. Clearing still otherwise, the light very clean and low.
+
+### 2:19 PM · Second Log Check
+
+I laced my moccasins, pulled the jerkin on, and headed up the north slope. The day was still and pale gold — not cold enough to be unpleasant if you keep moving, but the shadows between the trees had a real bite. Last night's frost had pressed the fallen leaves flat and dark against the soil; the ground rang iron-hard under my heels on the open stretch above the clearing.
+
+The buried log sits where I left it, weighted with two flat stones. I lifted the near corner and the mycelium face looked back: white, threaded through the wood, alive — but no pins, no cap swellings, nothing pushing yet. Seven days since the first flush. The soil underneath was cool and damp, not frozen through — a good sign, but the wood is asking for more time. I set the corner back, reset the weight stones, and stood up. Maybe Day 103 or 104, if the frost doesn't bite too deep before then.
+
+On the way home I swung past the alder bend above the east seep. A small cluster of wood ears clung to a downed branch, dark and cold and translucent in the low afternoon light. I gathered them — a modest double-handful — tucked in my basket. Not enough for a full smoke batch on their own, but they'll go well in a broth.
+
+Back at the cabin before the last of the gold. The rabbit pelt still hanging on the east peg, looking pliant. Fire steady. The clearing was so quiet I could hear a single birch leaf scrape across the doorsill bench and stop.
+

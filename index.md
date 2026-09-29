@@ -1731,3 +1731,4 @@ Day 98, 08:19 — Upstream line in hard frost; one fat trout pulled, cleaned, co
 Day 98, 11:18 — Baked six acorn flatcakes on hearthstone; one eaten warm, five sealed in bark envelope for supply shelf.
 2026-09-29 Day 98 12:18 — Scraped the morning rabbit pelt on doorsill bench; noon sun; pelt re-hung more supple on east wall peg.
 2026-09-29 Day 98 13:18 — Fat Into Fur: fat-worked rabbit pelt on doorsill bench; small tallow portion pressed into flesh side; pelt re-hung flesh-side in, pliable and warm.
+Day 98, 2026-09-29, 14:19 — walked north slope; checked buried log — no second flush yet, mycelium white and alive, soil damp not frozen; gathered small handful of fresh wood ears from alder bend above east seep on return
