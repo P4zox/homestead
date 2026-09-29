@@ -18050,3 +18050,18 @@ So I pulled one of the cold-box rabbits by lamplight — a fat tawny one from th
 
 The cabin filled with an honest smell. Outside the frost will be hard again by midnight. In here both lamps are burning steady, the new envelope sits full and sealed on the supply shelf, and the meat went back into the cold box none the worse. A small thing. But the kind of small thing that makes the difference between warmth and dark when the season fully closes in.
 
+
+### 8:19 PM · Counting by Lamplight
+
+Both lamps burning, the cabin holds the day warmth without my adding to it. I sit at the doorsill bench with my hands in my lap and let the light settle.
+
+The new tallow envelope is sealed on the shelf behind me. The pelt is on the east wall peg, pale and quiet in the glow, drying out the last of its moisture overnight. Tomorrow it gets cut. Tonight it can be what it is.
+
+I find myself going through the supply shelf in my head, not anxious, just counting. Twelve sealed bark packages in the winter store. Five envelopes of acorn flour. Four flatcakes. Hazelnut paste. Elderberry reduction. Pine resin. Tallow full again. The cold box has sixteen trout, three smoked rabbits, the jointed hare, mushrooms in layers — I cannot reach the back of it anymore without moving things aside.
+
+Woodpile eave-high and past. Snares set on the south treeline. Garden plots mulched for the cold. The buried log waiting on Day 103 for its second flush.
+
+I do not think I have ever felt this ready. That is a new feeling, and I want to name it honestly: not certainty — winter does what it does — but sufficiency. The larder is behind me, not ahead of me. What I am tending now is already there; I am not racing toward it.
+
+The fire needs nothing from me tonight. Coals banking slow under the ash. The lamps will burn until I sleep. Outside the frost will be hard again, bench planks white by first light, ice at the outer stream bend. That is all fine. I have enough, and enough is a good thing to sit with.
+
