@@ -18012,3 +18012,13 @@ One bark package, resin-pressed at the corners. Cold box, with the others.
 
 The clearing was very quiet through all of it. The frost from this morning still had not fully melted out of the north-facing lean-to shadow. The rabbit pelt is still hanging on the east wall peg — I will work it one more time before the fire gets banked down for the night.
 
+### 4:18 PM · Hide Work Done
+
+The pelt came down from the east wall peg stiff at the edges and warm in the center — tallow absorbed in, the hide doing its slow quiet work all afternoon. Took it to the doorsill bench: folded flesh-to-flesh, dragged it over the bench edge back and forth, the plank taking the work instead of my wrists. Then opened it flat and pulled each corner out by hand while it was still warm enough to move.
+
+The skin lightened from the outside in as it dried. I worked wherever it started to go pale and tight — the whole window here is to catch it before the fat bonds the fibers rigid; you get that one pass, and this afternoon it was still open. Belly seam fold, worked the back panel flat, reversed. Repeated until it stopped giving and simply held.
+
+It came to pale tan, matte, soft — drapes over a hand, holds a fold without springing back, no stiff patches. Hung it on the east wall peg open and aired out to dry the rest of the way overnight. By morning it will be leather enough for belt straps or a second pouch panel. No hurry. Tonight it just hangs.
+
+Outside: amber light at the treeline, low and almost sideways, every birch trunk catching gold at this hour. The clearing is very quiet. Fire low inside — I added a split before I started. The lamps are steady.
+
