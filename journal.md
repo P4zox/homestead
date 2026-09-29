@@ -17956,3 +17956,14 @@ Fifteen steps of cold work, and the morning already feels earned. The fire still
 ### 10:18 AM · Broth, Slow Morning
 
 The water had been murmuring on the hearthstones for a good while by the time I turned to it. I added the rabbit neck, the collar fat, and the trimmed bits from this morning's dressing — things too small for the cold box but full of flavor. A few slices of smoked hen-of-the-woods from the cold draw went in next, then a pinch of rose hip paste from the bark envelope, and a handful of watercress fresh from the main box. The broth came up slow and dark, fragrant with smoke and game. I sat on the doorsill bench with the clay pot and ate it all, watching the frost still holding in the shadow of the lean-to. Outside the clearing was gold and still. Inside the cabin smelled of fire and food and warm animal fur — the fresh pelt on the east wall peg already giving off the raw, close smell of autumn hide. I could hear the frost-melt beginning to drip from the eave. One of the better mornings in recent memory.
+
+### 11:18 AM · Acorn Cakes on Stone
+
+After the broth I sat a while on the doorsill bench, watching the frost line retreat up the east wall. The clearing has gone gold and still — that particular quiet that settles in when the hard work of morning is done and the sun is finally climbing in earnest.
+
+I took down one of the acorn flour envelopes from the supply shelf and worked a small batch of dough on the grinding stone: acorn flour, a careful pour of water, kneaded with my knuckles until it held together without sticking. The flour is darker than wheat, slightly bitter if I dwell on it, but mostly just earthy and honest. I shaped six small rounds and set them flat on the clean part of the hearthstone beside the coals.
+
+They took about twenty minutes to firm up. I turned each one once with the birch spoon, let the second face brown, then lifted them off onto the wide clay bowl to cool. Not bread, exactly. Closer to a dense flatcake — chewy, a little nutty, satisfying in the way simple things are when you have made them from nothing but what the land gave you. I ate one warm off the bowl while the others cooled, then sealed the remaining five in a bark envelope and set them on the supply shelf beside the hazelnut paste.
+
+The cabin smells of acorn and woodsmoke. The pelt is still drying on the east peg, the flesh side pale and tightening as the day warms. Outside, a jay called twice from the birch line, then went quiet.
+
