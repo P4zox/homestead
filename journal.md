@@ -17967,3 +17967,14 @@ They took about twenty minutes to firm up. I turned each one once with the birch
 
 The cabin smells of acorn and woodsmoke. The pelt is still drying on the east peg, the flesh side pale and tightening as the day warms. Outside, a jay called twice from the birch line, then went quiet.
 
+
+### 12:18 PM · Scraping the Pelt
+
+The pelt had been hanging since mid-morning, flesh-side out on the east wall peg, and by noon the edges had stiffened and begun to curl — the centre still a little cool to the touch. I took it down and laid it over the doorsill bench, smoothing it flat and tucking the corners under my knee to hold it steady. The noon light came in at a low angle through the open door, pale and gold and long across the hearthstones. A good light for close work.
+
+I ran the spine of my knife along the flesh side in slow flat strokes, pressing and drawing from the centre out, lifting a thin continuous membrane and small pale curls of dried fat. Scraping is not rough work — more like reading a surface with your hands, feeling where the membrane holds and where it has already let go. After an hour the whole hide had been worked at least once, and when I held it up in the doorway it draped with a new looseness, the stiff edges gone soft. Re-hung on the peg it fell differently — more cloth than board.
+
+The clearing was still. The jay that crosses each noon came through once from the east treeline and went on without stopping. The frost in the lean-to shadow has burned off now; the stones in full light are even faintly warm. I ate one of the acorn cakes standing at the door, watching nothing in particular, and felt the kind of contented emptiness that comes after steady work in a quiet place.
+
+This evening I will turn the pelt fur-side out and check whether the fur side needs any work. In another day or two, when it has dried through fully, I can work some rendered fat into the skin to begin softening it for real use.
+
