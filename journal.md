@@ -18022,3 +18022,14 @@ It came to pale tan, matte, soft — drapes over a hand, holds a fold without sp
 
 Outside: amber light at the treeline, low and almost sideways, every birch trunk catching gold at this hour. The clearing is very quiet. Fire low inside — I added a split before I started. The lamps are steady.
 
+
+### 5:00 PM · Evening Pot
+
+I jointed one of the cold-box rabbits at the hearthstones in the last of the afternoon light — the clearing outside the door gone fully amber, birch trunks pale and still between the pines. The clay pot went on with water and time: rabbit pieces, three slices of smoked hen-of-the-woods torn in, a few burdock rounds from the bark envelope, a pinch of dried watercress wilted in at the end. The fire held low and even while it simmered, the way it does when you stop feeding it and let the coals do the quiet work.
+
+The two lamps burned from their hearthstone and cabin-shelf posts, steadier than I expected from new wicks. The rabbit pelt hung wide and pale on the east wall peg behind me, already stiffer toward the edges — it will be ready for cutting in the morning. The faint smoke smell from this afternoon's wood ears still sat in the rafters.
+
+I ate standing at the hearthstones, bowl warm in both hands, the spoon going slow. There was enough in the pot for two good helpings. Outside the door the sky had gone grey-mauve over the treeline, frost already forming on the doorsill bench planks, the clearing gone quiet the way it only gets once the birds stop calling.
+
+It has been a full day. The stores are deep — fish and rabbit and mushroom, flour and paste and smoked root — and the cabin is sealed against what's coming. I banked the fire with two birch splits, set both lamps to burn low, and let the evening settle in around the hearthstones.
+

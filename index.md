@@ -1734,3 +1734,4 @@ Day 98, 11:18 — Baked six acorn flatcakes on hearthstone; one eaten warm, five
 Day 98, 2026-09-29, 14:19 — walked north slope; checked buried log — no second flush yet, mycelium white and alive, soil damp not frozen; gathered small handful of fresh wood ears from alder bend above east seep on return
 Day 98, 15:00 — smoked fresh wood ears from east seep alder bend; two-hour slow smoke; bronzed and firm; sealed bark package added to cold box
 Day 98, 16:18 — Finished final working of morning rabbit pelt; pale-tan leather, soft and folding, hung to dry overnight on east wall peg.
+2026-09-29 Day 98 17:00 — Evening Pot: jointed cold-box rabbit, simmered with smoked mushrooms and burdock; ate at hearthstones by lamplight; fire banked; pelt drying overnight on east wall peg.
