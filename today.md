@@ -13,3 +13,4 @@
 17:18 — Evening meal: one trout and smoked oyster mushrooms slow-simmered in clay pot with watercress; last two spoonfuls of sloe syrup dissolved in a bark cup of hot water; sat by lamplight as the day closed and Day 100 drew near.
 18:19 — Hundred-Day Eve: two cord lengths braided by lamplight; fire banked to coal-bed; sleeping cap on peg; Day 100 tomorrow.
 19:19 — Eve of a Hundred: sat on doorsill bench by lamplight looking out at the frost-white clearing and the first stars; turned over the hundred days quietly; coals banked and holding; Day 100 at dawn.
+20:19 — Evening Before a Hundred: leather pieces pulled from peg rack, held to lamplight — fully supple and patch-ready; bone needle and bark cord coil laid on grinding stone for morning; leather set on doorsill bench; coals banked; frost settling on doorsill planks; Day 100 tomorrow.

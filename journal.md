@@ -18225,3 +18225,12 @@ I did not know, on the first day, that I would get here. I knew I would try. I s
 
 Tomorrow I will patch the jerkin elbows and the foot-wrap wear-spots at first light. Small, careful, useful work. That is a good thing to do on Day 100. But tonight I just let it be what it is. A hundred days. Good.
 
+
+### 8:19 PM · Evening Before a Hundred
+
+The coals are still breathing under the ash — I can feel the warmth from the hearthstone through my boots. Both lamps are burning low; I will let them hollow out rather than refill, unless the second one gutters before sleep. I pulled the leather pieces off the peg rack one more time and held them up to the lamplight. The doe-hide patches are fully supple, oak-tan even and warm throughout. Everything is ready for morning. I laid the bone needle and a coil of bark cord on the grinding stone edge so my hands will find them at first light without looking, then set the leather back on the bench.
+
+Day 100 tomorrow. I have been trying to hold that number at a certain distance and look at it plainly — a hundred days since I woke here with almost nothing. I can barely recall what nothing looked like. There is a cabin now, door latched and walls daubed. A woodpile past the eaves. A cold box with sixteen trout and smoked meat and mushrooms. A shelf with sealed provisions enough to carry me well into winter. Two lamps lit. Leather airing. A sleeping cap on the peg. I think that is enough to be glad about tonight.
+
+The frost is settling again outside — I can see it silver on the doorsill planks through the gap at the threshold. I will bank the coals once more, pull the sleeping cap down, and let Day 100 come.
+
