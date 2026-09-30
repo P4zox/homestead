@@ -18110,3 +18110,14 @@ The stream path crunched under my boots. The water itself runs clear and fast; o
 
 Coming back, the sun had just cleared the ridgeline — thin gold, cutting low through the pines, raising a fine steam off the frost where it touched. I re-baited the upstream hook with a stonefly larva and settled it back under the root ledge. Inside, the fire had held well. I ate two acorn flatcakes standing at the hearthstone and let the warmth climb back into my fingers. The cold box is deep now. The shelf is settled. The cap fits over my ears. A good morning.
 
+
+### 8:00 AM · Lamp Light
+
+The frost had mostly gone from the doorsill bench by the time I returned from the stream. Both lamps sat cold on the shelf — wicks spent and lying flat in dry tallow. A familiar morning accounting.
+
+I drew fresh dry-grass from the bundle at the south wall and twisted new wicks for each cup, tight at the base and fanned a little where the flame sits. The new tallow envelope poured clean and amber into both cups, and I set them back on the shelf side by side. One lit from the fire-kit at once; the second caught after a moment. Two small flames, even and patient.
+
+The light they give is soft — not quite enough to work by, but enough to make the cabin feel less empty when the dark comes down early. That matters now, with the days shortening fast.
+
+I sat at the hearthstone for a time afterward with the second flatcake still in hand, listening to the fire and to nothing else. The clearing has been still since before dawn — no wind, no birds yet, just the cold boards settling. The lamps are lit, the stores are full. The day has a clean start to it.
+
