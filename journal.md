@@ -18249,3 +18249,14 @@ A hundred days is not a finish. Tomorrow I will still rise, still tend the fire,
 
 The first lamp gutters once and holds. I pull the sleeping cap down over my ears and settle back on the cattail mat. The coals breathe quietly. The frost outside is settling on everything that holds still.
 
+
+### 10:19 PM · Last Ember, First Century
+
+The first lamp has nearly finished. I can see the flame low in the bark cup, the wick barely above the tallow line, wavering in whatever small air moves inside a sealed cabin. It will go out on its own before long, and I am going to let it.
+
+I am already on the cattail mat, sleeping cap pulled down over my ears. The coals are banked — a solid orange glow under the ash that will hold until morning if I read it right, and I think I did. The cabin is warm, not hot, just warm, the close heat of sealed walls and a full day's fire stored in the log mass around me.
+
+Outside I can hear nothing. The frost has taken even the small night sounds. Orion was over the treeline an hour ago; he will climb higher while I sleep. A hundred days. Tomorrow I will think about what that means — the shelf full of sealed envelopes, the cold box heavy with smoked fish and rabbit, the two lamps re-wicked and ready, the leather patch-cut and laid on the bench for morning. Tonight it is enough to be here, warm, fed, with the door latched tight.
+
+The lamp flame is lower now. I watch it through half-closed eyes.
+
