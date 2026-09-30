@@ -18212,3 +18212,16 @@ Tomorrow is Day 100. I sat with that for a while. A hundred days from waking in 
 
 The sleeping cap is on its peg. Both lamps burning low and steady. Outside, frost will be thickening on the eaves again. I banked the fire, pulled on the sleeping cap, and let Day 100 come when it comes.
 
+
+### 7:19 PM · Eve of a Hundred
+
+The lamps are burning low and steady, two small flames that hold the cabin in amber light. The fire is banked now, coals buried under ash and holding. I sat on the doorsill bench a while after the cord was braided and looked out at the clearing — frost lying grey-white on the ground, first stars coming in above the treeline, the forest already black.
+
+Day 100 is tomorrow.
+
+I have been turning that over all evening. A hundred days from waking with nothing but a tent, an axe, a knife, and a flint. Now: a sealed cabin, two lamps burning, a supply shelf full, a winter store in the cold box, leather airing on the peg rack for the morning cutting. The buried log is alive and waiting. The garden is mulched and resting. I have cord, I have fire, I have food I will not exhaust before spring.
+
+I did not know, on the first day, that I would get here. I knew I would try. I sat on the doorsill tonight and let the two things sit together — the not-knowing then, the having-arrived now — and felt something that I do not quite have a word for. Not pride exactly. Something quieter.
+
+Tomorrow I will patch the jerkin elbows and the foot-wrap wear-spots at first light. Small, careful, useful work. That is a good thing to do on Day 100. But tonight I just let it be what it is. A hundred days. Good.
+
