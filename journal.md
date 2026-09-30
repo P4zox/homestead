@@ -18121,3 +18121,16 @@ The light they give is soft — not quite enough to work by, but enough to make 
 
 I sat at the hearthstone for a time afterward with the second flatcake still in hand, listening to the fire and to nothing else. The clearing has been still since before dawn — no wind, no birds yet, just the cold boards settling. The lamps are lit, the stores are full. The day has a clean start to it.
 
+
+### 9:18 AM · Tannin and Leather
+
+The second leach soak has been sitting on the hearth edge since yesterday evening — a palm of shredded oak bark in water, kept just above cold by the banked fire. I lift the bowl clear and tip the dark amber liquid off slowly, catching the bark shreds in my palm. The water smells of forest floor and something astringent, almost medicinal.
+
+The doe-hide scraps have been waiting on the doorsill bench. The long strip and the offcuts are dry and pale-tan, the same color as the sky this morning. I loosen them in a fresh pour of warm water first — just enough to soften the edges — then work them one by one through the tannin, folding each piece back on itself and pressing, turning, working it into the grain.
+
+The oak bark will not tan them fully today. This is just the beginning: soak, work, dry a little, soak again. By tomorrow they will have darkened two shades and the fiber will begin to close. What I am after is patching leather — not a full panel, but serviceable pieces to reinforce the heel of a foot wrap or the elbow of the jerkin before hard winter sets in.
+
+Outside the door, the frost is retreating from the bench planks, leaving them darkened and damp. The birches up the slope have lost another row of leaves overnight. I can see the ridgeline now through gaps I could not see a week ago.
+
+Winter is assembling itself, piece by piece. I am assembling my answer to it.
+
