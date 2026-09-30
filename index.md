@@ -1750,3 +1750,4 @@ Day 99, 12:00 (2026-09-30) — Midday tannin work-through: doe-hide strip and of
 2026-09-30 Day 99 13:00 — Afternoon tannin pull-and-work; strip deepening oak-tan through most of its length; offcuts nearly patch-ready; one or two rounds left.
 2026-09-30 Day 99 14:00 — Leather Through: final tannin work-through completed; doe-hide strip and offcuts fully cured and hung on peg rack to air.
 Day 99, 2026-09-30, 15:19 — Sharpened knife on grinding stone; sorted rabbit pelt scraps and doe-hide offcuts for tomorrow's patch cutting and stitching.
+2026-09-30 Day 99 16:19 — Checked south snare (empty, reset); gathered five dry birch branches from south deadfall; fire built up for evening; reflected on Day 100 approaching.

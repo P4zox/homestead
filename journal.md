@@ -18183,3 +18183,12 @@ Then I laid the rabbit pelt scraps out on the doorsill bench — the narrow stri
 
 The fire is holding on deep coals. Late-afternoon light comes pale and almost amber through the door gap. Tomorrow I'll cut.
 
+
+### 4:19 PM · Evening Rounds
+
+The south treeline was pale in the afternoon light — frost still pooled in the shadows between birch roots, glassy and unmelted where the sun had not reached. I walked out with just the knife on my belt to check the south snare. It was empty again. Whatever runs that slope has gone wide, maybe spooked, maybe just following the season south. I reset it and turned back, stopping along the way to gather dry deadfall from the slope edge: five birch branches, light and sound-dry — the kind that crackle when you snap them and leave no green smell. Back inside before the last direct sunlight left the clearing.
+
+I built the fire from coals: two split logs, a handful of birch twig, and it caught clean. The cabin was warm within a quarter-hour. I poured a small measure of tallow into the first lamp cup and sat at the hearthstone while the darkness came on outside.
+
+Today is Day 99. Tomorrow will be Day 100. I only noticed it just now, coming in from the cold with the bundle of birch tucked under my arm. It does not feel like a particular number — the shelter is the same, the stream the same, the frost settling in the same quiet way — but there is something in the counting. A hundred mornings of this clearing. A hundred times that cold bite at first light before the fire takes. I have built a great deal in that span: the walls, the roof, the crock and bowls, the leather and the lamps, the stores filling the cold box. What began as a tent on open ground is now a cabin with two burning lamps and a rack of cured food and a peg hung with airing leather. I am not sure when it became a homestead instead of a survival. Somewhere in the middle, I suppose. The tallow burned low and I banked the fire and stopped keeping track of when.
+
