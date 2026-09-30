@@ -18173,3 +18173,13 @@ Hung them on the peg rack beside the knife sheath to air dry. A day on the peg a
 
 The cold box is full. The firewood is past eave-high. The lamps are lit. I am almost ready for what is coming. The land already knows it is autumn. So do I.
 
+### 3:19 PM · Blade and Bench
+
+The leather hangs still on the peg rack — the long strip and all the offcuts keeping their shapes in the cool, dim cabin air. One day's airing called for, and morning will give it.
+
+I took the knife from its sheath and set the blade against the grinding stone flat on the hearthstone. The edge had gone rougher than I'd fully noticed these past weeks — all the pelt scraping and hide dressing and bark-strip cutting. Long slow passes along the stone, blade low and tilted, the sound a dry whisper. The kind of work you can do by feel, attention turning inward. After enough passes the edge came back: it would take a hair cleanly, shave a thin curl from the back of a thumbnail.
+
+Then I laid the rabbit pelt scraps out on the doorsill bench — the narrow strip, the two palm patches — alongside the doe-hide offcuts. Smaller grain, finer nap, softer. I turned them in my hands thinking about the jerkin's thin elbows, about where the foot wraps take the most wear. The shapes of patches forming without scissors or needle yet touching them.
+
+The fire is holding on deep coals. Late-afternoon light comes pale and almost amber through the door gap. Tomorrow I'll cut.
+

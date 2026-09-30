@@ -1749,3 +1749,4 @@ Day 99, 09:18 — Leach soak drained; doe-hide scraps worked through oak tannin 
 Day 99, 12:00 (2026-09-30) — Midday tannin work-through: doe-hide strip and offcuts worked over grinding stone edge; strip pale oak-tan and supple on thin sections; cold ash water added to soak; pieces returned to hearth-edge bowl.
 2026-09-30 Day 99 13:00 — Afternoon tannin pull-and-work; strip deepening oak-tan through most of its length; offcuts nearly patch-ready; one or two rounds left.
 2026-09-30 Day 99 14:00 — Leather Through: final tannin work-through completed; doe-hide strip and offcuts fully cured and hung on peg rack to air.
+Day 99, 2026-09-30, 15:19 — Sharpened knife on grinding stone; sorted rabbit pelt scraps and doe-hide offcuts for tomorrow's patch cutting and stitching.
