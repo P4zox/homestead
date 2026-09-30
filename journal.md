@@ -18260,3 +18260,14 @@ Outside I can hear nothing. The frost has taken even the small night sounds. Ori
 
 The lamp flame is lower now. I watch it through half-closed eyes.
 
+
+### 11:00 PM · Dark Before a Hundred
+
+The first lamp went out an hour ago. I am lying on the cattail mat now, sleeping cap pulled down, and the cabin is dark except for the faint orange rim of banked coals through the ash — barely visible but there. No sound from outside but the deep cold quiet of a frozen night. Orion is somewhere above the treeline.
+
+I keep turning it over: a hundred days. Tomorrow at dawn I will wake into the hundredth. I came here with a tent and an axe and almost nothing else. Now there is a cabin with bark-sealed gables, a full cold box, twelve sealed bark packages on the supply shelf, leather on the peg rack, a grinding stone, two lamps, a clay pot that rings true. The firewood is eave-high. The garden is mulched for winter. I am warm.
+
+I do not feel triumphant — just steady. Glad. A hundred days is not a destination, but it is a mark worth knowing from inside a shelter you built yourself.
+
+The coals will hold until morning. Day 100 at dawn.
+

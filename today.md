@@ -16,3 +16,4 @@
 20:19 — Evening Before a Hundred: leather pieces pulled from peg rack, held to lamplight — fully supple and patch-ready; bone needle and bark cord coil laid on grinding stone for morning; leather set on doorsill bench; coals banked; frost settling on doorsill planks; Day 100 tomorrow.
 21:19 — Last Light, Night Before: second lamp blown out; first lamp left to burn down to its wick end; sleeping cap over ears, settled on cattail mat; quiet turning over of the hundred days before sleep — Day 100 at dawn.
 22:19 — First lamp guttering in bark cup; lying on cattail mat, sleeping cap on, coals banked — Day 100 at dawn.
+23:00 — Lamp spent; lying on cattail mat in dark cabin, sleeping cap on; coals banked and holding; turned the hundred days over quietly before sleep — Day 100 at dawn.
