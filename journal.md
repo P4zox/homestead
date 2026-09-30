@@ -18151,3 +18151,14 @@ The fire is settled to coals under ash, breathing steady. The doe-hide strip and
 ### 12:00 PM · Hide at Midday
 
 At noon I pulled the doe-hide scraps from the tannin soak and worked each piece through my hands and over the rounded grinding-stone edge. The long strip has taken color — pale oak-tan along the thinner scraped sections, stiffer still where the hide folds thick at its edges. Twenty minutes of folding, pressing, pulling: by the end the strip is supple enough along its length to feel like real leather beginning. The offcut patches are close behind it. I added a cup of cold ash water to the soak to deepen the tannin draw, returned all the pieces, and settled the bowl back on the hearth edge to warm slowly through the afternoon. Two or three more rounds of this and the scraps will be patch-ready — the foot wraps could use reinforcing across the toe, and the jerkin elbows will see the hardest of winter work. The fire is holding on a good coal bed. Noon and the clearing is cold and still and bright.
+
+### 1:00 PM · Almost Patch-Ready
+
+The soak has had an hour since the midday work-through. I pull the long strip and the offcut patches from the tannin water and lay them on the hearthstone — they come out dripping, darker than this morning, a warmer oak-tan that has finally started to read through the full length of the strip. Only the thicker central ridge is still a little pale and stiff; the rest of the piece folds without complaint.
+
+I work each one over the grinding stone edge the same as before: strip folded in thirds, drawn slow and firm against the stone lip, fibers opening. The offcuts are nearly there — supple through to the cut edges, the tannin carried all the way in. I hold one patch up to the door-light and it bends in a clean curve with no cracking. That is what I am after.
+
+One round more, maybe two for the thick ridge. Then the scraps will be ready to cut into patches — the worn spot inside my left foot wrap heel, the thin places on the jerkin inner arm where the hide has rubbed against the axe handle through these three months. The leather will not be beautiful. It will hold, which is all I need.
+
+I return the pieces to the soak and sit a moment on the doorsill bench, hands a little raw from working. The afternoon is cold and absolutely still. Frost gone from the south slope but still white along the north face of the woodpile and under the eaves in shadow. The sky is a clear winter blue. I feel, mostly, ready.
+
