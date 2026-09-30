@@ -18234,3 +18234,18 @@ Day 100 tomorrow. I have been trying to hold that number at a certain distance a
 
 The frost is settling again outside — I can see it silver on the doorsill planks through the gap at the threshold. I will bank the coals once more, pull the sleeping cap down, and let Day 100 come.
 
+
+### 9:19 PM · Last Light, Night Before
+
+The second lamp is burning lower now, the flame a still needle in the warm dark. I have the bone needle on the grinding stone and the leather laid straight on the doorsill bench — everything in order, everything ready for morning. There is nothing left to do tonight except let the lamp finish.
+
+Outside the frost is thickening. I can hear nothing but the occasional tick of the cooling cabin logs and the faint breath of the banked coals. The clearing is white in the starlight through the small gap at the smoke hole. Orion has cleared the treeline.
+
+A hundred days. The number sits quietly in me — not loudly, not with any ceremony I expected to feel. I did not arrive here knowing what I was doing. I felled my first log in the wrong direction and had to lever it halfway around with a branch pole. I burned through two char cloths learning how dry grass actually catches. I ate bitter roots before I sorted the good ones. All of that is folded back into this evening somehow, present without being heavy.
+
+I blow out the second lamp. The first still holds a low flame — just enough to see the doorsill bench, the peg rack, the shape of the sleeping shelf. I will let it burn to its wick end. Tomorrow I will re-wick both by morning light.
+
+A hundred days is not a finish. Tomorrow I will still rise, still tend the fire, still go to the line. The milestone changes nothing, which is the right kind of milestone. A hundred days of this means: I know how to do this now. The axe is in my hands the way a pen is in a writer's hands — without much thinking. That is what the hundred days gave me. That is enough.
+
+The first lamp gutters once and holds. I pull the sleeping cap down over my ears and settle back on the cattail mat. The coals breathe quietly. The frost outside is settling on everything that holds still.
+

@@ -1755,3 +1755,4 @@ Day 99, 2026-09-30, 17:18 — Eve of a Hundred: trout-and-mushroom supper simmer
 Day 99, 18:19 — Hundred-Day Eve: two cord lengths braided by lamplight; fire banked; sleeping cap on peg; Day 100 coming at dawn.
 2026-09-30 Day 99 19:19 — Eve of a Hundred: quiet evening reflection by lamplight on the eve of Day 100; frost on the clearing, stars coming in, coals banked, cabin at rest.
 Day 99, 2026-09-30, 20:19 — laid bone needle and bark cord on grinding stone for morning; leather on bench; reflected on eve of Day 100; coals banked, frost settling, ready for sleep.
+Day 99, 2026-09-30, 21:19 — Last Light, Night Before: second lamp blown out; first lamp burning to its end; quiet reflection on a hundred days before sleep — the milestone is not ceremony but competence, the axe in hand without thinking.
