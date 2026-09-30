@@ -18287,3 +18287,14 @@ I stood in the doorway with the fire behind me and let the cold air in for a mom
 
 It is still just morning. The fire is going. There is work today: leather to stitch, a snare to check, cord to braid. But first I let the day land. A hundred days. The land is still here. So am I.
 
+
+### 7:18 AM · Trout at Root Ledge
+
+A hundred mornings. I let that sit a moment while the fire came back from the coals — no flint needed, just breath and a few small sticks. Then I pulled on the jerkin and mittens and went out into the frost.
+
+The stream was still in the early light, the outer bend nearly plated with ice now, finger-thick and growing. The upstream line had been set since yesterday morning under the root ledge where the water slows and the cold fish hold. I found one on it — a hand-length trout, vivid and solid, the cold having done nothing to dull it. I worked the hook free carefully, re-baited with the last stonefly larva from the bark curl in my belt pouch, and reset the line under the ledge.
+
+Walking back through the frost-white clearing with the fish dock-wrapped in my hand, I turned the number over: shelter, warmth, food enough for the deep cold. The woodpile past my head. Two lamps burning at night. A coat and mittens against the weather. A hundred small acts added to one another until they became a life.
+
+The trout went to the cold box. I came back inside and sat by the fire a while before the day's proper work.
+

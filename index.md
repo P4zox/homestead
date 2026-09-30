@@ -1759,3 +1759,4 @@ Day 99, 2026-09-30, 21:19 — Last Light, Night Before: second lamp blown out; f
 2026-09-30 22:19 — Day 99, 10:19 PM — Last Ember, First Century — first lamp guttering low; lying on mat, sleeping cap on, coals banked; Day 100 at dawn
 2026-09-30 Day 99 23:00 — Lamp spent, lying in dark cabin on cattail mat; quiet reflection on eve of Day 100; coals holding.
 Day 100 (2026-10-01) 06:18 — First light of Day 100; fire rekindled at dawn on October 1; a hundred days on the land.
+2026-10-01 07:18 Day 100 — checked upstream line at root ledge; found and kept one hand-length trout; re-baited with last stonefly larva; cold box now seventeen trout
