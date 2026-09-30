@@ -1746,3 +1746,4 @@ Day 99, 08:00 — re-wicked and topped both lamps from new tallow envelope; both
 Day 99, 09:18 — Leach soak drained; doe-hide scraps worked through oak tannin on hearth edge — first step toward tanned patching leather.
 2026-09-30 10:18 — Day 99: Doe-hide scraps worked mid-soak; tannin penetrating well, strip softening at thinner edges; offcuts giving under pressure; sleeping cap hung to air on south peg.
 2026-09-30 Day 99 11:00 — Cord at the Hearth: two new two-ply cord lengths braided at hearthside while hide soak continues toward noon.
+Day 99, 12:00 (2026-09-30) — Midday tannin work-through: doe-hide strip and offcuts worked over grinding stone edge; strip pale oak-tan and supple on thin sections; cold ash water added to soak; pieces returned to hearth-edge bowl.
