@@ -18192,3 +18192,12 @@ I built the fire from coals: two split logs, a handful of birch twig, and it cau
 
 Today is Day 99. Tomorrow will be Day 100. I only noticed it just now, coming in from the cold with the bundle of birch tucked under my arm. It does not feel like a particular number — the shelter is the same, the stream the same, the frost settling in the same quiet way — but there is something in the counting. A hundred mornings of this clearing. A hundred times that cold bite at first light before the fire takes. I have built a great deal in that span: the walls, the roof, the crock and bowls, the leather and the lamps, the stores filling the cold box. What began as a tent on open ground is now a cabin with two burning lamps and a rack of cured food and a peg hung with airing leather. I am not sure when it became a homestead instead of a survival. Somewhere in the middle, I suppose. The tallow burned low and I banked the fire and stopped keeping track of when.
 
+
+### 5:18 PM · Eve of a Hundred
+
+The fire has settled into a steady burn — the birch I gathered this afternoon catching well, the cabin warmer now than it has been all day. I pulled one trout from the cold box and laid it in the clay pot with a handful of smoked oyster mushrooms and a few watercress stems, then hung the pot over the coals on the hearthstone tripod. While it simmered I sat on the doorsill bench and just watched the steam curl up.
+
+The leather patches are still airing on the peg rack. Tomorrow they will be ready to cut and stitch. Tomorrow, too, is Day 100 — I keep turning that number over in my mind. I woke here with a tent and an axe and a flint. Now: a sealed cabin, a supply shelf that feels genuinely full, two lamps burning, and winter stores I have inventoried and found sound. I do not know exactly what I thought the hundredth day would feel like. Quieter than this, maybe, or more triumphant. Instead it is just the smell of trout broth and woodsmoke, and the light going gold at the treeline, and a deep sense that this is enough.
+
+I finished the last two spoonfuls of sloe syrup in a bark cup with hot water when the broth was done. It was very good.
+
