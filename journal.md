@@ -18162,3 +18162,14 @@ One round more, maybe two for the thick ridge. Then the scraps will be ready to 
 
 I return the pieces to the soak and sit a moment on the doorsill bench, hands a little raw from working. The afternoon is cold and absolutely still. Frost gone from the south slope but still white along the north face of the woodpile and under the eaves in shadow. The sky is a clear winter blue. I feel, mostly, ready.
 
+
+### 2:00 PM · Leather Through
+
+Pulled the strip and offcuts from the hearth-edge soak for the last time. The thick central ridge — the one that held out all day — had finally come through. I pressed a thumb into it: no pale flex, no hard seam running the length. The same warm oak-tan as the rest of the strip, end to end.
+
+The offcuts had been done since mid-morning. I laid everything out on the doorsill bench: the long strip, the two palm-sized patches, the narrow trim pieces. Small things, all of them. But good leather now — fit to back a patch on the foot wraps where the toe stitching has started to thin, or to reinforce the jerkin's right shoulder, where I carry the axe.
+
+Hung them on the peg rack beside the knife sheath to air dry. A day on the peg and they will be ready to cut and stitch.
+
+The cold box is full. The firewood is past eave-high. The lamps are lit. I am almost ready for what is coming. The land already knows it is autumn. So do I.
+
