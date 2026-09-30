@@ -18134,3 +18134,12 @@ Outside the door, the frost is retreating from the bench planks, leaving them da
 
 Winter is assembling itself, piece by piece. I am assembling my answer to it.
 
+
+### 10:18 AM · Hides Worked Through
+
+The tannin soak had been going for just under an hour when I reached in and pulled the long strip out, wringing it gently over the bowl. The liquid that drips from it is pale amber now — lighter than when I poured it — and the hide itself has taken on a slight softness along the thinner edge where the scraping was deepest. I worked it through my hands: folding, pressing, pulling slightly against itself, feeling for where it still resists. The offcut patches are softer than the main strip, already giving under pressure. I kneaded each one for a few minutes, then folded them back into the warm soak.
+
+There is a particular quiet to hide work in the morning. The fire is low and steady, both lamps burning with their small even flames, and outside the frost is retreating from the lower meadow though the shadow side of the eave is still white. I do not need to do anything to the soak for another hour or two — just let the tannin keep working. I hung the sleeping cap on the south peg to air, since it has been close to the fire since dawn and the bark cord needs to breathe.
+
+The winter stores feel solid. The cold box full of fish and meat and mushrooms, the shelf heavy with envelopes, both lamps lit against the grey mornings. I work the hide scraps and watch the fire and feel the day settle into its rhythm.
+
