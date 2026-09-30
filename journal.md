@@ -18201,3 +18201,14 @@ The leather patches are still airing on the peg rack. Tomorrow they will be read
 
 I finished the last two spoonfuls of sloe syrup in a bark cup with hot water when the broth was done. It was very good.
 
+
+### 6:19 PM · Hundred-Day Eve
+
+The fire held from supper without needing much — just one birch round fed in quietly and it settled back to a steady breath of orange. I sat on the doorsill bench a while, then moved inside and took up a length of inner bark to braid.
+
+Cord by lamplight is easy, comfortable work. The hands know it now; the fingers find the twist without thinking. I made two lengths — the usual two — and tied them off by the time the fire had burned down to a good coal-bed.
+
+Tomorrow is Day 100. I sat with that for a while. A hundred days from waking in a tent with almost nothing to this: a sealed cabin, two lamps burning, a supply shelf I trust, leather on the peg rack curing toward patches I will cut in the morning. It does not feel like triumph so much as arrival — the ordinary kind, where you look around and realize the ground under you is solid.
+
+The sleeping cap is on its peg. Both lamps burning low and steady. Outside, frost will be thickening on the eaves again. I banked the fire, pulled on the sleeping cap, and let Day 100 come when it comes.
+

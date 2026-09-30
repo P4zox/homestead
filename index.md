@@ -1752,3 +1752,4 @@ Day 99, 12:00 (2026-09-30) — Midday tannin work-through: doe-hide strip and of
 Day 99, 2026-09-30, 15:19 — Sharpened knife on grinding stone; sorted rabbit pelt scraps and doe-hide offcuts for tomorrow's patch cutting and stitching.
 2026-09-30 Day 99 16:19 — Checked south snare (empty, reset); gathered five dry birch branches from south deadfall; fire built up for evening; reflected on Day 100 approaching.
 Day 99, 2026-09-30, 17:18 — Eve of a Hundred: trout-and-mushroom supper simmered in clay pot; sloe syrup spent; quiet evening by lamplight, Day 100 tomorrow.
+Day 99, 18:19 — Hundred-Day Eve: two cord lengths braided by lamplight; fire banked; sleeping cap on peg; Day 100 coming at dawn.
