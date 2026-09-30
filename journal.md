@@ -18271,3 +18271,19 @@ I do not feel triumphant — just steady. Glad. A hundred days is not a destinat
 
 The coals will hold until morning. Day 100 at dawn.
 
+
+---
+
+# Day 100 — Thursday, 1 October 2026
+*mid-autumn · hard overnight frost; pale grey sky clearing slowly to cold blue; ice at stream curve finger-thick; no wind*
+
+### 6:18 AM · First Light, Day Hundred
+
+I woke in the dark before 6 and lay still for a moment, aware of the date. A hundred days. The cabin held warmth from the banked coals, and the sleeping cap kept the cold off my ears. I got up, found three live embers in the ash, fed them dry birch bark curl and two thin kindling splits, and watched the fire take hold.
+
+Outside the doorsill, frost had settled on everything — the bench planks, the bark tiles, the clearing grass, the stacked wood. The sky to the east was the grey-pale of earliest light, no colour yet. Ice at the stream curve. October 1.
+
+I stood in the doorway with the fire behind me and let the cold air in for a moment. A hundred days ago I woke here with almost nothing. Now there are sixteen trout in the cold box, a peg rack hung with leather, two lamps on the shelf, a cabin that holds shut and keeps out wind, and a garden under leaf mulch resting toward next year.
+
+It is still just morning. The fire is going. There is work today: leather to stitch, a snare to check, cord to braid. But first I let the day land. A hundred days. The land is still here. So am I.
+
