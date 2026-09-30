@@ -18143,3 +18143,7 @@ There is a particular quiet to hide work in the morning. The fire is low and ste
 
 The winter stores feel solid. The cold box full of fish and meat and mushrooms, the shelf heavy with envelopes, both lamps lit against the grey mornings. I work the hide scraps and watch the fire and feel the day settle into its rhythm.
 
+
+### 11:00 AM · Cord at the Hearth
+
+The fire is settled to coals under ash, breathing steady. The doe-hide strip and offcuts are still in their tannin soak on the hearth edge — not due for working-through until noon. Nothing outside calls yet; frost still holds on the north-facing eave planks, slow to give up in the pale cold blue of mid-morning. I pulled the bark-strip bundle from the shelf and sat on the doorsill bench with my back against the door frame. Two lengths of two-ply cord braided out — split the inner bark thin, twist each half against the thigh, splice them together as they meet. The hands do it almost without thinking. The sleeping cap hangs airing on its south peg, still faintly carrying the scent of fresh pelt. I tied off the lengths and tucked them into the stock. There is always more cord to make; it always finds a use before the season ends. The coals are orange under the grey ash. The hide soaks. The morning holds.

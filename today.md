@@ -4,3 +4,4 @@
 08:00 — Both lamps re-wicked with fresh dry-grass; new tallow envelope poured into each cup; both lit and burning steady on supply shelf; sat at hearthstone a while before the day opens.
 09:18 — Leach soak #2 drained (oak tannin); doe-hide scraps softened in warm water then worked one by one through the tannin, folded and pressed; long strip and offcuts now in slow tannin soak on hearth edge — building toward patching leather for foot wraps and jerkin.
 10:18 — Mid-soak work-over: pulled long strip and offcut patches from warm tannin soak (one hour in); worked each piece through hands — fold, press, pull — to open fibers; strip showing faint tan at thinner scraped edges, offcuts softening well; returned all pieces to soak; sleeping cap hung on south peg to air.
+11:00 — Cord at the Hearth: hide soak continuing; sat on doorsill bench and braided two new two-ply cord lengths from inner bark stock; both tied off and added to supply shelf; fire holding on coals.
