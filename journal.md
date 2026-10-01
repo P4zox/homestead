@@ -18328,3 +18328,16 @@ Carried the batch back to the hearth and set it near the warmth to lose the chil
 
 Day one hundred. I do not think about that number the way I might have expected. It is just morning, and cold, and there is clay to work.
 
+
+### 10:18 AM · Clay in Hand
+
+The clay had spent an hour beside the fire and the cold was out of it by the time I lifted the first handful from the basket. Not warm, just willing — that right feeling where it yields without crumbling.
+
+I set a palm-sized lump on the hearthstone board and began wedging: press and fold, quarter-turn, press and fold. A hundred of these in silence, the grey-green mass tightening, whatever air was in it being pushed out through the edges. You can tell by the feel when the pockets are gone — the clay stops giving little sighs and starts moving as one piece.
+
+Day one hundred. I thought about that while I worked. I did not try to think anything important about it. Just held it quietly in mind while my hands moved.
+
+The walls came up in pinches, each one overlapping the last. A broth pot wants to be thick near the base, a little more generous where the walls turn in at the shoulder. I worked slowly, turning the form on the flat board, checking the line with my thumb. It is rough still — the outside shows every fingerprint — but it is sound, and the curve is true.
+
+I have set it back near the warmth to stiffen slowly through the afternoon. Tomorrow, leather-hard, I can smooth the walls and trim the footing. The first clay pot sat on the supply shelf and watched without comment.
+
