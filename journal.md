@@ -18298,3 +18298,20 @@ Walking back through the frost-white clearing with the fish dock-wrapped in my h
 
 The trout went to the cold box. I came back inside and sat by the fire a while before the day's proper work.
 
+
+### 8:18 AM · Leather Patches, Day One Hundred
+
+Frost still on the bench planks when I pulled the doe-hide strip and offcuts from the peg rack this morning. The overnight air dried them to just the right give — supple enough to fold without cracking, firm enough to hold a cut edge. I brought everything to the hearthstone, laid the strip flat against the warm stone, and sat with it for a moment.
+
+Day one hundred.
+
+I said it aloud, once, to hear it in the cabin. Then I picked up the knife.
+
+I cut the long strip first into four even patches — each a half-hand wide, a hand and a half long. The offcuts followed: two palm-sized pieces I trimmed to square, edges pared at a low angle to thin the seam allowance. I kept every scrap; even narrow crescent trimmings go back to the pile for lacing or cord backing later. Nothing wasted on a day like this.
+
+The foot wraps have worn thin along the ball of the foot where they double under. I threaded the bone needle with a short length of bark cord, doubled, and set the first patch over the right wrap's worn zone, holding it with three tack-stitches while I worked around the edge with a tight saddle stitch — in through the upper layer, out through the patch, back through, each stitch pulled snug but not puckering. The bone needle slides through cured leather with a small pop I have come to enjoy. It is a satisfying sound. It means the seam is closing.
+
+Both foot wraps patched by the time the frost had fully lifted from the clearing glass. I held one up to the south window light to see the stitch lines: even, clean, close-set. They will outlast the original leather now.
+
+A hundred days, and I am mending things I built months ago. That feels like the right kind of progress — not always adding, sometimes simply keeping what you have.
+
