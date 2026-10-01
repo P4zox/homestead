@@ -18341,3 +18341,12 @@ The walls came up in pinches, each one overlapping the last. A broth pot wants t
 
 I have set it back near the warmth to stiffen slowly through the afternoon. Tomorrow, leather-hard, I can smooth the walls and trim the footing. The first clay pot sat on the supply shelf and watched without comment.
 
+
+### 11:18 AM · Day 100 Table
+
+The second pot drying at hearthside, the morning's work in my hands the way earned things feel, and eleven o'clock finding me finally quiet enough to mark the day. I took one trout from the cold box — one of the fresh dock-wrapped ones — and set the amber-cream broth pot on a slow coal bed to come up to heat. While it warmed I sorted through the shelf: two bark-wrapped hen-of-the-woods clusters, a pinch of dried yarrow for warmth, a small spoon of hazel paste to stir in at the end and make it filling. I jointed the trout at the hearth, laid in the mushrooms, and let the whole thing simmer while I sat with my back to the fire and the door standing open a hand-width.
+
+A hundred days of this. I stood at the doorsill while the broth cooked and looked at the clearing the way you look at something you've earned the right to see plain. Frost still silver on the far grass edge. The birches behind the cabin half-bare, their upper crowns skeletal against pale blue sky. The slope all amber and gold and thinning, and below that the dark permanence of the pines — the pines that don't change, that were here before me and will be here long after. The garden plots under leaf mulch, resting now. The woodpile past eave-high. The cold box full to the lid. Both lamps burning on the shelf inside.
+
+I ate at the doorsill bench with the bowl in both hands, broth steaming in the cold air, the clearing spread out in front of me. Not ceremonial. Just true. A hundred days is just a number, but it's a number that means the shelter held, the fire kept, the food came, and I came through every one. That's the whole of it.
+
