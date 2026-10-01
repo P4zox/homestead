@@ -1773,3 +1773,4 @@ Day 100, 17:19 — Lamps lit at dusk; supper of smoked mushrooms, starch cakes, 
 Day 100, 18:18 — Lamp-sit by hearthstone; two cord lengths braided by lamplight; second pot body stiffening; Day 100 closes warm and quiet
 2026-10-01 19:19 — Day 100 — Checked second pot body (leather-hard), shifted from coals for even overnight dry; banked fire with one birch log under deep ash; both lamps lit; Day 100 closes warm.
 2026-10-01 Day 100 20:19 — Last lamplight of the hundredth evening; braided final cord lengths by firelight; quiet reflection on a hundred days made solid.
+Day 100, 21:19 — Stepped outside on the hundredth night to see the stars above a frost-white clearing; returned, added one last log to coals, blew out both lamps, and settled in for sleep.

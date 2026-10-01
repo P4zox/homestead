@@ -18422,3 +18422,14 @@ A hundred days. When I count them this way, sitting still, I feel the weight of 
 
 Outside: frost deep, clearing white and still, the pines very dark against a black sky. Inside: warm. I will sleep sound on the hundred.
 
+
+### 9:19 PM · Hundredth Night, Stars
+
+Stepped outside with my lamp still in hand, then set it back on the doorsill and let my eyes adjust to the dark. The frost had come down heavy again — clearing grass white and stiff, bench planks rimed, my breath a small cloud in the still air. Above the treeline the sky was clear and deeply black, stars scattered close-packed from the birches east to the pines west, the Milky Way a faint smear that you only see when you stop looking for it.
+
+I stood there a few minutes. Not thinking much. A hundred days of this place, this frost, this same strip of sky. It does not compress easily into a feeling — it is more like weight, good weight, the kind that means you have been somewhere long enough for it to hold you back a little when you think of leaving. I do not think of leaving.
+
+Back inside, I set a last log gently against the banked coals without disturbing the ash, blew out both lamps one at a time, and lay down. The second pot body is drying quiet near the hearth. Tomorrow I will smooth and trim it.
+
+A hundred days. Sleep comes easy.
+
