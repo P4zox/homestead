@@ -18438,3 +18438,7 @@ A hundred days. Sleep comes easy.
 
 Woke briefly — the cabin warm, the banked coals still glowing orange through the ash. One hundred days. The walls solid around me, the roof holding out the frost, the lampless dark deep and quiet. I listened for wind; there was none. Only the soft tick of the cooling log and the faint creak of cold in the birch grove. I pulled the sleeping bag tighter and settled back. The second pot body still drying near the hearth edge. Tomorrow — its walls leather-hard, ready to smooth and trim. A hundred days, and still work ahead. That is a good thing. Back to sleep.
 
+
+### 11:18 PM · Still, the Coals Glow
+
+A few minutes past eleven, and Day 100 is down to its last breath. I lie in the sleeping bag half-awake — the banked coals giving off a low orange shimmer across the ceiling logs, just enough to see the shape of the cabin around me. The second pot body somewhere near the hearth, hardening through the dark. Outside, frost on everything. I can feel the cold holding at the door but not getting in. A hundred days made. I let the thought pass and pull sleep back around me.
