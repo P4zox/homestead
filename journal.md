@@ -18433,3 +18433,8 @@ Back inside, I set a last log gently against the banked coals without disturbing
 
 A hundred days. Sleep comes easy.
 
+
+### 10:19 PM · Warm in the Dark
+
+Woke briefly — the cabin warm, the banked coals still glowing orange through the ash. One hundred days. The walls solid around me, the roof holding out the frost, the lampless dark deep and quiet. I listened for wind; there was none. Only the soft tick of the cooling log and the faint creak of cold in the birch grove. I pulled the sleeping bag tighter and settled back. The second pot body still drying near the hearth edge. Tomorrow — its walls leather-hard, ready to smooth and trim. A hundred days, and still work ahead. That is a good thing. Back to sleep.
+
