@@ -18381,3 +18381,7 @@ I reset it carefully: re-bent a fresh trigger stick from the snare-wood bundle, 
 
 The pot is stiffening at the hearth edge. Tomorrow I will trim and smooth it.
 
+
+### 4:18 PM · Seam Check at Dusk
+
+The afternoon light was already amber and low when I walked the cabin perimeter — one slow circuit, running a hand along each wall course, pressing knuckles against the gable daub panels, checking where the bark edges met the log ends. The east gable lower corner showed what I had half-expected: the bark wrapping had lifted a finger-width at the base, frost-stiffened and buckled overnight. A hollow sound when I tapped it. I worked a palmful of dry moss into the gap, seated it firmly, then laid a fresh bark strip over it and pinned the edges with two split-pine pins. Five minutes of work, but that kind of gap will find you in January. The rest of the cabin held — the west gable, extra-layered back in what now feels like another life, gave nothing; the ridgepole was solid in its saddle notches; the roof bark courses remained sealed. I came back in and sat by the fire as the dusk settled fast, the second pot body ticking quietly at the hearth edge as it dried, the clearing outside going grey and still.
