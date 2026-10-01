@@ -18407,3 +18407,9 @@ A hundred days. That's the thing I kept turning over, hands working the cord. I 
 
 The lamps will burn low in another hour. I'll bank the coals, pull the sleeping bag up, and let Day 100 close in the dark. Tomorrow the frost will come again and there is still work — the pot to trim, the snare to check, more cord before snow comes in earnest — but tonight this is enough.
 
+
+### 7:19 PM · Coals Banked Deep
+
+Dusk has settled into night. Both lamps burn on the shelf, their small flames steady in the still cabin air. I checked the second pot body one last time — ran a thumb along the rim, pressed gently at the mid-wall. Firm now, leather-hard, no soft give left in it. I moved it a hand's width further from the coals so it dries evenly overnight without cracking in the warmth. Then I drew the fire's coals together with a green stick, raked the fine ash to either side, and laid one slow birch log across the center to hold the heat through the cold hours. Covered it deep with ash to slow the burn. It will still be live in the morning.
+
+Day 100 closes here — in the orange glow of two small lamps and a hearth full of banked embers. A hundred days on this land. The hundred-first will come.

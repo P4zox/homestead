@@ -1771,3 +1771,4 @@ Day 100, 2026-10-01 — 14:00 walked clearing bounds (stream, garden, south slop
 Day 100, 16:18 — Cabin perimeter seam check; east gable lower corner bark strip frost-lifted; moss-packed, bark-pinned, sealed; walls and ridgepole sound.
 Day 100, 17:19 — Lamps lit at dusk; supper of smoked mushrooms, starch cakes, and watercress eaten at hearthstone with door half open to the dark clearing; Day 100 closes quiet and full.
 Day 100, 18:18 — Lamp-sit by hearthstone; two cord lengths braided by lamplight; second pot body stiffening; Day 100 closes warm and quiet
+2026-10-01 19:19 — Day 100 — Checked second pot body (leather-hard), shifted from coals for even overnight dry; banked fire with one birch log under deep ash; both lamps lit; Day 100 closes warm.
