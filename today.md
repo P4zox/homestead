@@ -11,3 +11,4 @@
 15:19 — Walked to south snare; found trigger fired and cord slack — snare had tripped since last check; a few grey hairs in loop, animal slipped free; reset snare carefully (re-bent trigger stick, retied loop at rabbit height, checked ground footing); walked home in late copper light.
 16:18 — Walked cabin perimeter in fading amber light; found frost-lifted bark strip at east gable lower corner; moss-packed gap, pinned fresh bark strip with two split-pine pins — sealed tight; rest of walls and ridgepole sound; back inside as dusk settled, fire steady, second pot body drying at hearth edge.
 17:19 — Lit lamps at dusk; cooked supper of smoked oyster mushrooms, two cattail starch cakes, and watercress at hearthstone with door half open to the cold dark clearing; ate quietly, Day 100 closes.
+18:18 — Sat at hearthstone by lamplight; braided two more cord lengths; checked second pot body — walls stiffening, no cracks yet; fire low and steady; Day 100 closes warm.

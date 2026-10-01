@@ -18396,3 +18396,14 @@ A hundred days. I did not come here knowing how to do any of this — the walls,
 
 The second pot body stiffens at the hearth edge. By dawn it will be leather-hard and ready to smooth. The snare is set in the south corridor. The woodpile stands past the eave. Both lamps burn low and steady. Day 100 closes quiet.
 
+
+### 6:18 PM · Lamp-sit, Cord Work
+
+The two bark-cup lamps burn steady at each shelf end, small warm points in the dark. Outside, the clearing is black past the nearly-shut door — just a finger-crack left for the fire's air — and the cold seeps in enough to feel but not enough to trouble. The second pot body sits at the hearth edge, walls begun to stiffen from soft clay to something firmer and dry at the rim. No cracks forming yet. Tomorrow I'll smooth and trim it.
+
+I sat down with a long strip of birch inner bark and worked through two more lengths of two-ply cord, hands moving in the old familiar pattern without needing to think. Easy work by lamplight. The fire was low and steady, throwing orange across the clay walls, the peg rack, the stacked supplies on the shelf. Everything that matters to the winter is in this room or ten paces from it.
+
+A hundred days. That's the thing I kept turning over, hands working the cord. I came here with almost nothing and the winter felt very close. Now there is a sealed cabin, an eave-high woodpile, sixteen trout in the cold box, rabbits and mushrooms and acorn flour and dried fruit — enough to believe in. Not certainty. But enough to feel the difference between that first week and this one.
+
+The lamps will burn low in another hour. I'll bank the coals, pull the sleeping bag up, and let Day 100 close in the dark. Tomorrow the frost will come again and there is still work — the pot to trim, the snare to check, more cord before snow comes in earnest — but tonight this is enough.
+
