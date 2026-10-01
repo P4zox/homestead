@@ -1767,3 +1767,4 @@ Day 100, 10:18 AM — Second broth pot roughed out from morning clay harvest; we
 2026-10-01 12:18 Day 100 — re-baited mid-depth bark-paddle rig with two caddisfly cases at eddy pool downstream; four cases remaining in belt pouch; pot drying at hearthside
 Day 100, 13:19 (2026-10-01, Thu) — Afternoon cord braiding at the hearthstone; second broth pot body drying; quiet close to the hundredth day.
 Day 100, 2026-10-01 — 14:00 walked clearing bounds (stream, garden, south slope); scraped pine resin from south weeps, thickened amber-hard by frost; one resin envelope sealed and shelved; slow circuit of the land on Day 100.
+[Day 100 — 2026-10-01 15:19] South snare found tripped/empty (grey hairs in loop); reset at south slope; rabbit activity confirmed in area.

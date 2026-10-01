@@ -18372,3 +18372,12 @@ At the resin weeps I stopped and scraped what the cold had already thickened to 
 
 It is a strange feeling: a hundred days of this land, and I know it now well enough to walk it by touch almost. The stream's voice, the particular give of the clearing soil underfoot, the way the birches at the treeline whisper the wind before I feel it myself. I started with next to nothing and now — sixteen trout in the cold box, cord in neat lengths on the shelf, a pot drying at the hearth, a bed of dry bracken under a proper roof. It is enough. More than enough for what this day asked.
 
+
+### 3:19 PM · South Snare, Late Light
+
+The afternoon light came in at a low angle, copper through the birch gaps, when I walked south to check the snare line. Found the trigger stick fallen and the cord slack against the ground — it had fired at some point since I last reset it. No animal in the loop, but a few grey hairs caught where the cord brushed the fur going through. Close. They are still moving through the south slope in the evenings.
+
+I reset it carefully: re-bent a fresh trigger stick from the snare-wood bundle, retied the loop to the right height for a rabbit's neck, pressed the footing down smooth. The light was long across the grass by the time I finished, shadows reaching out from the treeline. I stood there a moment before turning back. A hundred days on this land and the south slope still keeps its own rhythms, its own small traffic I only ever partly see.
+
+The pot is stiffening at the hearth edge. Tomorrow I will trim and smooth it.
+
