@@ -6,3 +6,4 @@
 10:18 — Wedged morning clay batch at hearthstone; formed second broth pot body by pinch-coiling — thick base, walls built up slowly, curve checked by eye; set near hearth to dry and stiffen through the afternoon; will smooth and trim tomorrow when leather-hard.
 11:18 — Cooked trout and smoked hen-of-the-woods broth to mark Day 100; simmered at slow coal bed; ate at doorsill bench watching the frost-edged clearing, birches half-bare against pale October sky — broth rich and warm, the day marked plain.
 12:18 — Walked downstream to check mid-depth bark-paddle rig at eddy pool; no catch but rig sound and line clean; re-baited with two caddisfly cases from belt pouch and reset at calmer eddy edge; four caddisfly cases remaining; walked home along tree line.
+13:19 — Sat at hearthstone through the quiet afternoon; worked two more two-ply cord lengths from inner bark strips; watched second pot body stiffening at hearth edge; pale October light through the open door.

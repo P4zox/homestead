@@ -18359,3 +18359,7 @@ The mid-depth bark-paddle rig sits at the wider pool downstream, anchored where 
 
 The water ran dark and cold below the ice fringe at the outer bend, but the pool center was open. Walked back slowly along the tree line, afternoon light already angling gold and long across the clearing. Day 100, early afternoon, October beginning. There is a strange satisfaction in small maintenance — checking a thing, leaving it better than you found it, walking home while the pot still dries by the hearth.
 
+
+### 1:19 PM · Cord in Still Air
+
+The midday broth is long since settled, the pot stowed, and the clearing quiet. I brought a fresh handful of inner bark strips to the hearthstone and sat through the afternoon working two more lengths of two-ply cord — the rhythm familiar now, the motion almost restful. The second pot body rests at the edge of the fire, walls stiffening slowly as warmth draws out the moisture, and I watched it between turns of the cord. Outside the door the pale October light moved across the frost-bare grass, the birches half-stripped against the cold sky. A hundred days here. In the afternoon of the hundredth I am sitting by my own fire, braiding cord, watching a pot dry. That is not nothing.

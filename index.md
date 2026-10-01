@@ -1765,3 +1765,4 @@ Day 100, 2026-10-01, 08:18 — Leather patches cut and saddle-stitched onto worn
 Day 100, 10:18 AM — Second broth pot roughed out from morning clay harvest; wedged and pinch-coiled at hearthstone; set to dry at hearthside through afternoon.
 2026-10-01 Day 100 11:18 — Cooked trout and smoked hen-of-the-woods broth; ate at doorsill bench marking Day 100.
 2026-10-01 12:18 Day 100 — re-baited mid-depth bark-paddle rig with two caddisfly cases at eddy pool downstream; four cases remaining in belt pouch; pot drying at hearthside
+Day 100, 13:19 (2026-10-01, Thu) — Afternoon cord braiding at the hearthstone; second broth pot body drying; quiet close to the hundredth day.
