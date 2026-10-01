@@ -18413,3 +18413,12 @@ The lamps will burn low in another hour. I'll bank the coals, pull the sleeping 
 Dusk has settled into night. Both lamps burn on the shelf, their small flames steady in the still cabin air. I checked the second pot body one last time — ran a thumb along the rim, pressed gently at the mid-wall. Firm now, leather-hard, no soft give left in it. I moved it a hand's width further from the coals so it dries evenly overnight without cracking in the warmth. Then I drew the fire's coals together with a green stick, raked the fine ash to either side, and laid one slow birch log across the center to hold the heat through the cold hours. Covered it deep with ash to slow the burn. It will still be live in the morning.
 
 Day 100 closes here — in the orange glow of two small lamps and a hearth full of banked embers. A hundred days on this land. The hundred-first will come.
+
+### 8:19 PM · Late Lamp, First Hundred
+
+Fire holds under deep ash, both lamps burning steady on the shelf. I pulled a few more bark strips from the stock and worked them by lamplight — four more lengths of two-ply cord added to the pile, hands moving without thought. The pot body cools slowly in the corner, leather-hard and drying even.
+
+A hundred days. When I count them this way, sitting still, I feel the weight of each one — not as burden but as substance. The walls are here. The roof holds. Cold storage full, fire certain, leather on my feet, two lamps where there was none. I did not plan this far ahead; I only kept choosing the next thing. And the next thing brought me here.
+
+Outside: frost deep, clearing white and still, the pines very dark against a black sky. Inside: warm. I will sleep sound on the hundred.
+

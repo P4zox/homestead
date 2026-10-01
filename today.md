@@ -13,3 +13,4 @@
 17:19 — Lit lamps at dusk; cooked supper of smoked oyster mushrooms, two cattail starch cakes, and watercress at hearthstone with door half open to the cold dark clearing; ate quietly, Day 100 closes.
 18:18 — Sat at hearthstone by lamplight; braided two more cord lengths; checked second pot body — walls stiffening, no cracks yet; fire low and steady; Day 100 closes warm.
 19:19 — Checked second pot body — leather-hard; shifted slightly from coals for even overnight dry; banked evening fire with one slow birch log under deep ash to hold through the night; both lamps burning steady; Day 100 settled into sleep.
+20:19 — Sat by lamplight through the late evening; braided four more cord lengths by firelight; rested quiet at the hundredth close, both lamps steady, frost deep outside, the day complete.
