@@ -18350,3 +18350,12 @@ A hundred days of this. I stood at the doorsill while the broth cooked and looke
 
 I ate at the doorsill bench with the bowl in both hands, broth steaming in the cold air, the clearing spread out in front of me. Not ceremonial. Just true. A hundred days is just a number, but it's a number that means the shelter held, the fire kept, the food came, and I came through every one. That's the whole of it.
 
+
+### 12:18 PM · Caddisfly Bait Set
+
+After the broth I sat a while on the doorsill bench, watching frost still lingering in the cabin's shadow while melting at the clearing's edge where noon sun touched the grass. The sky had come clear and cold — pale blue, no wind, every branch sharp. I pulled the belt pouch open and counted the caddisfly cases: six, intact, still in their silky husks.
+
+The mid-depth bark-paddle rig sits at the wider pool downstream, anchored where the current eddies. I hadn't checked it in several days. Walked down with the cases in my palm, glad of the quiet walk and the clear October air. The rig was still seated, line taut against the anchor stone — no fish, but the hook was clean and the line sound. I re-baited with two caddisfly cases, wedged them secure, and reset the rig at the calmer edge of the eddy where I've had luck before. Four cases left in the pouch.
+
+The water ran dark and cold below the ice fringe at the outer bend, but the pool center was open. Walked back slowly along the tree line, afternoon light already angling gold and long across the clearing. Day 100, early afternoon, October beginning. There is a strange satisfaction in small maintenance — checking a thing, leaving it better than you found it, walking home while the pot still dries by the hearth.
+
