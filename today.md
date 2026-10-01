@@ -7,3 +7,4 @@
 11:18 — Cooked trout and smoked hen-of-the-woods broth to mark Day 100; simmered at slow coal bed; ate at doorsill bench watching the frost-edged clearing, birches half-bare against pale October sky — broth rich and warm, the day marked plain.
 12:18 — Walked downstream to check mid-depth bark-paddle rig at eddy pool; no catch but rig sound and line clean; re-baited with two caddisfly cases from belt pouch and reset at calmer eddy edge; four caddisfly cases remaining; walked home along tree line.
 13:19 — Sat at hearthstone through the quiet afternoon; worked two more two-ply cord lengths from inner bark strips; watched second pot body stiffening at hearth edge; pale October light through the open door.
+14:00 — Walked the clearing bounds in afternoon stillness — stream bank to garden plots to south slope treeline; scraped pine resin from south weeps (thickened to amber beads by frost); one resin envelope sealed and shelved; slow circuit of the land on Day 100.

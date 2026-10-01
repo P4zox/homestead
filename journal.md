@@ -18363,3 +18363,12 @@ The water ran dark and cold below the ice fringe at the outer bend, but the pool
 ### 1:19 PM · Cord in Still Air
 
 The midday broth is long since settled, the pot stowed, and the clearing quiet. I brought a fresh handful of inner bark strips to the hearthstone and sat through the afternoon working two more lengths of two-ply cord — the rhythm familiar now, the motion almost restful. The second pot body rests at the edge of the fire, walls stiffening slowly as warmth draws out the moisture, and I watched it between turns of the cord. Outside the door the pale October light moved across the frost-bare grass, the birches half-stripped against the cold sky. A hundred days here. In the afternoon of the hundredth I am sitting by my own fire, braiding cord, watching a pot dry. That is not nothing.
+
+### 2:00 PM · Walking the Bounds
+
+The afternoon was still and pale-gold when I set out — no wind, the sky that particular shade of cold October blue that goes almost grey at its edges. I walked the whole circuit of the clearing slowly: down the stream bank where the ice at the outer curve has grown from a silver thread to a solid finger-thick shelf; across the frost-matted grass to the garden plots where the nettle crowns sit dark and dormant under their leaf-mulch and the sorrel has finally gone flat and bronze; then along the south slope treeline where the pines stand in long slanted afternoon light, their needles copper-warm against the pale sky.
+
+At the resin weeps I stopped and scraped what the cold had already thickened to hard amber beads at each wound. Small harvest, but the cold does the concentrating work — each envelope added to the shelf is one more winter seal. I came back along the woodpile side of the lean-to, ran a hand over the bark courses there, felt them solid.
+
+It is a strange feeling: a hundred days of this land, and I know it now well enough to walk it by touch almost. The stream's voice, the particular give of the clearing soil underfoot, the way the birches at the treeline whisper the wind before I feel it myself. I started with next to nothing and now — sixteen trout in the cold box, cord in neat lengths on the shelf, a pot drying at the hearth, a bed of dry bracken under a proper roof. It is enough. More than enough for what this day asked.
+
