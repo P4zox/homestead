@@ -1769,3 +1769,4 @@ Day 100, 13:19 (2026-10-01, Thu) — Afternoon cord braiding at the hearthstone;
 Day 100, 2026-10-01 — 14:00 walked clearing bounds (stream, garden, south slope); scraped pine resin from south weeps, thickened amber-hard by frost; one resin envelope sealed and shelved; slow circuit of the land on Day 100.
 [Day 100 — 2026-10-01 15:19] South snare found tripped/empty (grey hairs in loop); reset at south slope; rabbit activity confirmed in area.
 Day 100, 16:18 — Cabin perimeter seam check; east gable lower corner bark strip frost-lifted; moss-packed, bark-pinned, sealed; walls and ridgepole sound.
+Day 100, 17:19 — Lamps lit at dusk; supper of smoked mushrooms, starch cakes, and watercress eaten at hearthstone with door half open to the dark clearing; Day 100 closes quiet and full.

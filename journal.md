@@ -18385,3 +18385,14 @@ The pot is stiffening at the hearth edge. Tomorrow I will trim and smooth it.
 ### 4:18 PM · Seam Check at Dusk
 
 The afternoon light was already amber and low when I walked the cabin perimeter — one slow circuit, running a hand along each wall course, pressing knuckles against the gable daub panels, checking where the bark edges met the log ends. The east gable lower corner showed what I had half-expected: the bark wrapping had lifted a finger-width at the base, frost-stiffened and buckled overnight. A hollow sound when I tapped it. I worked a palmful of dry moss into the gap, seated it firmly, then laid a fresh bark strip over it and pinned the edges with two split-pine pins. Five minutes of work, but that kind of gap will find you in January. The rest of the cabin held — the west gable, extra-layered back in what now feels like another life, gave nothing; the ridgepole was solid in its saddle notches; the roof bark courses remained sealed. I came back in and sat by the fire as the dusk settled fast, the second pot body ticking quietly at the hearth edge as it dried, the clearing outside going grey and still.
+
+### 5:19 PM · Lamps Lit, Day Done
+
+The light fades early in October. By five o'clock the clearing is grey-blue shadow, the birch crowns above the treeline already gone against the sky. I lifted the first lamp from its shelf peg and touched the wick — it caught steady, a small yellow flame — and hung it beside the door while I built the fire from coals to a cook flame.
+
+Supper on Day 100: smoked oyster mushrooms pressed on the bark tray over the coal edge, two cattail starch cakes warming beside them, a handful of watercress laid over the top when everything came up hot. Ate at the hearthstone with the door pushed half open so the cold came in clean and the lamplight went out into the dark clearing. A plain meal. Exactly right.
+
+A hundred days. I did not come here knowing how to do any of this — the walls, the bark roof, the cold box, the clay pots, the rabbit leather, the cordage, the smoke rack and the filled winter store. I did each thing until I could do it, then I did the next thing. That is what a hundred mornings come to.
+
+The second pot body stiffens at the hearth edge. By dawn it will be leather-hard and ready to smooth. The snare is set in the south corridor. The woodpile stands past the eave. Both lamps burn low and steady. Day 100 closes quiet.
+
