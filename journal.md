@@ -18458,3 +18458,12 @@ I stepped out into the frost. The clearing was white and still, my breath rising
 
 A hundred days behind me. A winter still ahead. The stores are full on the shelves, the fire is alive, the pot body waits on the hearthstone. A clean place to start from.
 
+
+### 7:18 AM · Second Pot, Smoothed
+
+The fire has been fully up for over an hour, and the clearing still holds its frost — every plank and stone pale with it, the air cutting and still. I brought the second pot body to the hearthstone while the light was still young. It had sat leather-hard all night close to the warmth, and the walls gave that good resistance when I pressed my thumb against them: firm, no give, a slight cool but not cold all the way through.
+
+I worked the outside walls first with a wet finger, slow circles from base to rim. The coils have knit well — no gaps, no separations, only the faint ridges from building that come smooth under patient hands and water. I smoothed the inside next, reaching down through the rim to work the lower curve. The wall thickness feels even throughout; I thinned the rim slightly, rounding the inside lip to match the first pot still on the supply shelf.
+
+When both surfaces were done I turned it upside down on the flat grinding stone and smoothed the base — a little rough there from sitting on bark while it set up. Now it is upright again, rim up, in the warmth but not the direct heat. Another full day of slow drying and it should be ready to fire. The first pot holds broth and gives; the second will soon too.
+
