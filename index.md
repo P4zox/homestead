@@ -1776,3 +1776,4 @@ Day 100, 18:18 — Lamp-sit by hearthstone; two cord lengths braided by lampligh
 Day 100, 21:19 — Stepped outside on the hundredth night to see the stars above a frost-white clearing; returned, added one last log to coals, blew out both lamps, and settled in for sleep.
 2026-10-01 22:19 Day 100 — woke briefly in the dark, cabin warm, banked coals glowing, one hundred days settled into the body; back to sleep.
 2026-10-01 23:18 Day 100 — "Still, the Coals Glow" — lying half-awake at the hundredth close; coals glowing, second pot hardening, frost outside, cabin warm and sealed.
+2026-10-02 Day 101 06:00 — Rekindled from banked coals; second pot body leather-hard and ready; stepped out into deep October frost at first light; Day 101 begun.

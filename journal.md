@@ -18442,3 +18442,19 @@ Woke briefly — the cabin warm, the banked coals still glowing orange through t
 ### 11:18 PM · Still, the Coals Glow
 
 A few minutes past eleven, and Day 100 is down to its last breath. I lie in the sleeping bag half-awake — the banked coals giving off a low orange shimmer across the ceiling logs, just enough to see the shape of the cabin around me. The second pot body somewhere near the hearth, hardening through the dark. Outside, frost on everything. I can feel the cold holding at the door but not getting in. A hundred days made. I let the thought pass and pull sleep back around me.
+
+---
+
+# Day 101 — Friday, 2 October 2026
+*mid-autumn · hard overnight frost into pale dawn, clearing to cold blue*
+
+### 6:00 AM · First of a New Day
+
+The banked coals had held. I poked through the grey ash with a birch stick and found three orange hearts still alive deep under the white; fed them a curl of dry bark and blew softly until the flame leaned and caught. Day 101.
+
+The second pot body had sat overnight in hearthside warmth. I touched it in the early half-dark — the clay had stiffened to an even leather-hard all the way around, cool and firm under my fingers, no soft patch, no crack started. Ready to smooth this morning.
+
+I stepped out into the frost. The clearing was white and still, my breath rising in small clouds against the pale sky. The treeline had turned blue-green at the horizon — the first colour of an October morning. Out at the stream curve the ice would be growing inward, and I could see where the bench planks and eave tiles had gone over white in the night. I stood at the doorsill a long moment looking at it all.
+
+A hundred days behind me. A winter still ahead. The stores are full on the shelves, the fire is alive, the pot body waits on the hearthstone. A clean place to start from.
+
