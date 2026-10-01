@@ -1761,3 +1761,4 @@ Day 99, 2026-09-30, 21:19 — Last Light, Night Before: second lamp blown out; f
 Day 100 (2026-10-01) 06:18 — First light of Day 100; fire rekindled at dawn on October 1; a hundred days on the land.
 2026-10-01 07:18 Day 100 — checked upstream line at root ledge; found and kept one hand-length trout; re-baited with last stonefly larva; cold box now seventeen trout
 Day 100, 2026-10-01, 08:18 — Leather patches cut and saddle-stitched onto worn foot wraps; both wraps reinforced; Day 100 noted aloud at hearthstone.
+2026-10-01 Day 100, 09:18 — walked upstream to bent-alder clay bank; harvested two-thirds basket of grey-green clay before frost locks the seam; batch at hearth warming

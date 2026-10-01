@@ -18315,3 +18315,16 @@ Both foot wraps patched by the time the frost had fully lifted from the clearing
 
 A hundred days, and I am mending things I built months ago. That feels like the right kind of progress — not always adding, sometimes simply keeping what you have.
 
+
+### 9:18 AM · Clay Before the Freeze
+
+Morning cold is holding. The sky cleared to that particular pale winter blue that comes after a hard frost — ice on the outer stream curve finger-thick and growing inward, the birches standing bare above, amber leaves thinning and the first crowns naked. I sat by the fire a while after the foot-wrap work, turning over what Day 100 means, and decided the best way to mark it was something practical.
+
+The clay seam upstream will not last much longer. Two weeks ago, maybe three, I could have gone any day. Now there is frost in the mornings and the nights are dropping deep. In a week or two, that bank might be locked solid through to spring. I pulled on the leather jerkin, took the wide gathering basket and the hazel digging stick, and walked the two hundred paces upstream.
+
+The bent-alder bank was still workable. The surface was touched with frost, grey and stiff, but a few inches down the clay ran true — dark grey-green, smooth in the hands, just yielding enough to wedge without cracking. I dug steadily, moving along the bank, filling the basket to two-thirds. My breath came in small clouds. The stream ran quiet below, the ice collar thickening at the far bank.
+
+Carried the batch back to the hearth and set it near the warmth to lose the chill. Pressed a thumb in: still good. I will start wedging this afternoon — see if there is enough for a second broth pot. The first one is doing fine, but one pot means washing between every use; two means one stays hot while the other is filled.
+
+Day one hundred. I do not think about that number the way I might have expected. It is just morning, and cold, and there is clay to work.
+
