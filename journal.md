@@ -18512,3 +18512,12 @@ The second pot body still sits on the grinding stone. I checked it with a thumb 
 
 Outside: pale blue sky, no wind, the frost gone off the bench planks now, the birches lit amber-white where the sun touches them. A good day for smoking, for waiting, for letting things take the time they take.
 
+
+### 12:19 PM · Pale Noon, Hot Broth
+
+The smoke rack has been working since 11:00 — the velvet shanks hanging caps-down above the birch-log smoke, slowly darkening. I can smell them from anywhere in the clearing now, a clean mushroom-smoke layering over the deeper char of the hearth. It is midday, and the sun is as high as it gets in early October, which is not very high. The light comes in pale and low, no warmth in it, the sky a hard clear blue that promises more frost tonight.
+
+I set the clay pot on the hearthstone with stream water and brought a trout from the cold box — one of the recent catches, firm and cold. Added a handful of smoked log-cap mushrooms, a sheaf of watercress from the cold draw, let it come to a slow simmer. The pot handled it the same as always: steady heat, no seeping, the amber broth building clear and fragrant with woodsmoke and the cold mineral note of the watercress.
+
+Ate at the doorsill bench with both palms wrapped around the bowl. The second pot body sits on the grinding stone behind me, still slow-hardening — it will be ready to fire tomorrow if the hearth cooperates. Sixteen trout in the cold box. The velvet shanks darkening on the rack. The woodpile full past the eave. I let the stillness of noon sit with me for a while before coming back in.
+
