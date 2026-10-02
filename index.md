@@ -1785,3 +1785,4 @@ Day 101, 07:18 — Smoothed second clay pot body inside and out at hearthstone; 
 2026-10-02 12:19 — Day 101 noon: cooked midday broth (trout, smoked mushrooms, watercress) in clay pot; ate at doorsill in cold pale October light; velvet shanks smoking on rack.
 2026-10-02 13:19 Day 101 — Velvet shanks smoked and stored in east seep cache; second pot body still drying; hearth fed for the afternoon.
 Day 101, 14:19 — walked homestead perimeter; checked all seals, corner bark, gable daub, door latch, roof slope; outer stream ice grown to hand-span from both banks; all holds tight.
+Day 101, 15:00 — braided two lengths of two-ply cord at hearthstone; second pot body still slow-drying on grinding stone; cabin warm and stocked.

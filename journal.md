@@ -18543,3 +18543,14 @@ The birch crowns were fully bare against a pale sky. I stood in the cold a littl
 
 Coming inside, I felt the simple satisfaction of a homestead that holds. Nothing broken, nothing open. The pot body drying slowly on the grinding stone; the fire breathing behind its clay walls; the cold outside doing what cold does. Everything as it should be.
 
+
+### 3:00 PM · Hearthside, Braiding
+
+The second pot body is still on the grinding stone — cool clay, losing its last dampness slowly. I press a knuckle to the base each time I pass; it is harder now than this morning, and by tomorrow it should be bone-dry and ready to fire.
+
+I settle near the hearth with a pile of birch inner bark strips and work at cord. The braiding is quiet work, hands moving without needing to think much. Outside the cabin the afternoon is pale and still, the kind of cold that does not move. I can hear no wind at all, only the low settling of the fire and, distantly, the stream running somewhere under its ice.
+
+I think about what is in the cold boxes: sixteen trout, the rabbits, the smoked hare, batches of mushrooms, acorn flour, hazelnut paste, cattail starch, the velvet shanks just sealed this morning. It is more than I had going into last winter, much more. The wood is stacked past the eave. The cabin is sealed tight on every face. I have not run out of anything and it is only October.
+
+I braid two lengths of two-ply cord and set them with the stock before the hearth needs another birch split.
+
