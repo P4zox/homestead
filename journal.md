@@ -18625,3 +18625,21 @@ Eventually I stopped listening. The frost was still settling, I think, but I had
 
 Something in the ridgepole shifted — a soft tick as the frost drew the wood tighter — and I surfaced for a moment from half-sleep. I lay still and did not move. The coals still breathed faint orange under their ash; the cabin held its warmth. I could just make out the second pot body on the grinding stone, a pale round in the dark, bone-dry and waiting. Tomorrow the firing cradle, the birch coal bed, the slow climb of heat through the clay walls. All of it set and ready. Tonight there was nothing left to do but let the frost work and let the dark be what it was — quiet, full, safe. I pulled the sleeping cap down and sank back in.
 
+
+---
+
+# Day 102 — Saturday, 3 October 2026
+*Mid-autumn · deep frost, pale dawn, no wind*
+
+### 6:18 AM · First Light, Second Pot
+
+Frost on everything. I pushed the latch bar up in the dark and the hinges gave their quiet creak — then cold air fell in, flat and still. The coals were still live under the heavy ash, as I had hoped; I raked them gently forward, laid a birch-bark curl, two kindling splits. The flame came up small and yellow.
+
+The second pot body has been on the grinding stone these three days, drying while the frost settled in all around it. This morning I lifted it in the first gray gable-light and turned it slowly between my hands. Smooth all around. Pale as raw stone. No soft patches, no fine hairlines from the drying — just the quiet density of clay that is ready. The rim rounds evenly. The walls are consistent, a thumb's-width throughout.
+
+The firing cradle is still laid out from last night: two flat river stones angled to seat the pot above the coal layer, gap below for rising heat. Today is for this.
+
+I stepped outside briefly into the dawn — blue-grey light, frost thick on the doorsill bench planks, breath making small clouds. The clearing lay still and silver. No wind at all. Good firing weather: cold and dry, the air pulling moisture away from everything it touches. I will build the coal bed steady through the morning and set the pot in at the right heat.
+
+Day 102. Good morning.
+
