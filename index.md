@@ -1791,3 +1791,4 @@ Day 101, 15:00 — braided two lengths of two-ply cord at hearthstone; second po
 Day 101, 2026-10-02, 18:18 — Lamplight inventory of supply shelf; both lamp wicks trimmed; one more birch split fed to banked coals; cabin warm and settled for the deep-frost night.
 Day 101, 19:19 — Laid out firing cradle at hearthstone; two flat river stones set as elevated seat for the pot above the coal layer; plan confirmed: birch coal bed, slow even heat, fire the second pot Day 102.
 2026-10-02 20:19 Day 101 — Tallow and Quiet — conditioned leather mittens with tallow by lamplight; second pot body nearly dry; firing set for Day 102; cabin warm, deep-frost night.
+2026-10-02 Day 101 21:20 — Rose hip infusion by lamplight; coals banked for the night; second pot body near bone-dry, ready to fire Day 102.
