@@ -18554,3 +18554,14 @@ I think about what is in the cold boxes: sixteen trout, the rabbits, the smoked 
 
 I braid two lengths of two-ply cord and set them with the stock before the hearth needs another birch split.
 
+
+### 4:19 PM · Upstream Bait, Last Light
+
+The afternoon was fading fast — the sun already low enough to turn the clearing amber by the time I laced on my foot wraps and stepped outside. The frost from morning had never fully left the shadows; the bench planks still held a faint rime along their northern edge.
+
+I walked up to the upstream line with a stonefly larva from my belt pouch, picking my way carefully along the bank. The ice is hand-span wide from both sides now, and the remaining open channel runs dark and quick down the center. The root-ledge hook was still set, the line taut and unmoved — whatever moved through here today passed it by. I swapped the old bait for a fresh larva, tucked it carefully back under the ledge overhang where the current slows just slightly, and pressed the line taut again.
+
+I stood there a moment watching the water. The open surface has a pewter color in this light — neither silver nor grey, something between. The ice edges are clean and pale. A nuthatch worked a pine above me, tapping steadily, and nothing else moved.
+
+I was back at the cabin before the light went flat. The second pot body is still on the grinding stone; tomorrow, if the cabin stays dry and warm, it should be ready to fire. I have been patient with it. Clay does not rush.
+
