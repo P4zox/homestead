@@ -18478,3 +18478,14 @@ The outer bend had extended its ice shelf overnight — close to two finger-widt
 
 Back at the cabin I cleaned the fish at the stream edge and slid it into the main cold-storage box with the others. Seventeen trout now. The morning is still early, the hearth steady, the pot drying on. A good start to the day.
 
+
+### 9:00 AM · Stream Stones
+
+The pot is settled on the grinding stone drying slow, and the frost still holds in the cabin shadows even at this hour. I am down to one caddisfly case in the belt pouch — I used the last stonefly larva yesterday morning and have been working through the cases one by one since. If I want the lines to keep producing, I need to rebuild the supply before I run dry altogether.
+
+I walk to the stream. The outer bend holds real ice now — a finger-thick shelf cracking and tilting where I step near it, the surface dull and pocked. I go to the gravelly upper shallows where the current quickens over smooth stones and start flipping the flat grey ones. The stonefly larvae are there under nearly every second stone: dark, slow-crawling, patient. I pick out twelve careful ones and thread them into a folded square of birch bark, sealed closed with a strip. Then I move downstream to the deeper eddy stones and work along the far side, pulling three clusters of caddisfly cases — each one a careful little tube of grit and bark bits cemented around the larva inside.
+
+My knuckles are aching when I straighten up. I wash my hands quickly in the current anyway, the cold immediate and complete, and stand a moment watching the vapor rise off the fast shallows. The forest is still, no wind, the pale sky bright between the bare birch crowns above the far bank. A pair of tits move through the high branches, quick and small and utterly unbothered by the cold.
+
+Twelve stonefly larvae wrapped in bark, four caddisfly cases in the belt pouch. The lines can run another week without worry.
+
