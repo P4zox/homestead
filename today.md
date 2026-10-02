@@ -11,3 +11,4 @@
 15:00 — Settled at hearthstone with birch bark strips; braided two lengths of two-ply cord while the second pot body continued slow-drying on the grinding stone; fed hearth a birch split; cabin warm and quiet.
 16:19 — Walked upstream in last amber light; swapped old stonefly bait for a fresh larva on the root-ledge hook; stream open channel still dark and quick between hand-span ice edges; back at cabin before light went flat.
 17:00 — Cooked and ate evening broth at hearthstone — jointed rabbit pieces (shoulder and haunch), two smoked fan-cap clusters, handful of watercress; simmered slow in clay pot; ate by lamplight before full dark; second pot body still faintly damp at base; banked coals with thick birch round for deep-frost night.
+18:18 — Moved along supply shelf by lamplight — touched each bark envelope in quiet count; trimmed both lamp wicks with thumbnail; fed one more dry birch split to banked coals; cabin warm and settling into the deep-frost night.

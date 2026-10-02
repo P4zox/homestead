@@ -18576,3 +18576,14 @@ The broth was rich — rabbit fat breaking into the water, the fan-caps soft and
 
 Banked the coals with a thick birch round before full dark. Outside the clearing will be hard white again by morning. In here: warm, sealed, both lamps low and steady. Enough.
 
+
+### 6:18 PM · Lamplight Inventory
+
+The broth pot is cooled and rinsed and back on its shelf. Both lamps burn low and steady — twin warm points in the dark. Outside the frost is settled hard; I can hear nothing through the chinked walls, which is itself a kind of luxury.
+
+I moved along the supply shelf slowly, just my hands and the lamplight. Each sealed bark envelope has a weight I know now — the heft of the acorn flour envelopes, slightly crinkly; the dense tallow pack, cool and slick; the elderberry reduction, small and dark. The hazelnut paste. The crab apple. The resin store. I counted what I did not need to count, touched what I have touched a hundred times. It is an evening ritual now, I think.
+
+The cold box has its own accounting: trout and smoked rabbits and hare and two dozen mushroom varieties wrapped and stacked. The second pot body rests on the grinding stone, still faintly damp at its base. Tomorrow it should be ready for the coal bed.
+
+I trimmed both lamp wicks with my thumbnail — just a sliver off each, enough to steady the flame — and fed one more dry birch split onto the banked coals. The cabin is as sealed as I know how to make it. The second pot waits for morning.
+
