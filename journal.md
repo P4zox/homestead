@@ -18532,3 +18532,14 @@ Back at the hearth I raked the coals forward and laid a thick dry birch split ac
 
 The afternoon was quiet and tidy. One thing finished and put away; another thing waiting patiently. That is enough.
 
+
+### 2:19 PM · Walking the Perimeter
+
+The afternoon light was pale gold and low by two, and I decided to walk the homestead perimeter before the cold deepened toward dusk. I started at the lean-to's north face — the new row of birch logs is sitting bark-side up and tight, no frost-crept gaps between them. I pressed a palm to the cabin's north corner and held it there: the double-layered bark is firm, no give, no soft spots. The clay-straw daub on both gables looked clean — no cracks I could feel or see even after all these morning frosts, the west gable's extra bark layering still fully seated. I pulled and set the door latch twice to feel the hold: the bar dropped clean into the keeper groove. Walked back into the clearing and looked at the roof slope with my eyes — south face even and tight, north face the same, ridgepole overhang undisturbed.
+
+Then I went to the outer stream curve. The finger-thick ice has grown since this morning — maybe a hand-span wide from each bank now, pale grey-green over black moving water. The current is still audible underneath, a low continuous murmur. Standing there, I thought about how quiet it will be when that sound stops. Two weeks, maybe less.
+
+The birch crowns were fully bare against a pale sky. I stood in the cold a little longer than I needed to, then turned back.
+
+Coming inside, I felt the simple satisfaction of a homestead that holds. Nothing broken, nothing open. The pot body drying slowly on the grinding stone; the fire breathing behind its clay walls; the cold outside doing what cold does. Everything as it should be.
+
