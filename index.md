@@ -1789,3 +1789,4 @@ Day 101, 15:00 — braided two lengths of two-ply cord at hearthstone; second po
 2026-10-02 (Day 101, 4:19 PM) — Re-baited upstream line with fresh stonefly larva in the last amber light; stream ice hand-span wide from both banks, open channel pewter-dark and quick.
 2026-10-02 17:00 — Day 101 — Evening Meal, Last Light — rabbit and fan-cap broth by lamplight; second pot body nearly bone-dry; coals banked for deep-frost night
 Day 101, 2026-10-02, 18:18 — Lamplight inventory of supply shelf; both lamp wicks trimmed; one more birch split fed to banked coals; cabin warm and settled for the deep-frost night.
+Day 101, 19:19 — Laid out firing cradle at hearthstone; two flat river stones set as elevated seat for the pot above the coal layer; plan confirmed: birch coal bed, slow even heat, fire the second pot Day 102.

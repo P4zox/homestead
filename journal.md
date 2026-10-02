@@ -18587,3 +18587,16 @@ The cold box has its own accounting: trout and smoked rabbits and hare and two d
 
 I trimmed both lamp wicks with my thumbnail — just a sliver off each, enough to steady the flame — and fed one more dry birch split onto the banked coals. The cabin is as sealed as I know how to make it. The second pot waits for morning.
 
+
+### 7:19 PM · Before the Firing
+
+The lamps throw their soft orange circles on the cabin wall. Outside — absolute still, absolute cold; the deep-frost October night has settled fully. I can hear nothing beyond the low tick of the fire settling into its bed of coals.
+
+I bring the second pot body forward on the grinding stone and tip it gently under the nearest lamp. The rim — smooth and cool in my hands. The walls firm, dry, the color of pale ash. I press a thumb against the base: the faintest coolness still, just at the center where the coil joints meet. One more day. If the frost holds off the moisture and the hearth keeps the cabin dry through the night, the base should release the last of its damp by late morning tomorrow.
+
+I set it back and begin to think about the firing. The first pot — Day 72 — went into a direct coal bed, the pot buried up to its rim in glowing coals. It worked. But this one has thicker walls at the coil joins, and a hard early heat can shock them. I pull out two flat river stones from beside the hearth and arrange them as a loose cradle — pot seated across the gap, coals fed under and around, the heat rising evenly from below rather than pressing in from all sides at once.
+
+I spend the hour moving the stones, testing the fit with the pot resting dry across them. It seats well — no wobble, a clean gap beneath. I decide: birch for the coal bed, fed slow. Not pine — too sharp a heat, too fast a surge. Birch holds steady. Two hours to build a true coal bed before the pot goes in; then slow, even, patient heat until the walls ring when tapped.
+
+The lamps burn quietly. The coals tick. Outside, the frost deepens into the floor of the valley. Tomorrow, the firing.
+
