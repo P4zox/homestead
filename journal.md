@@ -18489,3 +18489,13 @@ My knuckles are aching when I straighten up. I wash my hands quickly in the curr
 
 Twelve stonefly larvae wrapped in bark, four caddisfly cases in the belt pouch. The lines can run another week without worry.
 
+
+### 10:00 AM · Forest Edge in Frost
+
+The frost had let go of the clearing by mid-morning but still held under the trees where the pale sun had not reached. I put on the jerkin and mittens, took the gathering basket, and walked east along the forest margin.
+
+The birches were nearly bare — a few last amber leaves curled at the uppermost branches, shaking without wind just from their own weight. I worked slowly along the treeline, watching the ground and the deadfall. At a fallen birch near the south slope edge I found what I was hoping for: velvet shanks, a tight cluster of them, pushing through the soft bark at the root end. Orange-tan caps beaded with melt-water, firm-stemmed, smelling of cold earth. They do well in frost, these mushrooms; they seem to need it.
+
+I took most of the cluster — left the smallest caps at the stem end to keep the colony going — and filled about a third of the basket. On the way back I checked the thorny stem near the south slope I had noticed weeks ago: three short branches still holding rosehips, frost-bitten to a deeper sweetness. I stripped them carefully and sealed them in a bark envelope.
+
+Back at the cabin by mid-morning, basket on the doorsill bench. The second pot body still sitting on the grinding stone, drying patiently in the hearth warmth. Two good finds for a cold morning.
