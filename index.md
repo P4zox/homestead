@@ -1793,3 +1793,4 @@ Day 101, 19:19 — Laid out firing cradle at hearthstone; two flat river stones 
 2026-10-02 20:19 Day 101 — Tallow and Quiet — conditioned leather mittens with tallow by lamplight; second pot body nearly dry; firing set for Day 102; cabin warm, deep-frost night.
 2026-10-02 Day 101 21:20 — Rose hip infusion by lamplight; coals banked for the night; second pot body near bone-dry, ready to fire Day 102.
 2026-10-02 22:20 — Day 101 — Lay quiet in dark cabin after lamp out; frost settling the logs with slow ticks; thought about tomorrow pot-firing before sleep came.
+2026-10-02 Day 101 23:00 — Lay still in the dark after the ridgepole ticked; coals orange under ash; second pot body bone-dry and ready; fired cradle set; frost and sleep.

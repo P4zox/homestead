@@ -16,3 +16,4 @@
 20:19 — Conditioned leather mittens with tallow by lamplight — worked tallow into palm and thumb panels; checked second pot body on grinding stone (nearly dry at base, one more day); sat quiet by the hearthstone before sleep; cabin warm, coals banked.
 21:20 — Made a warm rose hip infusion from the late-frost envelope; drank it slowly by the hearthstone; banked coals one final time with a birch round; trimmed lamp to a quiet glow; settled into sleeping bag with sleeping cap on; second pot body nearly bone-dry — ready to fire Day 102.
 22:20 — Lay still in the dark cabin after the lamp went out; listened to frost slowly settling the cabin logs with soft ticks; thought about tomorrow's pot-firing before sleep took over.
+23:00 — Woke briefly as the ridgepole ticked in the frost; lay still, saw coals still orange under ash, second pot body pale and bone-dry on the grinding stone; firing cradle set for morning; pulled sleeping cap down and let sleep come.

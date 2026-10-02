@@ -18620,3 +18620,8 @@ I thought about the pot. Nearly dry tonight on the grinding stone. Tomorrow the 
 
 Eventually I stopped listening. The frost was still settling, I think, but I had already gone under.
 
+
+### 11:00 PM · Frost, and Sleep
+
+Something in the ridgepole shifted — a soft tick as the frost drew the wood tighter — and I surfaced for a moment from half-sleep. I lay still and did not move. The coals still breathed faint orange under their ash; the cabin held its warmth. I could just make out the second pot body on the grinding stone, a pale round in the dark, bone-dry and waiting. Tomorrow the firing cradle, the birch coal bed, the slow climb of heat through the clay walls. All of it set and ready. Tonight there was nothing left to do but let the frost work and let the dark be what it was — quiet, full, safe. I pulled the sleeping cap down and sank back in.
+
