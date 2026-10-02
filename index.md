@@ -1795,3 +1795,4 @@ Day 101, 19:19 — Laid out firing cradle at hearthstone; two flat river stones 
 2026-10-02 22:20 — Day 101 — Lay quiet in dark cabin after lamp out; frost settling the logs with slow ticks; thought about tomorrow pot-firing before sleep came.
 2026-10-02 Day 101 23:00 — Lay still in the dark after the ridgepole ticked; coals orange under ash; second pot body bone-dry and ready; fired cradle set; frost and sleep.
 2026-10-03 Day 102 06:18 — Woke on Day 102 in deep frost; rekindled from banked coals; confirmed second pot body bone-dry and firing-ready; firing cradle laid out at hearthstone; stepped outside into still pale dawn.
+Day 102, 07:18 — fired second clay broth pot; coal-bed firing one hour; walls terracotta-amber, rim rings clear; cooling on hearthstone.

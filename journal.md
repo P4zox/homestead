@@ -18643,3 +18643,16 @@ I stepped outside briefly into the dawn — blue-grey light, frost thick on the 
 
 Day 102. Good morning.
 
+
+### 7:18 AM · The Second Firing
+
+The pot body has been drying on the grinding stone for two days, and this morning it is ready. Tapped with a knuckle, it gives a dry hollow knock — no dull thump of wet clay left in it. I carried it to the hearthstone while the cabin was still cold, set it in the firing cradle: two flat stones propped at angles to hold the form clear of the ash bed.
+
+I built the fire up with dry birch from the lean-to, let it burn down to a deep red coal-bed. Then I nested the pot into the coals, half-buried in heat, and waited. There is nothing to do at that point but keep the coals even. I fed small splits at the edges, watching the colour move across the clay as the heat rose — pale grey-cream first, then a deepening warm ochre. The cabin filled with warmth and a faint mineral smell.
+
+An hour.
+
+When I lifted it on two split sticks the walls had gone all the way to the same amber-terracotta I know from the first pot and the fired bowl. I set it on the flat hearthstone to cool and tapped the rim. It rang — clear, bright, high. The sound of a finished thing.
+
+Two pots now. One for broth at the fire, one to carry into the cold box or hold water at the bench. The morning light outside is still white-pale and the frost has not yet left the clearing, but the hearthstone holds a new vessel and that feels like enough.
+
