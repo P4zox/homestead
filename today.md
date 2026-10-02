@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:00 — Rekindled fire from three live banked coals; checked second pot body — leather-hard all around, no soft spots, ready to smooth; stepped outside into deep frost at first light, stood at doorsill bench in the cold pale dawn; Day 101 begun.
 07:18 — Smoothed second pot body inside and out at hearthstone; rim thinned and rounded; returned to slow hearth-drying on grinding stone — ready to fire after another full day of drying.
+08:00 — Stepped out into the frost; checked both fishing lines; upstream rig untouched; downstream bark-paddle rig had a strike — pulled a fat orange-bellied trout; re-baited downstream hook with one caddisfly case and reset at eddy pool; cleaned fish at stream edge and added to cold-storage box (seventeen trout now).

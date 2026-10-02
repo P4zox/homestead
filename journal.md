@@ -18467,3 +18467,14 @@ I worked the outside walls first with a wet finger, slow circles from base to ri
 
 When both surfaces were done I turned it upside down on the flat grinding stone and smoothed the base — a little rough there from sitting on bark while it set up. Now it is upright again, rim up, in the warmth but not the direct heat. Another full day of slow drying and it should be ready to fire. The first pot holds broth and gives; the second will soon too.
 
+
+### 8:00 AM · Downstream in Frost
+
+The pot body on the grinding stone looked right when I checked it at first light — walls firm everywhere, no cool-damp spots under my palm, though still pale at the shoulder where the clay is thickest. The hearth has been working through the night and it is drying true. Another full day and I will fire it.
+
+I pulled on my jerkin and stepped into the eight-o-clock frost. The clearing lay white and still — every plank rimed, every grass blade stiff and glinting where the low pale light caught it. Cold enough that my breath clouded long in the windless air. I walked down through the frosted grass to the stream.
+
+The outer bend had extended its ice shelf overnight — close to two finger-widths out from the bank, smooth and pale blue where the water was shallow. I checked the upstream rig first: the stonefly larva still on the hook, line taut and untouched, no strike. I left it and followed the bank downstream to the eddy pool. The bark-paddle rig had swung — bowed out toward the far cut bank, pulled taut against the root-wrap. I drew it in hand-over-hand and found a trout. Thick through the shoulder, orange-flushed at the belly the way late-season fish get. I re-baited the hook with one caddisfly case from the belt pouch and reset the rig at the eddy pool.
+
+Back at the cabin I cleaned the fish at the stream edge and slid it into the main cold-storage box with the others. Seventeen trout now. The morning is still early, the hearth steady, the pot drying on. A good start to the day.
+

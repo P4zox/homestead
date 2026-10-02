@@ -1778,3 +1778,4 @@ Day 100, 21:19 — Stepped outside on the hundredth night to see the stars above
 2026-10-01 23:18 Day 100 — "Still, the Coals Glow" — lying half-awake at the hundredth close; coals glowing, second pot hardening, frost outside, cabin warm and sealed.
 2026-10-02 Day 101 06:00 — Rekindled from banked coals; second pot body leather-hard and ready; stepped out into deep October frost at first light; Day 101 begun.
 Day 101, 07:18 — Smoothed second clay pot body inside and out at hearthstone; walls even, rim thinned and rounded; returned to slow hearth-drying on grinding stone.
+2026-10-02 Day 101 08:00 — Checked fishing lines in deep frost; pulled a fat trout from the downstream rig, re-baited and reset; seventeen trout in cold storage.
