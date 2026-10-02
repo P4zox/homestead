@@ -1783,3 +1783,4 @@ Day 101, 07:18 — Smoothed second clay pot body inside and out at hearthstone; 
 2026-10-02 Day 101 10:00 — Walked forest edge in deep-frost morning; found velvet shank cluster at birch deadfall root, late rosehips on south slope thorny stem; both gathered.
 2026-10-02 11:00 Day 101 — threaded velvet shank cluster onto smoke rack for cold-season curing; second pot body still hearth-drying
 2026-10-02 12:19 — Day 101 noon: cooked midday broth (trout, smoked mushrooms, watercress) in clay pot; ate at doorsill in cold pale October light; velvet shanks smoking on rack.
+2026-10-02 13:19 Day 101 — Velvet shanks smoked and stored in east seep cache; second pot body still drying; hearth fed for the afternoon.

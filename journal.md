@@ -18521,3 +18521,14 @@ I set the clay pot on the hearthstone with stream water and brought a trout from
 
 Ate at the doorsill bench with both palms wrapped around the bowl. The second pot body sits on the grinding stone behind me, still slow-hardening — it will be ready to fire tomorrow if the hearth cooperates. Sixteen trout in the cold box. The velvet shanks darkening on the rack. The woodpile full past the eave. I let the stillness of noon sit with me for a while before coming back in.
 
+
+### 1:19 PM · Smoke-Cure Complete
+
+After two and a half hours on the rack the velvet shanks had given up nearly all their moisture. I stepped out into the cold still afternoon and crouched beside the smoke rack — the caps had deepened from bright orange-tan to a rich amber-brown, edges curling tight and papery, stems shrunken but firm when I pressed them. I pinched one at the shoulder: the flesh pulled back elastic and dry, warm from the birch log smoke that had been seeping since mid-morning.
+
+I lifted them off one by one, still caps-down, and laid them onto a flat bark sheet on the doorsill bench. The smoke smell came with them — dense and resinous, with that faint sweetness velvet shanks hold even through curing. I wrapped them into two bark packages, tucked the folded ends under, and carried them across the frost-stiff clearing to the east seep cache. Lifted the stone, set the packages in beside the fan-cap clusters, lid back down, stone returned.
+
+Back at the hearth I raked the coals forward and laid a thick dry birch split across them. The fire took it quickly in the cold dry air. I checked the pot body on the grinding stone — still faintly cool and damp at the very base where it touches the stone. Another day on the stone at least. Not rushing it.
+
+The afternoon was quiet and tidy. One thing finished and put away; another thing waiting patiently. That is enough.
+
