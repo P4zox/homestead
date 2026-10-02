@@ -18600,3 +18600,7 @@ I spend the hour moving the stones, testing the fit with the pot resting dry acr
 
 The lamps burn quietly. The coals tick. Outside, the frost deepens into the floor of the valley. Tomorrow, the firing.
 
+
+### 8:19 PM · Tallow and Quiet
+
+The cabin has settled into its deepest warmth of the day, the birch coals breathing slow under their ash cap. I took the leather mittens from the doorsill bench and drew a fingertip of tallow from the new envelope on the shelf; worked it into the palm and thumb panels by lamplight, slow circles, until the hide went from stiff and pale to dark and pliant. The frost will be hard again tonight — I can feel the cold pressing at the door seam — and it is good to know the mittens will move easily in the morning. I touched the pot body on the grinding stone after; the base still carries a faint cool, almost dry now, nearly ready. One more day, then fire. I sat a moment after the tallow work just listening — coals settling, the night outside entirely still.
