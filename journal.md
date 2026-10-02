@@ -18499,3 +18499,16 @@ The birches were nearly bare — a few last amber leaves curled at the uppermost
 I took most of the cluster — left the smallest caps at the stem end to keep the colony going — and filled about a third of the basket. On the way back I checked the thorny stem near the south slope I had noticed weeks ago: three short branches still holding rosehips, frost-bitten to a deeper sweetness. I stripped them carefully and sealed them in a bark envelope.
 
 Back at the cabin by mid-morning, basket on the doorsill bench. The second pot body still sitting on the grinding stone, drying patiently in the hearth warmth. Two good finds for a cold morning.
+
+### 11:00 AM · Velvet Shanks, Smoke
+
+I spent the first part of the morning moving, out and back — stream for bait, east margin for mushrooms, south slope for rosehips. Now I am still, and the cabin is warm, and I have a basket of velvet shanks to deal with before the day runs away from me.
+
+I wiped each cap with a dry grass tuft, working quickly — they hold the night frost-melt in their gills, and I want them clean and dry before they go on the rack. Orange-tan, soft-ridged, thick-stemmed; one cap had a small black beetle sleeping in the fold of the gills and I set it outside on the doorsill bench. Then I threaded them caps-down along the middle crossbar of the smoke rack, stems upward, so any last moisture could drip clear of the flesh.
+
+The hearth got a thick dry birch log to raise the smoke: not a roaring fire, just enough steady output to fill the space under the rack with warm gray smoke. Front draft cracked a fingers-width. Now the cabin smells like October — birch smoke and the sweet-earthy funk of mushrooms starting to weep and shrink against the heat.
+
+The second pot body still sits on the grinding stone. I checked it with a thumb at the rim — there is still give if I press firmly, a slight coolness to the touch that means it is holding water in the deeper clay. Tomorrow, maybe. I am not in a hurry with it; one crack from firing too wet and the pot is lost. Better to wait than to rush and waste the work of two days.
+
+Outside: pale blue sky, no wind, the frost gone off the bench planks now, the birches lit amber-white where the sun touches them. A good day for smoking, for waiting, for letting things take the time they take.
+

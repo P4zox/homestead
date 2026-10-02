@@ -1781,3 +1781,4 @@ Day 101, 07:18 — Smoothed second clay pot body inside and out at hearthstone; 
 2026-10-02 Day 101 08:00 — Checked fishing lines in deep frost; pulled a fat trout from the downstream rig, re-baited and reset; seventeen trout in cold storage.
 2026-10-02 09:00 Day 101 — Walked to the stream shallows in hard frost; flipped stones and collected twelve stonefly larvae and three caddisfly cases; bait stock rebuilt for a week of fishing.
 2026-10-02 Day 101 10:00 — Walked forest edge in deep-frost morning; found velvet shank cluster at birch deadfall root, late rosehips on south slope thorny stem; both gathered.
+2026-10-02 11:00 Day 101 — threaded velvet shank cluster onto smoke rack for cold-season curing; second pot body still hearth-drying
