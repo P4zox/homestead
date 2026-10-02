@@ -18609,3 +18609,14 @@ The cabin has settled into its deepest warmth of the day, the birch coals breath
 
 Made a small infusion from the late-frost rosehip envelope before sleep — pinched out a few dried hips into the clay bowl, poured hot water ladled from the clay pot. The smell came up bright and tart in the lamplight, and I sat with it by the hearthstone while the coals pulsed dim orange. Cabin warm and quiet; second pot body still on the grinding stone, faintly cool at its base but nearly there — tomorrow it fires. The mittens hang on the rack peg now, supple and ready, beside the jerkin and the sleeping cap and the foot wraps. Everything set for cold. I drank the rosehip water slowly, thinking about the day — a trout at dawn, velvet shanks cured and cached, the perimeter walked in pale frost light, broth eaten twice, cord braided, lamps trimmed. A full day and a good one. Added one last drop of tallow to the small lamp, adjusted the wick to a quiet low glow, then banked the coals one final time with a solid birch round and laid the lid flat over the hearth. The flame steadied. Cold pressing hard on the bark walls outside; warm in here. Pulled on the sleeping cap, worked into the sleeping bag, and let the cabin settle around me. Tomorrow the second pot fires.
 
+
+### 10:20 PM · Listening Before Sleep
+
+Sleep did not come right away. I lay still inside the bag with the sleeping cap snugged over my ears, listening to the cabin in the dark. The lamp was out, coals banked under ash, and there was just the faint warmth from the hearth and the deep cold pressing against every wall.
+
+Frost has its own sounds at this hour — a slow tick and settle as the wood contracts under falling temperature. The ridgepole, the wall logs, the door in its frame — each one gives a small sound like a thought it cannot hold in. I have learned to hear them as steadiness rather than strain. This cabin has held through harder nights than this one.
+
+I thought about the pot. Nearly dry tonight on the grinding stone. Tomorrow the fire builds slow and the pot goes in after the coal bed is ready. One more thing to wait for, and waiting is work of its own.
+
+Eventually I stopped listening. The frost was still settling, I think, but I had already gone under.
+
