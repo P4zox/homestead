@@ -1787,3 +1787,4 @@ Day 101, 07:18 — Smoothed second clay pot body inside and out at hearthstone; 
 Day 101, 14:19 — walked homestead perimeter; checked all seals, corner bark, gable daub, door latch, roof slope; outer stream ice grown to hand-span from both banks; all holds tight.
 Day 101, 15:00 — braided two lengths of two-ply cord at hearthstone; second pot body still slow-drying on grinding stone; cabin warm and stocked.
 2026-10-02 (Day 101, 4:19 PM) — Re-baited upstream line with fresh stonefly larva in the last amber light; stream ice hand-span wide from both banks, open channel pewter-dark and quick.
+2026-10-02 17:00 — Day 101 — Evening Meal, Last Light — rabbit and fan-cap broth by lamplight; second pot body nearly bone-dry; coals banked for deep-frost night

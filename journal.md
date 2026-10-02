@@ -18565,3 +18565,14 @@ I stood there a moment watching the water. The open surface has a pewter color i
 
 I was back at the cabin before the light went flat. The second pot body is still on the grinding stone; tomorrow, if the cabin stays dry and warm, it should be ready to fire. I have been patient with it. Clay does not rush.
 
+
+### 5:00 PM · Evening Meal, Last Light
+
+Light went flat and amber just after I returned from the stream — the clearing lit from the side in that last oblique October way that makes everything look older than it is. I lit both lamps, fed the fire a good birch split, and got supper started.
+
+Cut pieces from the cold-box jointed rabbit — shoulder and haunch — added two smoked fan-cap clusters from the draw, a handful of watercress, let it all simmer slow in the clay pot. While it cooked I sat with my back to the north wall and just watched the fire. Day 101. I have been here long enough that evening has a shape to it now: light the lamps, start the pot, sit and wait and not need to fill the quiet.
+
+The broth was rich — rabbit fat breaking into the water, the fan-caps soft and dark, the cress still bright against all that brown. Ate at the hearthstone with the door shut tight against the frost. Checked the second pot body after eating: faintly cool still at the base, not quite bone-dry, but close. One more full day, and it should be ready to fire.
+
+Banked the coals with a thick birch round before full dark. Outside the clearing will be hard white again by morning. In here: warm, sealed, both lamps low and steady. Enough.
+
