@@ -18711,3 +18711,7 @@ Ate from the wide clay bowl with the birch spoon, sitting on the doorsill bench 
 
 I am well-fed going into the deep of the day. The second pot is washed out with stream water and set to dry. The fire is low but holding. This afternoon I'll braid cord or tend the fire wall — something quiet and useful. The buried log flush waits two more days. For now, this stillness is enough.
 
+
+### 1:18 PM · Cord at the Hearthstone
+
+The fire has settled to a low steady burn, the kind that asks nothing of you. I pulled my cord stock from the supply shelf — the bundle is thicker than my fist now, coil upon coil of two-ply bark twist — and added two more lengths this afternoon, working the strips against my knee in long smooth pulls. The cabin holds warmth well; the daub on both gables drinks in the heat and gives it back slowly. Outside the window gap I can see the birches standing bare against pale sky, and the thin breath of the stream rising as a thread of mist. The afternoon has no urgency. I wound each finished length and set it with the others. The pile grows. Some part of me knows I am braiding against the longer cold — against the day when I cannot go out and must instead work through a list of repairs and bindings indoors. That is not today. Today is only the rhythm of it: pull, twist, pull, twist. The cabin fills with quiet.

@@ -1801,3 +1801,4 @@ Day 102, 08:18 — Checked morning lines; landed trout from eddy pool bark-paddl
 Day 102, 10:18 AM — Processed late-frost rosehips into rose hip paste on the grinding stone; sealed in bark envelope on supply shelf.
 Day 102, 11:18 AM — Checked buried log on east bench; second flush pins confirmed at far-end knot — pale white nubs, cluster of ~12; harvest likely Day 103–105.
 2026-10-03 12:18 — Day 102, noon broth in second clay pot — smoked oyster mushrooms and rabbit loin, ate slow on doorsill bench in pale midday light
+2026-10-03 Day 102 13:18 — Cord at the Hearthstone — braided two more lengths of two-ply cord at the hearthstone in quiet afternoon warmth
