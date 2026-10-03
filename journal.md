@@ -18676,3 +18676,14 @@ I fill it half-full from the tin and set it on the three-stone rest over a small
 
 I sit back on the doorsill bench with the door open a hand-span, watching the water begin to tremble, feeling the cold press in across the still clearing. The birches are bare white bones against a pale sky. The stream is quiet; I can hear the ice at the far bank ticking faintly as the sun climbs. The broth begins to steam. The coil seams are dry. Whatever this pot is asked to do through winter, it is ready.
 
+
+### 10:18 AM · Rosehip Work
+
+The new pot sat cooling on the supply shelf after its first broth, walls dry and sound. I pulled the envelope of late-frost rosehips from the shelf — the ones gathered off the south slope two days ago, small and very dark, frost-concentrated. I spread them on the birch-bark tray and worked out the seeds with the knife tip, patient and slow, the seeds coming free in pale clusters.
+
+Then the grinding stone: flat gneiss and round cobble, a small handful at a time, the rosehips breaking down from coarse to smooth, releasing a faint tart smell into the still cold air. I worked until the paste was dense and dark, almost jammy.
+
+I pressed it into a fresh bark envelope, folded it tight, and sealed the edge with pine resin. It went onto the supply shelf beside the hawthorn envelopes. Rose hip paste for deep winter — the kind of store I used to overlook until I felt the lack of it.
+
+Outside the frost had not lifted. The birch branches caught the pale mid-morning sun without any warmth at all.
+

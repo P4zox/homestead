@@ -3,3 +3,4 @@
 07:18 — Fired second clay broth pot; coal-bed firing one hour; walls went amber-terracotta top to base; rim rings clear and bright; pot cooling on hearthstone.
 08:18 — Checked both fishing lines in deep frost; upstream larva untouched; landed a trout from bark-paddle rig at eddy pool; re-baited rig with fresh caddisfly case and reset; returned to warm cabin with the catch.
 09:00 — Moved cooled second pot from hearthstone; set first seasoning broth over three-stone rest — smoked velvet shanks and watercress stems in half-tin stream water; pot walls held dry through full simmer; pot in service.
+10:18 — Processed late-frost rosehips into rose hip paste; worked seeds out by hand, ground with gneiss stone and cobble, pressed into bark envelope sealed with pine resin; supply shelf.

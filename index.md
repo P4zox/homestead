@@ -1798,3 +1798,4 @@ Day 101, 19:19 — Laid out firing cradle at hearthstone; two flat river stones 
 Day 102, 07:18 — fired second clay broth pot; coal-bed firing one hour; walls terracotta-amber, rim rings clear; cooling on hearthstone.
 Day 102, 08:18 — Checked morning lines; landed trout from eddy pool bark-paddle rig; re-baited and reset in deep frost; new pot still cooling on hearthstone.
 2026-10-03 Day 102 09:00 — First cook in new coil-built pot; seasoning broth of velvet shanks and watercress; coil seams held dry; pot in service.
+Day 102, 10:18 AM — Processed late-frost rosehips into rose hip paste on the grinding stone; sealed in bark envelope on supply shelf.
