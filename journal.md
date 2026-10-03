@@ -18780,3 +18780,14 @@ I found myself counting, the way I do some evenings. Sixteen trout in the cold b
 
 The frost tonight will be the deepest yet, I think. The air is that particular still, dry cold that sets into the ground and stays. I am warm here. The walls hold. Tomorrow I will check the lines at first light and see about the snare, and one day soon I will go out to harvest the second flush from the buried log. But not tonight. Tonight is only this — lamplight, the shape of winter settling in outside, a quiet count of good things laid by.
 
+
+### 8:00 PM · Rosehips, Then Rest
+
+I pinch a small heap of rose hip paste into the first clay bowl and pour a ladle of heated stream water over it — the water goes amber within moments, faintly sweet and sharp at once. I cup both hands around the bowl and hold it close. The fire has settled to a steady low burn; I add one split round and lay a second across the andirons so the coals will carry the night without dying. Both lamps hold steady.
+
+Outside the frost is total now. I can feel it in the doorsill planks through my foot wraps — a cold with no give in it, the kind that does not come back up by midday. The stream will have new ice by morning. I think of the buried log and its small pale cluster pressing slowly through the knot under the bark slab. Tomorrow or the day after I will lift it and see. There is a pleasure in something that tends itself quietly while I sleep.
+
+I drink the infusion slowly. All the day stands in my hands like that: the second pot in service, the cabin walls banked with pine boughs against the frost, sixteen trout in the cold box, the cord bundle heavier than a fist. Nothing left undone tonight.
+
+I bank the fire with a shovel of cold ash, settle the sleeping cap over my ears, and roll onto the cattail mat. The lamp gutters. The cabin holds.
+

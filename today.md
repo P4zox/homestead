@@ -13,3 +13,4 @@
 17:18 — Ate supper broth by hearthlight; ladled into first clay bowl; sat against south wall with pot close; fed fire two rounds; washed bowl and pot; sat on doorsill bench in early dark with cold air on face; sixteen trout in cold box; both lamps burning.
 18:18 — Settled at hearthside by lamplight; reviewed supply shelf and cold-box tally (all sound); fed fire two split rounds; both lamps burning steady; buried log second flush still a day or two out.
 19:18 — Sat by south wall watching coals; counted the store by lamplight — all sound; frost deepening to the deepest yet outside; cabin warm and sealed; both lamps burning; at rest.
+20:00 — Made rose hip infusion in first clay bowl; drank by hearthlight; banked fire with cold ash; sleeping cap on; lay down on cattail mat for the night.

@@ -1808,3 +1808,4 @@ Day 102, 16:18 — Checked south snare (bare, reset); started supper broth — t
 Day 102 (2026-10-03) 17:18 — Ate supper broth (trout, smoked oyster mushrooms, watercress); tended fire; sat at doorsill in early dark; cabin warm and stocked.
 2026-10-03 Day 102 18:18 — Lamplight inventory by hearthside; supply shelf reviewed, cold-box tallied, fire fed for the night; all sound.
 2026-10-03 19:18 Day 102 — Sat evening by lamplight: quiet count of the store, frost deepening outside, cabin warm and sealed, tomorrow lines and snare at dawn.
+2026-10-03 Day 102 20:00 — Rose hip infusion by lamplight; banked fire with ash; sleeping cap on; down on cattail mat for the night.
