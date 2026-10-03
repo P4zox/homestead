@@ -18667,3 +18667,12 @@ Came back to the cabin with the trout, re-baited the bark-paddle rig with a fres
 
 Two pots on the shelf is a different kind of wealth from anything I could have imagined in the early days.
 
+
+### 9:00 AM · First Broth, New Pot
+
+The second pot had been cooling on the hearthstone since the firing. By mid-morning, when I press the back of my hand to its walls, the clay holds only the faint ghost of the coal-bed heat. I pick it up carefully with both hands — it is heavier than the pinch-formed one, coil-built with wider walls — and turn it in the pale light from the doorway. No cracks along the coil seams. The base sits true on the flat of my palm. I tap the rim with one finger: a clear bright ring, the same note it gave when it first came out of the coals.
+
+I fill it half-full from the tin and set it on the three-stone rest over a small steady fire. From the east seep cache I bring in one of the smoked velvet shank packages and press open the bark; the dried stems and small tan caps carry that underground-autumn smell, faintly sweet. I crumble them into the water, add a few stems of watercress from the cold box. Not a meal exactly — a seasoning broth, the kind of first cook that teaches new clay to hold water without weeping through the seams.
+
+I sit back on the doorsill bench with the door open a hand-span, watching the water begin to tremble, feeling the cold press in across the still clearing. The birches are bare white bones against a pale sky. The stream is quiet; I can hear the ice at the far bank ticking faintly as the sun climbs. The broth begins to steam. The coil seams are dry. Whatever this pot is asked to do through winter, it is ready.
+
