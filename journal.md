@@ -18656,3 +18656,14 @@ When I lifted it on two split sticks the walls had gone all the way to the same 
 
 Two pots now. One for broth at the fire, one to carry into the cold box or hold water at the bench. The morning light outside is still white-pale and the frost has not yet left the clearing, but the hearthstone holds a new vessel and that feels like enough.
 
+
+### 8:18 AM · Clear Ice, Good Line
+
+The new pot was still radiant on the hearthstone — too hot to touch without cloth — when I laced the mittens and went for the lines. The frost this morning had taken complete hold of things: every deadfall leaf along the path wore a white skin, every grass stem stood stiff, and the clearing had gone pale and silent as quarried stone.
+
+The stream has narrowed since the week began. Ice shelves reach a hand-span and more from both banks now, and the open channel runs black and quick between them. I went to the upstream root ledge first; the line lay quiet in the cold water, bait untouched. Left it. Then the eddy pool at the bark-paddle rig — and there was tension in the cord before I even touched it. A trout, lying deep and still in near-freezing water. Eased it out carefully, landed it on the frozen bank. Handled it fast; in this cold the fish are nearly inert, barely a struggle.
+
+Came back to the cabin with the trout, re-baited the bark-paddle rig with a fresh caddisfly case and set it back at the pool's lip. The hearth was warm when I returned. The new pot still ticking gently as it cooled.
+
+Two pots on the shelf is a different kind of wealth from anything I could have imagined in the early days.
+
