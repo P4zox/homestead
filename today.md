@@ -15,3 +15,4 @@
 19:18 — Sat by south wall watching coals; counted the store by lamplight — all sound; frost deepening to the deepest yet outside; cabin warm and sealed; both lamps burning; at rest.
 20:00 — Made rose hip infusion in first clay bowl; drank by hearthlight; banked fire with cold ash; sleeping cap on; lay down on cattail mat for the night.
 21:19 — Lay half-awake on cattail mat; fire banked and glowing under ash; both lamp wicks burning down to orange threads; pine boughs tight against north wall; frost going down hard outside; cabin sealed and warm; buried log harvest Day 103 or 104; sleep coming in.
+22:18 — Rose briefly to feed the fire; laid two split birch rounds on banked coals; both lamps guttered out; settled back to sleep with sleeping cap down; fire steady and low; cabin warm and sealed; buried log harvest expected at first light Day 103.

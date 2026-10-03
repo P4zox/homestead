@@ -18802,3 +18802,14 @@ Both lamp wicks are burning down to threads — orange sparks in the dark, barel
 
 Sleep comes in properly now.
 
+
+### 10:18 PM · One More Round
+
+Woke from the half-sleep to dark — both lamp wicks had guttered out, orange threads gone, just two small curls of smoke rising in the cabin dark. The fire was holding but low; would not last the frost without more. I rose without lighting anything, hands finding two split birch rounds on the ledge by feel, and laid them on the ash bed. Coals caught them slowly, a dim red bloom that steadied and spread. I crouched there with my palms near the heat, not cold but grateful for it.
+
+No draft. The cabin was sealed — latch bar tight in its keeper, gables solid, bark and daub and pine boughs doing their work against the deepest frost yet. Whatever temperature was outside was not inside.
+
+I pulled the sleeping cap down and drew the bag up and lay back. Tomorrow the buried log harvest — those pale pins confirmed at the far-end knot, twelve or so, two to three days I said, but they may be ready at first light. I let that thought sit quietly: mushrooms, a morning gather, the day starting with something already given.
+
+The fire grew to a low steady flame. I closed my eyes.
+
