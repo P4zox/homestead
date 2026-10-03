@@ -18769,3 +18769,14 @@ The buried log second flush will be ready in a day or two. Twelve pale pins conf
 
 The fire needs feeding once an hour now that the cold is this serious. I split two rounds from the dry pine stack and laid them on, watched the bark curl and catch. Outside: nothing moving. The clearing sits under a pale frost with no wind at all. I can hear the stream running, muffled under its ice edges. Inside: both lamps, the fire, the full shelves, and a day that went well from first light to last.
 
+
+### 7:18 PM · Frost Holds the Night
+
+Outside the latch is dropped and the cold has the whole clearing. I can feel it at the walls — the pine boughs I packed against the north and west logs this afternoon are doing their work; the cabin sits a degree or two warmer than yesterday at this same hour. Both lamps burn steady. The fire is fed and low.
+
+I have been sitting with my back against the south wall watching the coals flatten and glow. Not doing much. The day was full enough — the second pot proved itself at noon, the trout came in at first light, the boughs went up. Now everything is put away and there is just this hour between supper and sleep.
+
+I found myself counting, the way I do some evenings. Sixteen trout in the cold box. Twelve sealed bark packages on the supply shelf. The garlic braid on the cellar rail. The cord bundle thicker than my fist. The buried log flush in two or three days. Each thing holds its shape in my mind like stones laid in a row. There is a quiet satisfaction in that kind of counting — not pride exactly, more like relief. The land saying: you are keeping up.
+
+The frost tonight will be the deepest yet, I think. The air is that particular still, dry cold that sets into the ground and stays. I am warm here. The walls hold. Tomorrow I will check the lines at first light and see about the snare, and one day soon I will go out to harvest the second flush from the buried log. But not tonight. Tonight is only this — lamplight, the shape of winter settling in outside, a quiet count of good things laid by.
+
