@@ -18748,3 +18748,13 @@ Inside, the hearthstone was still warm from the noon fire. I rebuilt it from coa
 
 The evening settling in is a different quiet than midday. Smaller and closer. I like it.
 
+
+### 5:18 PM · Supper at Dusk
+
+The broth was ready when I lifted the lid — trout and smoked oyster mushrooms and watercress in a pale golden cloud. I ladled it into the first clay bowl and sat against the south wall with the pot resting near the hearthstones, still holding heat.
+
+Outside, the clearing had gone fully grey. The sky held that deep blue-grey that comes just before night settles hard in October. Birch trunks caught the last of the light — white, bare-crowned, still. No wind. No birds. Just the fire's low pop and settle, and my breath slowing.
+
+The broth was good. Mushroom smoke threading through soft trout, watercress cutting through with something sharp and fresh at the end. I held the bowl in both palms and let the warmth come through.
+
+After I ate I washed bowl and pot, fed the fire two more rounds, and sat a moment on the doorsill bench in the dark — cold air on my face, warmth at my back. Sixteen trout in the cold box. Wood to the eave. Both lamps burning. The buried log promising its second flush in a day or two. Day 102 closing down into night.

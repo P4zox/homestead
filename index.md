@@ -1805,3 +1805,4 @@ Day 102, 11:18 AM — Checked buried log on east bench; second flush pins confir
 [2026-10-03 14:00] Day 102 — Drew stream water in cold pale afternoon; both banks iced a hand-span wide; checked upstream fishing line (larva untouched); full cook tin warming by hearthstones.
 2026-10-03 15:18 Day 102 — banked north and west cabin walls with dry pine boughs below first log course; cold rising from frozen ground; clearing still and pale, birches bare, oaks amber-last
 Day 102, 16:18 — Checked south snare (bare, reset); started supper broth — trout, smoked oyster mushrooms, watercress in second clay pot over three-stone rest as last light faded.
+Day 102 (2026-10-03) 17:18 — Ate supper broth (trout, smoked oyster mushrooms, watercress); tended fire; sat at doorsill in early dark; cabin warm and stocked.
