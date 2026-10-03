@@ -18824,3 +18824,19 @@ Inside: warm, still, mine. The smell of dried grass from the sleeping mat, pine 
 
 I let myself back into sleep. Day 103 comes at first light, and there will be a harvest.
 
+
+---
+
+# Day 103 — Sunday, 4 October 2026
+*mid-autumn · deep frost, still dawn, pale sky, stream locked shore to shore*
+
+### 6:00 AM · Dawn Flush Harvest
+
+The fire caught without coaxing — banked coals still amber under the ash, two split rounds dropped in, the cabin warming inside a minute. I pulled on my leather jerkin and mittens and stepped out into the frost.
+
+The east bench was white and still. My breath moved in low clouds. I knelt by the buried log, lifted the bark slab, and found them exactly as I had left them: a pale cluster of oyster mushroom caps fanning out from the far-end knot, grown another hand-width overnight, the edges clean and white-grey in the morning light. Twelve caps by my count, the largest broader than my palm. I worked them free gently at the base and turned each one over to check — no soft spots, no blemish. Good caps.
+
+I replaced the bark slab and weighted it again with the flat seep stone. A buried log can give a third flush if you leave the wood undisturbed and do not take more than the wood freely offers.
+
+Back inside with the basket, I set the caps on the hearthstone to let the frost dry from their tops before smoking. The fire settled into its morning warmth. The second flush of Day 103, lifted at dawn. The cold is the deepest it has been, the stream locked shore to shore in grey-blue ice, and still the land is giving.
+
