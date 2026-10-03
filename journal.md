@@ -18726,3 +18726,12 @@ On the way back I checked the upstream line — larva still untouched under the 
 
 Back inside I set the full tin near the hearthstones to hold its warmth through the evening. It won't be long before I'll need to start keeping water indoors overnight. The stream is still running open through the middle, dark and quick between the ice shelves. I watched it and knew that was a temporary fact.
 
+
+### 3:18 PM · Banking the Walls
+
+The afternoon pale and still, no wind at all. I walked to the south treeline with the wide gathering basket and took dry lower branches from three pines — the ones that have been out of light so long they stopped trying, brittle and springy and easy to snap clean. Three trips back to the cabin, packing the boughs tight against the north wall and the west wall below the first log course, between the wood and the frozen earth.
+
+A small thing, outwardly. The cabin is well-sealed, the daub thick, the door latched true. But the ground itself is freezing now — I can feel it coming up through the floor mat on the coldest nights — and a bank of dry boughs between earth and log keeps more warmth than it looks like it should. The pine smell was sharp and clean in the cold air, a pleasure to work in.
+
+I stood at the north corner when I was done and looked out at the clearing. Everything going still and pale and white. The birches bare-crowned, the oaks holding a last few amber leaves. The frost is not going to release now until spring. This is the homestead settling into winter — not loss, only a change of posture. What is stored is what there is. The work turns inward.
+

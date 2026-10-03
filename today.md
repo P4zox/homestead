@@ -8,3 +8,4 @@
 12:18 — Cooked noon broth in second clay pot (smoked oyster mushrooms, rabbit loin, watercress); pot held without seep; ate on doorsill bench in pale midday light; pot washed and set to dry; fire held low.
 13:18 — Braided two more lengths of two-ply cord at the hearthstone; cabin warm, fire low and steady; afternoon still and pale outside; cord bundle now thicker than a fist on the supply shelf.
 14:00 — Drew fresh water from stream; both banks solidly iced a hand-span wide; broke draw point with boot heel; drew twice; checked upstream line on return — larva untouched, line free; full cook tin set near hearthstones.
+15:18 — Walked south treeline with wide gathering basket; snapped dry lower boughs from three pines; three trips; packed boughs tight against north and west cabin walls below first log course — earthen cold insulated; pine scent sharp in still cold air; stood at north corner, looked over bare-crowned birch clearing going into winter.
