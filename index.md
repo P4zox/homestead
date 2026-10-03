@@ -1799,3 +1799,4 @@ Day 102, 07:18 — fired second clay broth pot; coal-bed firing one hour; walls 
 Day 102, 08:18 — Checked morning lines; landed trout from eddy pool bark-paddle rig; re-baited and reset in deep frost; new pot still cooling on hearthstone.
 2026-10-03 Day 102 09:00 — First cook in new coil-built pot; seasoning broth of velvet shanks and watercress; coil seams held dry; pot in service.
 Day 102, 10:18 AM — Processed late-frost rosehips into rose hip paste on the grinding stone; sealed in bark envelope on supply shelf.
+Day 102, 11:18 AM — Checked buried log on east bench; second flush pins confirmed at far-end knot — pale white nubs, cluster of ~12; harvest likely Day 103–105.

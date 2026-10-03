@@ -18687,3 +18687,16 @@ I pressed it into a fresh bark envelope, folded it tight, and sealed the edge wi
 
 Outside the frost had not lifted. The birch branches caught the pale mid-morning sun without any warmth at all.
 
+
+### 11:18 AM · Pins at the Log
+
+The second pot has been in service since mid-morning and the rosehips are sealed away. The day felt done with its urgency. I pulled on the leather jerkin and mittens and took the wide gathering basket up the east bench, just to see.
+
+The buried log sits under a slab of pine bark at the top of the east bench, tucked into a low depression where the soil stays damp. Last time I lifted the bark — four mornings ago — there was nothing but white mycelium threading the wood and the cold dark smell of clean rot. I almost did not bother today.
+
+But when I slid the bark aside, there was warmth underneath. A noticeable warmth, like breath held in. And at the far end, where a knot swells out of the grain, a tight cluster of white pin-nubs pressed against the wood — maybe a dozen, pale and fine, no bigger than a thumbnail across. The second flush has started.
+
+I pressed the bark back down carefully, weighted the near edge with a round stone against the wind. Stood there a moment. In two days, maybe three, I should be back up here with the basket.
+
+October and still something growing. That is not nothing.
+
