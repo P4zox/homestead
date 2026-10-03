@@ -18700,3 +18700,14 @@ I pressed the bark back down carefully, weighted the near edge with a round ston
 
 October and still something growing. That is not nothing.
 
+
+### 12:18 PM · Noon at the Hearthstone
+
+Midday, and the frost has burned off the clearing at last — or nearly. The birch trunks still hold their white rimed shadow-sides, and the stream is quiet under its spreading ice shelf. I pulled the door shut behind me after checking the buried log this morning and haven't been back out since. There was enough to do at the hearthstone.
+
+I set a proper noon broth going in the second pot — two handfuls of smoked oyster mushrooms from the cold box, a piece of the jointed rabbit loin, and two watercress stems laid in last. Enough stream water to cover, brought to a slow simmer over the three-stone rest. The new pot held without the faintest seep. I watched it for a while the way you watch something you've made that's working, simply glad.
+
+Ate from the wide clay bowl with the birch spoon, sitting on the doorsill bench with the door cracked a hand's width. The light outside is pale and flat, the kind of autumn noon that looks like very early morning. The smoked mushrooms gave the broth a deep, almost woody sweetness. The rabbit was tender from the cold box cure. I ate slowly.
+
+I am well-fed going into the deep of the day. The second pot is washed out with stream water and set to dry. The fire is low but holding. This afternoon I'll braid cord or tend the fire wall — something quiet and useful. The buried log flush waits two more days. For now, this stillness is enough.
+
