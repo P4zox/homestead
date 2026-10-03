@@ -18735,3 +18735,16 @@ A small thing, outwardly. The cabin is well-sealed, the daub thick, the door lat
 
 I stood at the north corner when I was done and looked out at the clearing. Everything going still and pale and white. The birches bare-crowned, the oaks holding a last few amber leaves. The frost is not going to release now until spring. This is the homestead settling into winter — not loss, only a change of posture. What is stored is what there is. The work turns inward.
 
+
+### 4:18 PM · Snare and Supper
+
+The light starts going early now. By mid-afternoon the shadows run long through the birch trunks, and by four the whole clearing has a grey, settled quality — not quite dark, but making its intentions clear. I walked the south treeline to check the snare before the evening closed in.
+
+It was bare. The loop hung clean and undisturbed in the pine duff, trigger latch exactly as I had set it. I reset it anyway — freshened the ground covering, checked the cord for stiffness, pressed the trigger notch firm. The snare still wants to work; the rabbits are just busy elsewhere tonight.
+
+Coming back through the treeline, I could see the cabin plainly: dark log walls with the pale ring of bough-banking below the first course, the ridgepole silhouetted against the paling sky. It looked solid and known from that distance. It looked like shelter.
+
+Inside, the hearthstone was still warm from the noon fire. I rebuilt it from coals and added two split rounds to carry through the evening. The cabin warmed fast. For supper I settled on the fresh trout from this morning — with smoked oyster mushrooms and the last of the watercress, a slow pot over the three-stone rest. The second clay pot is there now with stream water coming to a quiet simmer, the gable gap still holding a pale strip of last light.
+
+The evening settling in is a different quiet than midday. Smaller and closer. I like it.
+
