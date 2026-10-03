@@ -18758,3 +18758,14 @@ Outside, the clearing had gone fully grey. The sky held that deep blue-grey that
 The broth was good. Mushroom smoke threading through soft trout, watercress cutting through with something sharp and fresh at the end. I held the bowl in both palms and let the warmth come through.
 
 After I ate I washed bowl and pot, fed the fire two more rounds, and sat a moment on the doorsill bench in the dark — cold air on my face, warmth at my back. Sixteen trout in the cold box. Wood to the eave. Both lamps burning. The buried log promising its second flush in a day or two. Day 102 closing down into night.
+
+### 6:18 PM · Lamplight Inventory
+
+The cabin holds warmth well tonight. Both lamps burn without a gutter — the fresh tallow envelopes from Day 98 are proving good, clean and long — and I can feel through the south wall how the cold outside has thickened since sundown. I pulled the door snug and dropped the latch bar, then settled beside the hearth with the cord bundle in my lap.
+
+There was no reason for a large task at this hour. What I wanted was to know where I stand. So I went through it quietly by hand: touched every bark envelope on the supply shelf, counted the cold-box tally in my head — sixteen trout, the two rabbits, the smoked hare quarters, all the mushroom batches. Everything accounted for. The winter store is real. I have not merely imagined it into being; it is there on the shelf in sealed bark under pine-resin seals.
+
+The buried log second flush will be ready in a day or two. Twelve pale pins confirmed at the far-end knot. I will pull them at peak and smoke them straight through — that batch goes deepest in the cold box, the last mushroom harvest of the year.
+
+The fire needs feeding once an hour now that the cold is this serious. I split two rounds from the dry pine stack and laid them on, watched the bark curl and catch. Outside: nothing moving. The clearing sits under a pale frost with no wind at all. I can hear the stream running, muffled under its ice edges. Inside: both lamps, the fire, the full shelves, and a day that went well from first light to last.
+

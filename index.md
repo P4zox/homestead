@@ -1806,3 +1806,4 @@ Day 102, 11:18 AM — Checked buried log on east bench; second flush pins confir
 2026-10-03 15:18 Day 102 — banked north and west cabin walls with dry pine boughs below first log course; cold rising from frozen ground; clearing still and pale, birches bare, oaks amber-last
 Day 102, 16:18 — Checked south snare (bare, reset); started supper broth — trout, smoked oyster mushrooms, watercress in second clay pot over three-stone rest as last light faded.
 Day 102 (2026-10-03) 17:18 — Ate supper broth (trout, smoked oyster mushrooms, watercress); tended fire; sat at doorsill in early dark; cabin warm and stocked.
+2026-10-03 Day 102 18:18 — Lamplight inventory by hearthside; supply shelf reviewed, cold-box tallied, fire fed for the night; all sound.
