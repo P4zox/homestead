@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:00 — Woke on Day 103; rekindled fire from banked coals; walked east bench in deep frost; lifted buried log bark slab — second flush (~12 pale-white oyster caps, clean edges, largest broader than palm) harvested; bark slab replaced and weighted for third flush; fresh caps in gathering basket at hearthstone, to be smoked today.
+07:00 — Smoked second-flush oyster caps; built slow birch-and-alder-bark fire under smoke rack; hung twelve caps, largest at top; smoke rose straight in still cold air; caps cured honey-gold and lacquered by mid-morning; wrapped in two bark sheets, moved to east seep cache. Rack now empty.

@@ -18840,3 +18840,14 @@ I replaced the bark slab and weighted it again with the flat seep stone. A burie
 
 Back inside with the basket, I set the caps on the hearthstone to let the frost dry from their tops before smoking. The fire settled into its morning warmth. The second flush of Day 103, lifted at dawn. The cold is the deepest it has been, the stream locked shore to shore in grey-blue ice, and still the land is giving.
 
+
+### 7:00 AM · Still Air, Pale Smoke
+
+The frost held again overnight and the clearing was white and motionless when I carried the gathering basket out to the smoke rack. Twelve pale-white caps, cold from the east bench walk, the largest spanning a full palm — I laid them across the crossbars by size, biggest at the top where smoke pools longest.
+
+I built the fire low: a slow base of dry birch with a layer of green alder bark draped over the coals to raise a thicker smoke. In this windless cold the smoke rose straight — one thin column into the pale grey-blue sky, barely wavering. Each cap caught it quickly and began to glisten, edges shifting from chalk-white toward ivory and then a soft honey-gold as the morning opened out.
+
+I stayed near the rack longer than I needed to, warming my hands at the peripheral heat. The cold was sharp but not brutal — still air makes it easier to bear. The stream ticked quietly under its ice channel somewhere behind me. The smell was good: woodsmoke and something mushroom-sweet underneath it, a smell that means the pantry is being filled.
+
+By the time the smoke thinned to a haze the cure had taken. I let the coals settle another half-hour to deepen it, then lifted the caps: honey-gold, lacquered, slick to the touch, the kind of finish that will hold in the cold draw for weeks. Two bark sheets wrapped, tucked into the east seep cache. The smoke rack stands bare and patient. The buried log's bark slab is weighted and waiting — a third flush may yet come.
+
