@@ -18813,3 +18813,14 @@ I pulled the sleeping cap down and drew the bag up and lay back. Tomorrow the bu
 
 The fire grew to a low steady flame. I closed my eyes.
 
+
+### 11:19 PM · Deep Night, Fire Holds
+
+Somewhere between sleep and waking, I became aware of the fire again. Not that it needed me — the coals are banked under a thick crust of white ash and two split birch rounds should carry it through to morning. It was more a habit of the body: check the fire, hear the cabin, feel the seal of the walls.
+
+Outside the frost is absolute. No wind. No creek sound — the stream is quiet under ice. The clearing is locked in cold and silence so thick it has weight. I can feel it pressing against the bark and log and daub that stand between us.
+
+Inside: warm, still, mine. The smell of dried grass from the sleeping mat, pine resin curing in the wall cracks, ash and tallow faint in the dark air. The sleeping cap is pulled down over my ears. My hands are warm. The buried log is out there in the east bench, its second flush of pale white pins sitting tight under the bark slab, patient and unconcerned with frost.
+
+I let myself back into sleep. Day 103 comes at first light, and there will be a harvest.
+
