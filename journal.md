@@ -18791,3 +18791,14 @@ I drink the infusion slowly. All the day stands in my hands like that: the secon
 
 I bank the fire with a shovel of cold ash, settle the sleeping cap over my ears, and roll onto the cattail mat. The lamp gutters. The cabin holds.
 
+
+### 9:19 PM · Embers Before Sleep
+
+I have been lying here a while, half-awake. The fire is banked deep under ash and still breathing — I can see the faint cherry glow through the gap between hearthstones without lifting my head. Outside the frost is going down hard; the cabin walls hold it at bay, but I can feel the cold gathered there in the darkness beyond the logs. The pine boughs I packed against the north face this afternoon are earning their place tonight.
+
+Tomorrow or the next day, the buried log. I could feel the timing in the pins I saw at noon — dense and pale white, tight against the far-end knot, a day or two from ready. I will lift the bark slab at first light when I can see them clearly.
+
+Both lamp wicks are burning down to threads — orange sparks in the dark, barely. The sleeping cap is warm against my ears. Sixteen trout in the cold box, cord braided thick, rose hip paste on the shelf, second pot in service. A full day made and folded away.
+
+Sleep comes in properly now.
+

@@ -1809,3 +1809,4 @@ Day 102 (2026-10-03) 17:18 — Ate supper broth (trout, smoked oyster mushrooms,
 2026-10-03 Day 102 18:18 — Lamplight inventory by hearthside; supply shelf reviewed, cold-box tallied, fire fed for the night; all sound.
 2026-10-03 19:18 Day 102 — Sat evening by lamplight: quiet count of the store, frost deepening outside, cabin warm and sealed, tomorrow lines and snare at dawn.
 2026-10-03 Day 102 20:00 — Rose hip infusion by lamplight; banked fire with ash; sleeping cap on; down on cattail mat for the night.
+2026-10-03 21:19 Day 102 — Embers Before Sleep: lying half-awake by banked fire, lamps burning low, frost deepening outside; buried log harvest tomorrow or next day
