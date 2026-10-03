@@ -18715,3 +18715,14 @@ I am well-fed going into the deep of the day. The second pot is washed out with 
 ### 1:18 PM · Cord at the Hearthstone
 
 The fire has settled to a low steady burn, the kind that asks nothing of you. I pulled my cord stock from the supply shelf — the bundle is thicker than my fist now, coil upon coil of two-ply bark twist — and added two more lengths this afternoon, working the strips against my knee in long smooth pulls. The cabin holds warmth well; the daub on both gables drinks in the heat and gives it back slowly. Outside the window gap I can see the birches standing bare against pale sky, and the thin breath of the stream rising as a thread of mist. The afternoon has no urgency. I wound each finished length and set it with the others. The pile grows. Some part of me knows I am braiding against the longer cold — against the day when I cannot go out and must instead work through a list of repairs and bindings indoors. That is not today. Today is only the rhythm of it: pull, twist, pull, twist. The cabin fills with quiet.
+
+### 2:00 PM · Water Before Ice
+
+The cord bundle was thick on the shelf and the cabin warm when I finally stood and reached for the foot wraps. The cook tin was almost dry — I hadn't drawn since early morning — and with the stream ice growing in from both banks I didn't want to let it go too long.
+
+The clearing was pale and still, frost holding white in the south shadow even at mid-afternoon. I walked to the stream. Both banks solid now, ice a hand-span wide and opaque, the edges brittle under boot. I broke the draw point, lowered the tin into the dark open channel, and came up with water cold enough to ache at the wrist. Drew twice.
+
+On the way back I checked the upstream line — larva still untouched under the root ledge, line free and taut. I reset it gently and came back along the bank watching the ice.
+
+Back inside I set the full tin near the hearthstones to hold its warmth through the evening. It won't be long before I'll need to start keeping water indoors overnight. The stream is still running open through the middle, dark and quick between the ice shelves. I watched it and knew that was a temporary fact.
+

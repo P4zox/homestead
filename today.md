@@ -7,3 +7,4 @@
 11:18 — Walked east bench to check buried log; lifted bark slab — second flush pins confirmed at far-end knot, pale white cluster of ~12, harvest in two to three days.
 12:18 — Cooked noon broth in second clay pot (smoked oyster mushrooms, rabbit loin, watercress); pot held without seep; ate on doorsill bench in pale midday light; pot washed and set to dry; fire held low.
 13:18 — Braided two more lengths of two-ply cord at the hearthstone; cabin warm, fire low and steady; afternoon still and pale outside; cord bundle now thicker than a fist on the supply shelf.
+14:00 — Drew fresh water from stream; both banks solidly iced a hand-span wide; broke draw point with boot heel; drew twice; checked upstream line on return — larva untouched, line free; full cook tin set near hearthstones.
