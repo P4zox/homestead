@@ -19008,3 +19008,23 @@ There is nothing more to do tonight. The stores are solid, the shelter is sealed
 
 Both lamps have burned nearly to nothing — just a faint amber smear on the shelf. The coals hold their steady low warmth. Sleeping cap pulled down over my ears, sleeping bag cinched tight. The frost outside is deep and absolute, pressing against the bark walls, but not through them. I can feel the cold as a presence, a weight beyond the door, held at bay by bark and clay-daub and fire. Tomorrow there is the bend pool, the upstream line to check, another cold morning of work. But that is tomorrow. Right now there is only darkness and warmth and the slow pull of sleep. I let the day go.
 
+
+---
+
+# Day 104 — Monday, 5 October 2026
+*mid-autumn · deep frost at dawn, pale sky clearing*
+
+### 6:19 AM · Dawn Bend Pool
+
+Woke before the light came — sleeping cap warm against my ears, coals still glowing faintly when I lifted my head from the bag. Rekindled the fire with curled birch bark and a touch of char cloth, added one dry birch log; the warmth came back quickly and I dressed in it.
+
+The rig was exactly where I had set it on the doorsill bench: coiled line, sharp hook, two stonefly larvae packed in damp moss. I pulled on the mittens and stepped out.
+
+Frost lay thick and white on everything — the bench, the chopping block, the birch trunks shining pale in the low grey-rose of early light. The clearing held its breath. No wind at all, breath showing in small clouds before my face.
+
+Walked to the upstream root-ledge line first. Found it taut. Pulled it hand over hand carefully and brought up a fat trout, lip-hooked, still working against the current in the cold. Knocked it clean, added to the gather, re-baited the ledge rig with a fresh stonefly larva and reset it.
+
+Then on to the bend pool I had marked yesterday with the split birch snag. The pool sits still and dark, open at center, ice pressed close to both banks but the heart of it moving. Mist rising off the black water in slow threads. I crouched at the upstream edge, fed the line through the cold mitten, and let the larva work down into the seam where fast current meets slow.
+
+Holding here in the frost now, watching the line.
+
