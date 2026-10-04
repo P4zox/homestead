@@ -18955,3 +18955,16 @@ Thought about the new bend pool upstream, the one I marked today with the leanin
 
 The cord stock is good now. Everything that can be done before the heavy freeze has been done, or nearly. I banked the fire one more time and let the lamps burn a little longer, just for the company of the light.
 
+
+### 7:18 PM · Rig Ready for Dawn
+
+The lamps are burning steady, two small flames eating tallow in the dark. Outside, the frost has settled in hard — I can hear it in the silence, the kind of quiet that presses when cold packs dense and nothing moves.
+
+I set myself to rigging tomorrow's line. The new bend pool I marked today — split birch snag leaning over open current — that's where I'll be at first light. I want to go there ready.
+
+I pull the upstream cord from its peg, check the knots, run a finger along the hook — clean and sharp. I select two stonefly larvae from the bark-wrapped pouch: fat and dark, the kind that sink well in cold current. I set them back in a damp patch of moss in the belt pouch, and lay the rigged length coiled on the doorsill bench where I'll see it when I dress. Seventeen stoneflies in the pouch total, two earmarked for the bend pool at dawn. The root-ledge line upstream is already set and I'll check it on the way.
+
+The day has been full in the good way — fish, wood, flatcakes, cord braided, mittens finally supple at the seams. I'm tired but not worn through. The fire holds its coal bed low and even. I bank it a little more, not for heat — the cabin is warm enough — but to carry through until morning without waking.
+
+It gets dark early now. By seven it feels like the middle of the night. I don't mind that. The lamps make their small bright world at the bench, and it is enough. Tomorrow: the bend pool at dawn.
+
