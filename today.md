@@ -16,3 +16,4 @@
 20:19 — Sat by lamplight and took stock of the winter stores: twelve sealed bark packages, four acorn flour envelopes, fifteen trout in cold box, mushrooms in six forms; first time heading into winter feeling on the right side of enough; sleeping cap on, lamps moved to shelf, fire banked low for the night.
 21:19 — Final quiet hour before sleep; pulled sleeping bag around shoulders, lying by banked coals; reflected on the stores, the season, and the land settling into winter; let the night hold.
 22:00 — Lying in sleeping bag in full dark; coals banked, lamps burning low on shelf; cold pressing in outside, warmth holding within; sleep coming easily; rig ready on doorsill bench for dawn bend-pool trip.
+23:00 — Drifted into sleep by lamplight; both lamps burning to nearly nothing; coals holding warmth; sleeping cap on; frost held outside; the day let go.

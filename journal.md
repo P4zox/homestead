@@ -19003,3 +19003,8 @@ The upstream line is already set at the root ledge. I will check it on the way.
 
 There is nothing more to do tonight. The stores are solid, the shelter is sealed, the fire will carry. Sleep is close and I am glad of it. I let the coals breathe and the lamps burn down and let myself go with the quiet.
 
+
+### 11:00 PM · Into Sleep
+
+Both lamps have burned nearly to nothing — just a faint amber smear on the shelf. The coals hold their steady low warmth. Sleeping cap pulled down over my ears, sleeping bag cinched tight. The frost outside is deep and absolute, pressing against the bark walls, but not through them. I can feel the cold as a presence, a weight beyond the door, held at bay by bark and clay-daub and fire. Tomorrow there is the bend pool, the upstream line to check, another cold morning of work. But that is tomorrow. Right now there is only darkness and warmth and the slow pull of sleep. I let the day go.
+
