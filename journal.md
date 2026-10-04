@@ -18992,3 +18992,14 @@ The oaks are still holding their last amber leaves. The birches are bare. The cl
 
 I let the bag close over me and let the night hold what it holds.
 
+
+### 10:00 PM · Coals Hold
+
+The cabin is dark now except for the two lamp flames burning low on the shelf. I have been in the sleeping bag since before nine, sleeping cap pulled down, fire banked to coals. The cold outside has its weight — deep and windless, the kind that simply presses in — but inside the warmth holds.
+
+I thought I would stay awake longer, but there is not much left to think about. The rig is ready on the doorsill bench: cord checked, hook sharp, two stonefly larvae nested in damp moss. Tomorrow, the bend pool. The split birch snag marks it against the clay bank — open water at the center, still moving. I will be there before the light really comes.
+
+The upstream line is already set at the root ledge. I will check it on the way.
+
+There is nothing more to do tonight. The stores are solid, the shelter is sealed, the fire will carry. Sleep is close and I am glad of it. I let the coals breathe and the lamps burn down and let myself go with the quiet.
+
