@@ -1814,3 +1814,4 @@ Day 102 (2026-10-03) 17:18 — Ate supper broth (trout, smoked oyster mushrooms,
 2026-10-03 Day 102 23:19 — Deep night; cabin sealed, fire banked under ash; frost absolute outside; buried log second flush harvest awaits Day 103 first light.
 2026-10-04 Day 103 06:00 — Dawn Flush Harvest: second oyster mushroom flush harvested from buried log (~12 pale-white caps); bark slab replaced for third flush; caps at hearthstone to dry before smoking.
 Day 103, 07:00 — Smoked second-flush oyster caps (twelve, honey-gold) on smoke rack in still cold air; cured and moved to east seep cache.
+[2026-10-04 08:18] Day 103 — checked stream lines in deep frost; upstream line taut, landed one trout (seventeen in cold box); re-baited both rigs.

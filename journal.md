@@ -18851,3 +18851,14 @@ I stayed near the rack longer than I needed to, warming my hands at the peripher
 
 By the time the smoke thinned to a haze the cure had taken. I let the coals settle another half-hour to deepen it, then lifted the caps: honey-gold, lacquered, slick to the touch, the kind of finish that will hold in the cold draw for weeks. Two bark sheets wrapped, tucked into the east seep cache. The smoke rack stands bare and patient. The buried log's bark slab is weighted and waiting — a third flush may yet come.
 
+
+### 8:18 AM · Lines in the Frost
+
+I walked to the stream with my belt pouch and the frost crunching underfoot. The air was absolutely still — not even a bird stirring in the birches yet. My breath came out in long slow clouds that hung and then dissolved. The ice at both banks had crept another finger-width inward overnight; a narrow ribbon of dark water moved down the middle with quiet purpose.
+
+The upstream line was taut before I even reached for it. I drew it up carefully and a trout came with it — not large, but heavy and cold-bright in the pale morning light, flashing silver as I worked it free. My hands went numb almost immediately. I kept the trout in the shallows while I baited fresh — a stonefly larva, hooked once through the thorax — and settled the line back under the root ledge where the current pools and slows. Ten larvae remaining.
+
+Eddy pool rig was bare. Bait stripped clean, hook untouched. I tied on the second-to-last caddisfly case and dropped it back at the lip of the eddy where drift collects. One case left after this one. The stream is shrinking around its own center; in another week or two, I am not sure there will be open water to fish. For now, there still is.
+
+Back at the hearthstone with numb hands, trout cleaned and sealed in dock leaves, added to the cold box. Seventeen now. The morning already feels full — oyster caps smoked and shelved, both rigs reset, fire holding. Winter keeps coming but the pantry is answering it.
+
