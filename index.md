@@ -1819,3 +1819,4 @@ Day 103 09:18 — South snare empty, undisturbed; trigger reset with fresh bait;
 Day 103, 2026-10-04, 10:19 — Gathered two dry birch deadfall limbs from south treeline; added to eave row.
 2026-10-04 Day 103 11:00 — Cooked noon broth (fresh trout, smoked mushrooms, watercress); ate at hearthstone; braiding cord in afternoon light.
 Day 103, 12:18 — Afternoon line check; stream three-quarters iced; upstream rig intact, bait untouched, reset; eddy pool frozen over, line frozen in surface, caddisfly case gone, no fish; eddy pool losing spin, needs new position tomorrow; came back with cold hands; fishing season narrowing.
+2026-10-04 13:18 — Day 103 — Scouted upstream bend pool past root-ledge; open center water found, marked with split birch snag — new fishing position for tomorrow.

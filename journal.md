@@ -18901,3 +18901,16 @@ I stood there a moment with the rig in hand. The pool itself is silting with slu
 
 Reset the upstream rig and left it. Left the eddy pool bare for now — no use setting a hook in closing water. Came back up the slope with cold hands and the understanding that the fishing season is narrowing fast. What we have in the cold box is mostly what we will carry through the worst of it.
 
+
+### 1:18 PM · Scout Upstream Bend
+
+I went back out not long after the hearth had taken the cold from my hands. The afternoon light was low and pale, coming from the south at a slant that turned every frost crystal on the exposed ground into something almost luminous. I pulled the foot wraps on, laced the jerkin, and followed the stream bank further than usual.
+
+Past the root-ledge where the upstream line still waits, the stream curves against a low clay-earth bank on the far side — a bend I have passed before without stopping. I stopped today. The bend has cut a pool: deeper than the old eddy, darker at the surface, slower. Ice has come from both banks but not yet taken the center. A hand-span of open water runs down the middle, the current still perceptible if I watch a strip of bark drift through.
+
+This is where fish go when the shallows get too cold to navigate. I do not know how I know that, but I trust it.
+
+I marked the spot by a split birch snag on my bank, leaning out over the water like it is looking in. Tomorrow I will move the line there, or set a second one if cord allows. The upstream root-ledge rig stays for tonight; I will check it at first light. But the pool is found, and I know where it is. That is enough for one afternoon.
+
+Came back as the light went flat, hands cold again at the edges, the clearing still and white when I stepped out of the trees.
+
