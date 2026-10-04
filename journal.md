@@ -18862,3 +18862,14 @@ Eddy pool rig was bare. Bait stripped clean, hook untouched. I tied on the secon
 
 Back at the hearthstone with numb hands, trout cleaned and sealed in dock leaves, added to the cold box. Seventeen now. The morning already feels full — oyster caps smoked and shelved, both rigs reset, fire holding. Winter keeps coming but the pantry is answering it.
 
+
+### 9:18 AM · Frost Rounds
+
+The snare was empty. I walked south from the clearing through grass white and rigid with frost, breath rising in slow plumes, and found the notch exactly as I had left it — wire taut, trigger stick undisturbed, bait dry and untouched. No tracks in the stiff white grass. No sign of anything having passed close.
+
+In this deep cold the rabbits have pulled back into their tight runs through the scrub. I do not begrudge them. I reset the bait knot with a fresh grass tuft and walked the trigger stick free and back again to confirm the tension. The snare is good. It will catch what comes.
+
+Coming back through the south treeline I noticed two birch limbs I had not marked before — dry deadfall, bark still on, sound wood. I made note of them for this afternoon if the ground stays workable. The woodpile is already full and past, but dry birch in hand is birch I do not have to chase down in the snow.
+
+The cabin smells of smoked mushroom and banked fire. I will braid cord at the hearthstone this morning — the stock is healthy but the work is steady and the cord is always useful. Hands moving, fire at my side, frost-light through the door gap.
+
