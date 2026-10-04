@@ -1827,3 +1827,4 @@ Day 103, 2026-10-04 17:00 — Ate supper broth (trout and smoked mushrooms) at h
 2026-10-04 18:19 Day 103 — Braided two cord lengths by lamplight; new bend pool upstream marked for tomorrow; mittens tallow-done; frost deep outside, cabin warm and still.
 2026-10-04 19:18 Day 103 — Rigged fishing line for dawn trip to new bend pool; fire banked for the night; both lamps burning; ready for first light.
 2026-10-04 20:19 — Day 103 — Lamplight Accounts: reviewed winter stores by lamp glow; twelve sealed packages, fifteen trout, mushrooms in six forms; first time entering winter on the right side of enough; sleeping cap on, fire banked, lamps to shelf.
+2026-10-04 Day 103 21:19 — Final hour before sleep; lay in sleeping bag by banked coals; reflected on the season and winter stores; let the night settle in.

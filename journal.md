@@ -18977,3 +18977,18 @@ It is not abundance, but it is not bare either. I have been here before — the 
 
 Outside the frost is settling again, deep and still. I can feel the cold at the doorsill even through the new bark layering. The fishing rig sits coiled and ready on the bench; the upstream line is already set. The fire will hold till morning if I leave it alone. I pull the sleeping cap down over my ears, move the lamps back to the shelf where they won't tip, and let the dark settle in around the hearth glow. Tomorrow the bend pool; tonight, enough.
 
+
+### 9:19 PM · Night Hold
+
+The lamps burn low on the shelf. Fire reduced to coals but still breathing, the faint tick of pine sap in the embers the only sound. I pulled the sleeping bag around my shoulders without lying down fully — something in this last hour I don't want to rush through.
+
+Tomorrow is the new bend pool: rig coiled on the bench, two stonefly larvae in damp moss, upstream root-ledge line already waiting. I'm more prepared for a single fishing hour than I've been all season.
+
+But tonight is the stores. Twelve sealed bark envelopes. Fifteen trout in the cold box. Mushrooms in six forms. Acorn flour. Flatcakes sealed under resin. Tallow full, cord healthy, wood past eave-high.
+
+I came here with almost nothing. Winter was an abstraction then — a pressure I couldn't yet measure. Now I've felt its first steps: ice creeping from both banks each morning, white grass under foot, pale grey light that never quite sharpens. Heading into it on the right side of enough, for the first time, feels different than I imagined. Not triumphant. Quieter than that — more like solid ground underfoot when I'd expected soft.
+
+The oaks are still holding their last amber leaves. The birches are bare. The clearing lies deep-still and white-frosted beyond the door.
+
+I let the bag close over me and let the night hold what it holds.
+
