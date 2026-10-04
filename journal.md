@@ -18924,3 +18924,8 @@ Hands cold by the end, water coming in over my cuffs on the last stone. Stood up
 
 Light dropping in the pines. Back to the cabin before it gets lower.
 
+
+### 3:19 PM · Acorn Afternoon
+
+Inside with the fire full and the frost sealed out. I measured one envelope of acorn flour into the clay bowl, pinched in a spoonful of cattail starch, and worked in cold water until the dough came together. My hands warmed in the mixing. I flattened six rounds with my palm — thumb-thick, wide as my spread hand — and laid them in a ring on the hot hearthstone. They browned and crisped slowly, a sweet nutty smell filling the cabin. Turned once with the spoon, cooled on the bark tray, sealed into a fresh envelope with pine resin. Nine flatcakes on the shelf now, a week of easy morning food without opening the larger stores. The pale afternoon light is already flattening; outside the frost has not lifted at all today. I banked the coals and put the bowl back on the shelf.
+
