@@ -1823,3 +1823,4 @@ Day 103, 12:18 — Afternoon line check; stream three-quarters iced; upstream ri
 Day 103 (2026-10-04) 14:18 — Lifted flat stones at stream riffle above main freeze; seven stonefly larvae collected; bait pouch replenished to seventeen total.
 Day 103, 2026-10-04, 15:19 — Made six acorn flatcakes on hearthstone from one flour envelope; sealed in bark with pine resin; nine flatcakes total on supply shelf.
 2026-10-04 16:19 — Day 103 — Built up evening fire; supper broth started (trout + smoked mushrooms); tallow into mitten seams by lamplight.
+Day 103, 2026-10-04 17:00 — Ate supper broth (trout and smoked mushrooms) at hearthstone; worked tallow into mitten seams until palm-joint and thumb moved freely; fire banked for long evening; lamps burning steady; clearing dark and frost-still.

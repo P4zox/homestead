@@ -10,3 +10,4 @@
 14:18 — Walked to stream shallows above main freeze; lifted flat stones at riffle; collected seven stonefly larvae; bait pouch now holds seventeen; returned to cabin before light drops.
 15:19 — Made six acorn flatcakes; mixed one flour envelope with cattail starch binder and water, cooked rounds on hearthstone, sealed in bark envelope with pine resin; nine flatcakes now on supply shelf; banked coals.
 16:19 — Built fire back up from banked coals; set broth pot with trout fillet and smoked mushroom slices for supper; lamp lit; worked tallow into leather mitten seams on doorsill bench while broth simmered.
+17:00 — Ate supper broth at hearthstone (trout fillet and smoked mushroom slices, slow-simmered — white flakes, dark earthy depth); finished tallow-working leather mitten seams until palm-joint and thumb moved freely; banked fire to long slow burn; both lamps burning steady; clearing outside dark and frost-still.

@@ -18933,3 +18933,14 @@ Inside with the fire full and the frost sealed out. I measured one envelope of a
 ### 4:19 PM · Supper Rising
 
 Built the fire back up from banked coals as the afternoon light thinned to grey. The cabin goes dark early in October — the sun drops behind the pines before five now, and the cold presses in from all sides. I set the broth pot on the hearth stones, added a ladleful of water, dropped in a few smoked mushroom slices and pulled a trout fillet apart over them. While the broth began to catch warmth, I sat on the doorsill bench with the lamp lit and worked tallow into the leather mitten seams — rubbing it in with a fingertip, the way you work leather supple before it stiffens through the night. The smell of supper and woodsmoke filled the small space. Outside the bark door, the clearing was going pewter-still. No wind, no bird — just the creak of cooling logs and the broth beginning to murmur. Nine flatcakes sealed on the shelf. Woodpile full past the lean-to corner. The day has been full and good; I am glad to be inside.
+
+### 5:00 PM · Supper by Hearthlight
+
+The broth was ready just past five. I ladled it into the wide clay bowl and ate slowly at the hearthstone — the trout had broken to soft white flakes, and the smoked mushroom slices gave it a dark, earthy depth. Warmth spread from the bowl inward, from the hearth outward, until the frost at the edges of the evening felt only distant.
+
+After supper I went back to the mittens on the doorsill bench. The tallow had begun to soften the leather at the seams while I ate; I worked it in with my thumb until the palm-joint and the thumb root both moved freely. They're ready now for hard cold — no stiffness at the seams when I flex my fingers inside them.
+
+Outside, nothing moves. The clearing holds its frost-silence: no wind, no birds, only the dark coming fully on at the treeline. I banked the fire to a long slow burn, checked both lamps were drawing evenly, and sat for a few minutes just watching the flame settle.
+
+Fifteen trout in the cold box. Lines set for dawn. Flatcakes sealed. The season is doing what it does; I am doing what I can.
+
