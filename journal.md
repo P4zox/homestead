@@ -18873,3 +18873,7 @@ Coming back through the south treeline I noticed two birch limbs I had not marke
 
 The cabin smells of smoked mushroom and banked fire. I will braid cord at the hearthstone this morning — the stock is healthy but the work is steady and the cord is always useful. Hands moving, fire at my side, frost-light through the door gap.
 
+
+### 10:19 AM · Birch from the South Treeline
+
+After the snare circuit I turned south instead of coming straight back. The two dry birch limbs I had marked were exactly where I had seen them — fallen close together at the treeline, bark still tight, pale against the frosted grass. Deadfall this dry and clean does not come free; I counted myself lucky. Each limb was about a body-length, comfortable to shoulder one at a time. The cold was working against me, hands stiffening before I got the second one lifted, but the weight was good and the walk back short. Added them to the eave row — the pile now extends a full armspan past the lean-to corner. With the stream edges icing over and the mornings each a little harder, having wood that can split straight gives me something to hold to. The frost grass crunched underfoot all the way back. A clear day, low pale sun, no wind at all.

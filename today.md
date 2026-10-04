@@ -3,3 +3,4 @@
 07:00 — Smoked second-flush oyster caps; built slow birch-and-alder-bark fire under smoke rack; hung twelve caps, largest at top; smoke rose straight in still cold air; caps cured honey-gold and lacquered by mid-morning; wrapped in two bark sheets, moved to east seep cache. Rack now empty.
 08:18 — Walked to stream in deep frost; upstream line taut — one trout landed; re-baited upstream with stonefly larva (ten remaining); eddy pool rig bare, reset with caddisfly case (one remaining); trout cleaned and added to cold box (seventeen trout total).
 09:18 — Checked south snare in deep frost; snare empty and undisturbed, no fresh tracks in frosted grass; reset trigger stick with dried grass bait; spotted two dry birch deadfall limbs along south treeline for later gathering.
+10:19 — Gathered two dry birch deadfall limbs from south treeline; shouldered them one at a time back to the clearing; added both to eave row — pile now extends a full armspan past lean-to corner.
