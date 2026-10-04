@@ -19028,3 +19028,12 @@ Then on to the bend pool I had marked yesterday with the split birch snag. The p
 
 Holding here in the frost now, watching the line.
 
+
+### 7:00 AM · First Bend Catch
+
+The line went taut just as the light thinned from rose-grey to pale silver — not a strike but the slow, certain load of a fish holding in current. I lifted the tip, felt the weight answer back, and brought it in hand-over-hand until a trout turned broadside just beneath the surface, its dark spots clear in the cold still water. A good fish. I knelt at the bank, worked the hook free cleanly, and let it rest a moment in the shallows before lifting it clear.
+
+First catch from the new bend pool. I knew yesterday there was something to that clay overhang and dark center water; today made it certain. I re-baited with a fresh larva, fed the line back into the current seam, and watched it run under the bank again. The pool should hold all season if the center stays open — it is deeper than anything the eddy pool offered, and the clay bank catches the sun later in the morning, keeping that far bend from freezing.
+
+I wrapped the fish in dock leaf by the water and walked it back to the cold box, frost still white in the shadows of the pines. Both rigs are running now — the root-ledge line untouched, the bend-pool line reset. On the slope above the clearing, the frost was already softening where the sun first touched, thin pale warmth just beginning. I stood at the cabin door and let it reach my face before going in.
+
