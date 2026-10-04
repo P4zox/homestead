@@ -18888,3 +18888,16 @@ Ate at the hearthstone with the birch-branch spoon. The broth was dark and faint
 
 Afterward, pot cleaned with ash and a rinse of water. I am sitting with my back to the fire now, braiding cord while the afternoon light — already low, already angling — comes in flat through the open door and catches the dust motes drifting above the hearthstone.
 
+
+### 12:18 PM · Icing Eddy
+
+Walked to the stream an hour after clearing the noon broth pot. The cold has advanced since morning — what was ice a hand-span from both banks at dawn is now three-quarters across, leaving only a narrow dark channel in the middle run. My breath went ahead of me in small clouds all the way down the slope.
+
+The upstream line was still set under the root ledge, taut and undisturbed. I pulled it clear: bait intact, no fish. The trout are moving deeper now, into whatever still-water pockets persist below the frost line. The stonefly larva looked exactly as I left it — I reset the hook and let the line back down. It may be days before anything takes it there.
+
+The eddy pool was worse. Ice had closed over the surface from the east bank, and the line had frozen into it. I used the back of the knife blade to break the skin carefully — three thin taps, and the ice let go. The bark-paddle rig came up free, but the caddisfly case was gone. No bow in the line, no sign of a fish. Something had taken the bait quietly, under the ice or in the night, leaving nothing behind.
+
+I stood there a moment with the rig in hand. The pool itself is silting with slush at the edges, the water almost still except for a thin seam of current through the middle. The eddy has lost its spin — the ice is too thick at the inlet rock to let water curl back. A different spot will be needed by tomorrow, somewhere where the current still moves and cuts any ice before it sets.
+
+Reset the upstream rig and left it. Left the eddy pool bare for now — no use setting a hook in closing water. Came back up the slope with cold hands and the understanding that the fishing season is narrowing fast. What we have in the cold box is mostly what we will carry through the worst of it.
+

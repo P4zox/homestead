@@ -5,3 +5,4 @@
 09:18 — Checked south snare in deep frost; snare empty and undisturbed, no fresh tracks in frosted grass; reset trigger stick with dried grass bait; spotted two dry birch deadfall limbs along south treeline for later gathering.
 10:19 — Gathered two dry birch deadfall limbs from south treeline; shouldered them one at a time back to the clearing; added both to eave row — pile now extends a full armspan past lean-to corner.
 11:00 — Cooked noon broth (fresh trout, smoked mushroom slices, watercress); ate slowly at hearthstone; pot cleaned with ash and water; braiding cord in afternoon light.
+12:18 — Walked to stream to check lines; ice now three-quarters across from both banks; upstream rig intact, bait untouched — no catch, reset and left; eddy pool iced over, line frozen in surface — broke ice to recover rig, caddisfly case gone, no fish; eddy pool losing spin, will need new position tomorrow; upstream line left set; came back with cold hands.
