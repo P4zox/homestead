@@ -18877,3 +18877,14 @@ The cabin smells of smoked mushroom and banked fire. I will braid cord at the he
 ### 10:19 AM · Birch from the South Treeline
 
 After the snare circuit I turned south instead of coming straight back. The two dry birch limbs I had marked were exactly where I had seen them — fallen close together at the treeline, bark still tight, pale against the frosted grass. Deadfall this dry and clean does not come free; I counted myself lucky. Each limb was about a body-length, comfortable to shoulder one at a time. The cold was working against me, hands stiffening before I got the second one lifted, but the weight was good and the walk back short. Added them to the eave row — the pile now extends a full armspan past the lean-to corner. With the stream edges icing over and the mornings each a little harder, having wood that can split straight gives me something to hold to. The frost grass crunched underfoot all the way back. A clear day, low pale sun, no wind at all.
+
+### 11:00 AM · Noon Broth, Still Air
+
+The clearing is completely still — no wind, just that flat cold that settles in when autumn tips toward winter. Every breath comes out white, hangs a moment, and dissolves. I have been on my feet since before first light: fishing at the stream in deep frost, smoking the second-flush caps on the smoke rack, walking the snare line, hauling birch deadfall back to the eave one limb at a time. Noon comes, and the body asks for heat at the center of it.
+
+I banked the fire higher and set the second clay pot on its stone beside the coals. One trout from the cold box — the fresh one from this morning — a handful of smoked mushroom slices, a fistful of watercress from the main box. Stream water poured over all of it. A slow simmer while the pale sun climbed to its shallow noon height. I sat on the doorsill bench with my back to the light, watching steam rise from the pot and drift sideways through the open door into the still air.
+
+Ate at the hearthstone with the birch-branch spoon. The broth was dark and faintly smoky, the watercress giving it something sharp and green-alive, the trout falling apart cleanly. I have stopped hurrying meals here; there is no reason to rush through the good parts of a day when the day gives them freely.
+
+Afterward, pot cleaned with ash and a rinse of water. I am sitting with my back to the fire now, braiding cord while the afternoon light — already low, already angling — comes in flat through the open door and catches the dust motes drifting above the hearthstone.
+
