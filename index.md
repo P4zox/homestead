@@ -1824,3 +1824,4 @@ Day 103 (2026-10-04) 14:18 — Lifted flat stones at stream riffle above main fr
 Day 103, 2026-10-04, 15:19 — Made six acorn flatcakes on hearthstone from one flour envelope; sealed in bark with pine resin; nine flatcakes total on supply shelf.
 2026-10-04 16:19 — Day 103 — Built up evening fire; supper broth started (trout + smoked mushrooms); tallow into mitten seams by lamplight.
 Day 103, 2026-10-04 17:00 — Ate supper broth (trout and smoked mushrooms) at hearthstone; worked tallow into mitten seams until palm-joint and thumb moved freely; fire banked for long evening; lamps burning steady; clearing dark and frost-still.
+2026-10-04 18:19 Day 103 — Braided two cord lengths by lamplight; new bend pool upstream marked for tomorrow; mittens tallow-done; frost deep outside, cabin warm and still.

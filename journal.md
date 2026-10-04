@@ -18944,3 +18944,14 @@ Outside, nothing moves. The clearing holds its frost-silence: no wind, no birds,
 
 Fifteen trout in the cold box. Lines set for dawn. Flatcakes sealed. The season is doing what it does; I am doing what I can.
 
+
+### 6:19 PM · Cord by Lamplight
+
+The fire is banked low and the cabin holds its warmth. Both lamps burn on the shelf, their small flames casting the ceiling in amber. Outside, the frost has completed whatever it started before dark — the clearing is still and absolute, no sound at all except the occasional tick of the ridgepole settling.
+
+I set up at the doorsill bench with the bark cordage strips and braided steadily for an hour. Two lengths finished, coiled and added to the supply cord. The work is easy in the hands — my fingers know it now without needing to think — and that is a good kind of work for an evening after a full day. The mittens lie beside me on the bench, soft and dark with tallow, finally ready for whatever the cold brings.
+
+Thought about the new bend pool upstream, the one I marked today with the leaning birch snag. Open center water, ice only at edges. That will be tomorrow morning's first errand. The riffle still gives stonefly larvae, and with the eddy pool freezing I need a new reliable set.
+
+The cord stock is good now. Everything that can be done before the heavy freeze has been done, or nearly. I banked the fire one more time and let the lamps burn a little longer, just for the company of the light.
+
