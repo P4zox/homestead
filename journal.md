@@ -18968,3 +18968,12 @@ The day has been full in the good way — fish, wood, flatcakes, cord braided, m
 
 It gets dark early now. By seven it feels like the middle of the night. I don't mind that. The lamps make their small bright world at the bench, and it is enough. Tomorrow: the bend pool at dawn.
 
+
+### 8:19 PM · Lamplight Accounts
+
+The two bark-cup lamps throw their small circles of tallow-light across the supply shelf, and I find myself doing what comes naturally at this hour — running the count. Twelve sealed bark packages. Four envelopes of acorn flour. Hawthorn and rose hip and rowan and elderberry. The clay pots sitting amber and clear-rimmed on the shelf edge. Fifteen trout in the cold box; rabbits and hare; mushrooms in half a dozen forms. The flatcakes sealed and stacked.
+
+It is not abundance, but it is not bare either. I have been here before — the place between enough and too little — and this winter, for the first time, I sit on the right side of that line. Not comfortably, not carelessly. Enough the way a banked fire is enough: holding, not blazing.
+
+Outside the frost is settling again, deep and still. I can feel the cold at the doorsill even through the new bark layering. The fishing rig sits coiled and ready on the bench; the upstream line is already set. The fire will hold till morning if I leave it alone. I pull the sleeping cap down over my ears, move the lamps back to the shelf where they won't tip, and let the dark settle in around the hearth glow. Tomorrow the bend pool; tonight, enough.
+

@@ -1826,3 +1826,4 @@ Day 103, 2026-10-04, 15:19 — Made six acorn flatcakes on hearthstone from one 
 Day 103, 2026-10-04 17:00 — Ate supper broth (trout and smoked mushrooms) at hearthstone; worked tallow into mitten seams until palm-joint and thumb moved freely; fire banked for long evening; lamps burning steady; clearing dark and frost-still.
 2026-10-04 18:19 Day 103 — Braided two cord lengths by lamplight; new bend pool upstream marked for tomorrow; mittens tallow-done; frost deep outside, cabin warm and still.
 2026-10-04 19:18 Day 103 — Rigged fishing line for dawn trip to new bend pool; fire banked for the night; both lamps burning; ready for first light.
+2026-10-04 20:19 — Day 103 — Lamplight Accounts: reviewed winter stores by lamp glow; twelve sealed packages, fifteen trout, mushrooms in six forms; first time entering winter on the right side of enough; sleeping cap on, fire banked, lamps to shelf.
