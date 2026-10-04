@@ -18914,3 +18914,13 @@ I marked the spot by a split birch snag on my bank, leaning out over the water l
 
 Came back as the light went flat, hands cold again at the edges, the clearing still and white when I stepped out of the trees.
 
+### 2:18 PM · Under Flat Stones
+
+Walked back down to the stream shallows — not to fish, just to work. The bait pouch holds ten stonefly larvae, and with the eddy pool frozen and the upstream rig as my only reliable position now, I need more insurance than ten.
+
+Found the shallow riffle above the main freeze where the water still moves in a thin tongue over flat stone. Knelt in the cold, lifted stones one at a time: dark underside, smell of cold stream clay, the quick scramble of what lives beneath. Seven larvae across five stones — small, dark, bristle-footed. Tucked each into the damp bark in my pouch. Seventeen total now. Enough to keep the upstream line going for several more mornings.
+
+Hands cold by the end, water coming in over my cuffs on the last stone. Stood up and held them under my arms until feeling came back. The stream under ice sounds strange — muffled rushing, then quiet, then rushing again where it surfaces between freeze points. I listened a moment longer than I needed to.
+
+Light dropping in the pines. Back to the cabin before it gets lower.
+
