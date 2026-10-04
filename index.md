@@ -1822,3 +1822,4 @@ Day 103, 12:18 — Afternoon line check; stream three-quarters iced; upstream ri
 2026-10-04 13:18 — Day 103 — Scouted upstream bend pool past root-ledge; open center water found, marked with split birch snag — new fishing position for tomorrow.
 Day 103 (2026-10-04) 14:18 — Lifted flat stones at stream riffle above main freeze; seven stonefly larvae collected; bait pouch replenished to seventeen total.
 Day 103, 2026-10-04, 15:19 — Made six acorn flatcakes on hearthstone from one flour envelope; sealed in bark with pine resin; nine flatcakes total on supply shelf.
+2026-10-04 16:19 — Day 103 — Built up evening fire; supper broth started (trout + smoked mushrooms); tallow into mitten seams by lamplight.

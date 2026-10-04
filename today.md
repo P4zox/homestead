@@ -9,3 +9,4 @@
 13:18 — Walked upstream past root-ledge rig, found a deeper bend pool against far clay bank — open center water still flowing, ice only at edges; marked spot with split birch snag leaning over water; new fishing position for tomorrow; upstream line left set, will check at dawn.
 14:18 — Walked to stream shallows above main freeze; lifted flat stones at riffle; collected seven stonefly larvae; bait pouch now holds seventeen; returned to cabin before light drops.
 15:19 — Made six acorn flatcakes; mixed one flour envelope with cattail starch binder and water, cooked rounds on hearthstone, sealed in bark envelope with pine resin; nine flatcakes now on supply shelf; banked coals.
+16:19 — Built fire back up from banked coals; set broth pot with trout fillet and smoked mushroom slices for supper; lamp lit; worked tallow into leather mitten seams on doorsill bench while broth simmered.
