@@ -1838,3 +1838,4 @@ Day 104, 10:18 — Mid-morning store tally; organized supply shelf; both fishing
 Day 104, 11:18 — Consolidated to single bend-pool rig; root-ledge pulled after three untouched checks; eleven larvae remaining; planning to bank cabin base with bracken and mulch this afternoon
 Day 104 · 2026-10-05 · 12:00 — Banked east and south cabin base with dry bracken and deadfall leaves, knee-high skirt packed against lower log courses; bend-pool rig running, to pull at dusk
 Day 104, 13:19 — reheated two acorn flatcakes and rosehip paste water at hearthstone; midday meal at doorsill bench after banking work; bend-pool rig running unattended for dusk pull.
+2026-10-05 Day 104 14:19 — Afternoon cord braiding by low fire; two new lengths coiled on supply peg; bend-pool rig still running, to pull at dusk.

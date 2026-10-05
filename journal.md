@@ -19096,3 +19096,12 @@ The pale October sky outside the open door does not warm the clearing but it is 
 
 Twelve larvae remain in the belt pouch. The bend-pool rig runs unattended and I will pull it at dusk. For now: the doorsill bench, the low winter light, the hearthstone cooling at my back.
 
+
+### 2:19 PM · Afternoon Cord Work
+
+The flatcakes settled long ago. I am inside now with the door ajar just a crack, fire at a low steady heat, braiding cord from the inner bark I stripped last week. The afternoon light through the gable chink is that flat mid-October kind — the angle that makes the treeline look further away than it is, everything gone pale and thin. I can hear the stream if I hold still.
+
+My hands have gotten good at this. Three-ply bark braid runs almost on its own now, the rhythm needing only a small part of attention. The rest of my mind is drifting — the bend-pool rig, what I will cook at dusk, how the banked base looks from outside with the bracken skirt pressed up tight against the lower courses. The cabin feels more settled into the ground today. That is a good feeling.
+
+Two new lengths finished and coiled. I hang them on the supply peg with the rest and sit a moment with nothing in my hands, listening to the fire. Outside the light is still going. The rig will keep until dusk.
+
