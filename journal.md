@@ -19044,3 +19044,7 @@ Back inside just as the frost started loosening its grip on the slope. The cabin
 
 The broth was ready by the time the last frost had burned off the open ground. I ate standing at the hearthstone, the clay bowl hot in both hands, the liquid clear and dark with mushroom and the fresh green of cress. Afterward I hung the pot back on its shelf, wiped the bowl dry, and let myself be still for a few minutes. Both lines are running unattended at the stream. The woodpile is past the lean-to roof. Winter is coming in earnest — the stream ice was thicker this morning than yesterday — but this hour, at least, everything I needed was within reach.
 
+
+### 9:18 AM · Rigs Walked
+
+Pulled on the jerkin and mittens and walked out to check both lines. The frost had given a little at the margins — foot wraps left clean prints in the bank mud — but the air was still sharp and utterly still. Root-ledge first: larva in place, line angled right, nothing taken. Then downstream to the new bend pool. The stick sat exactly where I had wedged it, but when I lifted the line there was nothing at the end — bait taken cleanly, no tug mark, just gone. Something careful at that pool. I re-baited with a fresh stonefly larva, reset the line into the slow seam along the clay-bank side, wedged the stick back under the flat stone. Stood a moment at the bend. The center water was dark and quiet, the far clay bank still frost-dark in the shadow, root tangles trailing just below the surface. Whatever holds there is patient. Fourteen larvae left. I will check again at midday.
