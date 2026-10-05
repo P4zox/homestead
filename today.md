@@ -8,3 +8,4 @@
 12:00 — Banked east and south cabin base with dry bracken fronds and deadfall leaves; made three trips to south treeline for enough bracken to fill south face; knee-high skirt packed tight against lower two log courses on both sides; cabin looks more settled into the earth; bend-pool rig still running, to pull at dusk.
 13:19 — Midday meal at doorsill bench: two acorn flatcakes reheated on hearthstone, rosehip paste stirred into hot water from cook tin; rested after morning banking work; bend-pool rig still running, to pull at dusk.
 14:19 — Afternoon cord braiding by low fire inside cabin; two new three-ply bark lengths finished and coiled on supply peg; door ajar, fire at steady low heat; bend-pool rig still running unattended, to pull at dusk.
+15:20 — Sharpened knife on flat gneiss grinding stone by low fire; edge restored, shaves birch bark cleanly; fed two small birch splits to fire; bend-pool rig running, to pull at dusk in fading amber light.

@@ -19105,3 +19105,14 @@ My hands have gotten good at this. Three-ply bark braid runs almost on its own n
 
 Two new lengths finished and coiled. I hang them on the supply peg with the rest and sit a moment with nothing in my hands, listening to the fire. Outside the light is still going. The rig will keep until dusk.
 
+
+### 3:20 PM · Blade on Stone
+
+The afternoon light comes slant and low through the door gap — that flat, pale October quality that makes everything look a little older than it is. The fire is at steady low heat, just enough to hold the chill off. The cord braiding is done. The rig is running at the bend pool. For this hour, I do not need to go anywhere.
+
+I take the knife from its sheath and sit on the doorsill bench with the flat grey-green gneiss grinding stone on my knee. The blade has served well through hide-work and jointing and root-scraping and bark-peeling, and it shows it — not bad, but dulled at the edge in the way a good knife dulls from honest use. I work it at a low angle, slow circles, feeling for when the drag changes. The sound is good: soft and consistent, neither grinding nor skating.
+
+This is the kind of work that steadies me. No decision in it, no uncertainty. The blade tells you everything you need to know by feel. After twenty minutes I test the edge against a strip of birch bark and it catches cleanly, shaves a curl without pressing. I work the other side to match, test again, then wipe the stone dust off with a piece of dock leaf and re-sheath the knife.
+
+The light outside is already going amber. Two hours to dusk at most, maybe less. I lay the stone back on the hearthstone, feed two small birch splits to the fire, and watch the flames take them. The rig is out there doing its patient work in the cold pool. I will go pull it before the light goes.
+
