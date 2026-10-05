@@ -19116,3 +19116,14 @@ This is the kind of work that steadies me. No decision in it, no uncertainty. Th
 
 The light outside is already going amber. Two hours to dusk at most, maybe less. I lay the stone back on the hearthstone, feed two small birch splits to the fire, and watch the flames take them. The rig is out there doing its patient work in the cold pool. I will go pull it before the light goes.
 
+
+### 4:18 PM · Dusk Rig, Last Light
+
+The afternoon had turned the particular color that means there isn't much left of it. Low amber light through the trees, cold deepening, air quite still. I banked the fire to steady coals, pulled on the jerkin, and walked down to the bend pool with a piece of dock leaf in my belt pouch.
+
+The pool looked undisturbed. Line hanging where I had set it, in the slow seam against the far clay bank. I took hold and worked it in hand over hand — not slack, not fighting, but carrying the unmistakable faint weight of something that had tired itself out in the cold. The trout came up without much protest: deep-bodied, a full palm-width across the back, a good fish by any measure. I unhooked it cleanly in the cold water and folded it into the dock leaf on the bank.
+
+Seventeen now, cold-boxed before the cabin door. The line is coiled on the peg. I stood at the pool a moment before walking back — the stream moving dark under the far bank, the sky overhead shading rose-grey above the treeline, breath coming out steady as smoke. Seventeen. The box is heavy with the right kind of work.
+
+Inside now with the fire rebuilt. The day has been long and good.
+

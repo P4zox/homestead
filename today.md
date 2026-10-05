@@ -9,3 +9,4 @@
 13:19 — Midday meal at doorsill bench: two acorn flatcakes reheated on hearthstone, rosehip paste stirred into hot water from cook tin; rested after morning banking work; bend-pool rig still running, to pull at dusk.
 14:19 — Afternoon cord braiding by low fire inside cabin; two new three-ply bark lengths finished and coiled on supply peg; door ajar, fire at steady low heat; bend-pool rig still running unattended, to pull at dusk.
 15:20 — Sharpened knife on flat gneiss grinding stone by low fire; edge restored, shaves birch bark cleanly; fed two small birch splits to fire; bend-pool rig running, to pull at dusk in fading amber light.
+16:18 — Walked to bend pool in long amber afternoon light; pulled rig before full dusk; trout landed — deep-bodied, good fish, unhooked cleanly in cold water, dock-wrapped and cold-boxed; line coiled on peg, rig done for the day; returned to cabin as sky turned rose-grey; seventeen trout in cold box.
