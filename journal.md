@@ -19048,3 +19048,14 @@ The broth was ready by the time the last frost had burned off the open ground. I
 ### 9:18 AM · Rigs Walked
 
 Pulled on the jerkin and mittens and walked out to check both lines. The frost had given a little at the margins — foot wraps left clean prints in the bank mud — but the air was still sharp and utterly still. Root-ledge first: larva in place, line angled right, nothing taken. Then downstream to the new bend pool. The stick sat exactly where I had wedged it, but when I lifted the line there was nothing at the end — bait taken cleanly, no tug mark, just gone. Something careful at that pool. I re-baited with a fresh stonefly larva, reset the line into the slow seam along the clay-bank side, wedged the stick back under the flat stone. Stood a moment at the bend. The center water was dark and quiet, the far clay bank still frost-dark in the shadow, root tangles trailing just below the surface. Whatever holds there is patient. Fourteen larvae left. I will check again at midday.
+
+### 10:18 AM · Tallying Winter
+
+Both rigs are in the water — the root-ledge line patient under the bank, the bend pool line seeding the slow seam. I came back inside and found myself standing in front of the supply shelf, pulling items forward one by one, turning them in my hands.
+
+Twelve sealed bark packages. I open my count slowly: acorn flour, flatcakes, hawthorn and rose hip envelopes, the elderberry reduction, crab apple paste, hazelnut paste. The cold box holds sixteen trout — two smoked, the rest fresh-packed in dock leaf — and the rabbits, and mushrooms in six forms, each batch bark-wrapped and labeled in my mind by the day I smoked it. I set each thing back in order after I count it, like returning books to a shelf.
+
+It is a different practice than it was in early summer, when counting was about what was left. Now it is about what has accumulated. The pile is not bottomless, but it is real — more than I have held at any point in a single cold-season stock. Enough for a hard stretch if I am careful. Enough that I feel, standing here in the warm morning cabin with frost still on the clearing outside, something close to steady.
+
+I still want more smoked fish before the stream ices fully across. More cord is always good. I have been thinking about banking dry leaves and bracken around the cabin base against ground frost. But those are forward plans, not today's worry. Today I have warm coals, two rigs in good water, and a shelf that holds its ground. The midday check will come soon enough.
+
