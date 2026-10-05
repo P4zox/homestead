@@ -19074,3 +19074,16 @@ Coming back through the clearing I stopped and looked at the cabin's east face. 
 
 Eleven larvae left in the pouch. One rig. A clear afternoon ahead.
 
+
+### 12:00 PM · Banking the Base
+
+Noon came pale and still, the sun about as high as it gets in October — low over the southern treeline, casting long blue shadows across frost-white ground. I checked the bend-pool rig one last time before turning to the work I had been planning since morning.
+
+The task was to bank the east and south cabin bases: pile dry bracken fronds and deadfall leaves tight against the lower two log courses to cut ground frost out. Every morning the frost has been deeper; the base logs are where cold wants to work its way in, and it is easier to act now than to notice the problem after the ground goes iron.
+
+I spent close to two hours hauling material — armloads of coarse bracken from the south treeline, handfuls of dry amber leaves scooped from drifts against the east bench stone borders. I packed the east face first: a narrow run between the slope and the log wall, tightly filled from soil to the second course. The south face needed more and I made three trips back to the treeline before the skirt ran the full wall length, knee-high and tamped firm by hand.
+
+Standing back afterward, the cabin looked more settled — lower into the earth, as if it had always grown there. That is how a well-banked structure should feel. The cold will press hard against those south and east walls in another few weeks. This is what I can do today, with the materials I have.
+
+The bend-pool rig is still running unattended. I will pull it at dusk.
+

@@ -1836,3 +1836,4 @@ Day 103 (2026-10-04) 23:00 — Drifted into sleep; both lamps burned nearly out;
 2026-10-05 09:18 Day 104 — Walked both fishing rigs; bend-pool bait taken cleanly, re-baited with fresh stonefly larva; root-ledge rig untouched; 14 larvae remaining.
 Day 104, 10:18 — Mid-morning store tally; organized supply shelf; both fishing rigs running; steady feeling of winter readiness.
 Day 104, 11:18 — Consolidated to single bend-pool rig; root-ledge pulled after three untouched checks; eleven larvae remaining; planning to bank cabin base with bracken and mulch this afternoon
+Day 104 · 2026-10-05 · 12:00 — Banked east and south cabin base with dry bracken and deadfall leaves, knee-high skirt packed against lower log courses; bend-pool rig running, to pull at dusk
