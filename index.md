@@ -1832,3 +1832,4 @@ Day 103, 22:00 — Settled into sleeping bag in full dark; coals banked, lamps l
 Day 103 (2026-10-04) 23:00 — Drifted into sleep; both lamps burned nearly out; coals holding warmth; frost held at bay; day let go.
 2026-10-05 Day 104 06:19 — Dawn Bend Pool: woke to deep frost, rekindled fire, checked upstream root-ledge line (one trout landed, re-baited), crouching at new bend pool in dawn light watching the line.
 2026-10-05 Day 104 07:00 — First catch from new bend pool; both rigs running; frost softening on slope in thin morning sun.
+2026-10-05 Day 104 08:19 — Morning Broth: cooked trout-watercress-smoked oyster broth in clay pot at hearthstone after cold dawn fishing; ate standing, both fishing lines running unattended.

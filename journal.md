@@ -19037,3 +19037,10 @@ First catch from the new bend pool. I knew yesterday there was something to that
 
 I wrapped the fish in dock leaf by the water and walked it back to the cold box, frost still white in the shadows of the pines. Both rigs are running now — the root-ledge line untouched, the bend-pool line reset. On the slope above the clearing, the frost was already softening where the sun first touched, thin pale warmth just beginning. I stood at the cabin door and let it reach my face before going in.
 
+
+### 8:19 AM · Morning Broth
+
+Back inside just as the frost started loosening its grip on the slope. The cabin was still warm — banked coals from the night before, the new kindling catching quickly, the hearthstone radiating outward. I pulled one of the fresh trout from the cold box and worked it open by the door in the thin pale light, then set the clay pot on the coals with a cup of stream water and a handful of watercress and two pieces of smoked oyster mushroom from the cold draw. The water found its simmer slowly. I sat on the doorsill bench in the doorway while it worked, close enough to the warmth, watching the slope in front of me change colour as the low sun crept in — white going to pale gold, frost releasing as steam in the first direct light.
+
+The broth was ready by the time the last frost had burned off the open ground. I ate standing at the hearthstone, the clay bowl hot in both hands, the liquid clear and dark with mushroom and the fresh green of cress. Afterward I hung the pot back on its shelf, wiped the bowl dry, and let myself be still for a few minutes. Both lines are running unattended at the stream. The woodpile is past the lean-to roof. Winter is coming in earnest — the stream ice was thicker this morning than yesterday — but this hour, at least, everything I needed was within reach.
+
