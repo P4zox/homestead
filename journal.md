@@ -19127,3 +19127,12 @@ Seventeen now, cold-boxed before the cabin door. The line is coiled on the peg. 
 
 Inside now with the fire rebuilt. The day has been long and good.
 
+
+### 5:18 PM · Trout by Lamplight
+
+The fire is steady now — I built it back up after coming in from the bend pool, and by the time the sky outside the gable crack went from amber to deep rose-grey, the hearthstone was warm enough. Seventeen trout in the cold box, but I took one out for tonight. The knife is sharp again after this afternoon's work on the gneiss stone, and the fish came apart cleanly.
+
+I set the clay pot over the coals with enough water, added the trout in pieces, a small handful of watercress from the cold box, and let it simmer slowly until the cabin filled with that quiet, clean smell. Both lamps burning — the supply-shelf one casting warm light on the sealed packages, the bench lamp throwing a circle close around the hearthstone. I ate slowly. Rosehip paste stirred into a cup of hot water alongside, tart and warming.
+
+Day 104 has been a good one: fish at dawn from a new spot, the cabin base banked against ground frost, cord braided, knife sharpened, and dusk came in with another fish in hand. The winter stores are real now — enough to count. Sixteen trout. Mushrooms in six forms. Pastes, roots, berry reductions, acorn flour. The cold outside will keep deepening, but tonight I sit here with the fire settled and both lamps burning, and there is nothing pressing left to do.
+

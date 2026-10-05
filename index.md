@@ -1841,3 +1841,4 @@ Day 104, 13:19 — reheated two acorn flatcakes and rosehip paste water at heart
 2026-10-05 Day 104 14:19 — Afternoon cord braiding by low fire; two new lengths coiled on supply peg; bend-pool rig still running, to pull at dusk.
 2026-10-05 15:20 — Day 104: Blade on Stone — sharpened the knife on the flat gneiss grinding stone by low fire; edge catches cleanly now; fire fed, bend-pool rig running until dusk.
 2026-10-05 Day 104 16:18 — Pulled bend-pool rig at amber dusk; deep-bodied trout landed and cold-boxed; seventeen trout in the box.
+2026-10-05 Day 104 17:18 — Evening supper by lamplight; trout and watercress broth; sixteen in the box; fire banked for night
