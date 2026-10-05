@@ -19147,3 +19147,16 @@ I tried them on at the hearthstone. The leather is already soft — these scraps
 
 A small thing. But the winter is not made of large things; it is made of every gap you find and close before the freeze comes.
 
+
+### 7:20 PM · Evening Lamp-Tending
+
+The hearthstone glows amber in the low fire-light. After finishing the wrist wraps I sat for a while at the hearthstone just looking at the room — the supply peg hung with cord, the shelf crowded with sealed bark packages, the cold box beyond the door with its sixteen trout and its months of smoked mushroom and rabbit. The day feels complete in a way earlier days did not.
+
+I checked both lamp wicks before settling in for the evening. The eastern lamp had burned lower than I wanted for an overnight run — drew a small plug of tallow from the envelope on the supply shelf and pressed it in behind the wick, flame brightening immediately to a steady upright burn. The western lamp was holding fine. Both will carry through the dark and into morning now.
+
+Outside: utterly still. The frost has hardened the ground; I can hear the change in my step at the doorway. No wind, no sound from the stream — the bend pool must be lying quiet under its cold skin of air. Tomorrow I will be there again at first light, bait fed into the seam before the air softens.
+
+Somewhere in the work of today — the two fish, the cabin base banked, the wrist wraps cut and stitched — I stopped keeping anxious count and just felt the fullness of what the shelf holds. Twelve sealed packages. Sixteen trout. Mushrooms in six forms. Pastes and berry reductions and acorn flour and tallow rendered clear. I have been carrying enough for weeks. I only had to sit still long enough to see it.
+
+Both lamps burning. Fire banked. Wrists wrapped against the dawn cold. I will sleep well tonight.
+
