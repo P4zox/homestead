@@ -1844,3 +1844,4 @@ Day 104, 13:19 — reheated two acorn flatcakes and rosehip paste water at heart
 2026-10-05 Day 104 17:18 — Evening supper by lamplight; trout and watercress broth; sixteen in the box; fire banked for night
 Day 104, 18:19 — rabbit pelt scraps sewn into wrist wraps by lamplight; fit snug at jerkin cuff, wrists sealed for the coming frost
 Day 104, 2026-10-05, 19:20 — Topped up eastern bark-cup lamp with tallow; western lamp holding; both set to burn through to morning; sat quietly at hearthstone taking stock of winter stores; fire banked, wrist wraps on, ready for sleep.
+2026-10-05 20:00 | Day 104 | Lamp-lit evening; sat by hearthstone in quiet gratitude, counting winter stores by lamplight; both lamps steady, fire banked, wrist wraps on, at ease before sleep.

@@ -19160,3 +19160,14 @@ Somewhere in the work of today — the two fish, the cabin base banked, the wris
 
 Both lamps burning. Fire banked. Wrists wrapped against the dawn cold. I will sleep well tonight.
 
+
+### 8:00 PM · Amber Lamplight
+
+Both lamps are burning clean and the cabin is warm enough that I have let the fire settle to deep orange coals. I sit with my back against the south wall, wrist wraps on, the supply shelf organized at the edge of lamplight.
+
+Outside: cold, silence, the creek moving in the dark somewhere below the frost.
+
+I find myself counting the winter stores again — not from worry, I know the count — but from something closer to gratitude. Twelve sealed packages. Sixteen trout. Mushrooms in six forms. Cord stock healthy. Both lamps fed. The base banked this morning, the cabin sealed on all sides. When I first came here I had an axe and a few days of food. Now I have a hundred and four days of making, and the place shows it.
+
+I will sit here a little longer before sleep. The lamps will carry.
+
