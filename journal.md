@@ -19171,3 +19171,16 @@ I find myself counting the winter stores again — not from worry, I know the co
 
 I will sit here a little longer before sleep. The lamps will carry.
 
+
+### 9:21 PM · Before the Night
+
+The cabin is very still. Both bark-cup lamps burn steady on the shelf, throwing amber rings on the log walls; the western one has settled into a low, even flame. I banked the fire a little while ago — two large splits crossed at the firebox, barely glowing at their undersides — enough heat to carry through to first light without needing tending. I have learned the knack of it at last.
+
+I pulled the sleeping cap from the supply shelf and set it on the doorsill bench beside the mittens and foot wraps. Tomorrow will be the coldest morning yet; I feel it in the stillness outside, in the way the frost is already packing itself against the door. Better to have everything in reach before the fire comes back up at dawn.
+
+The day was full. Three trips to the stream, the cabin base banked against the freeze, the stores counted twice over. Sixteen trout in the cold box, twelve sealed packages on the shelf — winter, in numbers. I do not quite believe them yet, but they are there every time I look. The wrist wraps fit snugly at the jerkin cuff; I will sleep in them tonight.
+
+I checked the door latch before sitting down here — bar drops solidly, no draft from the gap. The east gable held all day without a whisper of cold air. The cabin is doing its job, and I am grateful for the work that made it so.
+
+I am going to sleep soon. Not anxious tonight. Autumn is doing what it should, and so am I.
+
