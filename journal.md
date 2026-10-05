@@ -19059,3 +19059,18 @@ It is a different practice than it was in early summer, when counting was about 
 
 I still want more smoked fish before the stream ices fully across. More cord is always good. I have been thinking about banking dry leaves and bracken around the cabin base against ground frost. But those are forward plans, not today's worry. Today I have warm coals, two rigs in good water, and a shelf that holds its ground. The midday check will come soon enough.
 
+
+### 11:18 AM · Down to One Line
+
+Both rigs had been running since dawn. I walked out to check them a little before noon, the air cold and bright, frost still crystalled in the shadowed hollows.
+
+The root-ledge line sat unchanged — larva right where I had placed it at nine, thread slack, no sign of a fish having been near. I crouched and watched for a minute, but the water moving under the bank root showed nothing. The cold must be pressing the trout deep or cutting their appetite; this spot has served well all autumn, but three times today it has gone untouched.
+
+I pulled the root-ledge rig. Wound the line carefully, cleared the hook, tucked it back in the belt pouch. One less bait going out each session is one more morning of fishing later in the season. The bend pool has already produced twice today — that is where the fish are.
+
+Checked the bend-pool line on the way back. Bait still seated in the slow seam, line faintly alive in the current. Watched it for a patient minute. Nothing this pass. Let it run.
+
+Coming back through the clearing I stopped and looked at the cabin's east face. The base logs sit on ground frozen hard already an inch down, and there is a gap of cold air between the soil and the first wall course along the east and south sides. I have been meaning to bank it. This afternoon, I think. There is a good pile of dry bracken at the south wall, and the garden paths have packed leaf mulch I can pull up. Pack it tight against the sill logs from the doorsill around to the east corner — that face first. It would not take long and it would keep the cold from climbing the walls.
+
+Eleven larvae left in the pouch. One rig. A clear afternoon ahead.
+
