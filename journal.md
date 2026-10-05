@@ -19211,3 +19211,12 @@ I do not need to fall asleep so much as simply stop holding myself awake. The da
 
 Woke in full dark with the sleeping bag still warm around me. Both lamp cups empty and cold, hearth down to grey ash. Through the door-gap I could feel the temperature had not climbed a degree since I banked the fire. Pulled on foot wraps, jerkin, sleeping cap, wrist wraps, mittens in the half-dark — the whole cold-morning ritual by feel — then knelt at the hearth and coaxed a fire up from char cloth: tinder fluff, one struck spark, two small pine splits once the flame caught and held. Left it to build and walked out into the clearing. Frost crackling white underfoot, every blade of grass and dead stem rimed stiff, sky flat pearl-grey from treeline to treeline — the kind of overcast that holds all day without warming. Walked the stream path to the bend pool, crouched at the upstream edge, and fed the line into the slow seam behind the clay bank, larva weighted just enough to ride low in the current. Then stood back with hands in mittens and watched. Thin pale light. Pines standing black against flat grey sky. The pool moving dark and steady beneath ice-edged banks. Five larvae left in the belt pouch. A quiet beginning to a new day.
 
+
+### 7:18 AM · Morning Line, First Catch
+
+The frost is solid underfoot even an hour past dawn — that flat pearl-grey light that never quite warms. I walked the path to the bend pool carefully, ice crackling at the stream margins where I stepped too close. The alder branch holding the line was bent just slightly, a sign before I even touched it. I lifted the cord slowly and felt weight — a good trout, fat for this time of year, gone still in near-freezing water. Lip-hooked and held well.
+
+I bled it at the stream edge, rinsed it in the cold center current, gutted it with numb fingers, wrapped it in dock leaf. Back in the cabin I laid it in the cold box — seventeen now, which is a number that gives me real comfort against the weeks ahead. I reset the rig with one more larva from the belt pouch, four remaining, and set it running in the same slow seam. I will let it run until midday.
+
+The fire is burning low and steady, the cabin warming in its slow way. This is the good hour — work done before the day has properly opened, something in hand before breakfast.
+
