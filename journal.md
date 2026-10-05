@@ -19201,3 +19201,13 @@ Everything I counted this afternoon is where I left it: the cold box packed, the
 
 I do not need to fall asleep so much as simply stop holding myself awake. The day was full and good. That is enough.
 
+
+---
+
+# Day 105 — Tuesday, 6 October 2026
+*mid-autumn · hard frost, flat pearl-grey overcast, no wind*
+
+### 6:18 AM · Cold Iron Sky
+
+Woke in full dark with the sleeping bag still warm around me. Both lamp cups empty and cold, hearth down to grey ash. Through the door-gap I could feel the temperature had not climbed a degree since I banked the fire. Pulled on foot wraps, jerkin, sleeping cap, wrist wraps, mittens in the half-dark — the whole cold-morning ritual by feel — then knelt at the hearth and coaxed a fire up from char cloth: tinder fluff, one struck spark, two small pine splits once the flame caught and held. Left it to build and walked out into the clearing. Frost crackling white underfoot, every blade of grass and dead stem rimed stiff, sky flat pearl-grey from treeline to treeline — the kind of overcast that holds all day without warming. Walked the stream path to the bend pool, crouched at the upstream edge, and fed the line into the slow seam behind the clay bank, larva weighted just enough to ride low in the current. Then stood back with hands in mittens and watched. Thin pale light. Pines standing black against flat grey sky. The pool moving dark and steady beneath ice-edged banks. Five larvae left in the belt pouch. A quiet beginning to a new day.
+
