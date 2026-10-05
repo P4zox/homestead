@@ -19087,3 +19087,12 @@ Standing back afterward, the cabin looked more settled — lower into the earth,
 
 The bend-pool rig is still running unattended. I will pull it at dusk.
 
+
+### 1:19 PM · Flatcake and Quiet
+
+After three heavy trips to the south treeline and all that hauling of bracken, I came back inside to find the hearthstone still holding warmth under its white ash. Set two of the acorn flatcakes directly on the stone to reheat while I unlaced my foot wraps and pressed my cold feet to the board floor. When the flatcakes had gone golden at their edges I ate them at the doorsill bench with a measure of rose hip paste stirred into hot water from the cook tin — thin sweet liquid, just enough to feel cared for.
+
+The pale October sky outside the open door does not warm the clearing but it is beautiful in its particular way — thin blue and utterly still, the pines casting no wind-shadow because there is no wind to shadow. The newly banked bracken changes the look of the cabin from here. The lower two log courses are hidden now under that knee-high skirt of brown fronds, and the whole structure looks as though it has settled into the earth by choice rather than been placed there. I notice that and feel something I will call pride, though it is quieter than pride usually is.
+
+Twelve larvae remain in the belt pouch. The bend-pool rig runs unattended and I will pull it at dusk. For now: the doorsill bench, the low winter light, the hearthstone cooling at my back.
+
