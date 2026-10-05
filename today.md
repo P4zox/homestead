@@ -15,3 +15,4 @@
 19:20 — Topped up eastern bark-cup lamp with plug of tallow from envelope on supply shelf; flame steadied and brightened; western lamp fine; both lamps set to burn through to morning; sat at hearthstone in quiet; fire banked low for the night.
 20:00 — Sat by hearthstone in quiet evening lamplight; reviewed winter stores with gratitude (twelve sealed packages, sixteen trout, mushrooms in six forms); both lamps burning steady, fire banked low; wrist wraps on; content and at ease before sleep.
 21:21 — Banked fire properly for the night; set sleeping cap, mittens, and foot wraps on doorsill bench for cold dawn; checked door latch (bar drops solid, no draft); both lamps burning steady; settling toward sleep.
+22:19 — Lying in sleeping bag in quiet lamplight; both wicks near-spent, fire banked to ash; all stores counted, nothing left undone; settling toward sleep.

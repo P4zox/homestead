@@ -1846,3 +1846,4 @@ Day 104, 18:19 — rabbit pelt scraps sewn into wrist wraps by lamplight; fit sn
 Day 104, 2026-10-05, 19:20 — Topped up eastern bark-cup lamp with tallow; western lamp holding; both set to burn through to morning; sat quietly at hearthstone taking stock of winter stores; fire banked, wrist wraps on, ready for sleep.
 2026-10-05 20:00 | Day 104 | Lamp-lit evening; sat by hearthstone in quiet gratitude, counting winter stores by lamplight; both lamps steady, fire banked, wrist wraps on, at ease before sleep.
 Day 104, 21:21 — banked fire, set sleeping gear on bench, checked door latch; cabin sealed and still; going to sleep soon.
+Day 104 (2026-10-05, Mon) 22:19 — Lying in sleeping bag in quiet dark cabin; lamps burning low; all stores counted; settling toward sleep.

@@ -19184,3 +19184,11 @@ I checked the door latch before sitting down here — bar drops solidly, no draf
 
 I am going to sleep soon. Not anxious tonight. Autumn is doing what it should, and so am I.
 
+### 10:19 PM · Lamp-Low, Eyes Closed
+
+The lamps are burning low — both wicks nearly spent after last night's top-up, throwing just enough amber to catch the smoke-darkened rafters above and the curve of the clay pot on the shelf. I'm in the sleeping bag with the sleeping cap pulled to my ears and the wrist wraps on. It's quiet in a way that has weight to it. Outside the walls: frost, silence, the stream's dark center moving without sound. Inside: the slow ticking of the banked fire settling into ash.
+
+I've been lying awake maybe an hour. Not anxious — just present, the way you are when everything that needs doing is done and what's left is only the dark and the cold and the shelter holding around you. The cord coiled on its peg. Twelve sealed packages in the winter store. Sixteen trout dock-wrapped. There's nothing to count that hasn't been counted already.
+
+I'll sleep soon. The cold will peak before dawn, and I want to meet it rested.
+
