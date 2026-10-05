@@ -19136,3 +19136,14 @@ I set the clay pot over the coals with enough water, added the trout in pieces, 
 
 Day 104 has been a good one: fish at dawn from a new spot, the cabin base banked against ground frost, cord braided, knife sharpened, and dusk came in with another fish in hand. The winter stores are real now — enough to count. Sixteen trout. Mushrooms in six forms. Pastes, roots, berry reductions, acorn flour. The cold outside will keep deepening, but tonight I sit here with the fire settled and both lamps burning, and there is nothing pressing left to do.
 
+
+### 6:19 PM · Wrist Wraps, Lamplight
+
+The supper fire is banked well past red coals now, throwing just enough warmth to make the cabin feel sealed against the dark. Both lamps burning steady. Outside, frost has locked the world into silence — no wind, nothing moving.
+
+I pulled the rabbit pelt scraps from the doorsill bench and worked them in the lamplight. Two palm-sized patches and a narrow strip — not enough for anything large, but enough for wrist wraps. I folded each patch lengthwise, ran the bone needle and bark cord in a running seam along the long edge, then slit small holes for lacing at each end. The narrow strip cut into two short lacing lengths. By the second lamp, I had both finished: snug cylinders that slip over the wrist and lace at the gap, sealing the cuff of the jerkin where cold air finds its way in.
+
+I tried them on at the hearthstone. The leather is already soft — these scraps were the most pliable off the doe-hide work. They fit close and warm. When I go out tomorrow at dawn for the bend-pool rig, my wrists will not be cold.
+
+A small thing. But the winter is not made of large things; it is made of every gap you find and close before the freeze comes.
+
