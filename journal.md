@@ -19192,3 +19192,12 @@ I've been lying awake maybe an hour. Not anxious — just present, the way you a
 
 I'll sleep soon. The cold will peak before dawn, and I want to meet it rested.
 
+
+### 11:19 PM · Lamps Spent
+
+Both wicks have burned to nothing, and the room has gone dark except for the faint glow from banked ash in the hearth. I cannot see the walls now but I know where they are. My breath comes slow and quiet. I am warm inside the sleeping bag, arms folded against my chest, feet dry in their wraps.
+
+Everything I counted this afternoon is where I left it: the cold box packed, the supply shelf in order, the door latched, the roof sound. There is nothing left to do tonight. The worrying has run out, and what is underneath is this — a small warm room, the smell of wood smoke and spent tallow, the sound of nothing at all.
+
+I do not need to fall asleep so much as simply stop holding myself awake. The day was full and good. That is enough.
+
