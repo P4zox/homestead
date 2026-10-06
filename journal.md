@@ -19325,3 +19325,12 @@ Eate at the doorsill bench with the door shut against the dark. The broth was ri
 
 Sixteen trout in the cold box now. Seven larvae in the belt pouch for tomorrow's morning rig. Twelve sealed winter packages on the shelf. I have been at this long enough that counting stores has become something like an evening prayer — not from worry, exactly, just from care. The cabin is tight and warm. Tomorrow the open water at the bend pool may be narrower. I will fish as long as there is water to fish.
 
+
+### 6:19 PM · Cord and Low Fire
+
+The supper pot has been rinsed and set back on the shelf. Both lamps burn low and steady — enough tallow to see through tonight and into morning. I cracked the door a moment to read the sky: flat dark, no stars yet, frost on the sill planks so thick it came away on my fingers. Pulled the bar again.
+
+Settled at the doorsill bench with the bark strips. Two more cord lengths braided by lamplight. The supply is well ahead of any need I can name, but the rhythm itself is worth something on a long cold evening — fingers moving, fire low and steady, nothing required of me but patience. The cabin holds its warmth. The banked sides and sealed gables do work I feel every hour.
+
+Before I sleep I'll put the last split log on and let it catch and settle. Seven larvae in the belt pouch for morning. Sixteen trout in the cold box. The day has been full and ordinary in the best sense of that word.
+

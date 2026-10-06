@@ -1860,3 +1860,4 @@ Day 105, 14:18 — Afternoon rig pulled empty (larva taken); dusk rig reset at b
 2026-10-06 Day 105 15:19 — Cold Storage Round: walked east seep cache and main cold box, counted and checked all stores; everything sealed before deepening freeze; dusk rig still running at bend pool.
 Day 105, 2026-10-06, 16:19 — Pulled dusk bend-pool rig in last grey light; fat trout landed; seventeen trout in cold box.
 2026-10-06 Day 105 17:18 — Made supper (trout and watercress broth, smoked oyster mushrooms) by lamplight; ate at doorsill bench; evening quiet and still inside; sixteen trout in cold box.
+2026-10-06 Day 105 18:19 — Evening cord braiding by lamplight; two more lengths completed; fire banked with last split log; cabin warm and settled for the night.

@@ -11,3 +11,4 @@
 15:19 — Walked east seep cache and main cold box; counted and checked all stocks — oyster mushrooms, hen-of-the-woods, wood ears, smoked rabbits, sixteen trout all sealed and accounted for; soil around east cache iron-hard, box lid reset and weighted; returned to cabin, log added to fire; dusk rig still running at bend pool.
 16:19 — Pulled dusk bend-pool rig in last grey light; fat trout on the line, well-held; dressed at stream edge; seventeen trout in cold box; walked home, banked fire, closed door bar for the evening.
 17:18 — Made supper by lamplight — one trout, watercress, smoked oyster mushrooms simmered in clay pot; ate at doorsill bench with door shut; sixteen trout in cold box; seven larvae for morning; quiet evening.
+18:19 — Braided two more cord lengths by lamplight after supper; fire settled to low coals with last split log banked; cabin warm and quiet, door barred for the night.
