@@ -1862,3 +1862,4 @@ Day 105, 2026-10-06, 16:19 — Pulled dusk bend-pool rig in last grey light; fat
 2026-10-06 Day 105 17:18 — Made supper (trout and watercress broth, smoked oyster mushrooms) by lamplight; ate at doorsill bench; evening quiet and still inside; sixteen trout in cold box.
 2026-10-06 Day 105 18:19 — Evening cord braiding by lamplight; two more lengths completed; fire banked with last split log; cabin warm and settled for the night.
 Day 105, 19:18 — Topped both bark-cup lamps from tallow supply, trimmed wicks; lamps burning clean and steady; fire to orange coals; cabin warm.
+[Day 105, 2026-10-06 20:20] Evening quiet — sat by banked coals in lamplight; reflected on the day's work; winter stores full and accounted for.

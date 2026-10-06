@@ -19338,3 +19338,14 @@ Before I sleep I'll put the last split log on and let it catch and settle. Seven
 ### 7:18 PM · Both Lamps Steady
 
 Both lamps had burned low by the time I settled back after supper. I could see the flames shrinking in the bark cups — if I left them, they would gutter out before midnight and I would wake to cold dark. I took the tallow envelope from the supply shelf and tipped a careful pour into each cup, then pinched the dry-grass wicks to trim away the charred ends. The flames rose back to a clean, steady height — two warm circles against the dark log walls. The fire has settled to orange coals. I will not add more wood tonight; the banked log will hold till morning well enough, and the cabin stays warm. Cord braiding done. Tallow topped. Sixteen trout in the cold box, seven larvae in the pouch. Everything here has a place. I folded my hands on my knee and sat for a while, watching the lamps burn against the dark.
+
+### 8:20 PM · Evening Coals
+
+By lamplight and banked fire, the cabin holds its warmth. The logs I set earlier are settling into deep red coals now, grey-ashed at the edges, orange at the heart — they'll last till morning. Both lamps burn low and steady. Outside there is nothing, or what passes for nothing this deep into autumn: hard frost, a closed sky, silence from the stream.
+
+I sit at the doorsill bench with my back to the door and go back over the day in my head. Two trout. Seven larvae for morning. Sixteen in the cold box, all dressed and dock-wrapped. Twelve sealed winter-store packages. The buried log checked — no third flush yet, but the wood was alive. Everything counted, everything sealed.
+
+There's a particular quality to evenings like this — not the relief of finishing a hard thing, exactly, but the quieter feeling of having been steady all day long. I set the rigs, I pulled the rigs. I braided cord by the fire. I walked out to the east cache in hard frost and walked back. I cooked supper and ate it slowly. I trimmed the wicks. Nothing was dramatic, and all of it mattered.
+
+I add one last thin stick to the coals — not for warmth, just to feel the small gesture of tending — and watch it catch. Winter is close now. The frost line has crept past the ankle each morning this week. But the cabin is warm, the stores are deep, and I am here.
+

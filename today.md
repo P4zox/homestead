@@ -13,3 +13,4 @@
 17:18 — Made supper by lamplight — one trout, watercress, smoked oyster mushrooms simmered in clay pot; ate at doorsill bench with door shut; sixteen trout in cold box; seven larvae for morning; quiet evening.
 18:19 — Braided two more cord lengths by lamplight after supper; fire settled to low coals with last split log banked; cabin warm and quiet, door barred for the night.
 19:18 — Topped both bark-cup lamps from tallow supply; trimmed dry-grass wicks; lamps burning clean and steady; fire settled to orange coals; cabin warm, door barred.
+20:20 — Sat by banked fire in lamplight; reflected on the day's work; added one thin stick to coals; stores counted and deep — sixteen trout, twelve sealed winter-store packages; cabin warm, door barred.
