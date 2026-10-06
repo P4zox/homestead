@@ -19314,3 +19314,14 @@ Seventeen trout in the cold box now.
 
 The walk back was quiet — last pale light through the birches, breath white, snow not yet but something like the waiting for it. I banked the fire, put the fish away, closed the door bar. The cabin was warm inside, the two lamps throwing steady orange light. Whatever the cold brings next, the stores are full. Tonight that is enough.
 
+
+### 5:18 PM · Supper by Lamplight
+
+Evening inside. Both bark-cup lamps burning steady on the shelf, the fire low and even under the clay pot. I pulled one trout from the cold box — a fat dusk-caught one — and set it simmering in the clay pot with watercress and a small handful of smoked oyster mushroom. Enough water to barely cover. The pot settled on the hearthstone and I sat back and let it go.
+
+Outside: hard frost, no wind, the stream nearly inaudible through the log walls. Inside: warm, close, the smell of woodsmoke and fish and green things. The lamps threw small amber pools across the floor planks. I did not move for a while.
+
+Eate at the doorsill bench with the door shut against the dark. The broth was rich — deep-bodied autumn trout, watercress still bright in it, mushrooms soft and savory in the bottom of the bowl. After, I stayed with the empty bowl in my lap and just sat. There is a particular stillness that comes in the evening in hard frost weather, as though the cold outside draws every sound inward and holds it quiet.
+
+Sixteen trout in the cold box now. Seven larvae in the belt pouch for tomorrow's morning rig. Twelve sealed winter packages on the shelf. I have been at this long enough that counting stores has become something like an evening prayer — not from worry, exactly, just from care. The cabin is tight and warm. Tomorrow the open water at the bend pool may be narrower. I will fish as long as there is water to fish.
+
