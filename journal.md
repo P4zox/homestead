@@ -19261,3 +19261,12 @@ Now I sit at the doorsill bench with the door cracked two fingers — enough to 
 
 Ten larvae left in the pouch. Sixteen trout in the cold box. The winter store, I think, is in good shape — better than I could have hoped in early September when the frosts were still weeks away and I was still reading the season as something flexible. It is not flexible now. The cold has settled like a decision, and there is comfort in having made my own decisions ahead of it.
 
+
+### 12:18 PM · Noon Pull, Still Sky
+
+Walked to the bend pool at noon. The sky sat flat and low, pearl-grey without depth or shadow — the kind of overcast that blurs everything together, sky and hillside and the ice crust on the stream margins all the same cold white. The line had no weight. Larva taken clean, hook bare, nothing on it. I pulled the rig and stood a moment at the bank, watching the dark open center of the stream move slowly south. Quiet was total. No birds, no wind, just the low sound of water and my own breathing, small clouds of it in the cold air.
+
+Back at the cabin I heated yesterday's broth trimmings in the small pot, set a flatcake on the hearthstone to warm, ate at the doorsill bench with the door cracked. Hazelnut paste on the flatcake, broth in the cup, cold air on my face. The clearing absolutely still, frost still white on the ground at noon. Sixteen trout in the cold box. Nine larvae left for afternoon and evening rigs. Enough stores that the count feels comfortable rather than urgent.
+
+The grey afternoon stretches ahead. I'll set the line again before dusk and do something small and useful in between — the kind of day where you don't push for much but you don't let it go slack either.
+
