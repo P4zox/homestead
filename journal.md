@@ -19292,3 +19292,14 @@ Set a fresh larva for the dusk run before I left. Seven in the pouch now. I stoo
 
 Back at the hearth in the last pale afternoon light, door cracked a finger-width, braided two more cord lengths. The coil on the peg is getting thick, which feels right. Cord is never too much — there are always small things that want lashing, always something that shifts or loosens and needs tying back. The fire burned low and steady and the cold outside pressed against the bark walls and did not come through.
 
+
+### 3:19 PM · Cold Storage Round
+
+The afternoon was thin and still, the dusk rig running unattended at the bend pool while I did something I had been meaning to do all day: a proper walk-through of the cold stores. Both sites — the east seep cache eighty paces east and the main cold box by the cabin — are going to be locked down hard in the days ahead, and I wanted to see everything sealed with my own eyes before that happens.
+
+East seep cache first. I worked the weighted lid free, the bark stiff with cold, and counted through what was there: the oyster mushroom batches still firm and dry inside their bark wrapping, the hen-of-the-woods holding its shape and smell, wood ears intact, smoked rabbits undisturbed. No ice penetration into the box itself, though the soil around it is iron-hard underfoot and the alder roots above glittered with frost crystals. I reset the lid and pressed the weight stone back into place — it landed solid and level.
+
+Main cold box next. The sixteen trout dock-wrapped and clean-smelling, the smoked meats and mushroom batches all in their rows. I did not move anything, just crouched there and looked. Everything I could need through the coldest months is in these two boxes and on the supply shelf inside. I have made it happen, and it is real — not hoped for, not approximate, but counted and sealed and there.
+
+Walked back through the frost-white clearing. A nuthatch worked head-down along a birch branch above me, entirely unbothered by the cold. The sky held its flat grey without shifting. I came in and added a log to the fire before sitting back down with the cord. The dusk rig still to pull before the light goes.
+
