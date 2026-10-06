@@ -6,3 +6,4 @@
 10:18 — Pulled morning bend-pool rig (larva taken clean, no catch); crouched at upstream riffle, turned cobbles in cold shallows — seven more stonefly larvae collected; eleven total now in belt pouch; hands stinging from cold water, warming by hearth.
 11:18 — Set midday bend-pool line with one larva (ten remaining in pouch); returned to cabin fire; sitting at doorsill bench with door cracked, braiding cord by hearth warmth while line runs unattended.
 12:18 — Pulled midday bend-pool line at noon; larva taken clean, no catch; coiled line and stood at icy stream bank in flat grey light; back to cabin for noon meal — flatcake with hazelnut paste and reheated broth at doorsill bench; nine larvae remaining in belt pouch.
+13:18 — Set afternoon bend-pool rig (one larva, eight remaining); walked back to cabin; braiding cord by hearth in flat grey afternoon cold; line running unattended at bend pool.

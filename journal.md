@@ -19270,3 +19270,16 @@ Back at the cabin I heated yesterday's broth trimmings in the small pot, set a f
 
 The grey afternoon stretches ahead. I'll set the line again before dusk and do something small and useful in between — the kind of day where you don't push for much but you don't let it go slack either.
 
+
+### 1:18 PM · Line and Thread
+
+After the noon meal I walked back to the bend pool. The stream was running dark between ice-fringed banks, the slow seam behind the clay bank still and glassy in the flat grey light. I seated a larva deep on the hook, ran the line out into the current, and wedged the end of the stick under a root at the bank so the rig would hold without my hand on it.
+
+Eight larvae left in the pouch. The line will tend itself for a while.
+
+I walked back up to the cabin, pulled the door nearly shut against the cold, and settled at the doorsill bench with the cord stock. The work goes steadily by habit now — split the inner bark into strips, lay two together, roll them under the palm into a tight two-ply, add a third as the first thins out. The fire is easy, burning low without needing attention. The afternoon is very quiet; no wind moves anything outside the window gap.
+
+It is almost pleasant to sit like this, doing a small and useful thing while the line waits in the water below. Mid-October, frost held all day, the light already going pale and low by midday. I am aware of the winter ahead — not afraid of it, only aware. The trout are stacked in the cold box. The sealed packages are stacked on the supply shelf. The firewood is past eave-high. I have had good luck, and I have worked for it, and the two things together make something solid to stand on.
+
+Two more lengths of cord braided before the light changes.
+

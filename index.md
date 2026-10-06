@@ -1855,3 +1855,4 @@ Day 105 [2026-10-06 08:18] — Morning broth at hearth: trout, last velvet shank
 Day 105, 10:18 — Pulled bend-pool rig (larva taken clean, no catch); gathered seven stonefly larvae from upstream riffle — eleven total now.
 2026-10-06 11:18 Day 105 — Set midday bend-pool line (one larva); returned to cabin, braiding cord by hearth with door cracked on frost-still clearing; ten larvae remaining.
 Day 105, 12:18 PM — Noon pull at bend pool (no catch, larva taken clean); noon meal at doorsill bench — flatcake with hazelnut paste and reheated broth; nine larvae remaining.
+Day 105, 13:18 — Set afternoon bend-pool rig; cord braiding by hearth in flat grey cold.
