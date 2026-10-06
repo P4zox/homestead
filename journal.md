@@ -19400,3 +19400,9 @@ Rigged the line quickly with cold-stiff fingers, seated one larva deep in the sl
 
 Hands warming now around the clay pot. Sixteen trout in the cold box, cord stock healthy, tallow supply holding. The stream is tightening day by day and will keep tightening. I am watching it.
 
+
+### 7:19 AM · A Good Pull
+
+Went to the bend pool just after seven. The frost had deepened even since the early dark — every step across the clearing broke the white crust with a dry, final sound, like something closing. The stream looked smaller again. The ice had crept another finger-width overnight and the open thread of moving water was barely two hand-spans across, dark and quiet between the white edges.
+
+But the bend pool still holds. I took the line and felt it before Id
