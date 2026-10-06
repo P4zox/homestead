@@ -19250,3 +19250,14 @@ Before walking back I stopped at the riffle fifty paces upstream, where the wate
 
 I walked back in the grey mid-morning light, fingers stinging, and held both hands near the hearth coals until the feeling returned. A small errand, all told. But bait running low was the one quiet worry I had — now it is not.
 
+
+### 11:18 AM · Midday Line and Cord
+
+Hands warm again. The hearth has been pulling steady heat since I fed it two birch splits after coming back from the riffle, and there is something in the dry warmth of the cabin that feels earned after a cold morning of crouching in icy shallows.
+
+I took one larva from the pouch — they are wriggling still, alive in the cold, which speaks well for them — and walked back down to the bend pool. The water runs dark today under the flat grey sky, iron-colored where it catches the light, amber-brown in the shallow margins. The seam behind the clay bank still shows that slow heavy curl I have been learning to read. I seated the larva well on the hook, let the line run out long, and wedged the stick between two stream-edge stones at the angle that keeps the tension honest. Then I walked back.
+
+Now I sit at the doorsill bench with the door cracked two fingers — enough to see the frost-pale clearing, not enough to let the cold eat the cabin. Ten lengths of two-ply cord in a coil beside me. I am braiding by feel more than sight. The motion is simple and the simplicity is the point: hands occupied, mind quiet, listening for anything from the direction of the stream.
+
+Ten larvae left in the pouch. Sixteen trout in the cold box. The winter store, I think, is in good shape — better than I could have hoped in early September when the frosts were still weeks away and I was still reading the season as something flexible. It is not flexible now. The cold has settled like a decision, and there is comfort in having made my own decisions ahead of it.
+
