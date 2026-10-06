@@ -1865,3 +1865,4 @@ Day 105, 19:18 — Topped both bark-cup lamps from tallow supply, trimmed wicks;
 [Day 105, 2026-10-06 20:20] Evening quiet — sat by banked coals in lamplight; reflected on the day's work; winter stores full and accounted for.
 2026-10-06 21:19 Day 105 — Arranged sleeping shelf; banked coals; frost-quiet night; ready for morning.
 2026-10-06 22:20 — Day 105 — Still Before Sleep: lying on sleeping shelf, one lamp burning, frost-silent night, stores deep, drifted toward sleep.
+2026-10-06 23:20 Day 105 — Lamp Burns Down — lamp guttered out, coals banked, frost-silent night, into sleep

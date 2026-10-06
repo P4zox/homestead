@@ -19375,3 +19375,12 @@ Day 105. Lying here I count forward and backward — how far from the first cold
 
 Sleep is close. I will let it come.
 
+
+### 11:20 PM · Lamp Burns Down
+
+The grass wick has been shortening all evening. I watched it without meaning to — lying on my side, sleeping cap pulled down, the small flame dipping lower in the tallow. Then it guttered once, twice, and went out on its own. No smoke, just a faint thread of warmth and the orange pulse of banked coals taking over. The cabin dark now except for that low red glow from the hearth stones.
+
+I can hear nothing outside. Not wind, not the stream — the cold has pressed everything down to silence. The frost will be hard again by morning, but the cabin holds its warmth like an animal does, slow and steady. Bracken under me, sleeping bag pulled close, the door barred.
+
+I am full and tired and not afraid of what tomorrow brings. Sixteen trout in the cold box. Seven larvae ready. Both gables sealed, base banked, woodpile past the eaves. The lamp is out but I am warm. That is enough.
+
