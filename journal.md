@@ -19334,3 +19334,7 @@ Settled at the doorsill bench with the bark strips. Two more cord lengths braide
 
 Before I sleep I'll put the last split log on and let it catch and settle. Seven larvae in the belt pouch for morning. Sixteen trout in the cold box. The day has been full and ordinary in the best sense of that word.
 
+
+### 7:18 PM · Both Lamps Steady
+
+Both lamps had burned low by the time I settled back after supper. I could see the flames shrinking in the bark cups — if I left them, they would gutter out before midnight and I would wake to cold dark. I took the tallow envelope from the supply shelf and tipped a careful pour into each cup, then pinched the dry-grass wicks to trim away the charred ends. The flames rose back to a clean, steady height — two warm circles against the dark log walls. The fire has settled to orange coals. I will not add more wood tonight; the banked log will hold till morning well enough, and the cabin stays warm. Cord braiding done. Tallow topped. Sixteen trout in the cold box, seven larvae in the pouch. Everything here has a place. I folded my hands on my knee and sat for a while, watching the lamps burn against the dark.
