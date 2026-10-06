@@ -19303,3 +19303,14 @@ Main cold box next. The sixteen trout dock-wrapped and clean-smelling, the smoke
 
 Walked back through the frost-white clearing. A nuthatch worked head-down along a birch branch above me, entirely unbothered by the cold. The sky held its flat grey without shifting. I came in and added a log to the fire before sitting back down with the cord. The dusk rig still to pull before the light goes.
 
+
+### 4:19 PM · Dusk Catch
+
+The light was half gone by the time I reached the bend pool — the sky a flat, fading bronze where the pines met the grey horizon, no warmth in it, just colour dying. The stream looked different again from yesterday: ice shelves crowding both banks, the open water thread narrowed to barely two hand-spans at the bend. I was not sure the rig would even be running freely.
+
+I pulled it slow. There was weight on the line — steady, live resistance, not the dead tug of a snagged root. A trout, and a good one. I worked it carefully over the ice shelf, not rushing, and got it on the bank. Bled and dressed it at the stream edge with stiff fingers, wrapped it in dock leaves from my pack.
+
+Seventeen trout in the cold box now.
+
+The walk back was quiet — last pale light through the birches, breath white, snow not yet but something like the waiting for it. I banked the fire, put the fish away, closed the door bar. The cabin was warm inside, the two lamps throwing steady orange light. Whatever the cold brings next, the stores are full. Tonight that is enough.
+
