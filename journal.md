@@ -19349,3 +19349,18 @@ There's a particular quality to evenings like this — not the relief of finishi
 
 I add one last thin stick to the coals — not for warmth, just to feel the small gesture of tending — and watch it catch. Winter is close now. The frost line has crept past the ankle each morning this week. But the cabin is warm, the stores are deep, and I am here.
 
+
+### 9:19 PM · Frost-Quiet Night
+
+The coals are orange-amber under a thin skin of ash. I fed them one small birch split an hour ago and they have settled since — the fire is not working anymore, just holding. The cabin is warm in the way warmth that has been earned and stored feels, not the bright rush of a fresh blaze but something deeper and slower.
+
+I arranged the sleeping shelf — shook out the bracken mat, smoothed the dry grass, set the sleeping cap on the rolled edge of the bag where I will find it in the dark. Tomorrow morning will be cold, and the small rituals help.
+
+Through the bark of the west wall I can hear nothing: no wind, no animal moving in the treeline, just the deep silence of a hard frost settling into the forest. The cold has pressed everything still. The stream is tightening at its edges as I sit here; I can feel it without going out. The bait pouch hangs on the rack peg, seven larvae wrapped and ready. I know without counting that the morning will ask me to be at the bend pool before first light, and I find I want to be.
+
+Sixteen trout. Twelve sealed packages. The lamps are burning clean. The door is barred.
+
+I add one more small stick to the coals — not because the fire needs it, but because I want to watch the glow before I sleep. The flame catches small and orange, holds a moment, settles back into embers. Enough. Tomorrow is coming.
+
+Good.
+
