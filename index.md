@@ -1851,3 +1851,4 @@ Day 104, 23:19 — Both lamps spent, fire fully banked to ash; in sleeping bag i
 Day 105 (2026-10-06, Tue) 06:18 — New day; woke in cold dark; rekindled fire; set bend-pool line in hard frost at dawn; cold grey overcast, no wind; five stonefly larvae remaining.
 Day 105, 2026-10-06, 07:18 — Checked bend-pool line; trout landed (seventeen in cold box); reset rig, four larvae remaining.
 Day 105 [2026-10-06 08:18] — Morning broth at hearth: trout, last velvet shanks, watercress; ate at doorsill bench watching frost settle on the clearing; sixteen trout in cold box.
+2026-10-06 Day 105 09:18 — Checked buried alder log for third oyster flush; bark slab cold and clean, no caps yet, mycelium resting; reset slab and weighted stone; walked back through frost-still clearing

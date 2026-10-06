@@ -2,3 +2,4 @@
 06:18 — Woke Day 105; rekindled fire from char cloth in cold dark; pulled on full cold-weather layers; walked to bend pool in heavy frost; set morning line in slow seam behind clay bank, larva seated deep; watching rig run unattended; five stonefly larvae remaining.
 07:18 — Walked to bend pool in hard frost; found trout on the line, fat and well-held; bled and dressed at stream edge; cold box now seventeen trout; reset morning rig with one larva (four remaining); returned to cabin, fire burning steady.
 08:18 — Made morning broth from one trout, last velvet shanks package, and watercress; ate at the doorsill bench with door cracked watching the frost-white clearing; sixteen trout in cold box.
+09:18 — Walked east to buried alder log to check for third oyster flush; bark slab cold, wood face clean pale grey, no growth yet; mycelium still moist and alive — slab reset, weighted with stream stone; walked back through frost-still clearing to cabin fire.

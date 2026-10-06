@@ -19230,3 +19230,12 @@ The broth was simple and good. Trout and fungus and green — the same combinati
 
 Sixteen trout in the cold box. Firewood past the eave. Both lamps filled. The velvet shanks are done — last package, gone now — but the stores feel solid without them. Whatever the winter brings, I've got the shape of readiness right.
 
+
+### 9:18 AM · Third Flush Check
+
+The frost had softened just enough by midmorning that my breath came in slow plumes rather than sharp clouds. I walked the familiar path east of the clearing to where the buried alder log sits half-submerged in leaf mould — the same log that gave me a pale curtain of oyster caps three days ago. The bark slab was cold and damp, clung a little when I lifted it.
+
+Nothing yet. The wood face was clean pale grey, still moist from the last flush. I pressed a finger to the surface — soft but not crumbling, still alive in there. The mycelium is resting, gathering itself. Two days is not long for a third push in this cold. I tucked the slab back firmly, weighted it with the stream stone, and gave it another day or two. Worth checking. Worth being patient about.
+
+The walk back was good. Frosted grass crunched underfoot and the pines above were perfectly still — no wind at all, just the low grey sky pressing gently down on everything. I stopped at the cabin door to pull off my foot wraps and knock the ice crystals loose before stepping inside to the fire.
+
