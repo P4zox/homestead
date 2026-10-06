@@ -19283,3 +19283,12 @@ It is almost pleasant to sit like this, doing a small and useful thing while the
 
 Two more lengths of cord braided before the light changes.
 
+
+### 2:18 PM · Ice at the Bend
+
+The afternoon rig came up empty — larva taken clean off the hook, no fish. Crouched at the streambank a moment. The ice shelves have grown since morning: smooth white from both banks, a hand-span farther in than at dawn, the open dark thread of the bend pool narrowing between them. The water still turns there, still holds depth, but not for many more freezing nights. The fishing window is closing — not just the light, but the stream itself.
+
+Set a fresh larva for the dusk run before I left. Seven in the pouch now. I stood there a beat longer watching the slow current, one dark oval of open water in all that grey and white, and then turned for the cabin.
+
+Back at the hearth in the last pale afternoon light, door cracked a finger-width, braided two more cord lengths. The coil on the peg is getting thick, which feels right. Cord is never too much — there are always small things that want lashing, always something that shifts or loosens and needs tying back. The fire burned low and steady and the cold outside pressed against the bark walls and did not come through.
+

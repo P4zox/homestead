@@ -1856,3 +1856,4 @@ Day 105, 10:18 — Pulled bend-pool rig (larva taken clean, no catch); gathered 
 2026-10-06 11:18 Day 105 — Set midday bend-pool line (one larva); returned to cabin, braiding cord by hearth with door cracked on frost-still clearing; ten larvae remaining.
 Day 105, 12:18 PM — Noon pull at bend pool (no catch, larva taken clean); noon meal at doorsill bench — flatcake with hazelnut paste and reheated broth; nine larvae remaining.
 Day 105, 13:18 — Set afternoon bend-pool rig; cord braiding by hearth in flat grey cold.
+Day 105, 14:18 — Afternoon rig pulled empty (larva taken); dusk rig reset at bend pool; ice shelves advancing on bend pool, stream narrowing; two more cord lengths braided by hearth.
