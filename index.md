@@ -1852,3 +1852,4 @@ Day 105 (2026-10-06, Tue) 06:18 — New day; woke in cold dark; rekindled fire; 
 Day 105, 2026-10-06, 07:18 — Checked bend-pool line; trout landed (seventeen in cold box); reset rig, four larvae remaining.
 Day 105 [2026-10-06 08:18] — Morning broth at hearth: trout, last velvet shanks, watercress; ate at doorsill bench watching frost settle on the clearing; sixteen trout in cold box.
 2026-10-06 Day 105 09:18 — Checked buried alder log for third oyster flush; bark slab cold and clean, no caps yet, mycelium resting; reset slab and weighted stone; walked back through frost-still clearing
+Day 105, 10:18 — Pulled bend-pool rig (larva taken clean, no catch); gathered seven stonefly larvae from upstream riffle — eleven total now.

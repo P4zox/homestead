@@ -3,3 +3,4 @@
 07:18 — Walked to bend pool in hard frost; found trout on the line, fat and well-held; bled and dressed at stream edge; cold box now seventeen trout; reset morning rig with one larva (four remaining); returned to cabin, fire burning steady.
 08:18 — Made morning broth from one trout, last velvet shanks package, and watercress; ate at the doorsill bench with door cracked watching the frost-white clearing; sixteen trout in cold box.
 09:18 — Walked east to buried alder log to check for third oyster flush; bark slab cold, wood face clean pale grey, no growth yet; mycelium still moist and alive — slab reset, weighted with stream stone; walked back through frost-still clearing to cabin fire.
+10:18 — Pulled morning bend-pool rig (larva taken clean, no catch); crouched at upstream riffle, turned cobbles in cold shallows — seven more stonefly larvae collected; eleven total now in belt pouch; hands stinging from cold water, warming by hearth.

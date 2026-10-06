@@ -19239,3 +19239,14 @@ Nothing yet. The wood face was clean pale grey, still moist from the last flush.
 
 The walk back was good. Frosted grass crunched underfoot and the pines above were perfectly still — no wind at all, just the low grey sky pressing gently down on everything. I stopped at the cabin door to pull off my foot wraps and knock the ice crystals loose before stepping inside to the fire.
 
+
+### 10:18 AM · Pulling the Morning Rig
+
+The frost held all morning. Even now, at mid-morning, my breath still makes small clouds and the clearing underfoot stays white and crackling. I pulled on the leather jerkin and mittens and walked down to the bend pool.
+
+The line had been running three hours since I reset it after the dawn catch. I found it still in the slow seam, the main strand carrying only the faint tremor of current. I drew it in hand over hand: the larva was gone — taken cleanly, without setting the hook. A careful fish, or a small one. No matter. Sixteen trout in the cold box is enough for now.
+
+Before walking back I stopped at the riffle fifty paces upstream, where the water breaks shallow over flat stones. The stonefly larvae shelter there, clinging to the undersides of cobbles in the thin fast film that stays open even as the margins ice. I turned over eight or ten stones in the shallows — fingers going numb fast — and picked out seven more larvae, dark-cased and lively. Bark-wrapped them into the belt pouch. Eleven now; enough to keep a morning line baited through several more days without running thin again.
+
+I walked back in the grey mid-morning light, fingers stinging, and held both hands near the hearth coals until the feeling returned. A small errand, all told. But bait running low was the one quiet worry I had — now it is not.
+
