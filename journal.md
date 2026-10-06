@@ -19220,3 +19220,13 @@ I bled it at the stream edge, rinsed it in the cold center current, gutted it wi
 
 The fire is burning low and steady, the cabin warming in its slow way. This is the good hour — work done before the day has properly opened, something in hand before breakfast.
 
+### 8:18 AM · Morning Broth, Frost
+
+The cabin was still cold when I came back from the stream — hands stiff, breath showing, frost still thick on the woodpile. I fed the fire until it took hold properly and then hung the clay pot from the lashing rail over the coals.
+
+One trout from the cold box, the last of the velvet shanks from the east seep cache, a handful of watercress still bright and cold from the main box. The pot came to a slow simmer and I sat on the doorsill bench with the door cracked just a thumb's width — enough to watch the frost-white clearing without letting the cold pour in whole.
+
+The broth was simple and good. Trout and fungus and green — the same combination I've fallen back on for weeks now, and it still satisfies something. I ate slowly, both hands around the bowl, and watched the pale flat light come across the clearing. No wind. The pines black and still against the grey sky. The cold that settles into a morning like this one has a particular quality — not hostile exactly, just absolute. It means what it says.
+
+Sixteen trout in the cold box. Firewood past the eave. Both lamps filled. The velvet shanks are done — last package, gone now — but the stores feel solid without them. Whatever the winter brings, I've got the shape of readiness right.
+

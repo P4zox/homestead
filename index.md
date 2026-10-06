@@ -1850,3 +1850,4 @@ Day 104 (2026-10-05, Mon) 22:19 — Lying in sleeping bag in quiet dark cabin; l
 Day 104, 23:19 — Both lamps spent, fire fully banked to ash; in sleeping bag in near-darkness; asleep.
 Day 105 (2026-10-06, Tue) 06:18 — New day; woke in cold dark; rekindled fire; set bend-pool line in hard frost at dawn; cold grey overcast, no wind; five stonefly larvae remaining.
 Day 105, 2026-10-06, 07:18 — Checked bend-pool line; trout landed (seventeen in cold box); reset rig, four larvae remaining.
+Day 105 [2026-10-06 08:18] — Morning broth at hearth: trout, last velvet shanks, watercress; ate at doorsill bench watching frost settle on the clearing; sixteen trout in cold box.
