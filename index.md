@@ -1866,3 +1866,4 @@ Day 105, 19:18 — Topped both bark-cup lamps from tallow supply, trimmed wicks;
 2026-10-06 21:19 Day 105 — Arranged sleeping shelf; banked coals; frost-quiet night; ready for morning.
 2026-10-06 22:20 — Day 105 — Still Before Sleep: lying on sleeping shelf, one lamp burning, frost-silent night, stores deep, drifted toward sleep.
 2026-10-06 23:20 Day 105 — Lamp Burns Down — lamp guttered out, coals banked, frost-silent night, into sleep
+2026-10-07 Day 106 06:18 — Set morning bend-pool line in deepening frost; ice edges crept in overnight; six larvae remaining; fire rebuilt from coals.

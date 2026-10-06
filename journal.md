@@ -19384,3 +19384,19 @@ I can hear nothing outside. Not wind, not the stream — the cold has pressed ev
 
 I am full and tired and not afraid of what tomorrow brings. Sixteen trout in the cold box. Seven larvae ready. Both gables sealed, base banked, woodpile past the eaves. The lamp is out but I am warm. That is enough.
 
+
+---
+
+# Day 106 — Wednesday, 7 October 2026
+*Mid-autumn · hard frost at dawn, flat grey sky, cold all day*
+
+### 6:18 AM · Ice Edges Deeper
+
+The cabin was still dark when I woke — just orange coals at the hearth floor, no lamp burning, frost-silent outside. I lay still a moment listening, then rose and pulled everything on: foot wraps first, then wrist wraps, sleeping cap, leather jerkin, mittens hanging loose at the wrist until I needed both hands for the latch.
+
+Door unbarred. The morning was colder than yesterday — the frost on the clearing bone-white and dry, each step a small crackle underfoot, sharper than the damp white of the days before. I walked to the bend pool in pale grey pre-light and found the ice has crept inward overnight; both banks extended their shelves another hand-span and the open water thread at the pool is barely two hand-spans across now, running dark and quick between white edges.
+
+Rigged the line quickly with cold-stiff fingers, seated one larva deep in the slow seam behind the clay bank, set the rig running. Six larvae left in the pouch. Came back to the cabin before full light and rebuilt the fire from coals — fed it thin sticks until it caught properly, then a thicker birch log that took hold with a low steady burn.
+
+Hands warming now around the clay pot. Sixteen trout in the cold box, cord stock healthy, tallow supply holding. The stream is tightening day by day and will keep tightening. I am watching it.
+
