@@ -19364,3 +19364,14 @@ I add one more small stick to the coals — not because the fire needs it, but b
 
 Good.
 
+
+### 10:20 PM · Still Before Sleep
+
+Lying on the sleeping shelf now with one lamp still burning — the smaller one, which I will tip out when I am ready. The cabin is warm in a way that no longer takes me by surprise, but I notice it anyway: the log walls holding the day's heat, the chinking solid against any outside cold, the banked fire breathing faintly orange through the grate gaps.
+
+Outside: nothing. The frost silence is complete — no wind, no branch sound, just cold working at the world. Somewhere the stream is running under its ice shelf, and I can almost hear it if I hold still, though I think that is memory more than sound.
+
+Day 105. Lying here I count forward and backward — how far from the first cold nights in the tent, how far still to the depth of winter. Both distances feel right. The stores are deep. The wood is stacked. The lamps burn clean.
+
+Sleep is close. I will let it come.
+

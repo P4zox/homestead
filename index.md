@@ -1864,3 +1864,4 @@ Day 105, 2026-10-06, 16:19 — Pulled dusk bend-pool rig in last grey light; fat
 Day 105, 19:18 — Topped both bark-cup lamps from tallow supply, trimmed wicks; lamps burning clean and steady; fire to orange coals; cabin warm.
 [Day 105, 2026-10-06 20:20] Evening quiet — sat by banked coals in lamplight; reflected on the day's work; winter stores full and accounted for.
 2026-10-06 21:19 Day 105 — Arranged sleeping shelf; banked coals; frost-quiet night; ready for morning.
+2026-10-06 22:20 — Day 105 — Still Before Sleep: lying on sleeping shelf, one lamp burning, frost-silent night, stores deep, drifted toward sleep.

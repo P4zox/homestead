@@ -15,3 +15,4 @@
 19:18 — Topped both bark-cup lamps from tallow supply; trimmed dry-grass wicks; lamps burning clean and steady; fire settled to orange coals; cabin warm, door barred.
 20:20 — Sat by banked fire in lamplight; reflected on the day's work; added one thin stick to coals; stores counted and deep — sixteen trout, twelve sealed winter-store packages; cabin warm, door barred.
 21:19 — Arranged sleeping shelf — shook out bracken mat, smoothed dry grass, set sleeping cap at bag roll; added one small stick to banked coals by lamplight; frost-quiet night, door barred, ready for morning.
+22:20 — Lying on sleeping shelf; one lamp still burning; cabin warm, frost-silent outside; counted stores and distance come and still to go; drifted toward sleep with the day complete.
