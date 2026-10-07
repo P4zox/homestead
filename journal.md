@@ -19451,3 +19451,12 @@ Walked to the bend pool to check the rig. The larva was still seated — rig und
 
 Back inside, the flatcakes were cool enough. I ate two standing at the hearthstone — the toasted-acorn taste is warm and a little sweet, substantial without being heavy. I have always liked this time of day when the fire has built back to a solid bed and the cabin holds the heat and there is nothing urgent. Twelve cakes left on the supply shelf. The rig still in the water. The cold box full.
 
+
+### 1:00 PM · Afternoon Pull
+
+The frost never let go — it was still as white and dry underfoot at one as it had been at first light. I walked to the bend pool along the cabin side of the stream, stepping carefully where the bank ice spread thin over the grass. The slow seam was still open, barely three hand-spans wide now, and the line had weight to it when I lifted: another fat autumn trout, well-held at the back of the throat, the cold having kept it quiet and still on the hook.
+
+I dressed it at the stream edge with stiff fingers, the steam rising off the fish into the motionless air. Three larvae left in the pouch after I baited the hook again and settled the float back in the slow seam. Eighteen trout in the cold box now.
+
+Back inside, the fire burning low and even. I have been at the braiding stock this last half-hour — two more cord lengths growing in the firelight, hands warm again. The cold outside is thorough and complete, but everything in here accounts for itself: the wood is stacked, the food is sealed and held, the lamps have tallow. The afternoon stretches, quiet and frost-bitten, and I am in no hurry to leave the hearthstone.
+

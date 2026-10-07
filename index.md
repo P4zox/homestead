@@ -1873,3 +1873,4 @@ Day 105, 19:18 — Topped both bark-cup lamps from tallow supply, trimmed wicks;
 Day 106, 2026-10-07, 10:18 — Mid-morning bend-pool rig yielded fat autumn trout; dressed at stream edge; reset with larva (four remaining); seventeen trout in cold box; long-tailed tits in the alders.
 Day 106 11:18 — Baked seven acorn flatcakes on coal-bed hearthstone from one flour envelope; cabin warm and smelling of toasted flour; three envelopes remain.
 Day 106, 12:18 — noon rig check, larva seated undisturbed; ate two fresh acorn flatcakes by fireside; twelve cakes on supply shelf
+Day 106, 13:18 — Pulled bend-pool rig, third trout of the day, fat and well-held; dressed at stream, reset with one larva (three remaining); eighteen trout in cold box; braiding cord at hearthstone.
