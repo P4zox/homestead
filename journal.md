@@ -19481,3 +19481,14 @@ Then the garden. Both plots lay quiet under their leaf mulch, the amber and brow
 
 Walked back through the pale grey afternoon. Rebuilt the hearthfire from the coals and sat with it a while, the cabin quiet and warm.
 
+
+### 4:19 PM · Cold Dusk Catch
+
+By four the light was thinning in that flat, mid-autumn way — not yet dark, but the grey had gone a shade deeper and the shadows under the pines had softened into something indistinct. I pulled on the mittens and walked down to the bend pool with the last hour of useful light.
+
+The rig was taut with that good familiar weight when I reached it. I pulled hand over hand and brought up a fat trout, well-colored, belly golden even in the flat grey afternoon. The stream edges had crept in another half-finger since midday — the open seam at the bend is no more than two hand-spans across now, just enough for a line to fish in the right place. I dressed the fish quickly, hands going numb before I was done, and reset the rig with one of the remaining larvae. Nineteen trout in the cold box.
+
+Walking back I found myself thinking about the stream. At this rate of ice-creep, another week of hard frost and the seam might close entirely. Last winter was mild enough that I never had to deal with real ice on the pool. This one feels different — the frost has a permanence to it, a sense of having arrived to stay rather than passing through. I should watch the seam carefully this week and pull the rig when the gap closes to finger-width. There is enough in the cold box already; every fish I add now is margin, not need.
+
+Cabin was warm when I came in. The smell of this morning's broth still faint in the wood, which is a good smell to come home to.
+
