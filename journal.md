@@ -19460,3 +19460,15 @@ I dressed it at the stream edge with stiff fingers, the steam rising off the fis
 
 Back inside, the fire burning low and even. I have been at the braiding stock this last half-hour — two more cord lengths growing in the firelight, hands warm again. The cold outside is thorough and complete, but everything in here accounts for itself: the wood is stacked, the food is sealed and held, the lamps have tallow. The afternoon stretches, quiet and frost-bitten, and I am in no hurry to leave the hearthstone.
 
+### 2:19 PM · Ice at the Edges
+
+Walked to the bend pool for the afternoon check. The path is worn into my feet by now — I do not think about it anymore, just move through the birches and feel the frost underfoot.
+
+The rig was still. Larva untouched, line hanging loose in the seam. I stayed longer than I needed to, watching the ice. It has advanced since this morning — a half-finger more at each bank, and the open thread narrowing. What remains is barely wide enough to fish, but the trout are there; I can feel the rig and know it. I will pull at dusk.
+
+Three fish today. Eighteen in the cold box. Twelve flatcakes on the shelf and two envelopes of acorn flour still sealed. The mushrooms are in, the rose hips and haw, the hazelnut paste and elderberry reduction and crab apple thick in its bark envelope. I stood at the pool's edge and ran through it all in my head, the way you count things before a long hard stretch. Nothing is missing.
+
+The light had started to fail around the pool's far bank — not sunset, just the grey pulling lower. I did not linger. Came back along the stream, ice crackling at every step, and ducked through the door into the warm dark of the cabin. Fire still catching well. Cord braiding to finish by lamplight.
+
+This is what deep autumn has been building toward: a full cold box, a sealed cabin, a woodpile you cannot see over. I know what winter costs. I think I have enough to pay it.
+
