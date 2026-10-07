@@ -19406,3 +19406,15 @@ Hands warming now around the clay pot. Sixteen trout in the cold box, cord stock
 Went to the bend pool just after seven. The frost had deepened even since the early dark — every step across the clearing broke the white crust with a dry, final sound, like something closing. The stream looked smaller again. The ice had crept another finger-width overnight and the open thread of moving water was barely two hand-spans across, dark and quiet between the white edges.
 
 But the bend pool still holds. I took the line and felt it before Id
+### 8:18 AM · Frost Broth, Quiet Fire
+
+The draft that came in when I unbarred the door this morning was something — cold hit the back of my hand before I was even awake, sharp and immediate, and I stepped back half a step without meaning to. The frost today is bone-dry and white, the kind that stays through the whole morning because the sun is too low and too grey to burn it off. I left the rig set in the bend pool after the dawn catch and came back inside to let the coals speak.
+
+I hung the fresh trout from the rack to firm a moment, then dressed it cleanly and laid it into the amber-cream broth pot with cold stream water, a handful of watercress from the main box, and a few smoked oyster mushroom slices. Set it on three hearthstones over the coal bed, low and patient. The pot found its heat slowly and then held it, a steady shimmer just below rolling.
+
+Sat on the doorsill bench with the door half-open while it cooked. The birches are bare and white against flat pearl-grey sky. The pines are black. No wind anywhere — just stillness and the occasional deep creak of a tree taking the cold into its wood. The stream thread at the bend is thinner than yesterday; I could hear how thin, even from here.
+
+Ate the broth hot, holding the cup with both hands, steam rising into cold air. The trout was fat and firm — a fish that had been eating well all autumn. Watercress kept its bite even cooked; the mushrooms gave depth. Sat until the bowl was empty and the cold had crept to my ankles, then closed the door and came back to the fire.
+
+Sixteen trout now in the cold box. The store is deep. Winter can come as hard as it likes.
+

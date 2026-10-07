@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke in darkness to banked coal glow; pulled on all cold layers; unbarred door to find frost deeper than yesterday — bone-white, dry, crackling underfoot; set morning bend-pool line with one larva seated deep in the slow seam; ice edges crept in overnight, open water thread barely two hand-spans at the bend; back to cabin, fire rebuilt from coals; six larvae remaining in belt pouch.
 07:19 — Walked to bend pool; pulled morning line; landed one fat trout, lip-hooked in the slow seam; dressed at stream edge; reset rig with fresh larva (five remaining in belt pouch); carried fish back to cabin; seventeen trout in cold box.
+08:18 — Cooked morning broth from the fresh bend-pool trout with watercress and smoked oyster mushrooms; simmered slow over coal bed; ate at the doorsill bench in frost quiet; one trout used from cold box (sixteen remaining).
