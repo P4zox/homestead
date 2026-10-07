@@ -19429,3 +19429,13 @@ On the way back, a small handful of long-tailed tits was working through the bar
 
 Back at the cabin, checked the cold-box bark lids and the weight stones — all seated firmly. The frost makes a good cold box of the whole world this time of year, but I still want the seals tight. Everything inside exactly as it should be.
 
+### 10:18 AM · Slow Seam Gives
+
+Walked out to the bend pool at mid-morning. The air was still and white, frost unmelted even now, breath hanging in front of my face in slow curls. The rig was taut when I found it — not thrashing, just that quiet holding weight that means something real is on the hook.
+
+Pulled in another autumn trout, fat and cold, the same slow seam producing a second fish for the day. Dressed it at the stream edge, hands stinging before I was done, ice crunching under my knees where it had crept in from the bank overnight. Reset with a fresh larva — four remaining in the pouch now.
+
+Seventeen trout in the cold box. It is a good number for where we are in the season. The stream will not give forever; each day the ice takes a little more, the open thread narrowing toward nothing. I am glad to take them while they are still coming.
+
+Long-tailed tits again in the alders above the pool. Always those same birds, or birds that look the same. I stayed a little longer than I needed to, just watching them work.
+
