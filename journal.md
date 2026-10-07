@@ -19527,3 +19527,14 @@ Then the lamp back to the hearthstone and two more cord lengths braided from the
 
 Took the knife out after supper and set the flat gneiss grinding stone on the hearthstone. The blade had dulled some — a week of fish-dressing and bark-cutting leaves a fine edge gone soft without ceremony. Worked it in the same slow oval strokes I always use: tip to heel, heel to tip, stone steady, wrist loose. The scraping filled the cabin while both lamps burned. It is the kind of attention I find easy to give: not urgent, not making anything new, just restoring what was already there. The frost outside is thick and silent. The door is barred and the walls are sealed. I have eighteen trout in the cold box and enough flour for more flatcakes and both lamps full. Tomorrow there will be the same bend pool and the same cold hands and the same line to set. For now, this is enough — a good edge, a warm room, the quiet creak of the cabin settling against the cold.
 
+
+### 9:19 PM · Fire Banked, Frost Still
+
+The lamps burned low and I let them. Both cups still had tallow but I felt the pull of sleep coming on, the way it does after a full day of cold and small work. I raked the coals into a flat mound, laid two of the denser birch rounds across the back, and waited until I could see the orange catch under the new wood before setting down the ash-rake. I will have coals in the morning if the night holds steady.
+
+There is a particular quiet to this hour. The frost is pressing at the doorsill and the cabin is as tight as I have made it — bracken-banked, wattle-daubed, bark-wrapped, latch bar dropped. I sat for a while on the cattail mat just listening: the tick of cooling logs, the faint catch of fire taking hold on new birch, and the absolute silence of the frost outside.
+
+I thought about winter. The stores are better than I had any right to expect — eighteen trout in the cold box, all the sealed mushroom and fruit packages, flatcakes on the shelf, flour still in reserve. The tallow envelope is good. The cord stock is deep. The woodpile stands eave-high with a full new row added. I do not know exactly what this winter will bring, but I have more of what I need than I did last week, and more than the week before that.
+
+I blew out the second lamp. The first still burns, low and steady. I will let it go when I am ready.
+

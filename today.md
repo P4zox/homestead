@@ -16,3 +16,5 @@
 19:19 — Moved slowly around the inside walls by lamplight, running palms flat against the daub panels and bark wrapping — checking for anywhere the frost outside might seep in. Found one small cool spot at the lower north log, where the banked bracken had shifted; pressed the fronds back firm and weighted with a flat stone. Everything else sealed. Then settled at the hearthstone and braided two more cord lengths while the fire burned low and steady.
 
 20:20 — Took knife and flat gneiss grinding stone to hearthstone; worked blade in slow oval strokes, tip to heel; dulled edge from week of fish-dressing and bark-cutting restored to fine; both lamps burning, door barred, frost deep outside; cabin warm and tight.
+
+21:19 — Banked fire with two birch rounds on the coals; settled on sleeping mat; blew out second lamp; first lamp burning low; frost deep outside, cabin sealed and quiet.
