@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke before first light; unbarred door to sharpest frost yet — dry, mineral cold, clearing sky, rose-grey dawn east of treeline; walked to bend pool and set morning rig with one larva in the slow seam (ice seam grown, open water barely hand-span and a half); returned to cabin; rebuilt hearthfire from banked coals; one larva remaining in belt pouch.
+07:00 — Walked to bend pool in hard frost; morning rig yielded a fat trout, lip-hooked in the slow seam; dressed at stream edge with numb hands; re-baited with last stonefly larva; larvae now exhausted — need to collect more from upstream riffle; returned to cabin, fish in cold box, water on to heat.

@@ -19571,3 +19571,16 @@ Walked to the bend pool with one larva seated on the hook. The ice seam had grow
 
 Back to the cabin. Hearthfire rebuilt from coals — birch round split, kindling coaxed, fire alive in a minute. Day 107. Eighteen trout in the cold box. All stores sealed and counted. The frost settling in deeper with each morning, and the homestead holding steady against it.
 
+
+### 7:00 AM · Ice-Edged Morning
+
+The frost was even harder on the path this morning — I felt it through my foot wraps, the ground ringing, every dead grass stem wearing its own sleeve of white. The pines along the far bank stood perfectly black against a sky that had cleared overnight into something deep and cold and still.
+
+The line hung motionless at first. I crouched at the bank and watched the open water thread. The ice had grown another half-finger overnight, pressing the open seam narrower, and the water that remained moved slow and dark. Then the line lifted — just barely. I waited. It lifted again, a slow deliberate weight.
+
+Fat trout. Dark-spotted, deep-bodied, autumn-fed and cold as the stream itself. I landed it over the frozen bank edge and dressed it there in the frost, hands going numb quickly. Good fish. Better than I deserved this early and this cold.
+
+I re-baited with the last stonefly larva and reset the rig in the same slow seam. Zero larvae left in the pouch now. I will need to work the upstream riffle sometime this morning before the rig loses its bait and sits bare.
+
+The walk back was bright and absolutely quiet. The fire had held from last night and the cabin was almost warm. I slid the fish into the cold box and put water on to heat.
+

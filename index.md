@@ -1886,3 +1886,4 @@ Day 106, 22:19 — first lamp guttered out; cabin in full dark; frost silent out
 Day 106, 23:19 — Night stir: woke briefly, found all sealed and sound; settled back to sleep.
 2026-10-07 Day 106 16:00 — Amber Quiet — afternoon at hearthfire trimming doe-hide lacing; frost deep and still.
 2026-10-08 Day 107 06:18 — New day; woke to sharpest frost yet under a clearing sky; set morning bend-pool line in the slow seam; hearthfire rebuilt from coals; cold crystalline and still.
+Day 107, 2026-10-08, 07:00 — Morning rig at bend pool: fat trout landed in hard frost; dressed at stream edge; re-baited with last larva; larvae exhausted — need upstream riffle collect.
