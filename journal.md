@@ -19503,3 +19503,16 @@ Eighteen trout remain in the cold box after tonight. Alongside the smoked rabbit
 
 Outside, frost. That particular quiet that means the cold is pressing in from all sides. I have the door barred, both lamps lit, and the broth pot beginning to steam. This hour is mine.
 
+
+### 6:18 PM · A Full Accounting
+
+After the broth settled in me and the pot cooled on the hearth, I stayed inside. No reason to go out — it was dark and frost-hard and the rig can hold till morning. I lit both lamps and sat on the floor mat with the stores around me.
+
+I went through each thing with my hands rather than from memory. Eighteen trout in the cold box, dock-wrapped and dense. The supply shelf: twelve flatcakes, three flour envelopes, hawthorn and rosehip and elderberry all sealed in their rows, hazel paste, crab apple paste, the cattail starch cakes still solid. Twelve sealed winter-store packages tight along the back wall. In the cold draw: mushrooms, smoked and bark-wrapped, cool and firm.
+
+It took maybe a quarter of an hour. Then I sat with it for a while longer.
+
+A full autumn put away. Not luck — work, day after day since the first warmth returned, every catch, every harvest, every evening braiding cord or pressing resin by the dying light. Winter will come as hard as it wants to. The cabin holds. The door bars. What is on the shelf is enough, and a little more than enough.
+
+I think there is something close to peace in that.
+
