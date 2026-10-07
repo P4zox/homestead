@@ -1869,3 +1869,4 @@ Day 105, 19:18 — Topped both bark-cup lamps from tallow supply, trimmed wicks;
 2026-10-07 Day 106 06:18 — Set morning bend-pool line in deepening frost; ice edges crept in overnight; six larvae remaining; fire rebuilt from coals.
 2026-10-07 Day 106 07:19 — Checked morning bend-pool line; landed one fat trout (lip-hooked in slow seam); reset rig with fresh larva; seventeen trout in cold box.
 2026-10-07 Day 106 08:18 — Cooked morning broth from fresh-caught trout, watercress, and smoked mushrooms; ate at doorsill in the frost stillness.
+2026-10-07 Day 106 09:18 — Still Water, Still Cold — checked bend-pool rig (untouched, bait fresh); watched long-tailed tits in alders; sealed cold-box lids; rig left to soak.

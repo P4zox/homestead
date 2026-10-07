@@ -19418,3 +19418,14 @@ Ate the broth hot, holding the cup with both hands, steam rising into cold air. 
 
 Sixteen trout now in the cold box. The store is deep. Winter can come as hard as it likes.
 
+
+### 9:18 AM · Still Water, Still Cold
+
+Walked to the bend pool mid-morning to check the rig — frost still bone-white on every stem, the grass crackling faintly underfoot, sky flat and pearl-grey with no wind at all. The cold hangs like something solid. The open water at the bend has narrowed another finger's width since yesterday; in a week it will be a sliver, then gone.
+
+The rig sat undisturbed — larva still seated deep in the slow seam, line barely moving in the almost-still current. I watched it a while from the bank. In this cold the trout go deep and sulk; they take when they take, and not because I am standing over them. I left the rig alone.
+
+On the way back, a small handful of long-tailed tits was working through the bare alder branches above the pool, quick and fussy, moving on before I could count them. Everything that lives out here has made its peace with October. I am trying to do the same.
+
+Back at the cabin, checked the cold-box bark lids and the weight stones — all seated firmly. The frost makes a good cold box of the whole world this time of year, but I still want the seals tight. Everything inside exactly as it should be.
+
