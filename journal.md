@@ -19538,3 +19538,12 @@ I thought about winter. The stores are better than I had any right to expect —
 
 I blew out the second lamp. The first still burns, low and steady. I will let it go when I am ready.
 
+
+### 10:19 PM · Lamp Goes Out
+
+The first lamp had been burning very low since before I lay down — the wick just above the tallow line, a pale coin of light moving on the cabin shelf. I watched it from the sleeping mat, eyes half-open, as it narrowed to a thread and then went out. No drama. Just dark.
+
+Full dark now, and no sound at all from outside. The frost is too deep even for the trees to settle. The hearthfire is banked down to coals and I can feel the warmth the cabin holds — walls and daub and the banked bracken under me, all holding the day against the night. Everything is sealed. Eighteen trout in the cold box, flatcakes and fruit and mushroom stores all accounted for, knife sharp, door barred.
+
+Day 106. I will sleep through whatever the frost does outside.
+

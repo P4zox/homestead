@@ -18,3 +18,5 @@
 20:20 — Took knife and flat gneiss grinding stone to hearthstone; worked blade in slow oval strokes, tip to heel; dulled edge from week of fish-dressing and bark-cutting restored to fine; both lamps burning, door barred, frost deep outside; cabin warm and tight.
 
 21:19 — Banked fire with two birch rounds on the coals; settled on sleeping mat; blew out second lamp; first lamp burning low; frost deep outside, cabin sealed and quiet.
+
+22:19 — First lamp guttered out; full dark settled in the cabin; frost deep and still outside; lying on sleeping mat, hearthfire down to banked coals, everything sealed and accounted for; settling into sleep.
