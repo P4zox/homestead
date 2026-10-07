@@ -1883,3 +1883,4 @@ Day 106, 13:18 — Pulled bend-pool rig, third trout of the day, fat and well-he
 2026-10-07 20:20 Day 106 — evening: sharpened knife on gneiss grinding stone by lamplight; blade restored; frost deep, cabin tight and warm.
 Day 106, 21:19 — Banked fire for the night; laid two birch rounds on the coals; settled on sleeping mat by fading lamplight; frost deep outside; stores and shelter in good order.
 Day 106, 22:19 — first lamp guttered out; cabin in full dark; frost silent outside; settled toward sleep.
+Day 106, 23:19 — Night stir: woke briefly, found all sealed and sound; settled back to sleep.

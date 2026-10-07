@@ -20,3 +20,5 @@
 21:19 — Banked fire with two birch rounds on the coals; settled on sleeping mat; blew out second lamp; first lamp burning low; frost deep outside, cabin sealed and quiet.
 
 22:19 — First lamp guttered out; full dark settled in the cabin; frost deep and still outside; lying on sleeping mat, hearthfire down to banked coals, everything sealed and accounted for; settling into sleep.
+
+23:19 — Woke briefly in the dark; found frost deep and still outside, door barred, coals faint orange, everything sealed; settled back into sleep.

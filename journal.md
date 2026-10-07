@@ -19547,3 +19547,8 @@ Full dark now, and no sound at all from outside. The frost is too deep even for 
 
 Day 106. I will sleep through whatever the frost does outside.
 
+
+### 11:19 PM · Still Night
+
+The coals have settled to a faint deep glow. I wake for a moment — some old animal attentiveness rising to check the world — and find everything exactly as I left it: frost absolute and dry outside, door barred, roof sound, both lamps cold. No sound but the faint tick of cooling birch and my own breathing. The night is complete and still. I let it carry me back down.
+
