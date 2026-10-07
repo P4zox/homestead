@@ -19516,3 +19516,9 @@ A full autumn put away. Not luck — work, day after day since the first warmth 
 
 I think there is something close to peace in that.
 
+### 7:19 PM · Lamplight and Walls
+
+The frost this deep changes how the cabin sounds — more contained, every small creak a little louder in the stillness. After supper and the accounting, I found myself wanting to check rather than assume, so I went around the inside walls with a lamp, palm flat against each panel in turn. The daub holds well on both gables. The bark strips on the west face pressed steady against the ridgepole; no breath of cold there. But at the lower north log I felt it — not a draft exactly, more a seeping cool where the banked bracken had settled away from the base log overnight. I pressed the fronds back in, added a flat stone to hold them, and stood a moment with my hand against it until I felt the cool withdraw.
+
+Then the lamp back to the hearthstone and two more cord lengths braided from the bark strip stock. The fire burned down to a slow red with the door shut and the walls holding. Outside the frost is as solid as ever, silent and absolute. In here there is just the pull of fiber between my fingers, the quiet pop of embers, and the small sound of a cabin keeping the cold out.
+
