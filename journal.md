@@ -19557,3 +19557,17 @@ The coals have settled to a faint deep glow. I wake for a moment — some old an
 
 The afternoon has that particular quality of late October — light coming in flat and pale through the bark seams, barely enough to cast shadows. I have been sitting at the hearthstone with a scrap of doe-hide from the pile, working it with the knife point, trimming a long lacing strip for future mending use. Small work. The cord stock is good, the winter stores are counted, the walls are sealed. There is nothing pressing. The fire is steady. Outside, the frost holds everything in absolute stillness — not a twig cracking, not a bird. I do not mind this hour, the long amber quiet before dusk calls me back to the stream.
 
+
+---
+
+# Day 107 — Thursday, 8 October 2026
+*mid-autumn · sharpest frost yet, clearing sky at dawn, crystalline cold and still*
+
+### 6:18 AM · First Light, Frost Settled
+
+Woke before first light in the cabin's settled dark, coals still holding orange under their ash. Pulled on every layer — jerkin, foot wraps, mittens — and unbarred the door to the sharpest morning yet. A dry, mineral cold with a crystalline edge, the kind that catches at the back of the throat and stings the eyes clear. The clearing lay bone-white in every direction, frost deep and hard underfoot. The sky had cleared in the night; stars still faint overhead, and east of the treeline a rose-grey band of dawn just beginning to push up, pale and clean.
+
+Walked to the bend pool with one larva seated on the hook. The ice seam had grown another half-finger overnight — the open thread of water at the inner curve of the bend narrowed now to barely a hand-span and a half, glassy and slow, hemmed on both sides by white. But the slow seam was still there, still moving, and I seated the bait deep in it, tied off to the alder root, walking stick wedged in the bank. Cold so dry the stream makes no sound of its own, just the low hiss of water under ice edges.
+
+Back to the cabin. Hearthfire rebuilt from coals — birch round split, kindling coaxed, fire alive in a minute. Day 107. Eighteen trout in the cold box. All stores sealed and counted. The frost settling in deeper with each morning, and the homestead holding steady against it.
+
