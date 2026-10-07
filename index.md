@@ -1875,3 +1875,4 @@ Day 106 11:18 — Baked seven acorn flatcakes on coal-bed hearthstone from one f
 Day 106, 12:18 — noon rig check, larva seated undisturbed; ate two fresh acorn flatcakes by fireside; twelve cakes on supply shelf
 Day 106, 13:18 — Pulled bend-pool rig, third trout of the day, fat and well-held; dressed at stream, reset with one larva (three remaining); eighteen trout in cold box; braiding cord at hearthstone.
 2026-10-07 Day 106 14:19 — Afternoon rig check at bend pool; larva untouched, ice advanced at each bank; reflected on winter stores; returned to cord work by hearthfire.
+2026-10-07 15:19 Day 106 — East Cache Rounds: walked east to check seep cache (sealed tight, all packages cold and dry) and inspected garden mulch — garlic and nettles dormant and unharmed, tamped northeast corner of second plot; rebuilt hearthfire.

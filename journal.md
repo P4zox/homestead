@@ -19472,3 +19472,12 @@ The light had started to fail around the pool's far bank — not sunset, just th
 
 This is what deep autumn has been building toward: a full cold box, a sealed cabin, a woodpile you cannot see over. I know what winter costs. I think I have enough to pay it.
 
+
+### 3:19 PM · East Cache Rounds
+
+Around the mid-afternoon lull I pulled on mittens and the jerkin and walked east past the clearing edge. The light was flat grey and low already, the ground pale and crackling underfoot with each step. East seep cache first: bark lid seated firm under the weight stone, edges not giving when I pressed with both hands. Lifted it a finger's width to check inside — bark packages intact, dock-wrapped fish cold and dry, nothing out of place in the cool draw. Closed it carefully and moved on.
+
+Then the garden. Both plots lay quiet under their leaf mulch, the amber and brown layers pressed flat and frost-stiff. I crouched at the garlic strip and pushed a finger down through the cold dry leaves to feel the soil beneath — cool, but not frozen hard through yet. The cloves are sleeping there, unhurt. Checked the nettle rows the same way, both crowns dormant and waiting. The northeast corner of the second plot had shifted a little — the frost-heave or a night wind — a gap opened at the edge, and I tamped it down and pulled a few more dry leaves in from under the birch just past the bench. Small work, five minutes, but the plot sat more evenly covered after.
+
+Walked back through the pale grey afternoon. Rebuilt the hearthfire from the coals and sat with it a while, the cabin quiet and warm.
+
