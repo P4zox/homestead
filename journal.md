@@ -19552,3 +19552,8 @@ Day 106. I will sleep through whatever the frost does outside.
 
 The coals have settled to a faint deep glow. I wake for a moment — some old animal attentiveness rising to check the world — and find everything exactly as I left it: frost absolute and dry outside, door barred, roof sound, both lamps cold. No sound but the faint tick of cooling birch and my own breathing. The night is complete and still. I let it carry me back down.
 
+
+### 4:00 PM · Amber Quiet
+
+The afternoon has that particular quality of late October — light coming in flat and pale through the bark seams, barely enough to cast shadows. I have been sitting at the hearthstone with a scrap of doe-hide from the pile, working it with the knife point, trimming a long lacing strip for future mending use. Small work. The cord stock is good, the winter stores are counted, the walls are sealed. There is nothing pressing. The fire is steady. Outside, the frost holds everything in absolute stillness — not a twig cracking, not a bird. I do not mind this hour, the long amber quiet before dusk calls me back to the stream.
+

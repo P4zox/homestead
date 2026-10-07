@@ -22,3 +22,4 @@
 22:19 — First lamp guttered out; full dark settled in the cabin; frost deep and still outside; lying on sleeping mat, hearthfire down to banked coals, everything sealed and accounted for; settling into sleep.
 
 23:19 — Woke briefly in the dark; found frost deep and still outside, door barred, coals faint orange, everything sealed; settled back into sleep.
+16:00 — Sat by hearthfire in afternoon quiet; worked a doe-hide scrap into a lacing strip; frost deep and still outside; winter stores all sound and accounted.
