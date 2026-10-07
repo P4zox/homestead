@@ -1880,3 +1880,4 @@ Day 106, 13:18 — Pulled bend-pool rig, third trout of the day, fat and well-he
 2026-10-07 17:00 — Day 106 — Supper in the Frost — Made evening broth with one trout, watercress, and smoked oyster mushrooms by lamplight; frost pressing in; eighteen trout in cold box.
 2026-10-07 Day 106 18:18 — Evening by lamplight: counted all winter stores by hand — eighteen trout, twelve flatcakes, three flour envelopes, all fruit and mushroom stores sealed and intact; quiet reckoning, peace in having enough.
 2026-10-07 19:19 Day 106 — Checked inside walls by lamplight for frost seeps; re-seated shifted bracken at north base log; braided two more cord lengths by hearthfire.
+2026-10-07 20:20 Day 106 — evening: sharpened knife on gneiss grinding stone by lamplight; blade restored; frost deep, cabin tight and warm.

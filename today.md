@@ -14,3 +14,5 @@
 18:18 — Sat by hearthfire after supper; went through all winter stores by hand — counted every sealed package, every cold-box parcel; eighteen trout, three flour envelopes, twelve flatcakes, all fruit and mushroom stores intact and sealed; both lamps lit, door barred; frost deep and silent outside; a quiet accounting, and some peace found in it.
 
 19:19 — Moved slowly around the inside walls by lamplight, running palms flat against the daub panels and bark wrapping — checking for anywhere the frost outside might seep in. Found one small cool spot at the lower north log, where the banked bracken had shifted; pressed the fronds back firm and weighted with a flat stone. Everything else sealed. Then settled at the hearthstone and braided two more cord lengths while the fire burned low and steady.
+
+20:20 — Took knife and flat gneiss grinding stone to hearthstone; worked blade in slow oval strokes, tip to heel; dulled edge from week of fish-dressing and bark-cutting restored to fine; both lamps burning, door barred, frost deep outside; cabin warm and tight.

@@ -19522,3 +19522,8 @@ The frost this deep changes how the cabin sounds — more contained, every small
 
 Then the lamp back to the hearthstone and two more cord lengths braided from the bark strip stock. The fire burned down to a slow red with the door shut and the walls holding. Outside the frost is as solid as ever, silent and absolute. In here there is just the pull of fiber between my fingers, the quiet pop of embers, and the small sound of a cabin keeping the cold out.
 
+
+### 8:20 PM · Knife on Stone
+
+Took the knife out after supper and set the flat gneiss grinding stone on the hearthstone. The blade had dulled some — a week of fish-dressing and bark-cutting leaves a fine edge gone soft without ceremony. Worked it in the same slow oval strokes I always use: tip to heel, heel to tip, stone steady, wrist loose. The scraping filled the cabin while both lamps burned. It is the kind of attention I find easy to give: not urgent, not making anything new, just restoring what was already there. The frost outside is thick and silent. The door is barred and the walls are sealed. I have eighteen trout in the cold box and enough flour for more flatcakes and both lamps full. Tomorrow there will be the same bend pool and the same cold hands and the same line to set. For now, this is enough — a good edge, a warm room, the quiet creak of the cabin settling against the cold.
+
