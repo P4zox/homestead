@@ -19492,3 +19492,14 @@ Walking back I found myself thinking about the stream. At this rate of ice-creep
 
 Cabin was warm when I came in. The smell of this morning's broth still faint in the wood, which is a good smell to come home to.
 
+
+### 5:00 PM · Supper in the Frost
+
+Four trout in a single day — I did not plan for that, and I am glad of it. The bend pool is holding, the slow seam still moving beneath the ice that has crept in on both sides. I have been watching those ice edges with care; each morning they are a little further in. But the pool itself stays open, the fish still working it, and I will fish it until it closes on me.
+
+I am cooking now. One trout from the cold box into the broth pot, along with watercress and a few of the smoked oyster mushrooms — they soften in the simmering water and give the broth an earthiness that suits the fish. The smell filling the cabin is very good. The coal bed has been running steady all day and the hearthstone holds its heat well by this hour.
+
+Eighteen trout remain in the cold box after tonight. Alongside the smoked rabbits, the sealed supply shelf, the dried fruits and mushrooms, this is more than I started autumn with. I keep running the count in my head, not from anxiety exactly, but from habit — the habit of keeping account of where I stand.
+
+Outside, frost. That particular quiet that means the cold is pressing in from all sides. I have the door barred, both lamps lit, and the broth pot beginning to steam. This hour is mine.
+
