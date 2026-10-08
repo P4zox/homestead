@@ -1900,3 +1900,4 @@ Day 107, 2026-10-08, 17:19 — Supper broth by firelight; one trout and watercre
 Day 107, 2026-10-08, 18:19 — Evening rest by lamplight after five-trout day; braided a short cord length; frost locked and silent outside, stores full inside.
 Day 107, 2026-10-08, 19:00 — Carved second birch-branch spoon by lamplight; hung on supply peg.
 Day 107, 20:19 — Long Evening Stillness — sat by lamplight after full day; five trout caught; foot wraps and mittens laid out for morning; coals deep and stable; fire settling toward night.
+2026-10-08 21:00 Day 107 — Settled by lamplight as fire coals down; frost absolute outside; five trout today, stores all sound; slept.

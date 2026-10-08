@@ -19701,3 +19701,12 @@ I laid out the foot wraps and mittens on the bench where I can find them in the 
 
 The coals are deep and stable. No need to feed more wood tonight. I will let the fire coast and sleep when the lamp is low.
 
+
+### 9:00 PM · Coals Low, Frost High
+
+The fire has coaled down to a deep orange bed and I have stopped feeding it for the night. The lamp burns small on the shelf — enough tallow to last until morning. Outside, the frost is absolute: no sound at all from the forest, not even a branch creak, as though the cold has pressed everything still.
+
+I set the cord aside and just sit a moment. Five trout today. The cabin base banked all around, perimeter complete. A second spoon hung on the peg. Stores counted, supper eaten slowly. A full day without drama — work done, things added, the gap between now and winter a little smaller.
+
+I will sleep sound. Twenty trout in the cold box, all sealed packages intact. The cold outside will do the keeping for me until morning.
+
