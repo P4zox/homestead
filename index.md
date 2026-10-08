@@ -1898,3 +1898,4 @@ Day 107, 15:19 — Indoor hour by hearth; pulled every bark package from supply 
 Day 107, 2026-10-08, 16:19 — Pulled dusk rig at bend pool; fat dark-spotted trout; twenty-one in cold box; ice margin tightening; stars on walk home.
 Day 107, 2026-10-08, 17:19 — Supper broth by firelight; one trout and watercress; twenty trout in cold box; frost deepening outside; fire banked, stores sufficient, evening settled
 Day 107, 2026-10-08, 18:19 — Evening rest by lamplight after five-trout day; braided a short cord length; frost locked and silent outside, stores full inside.
+Day 107, 2026-10-08, 19:00 — Carved second birch-branch spoon by lamplight; hung on supply peg.
