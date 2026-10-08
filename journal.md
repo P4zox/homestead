@@ -19622,3 +19622,8 @@ I thought about the trout. Nineteen in the cold box, more coming if the pool sta
 
 The braided lengths coil on the shelf now, ready. There is always a use for cord. This is one of the reliable truths of this life.
 
+
+### 12:18 PM · Noon at the Bend
+
+The rig I had set at ten was bowed when I reached the bend pool just past noon — tight against the pull of something holding in the slow seam. I worked it carefully along the near-shore ice until a fat trout came to hand: broad-shouldered, dark-spotted, the heaviest I had touched all day. Dressed it at the stream edge, re-baited with a fresh larva before the cold had fully settled into my knuckles, then carried the fish home instead of cold-boxing it. By the time I had the fire fed up, it was in the pot with watercress and a thumb of smoked oyster mushroom — a quick broth, eaten standing at the hearthstone with a flatcake. The sun sat low and pale over the south treeline, the birches bare and absolutely still. Three trout taken today; nineteen cold-boxed; the rig re-baited and waiting in its seam. After the morning's four cold trips, being still inside felt almost foreign, but I let myself stay by the fire and be warm for a while.
+
