@@ -19592,3 +19592,17 @@ The pot had been ticking on the coals since I came in from the stream. I took on
 I ate from the clay bowl steadied on my knee, with a flatcake torn into pieces for dipping. My hands were still stiff from the rig work — fingers that dressed a fish in hard frost loosen slowly — but the broth moved through me like a coal re-caught. Eighteen trout remain in the cold box.
 
 The morning is settled now. The ice on the stream seam keeps growing; larvae are gone and I will need to go upstream to the riffle before the cold locks the shallows too hard to work. But for this moment, just this: warm bowl, pale low light past the door, the sound of nothing but fire.
+### 9:18 AM · Stone by Stone
+
+The broth warmed me through, and by the time I had rinsed the pot I was ready to move. I pulled on my jerkin, tucked the smallest bark box inside it, and headed upstream along the bank.
+
+The riffle is about a quarter-hour's walk above the bend pool, where the stream shallows over a gravel bar and the water breaks into quick, shallow chatter. Ice has begun to push in from both margins — thin, clear sheets that crack and flex when I nudge them with a boot — but the center flow is still fast and open. That's where the stonefly nymphs prefer: the underside of flat stones in the main current, away from silt.
+
+I crouched at the upstream edge of the bar and began turning stones. The first few were bare, or covered only in algae mat. Then the fourth — three nymphs, pale-bodied and dark-headed, legs splayed wide, clinging hard to the wet underside. I shook them into the bark box with a pinch of damp moss and moved along the bar.
+
+It took a good stretch of time. My fingers numbed fast in the water, and I'd shake them out between stones and press them to my thighs through the jerkin fabric to bring the feeling back. But the work is absorbing in a quiet way — you forget everything except the next stone, the angle of the current, the shape of the wet rock face as you tilt it toward the light.
+
+I came away with close to twenty nymphs, nested in damp stream moss in the bark box, tucked back against my chest for warmth. The riffle gave them up willingly. But the ice margins are widening, and a few more hard frosts will close off the easy reaches. I'll check the bar again in a day or two and see what's left before the shallows lock.
+
+Bait sorted. Rigs will run clean in the morning.
+
