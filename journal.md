@@ -19645,3 +19645,16 @@ Re-baited the rig with one more larva for the dusk run. The ice seam on the near
 
 Returned to the cabin. Fire still going strong. The warmth hit me at the door like a wall and I stood in it a moment before hanging up my coat and settling the fish in order.
 
+
+### 3:19 PM · Taking Stock
+
+With the dusk rig set at the bend pool and the cabin base banked on all four sides, the afternoon opened a quiet slot I rarely get. I pulled every bark package from the supply shelf, worked through the cold box, checked each seal and wrap.
+
+Twenty trout, dock-wrapped and cold. Three smoked rabbits, still sound. Mushrooms in a dozen bundles — oyster, hen-of-the-woods, honey mushrooms, wood ears, fan-cap clusters. Twelve sealed harvest packages. Rose hips, hawthorn, elderberry, crab apple, hazelnut paste. Nine acorn flatcakes, cattail starch, dried yarrow. Tallow envelope still heavy with supply; both lamps burning steady.
+
+I wrote nothing down. I just held each package in both hands and knew it. The weight of a winter's preparation is something you feel before you calculate it.
+
+It is enough. I think it is enough. The cold deepens each day now and the fishing will close in less than a week, but what is on that shelf and in that box represents months of daily choices — every early morning, every cold wade into the stream, every afternoon of gathering. Holding it all at once by firelight was steadying in a way I had not known I needed.
+
+The lamp burned warm on the shelf beside the broth pot. Outside, the afternoon sun would be low already, the pines throwing long shadows east. I set the packages back in order and fed another birch round to the fire.
+
