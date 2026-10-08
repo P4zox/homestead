@@ -19690,3 +19690,14 @@ Both bark-cup lamps are burning low but steady on the shelf. I set the second on
 ### 7:00 PM · Second Spoon Carved
 
 After supper and a short rest, my hands found a piece of work they had been waiting for. I pulled a dry birch branch from the lean-to pile — one set aside weeks ago for its clean grain and proper heft — and settled by the hearth with my knife. The lamp burned steady. Outside, frost held the silence completely; nothing moved, nothing called. I split the rough form first, then pared the bowl hollow, working slowly with the knife tip and angling toward the lamplight to read the grain. The handle took the longest — I scraped it to an oval that sits well in the grip, not square and not round, but the middle thing a hand actually wants. By the time I tested the curve and found it true and set the new spoon beside the first on the supply peg, the fire had settled to deep coals and I felt the full weight of the day for the first time. Two spoons now. In winter when hands stiffen from cold and every task slows, having a spare matters. Small insurances feel large when you are alone.
+
+### 8:19 PM · Long Evening Stillness
+
+The second spoon hangs beside the first now, and I have been sitting here since, just watching the coals settle lower. A full day — five trout in the box, bracken packed against the cabin walls, all the stores counted and sound. The kind of day that earns its evening.
+
+I checked the lamp oil a moment ago; still wick-high, steady. The door latch drops clean in its keeper. No sound outside but the frost: that particular silence that comes when cold is absolute and dry, when even the trees stop creaking. Twenty trout in the cold box. This deep into autumn, that number means something.
+
+I laid out the foot wraps and mittens on the bench where I can find them in the dark. Come morning, the rig will need re-baiting; I want to be at the bend pool before the light is full. Five or six days left, maybe, before the ice closes. I will fish every one of them.
+
+The coals are deep and stable. No need to feed more wood tonight. I will let the fire coast and sleep when the lamp is low.
+

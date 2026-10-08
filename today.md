@@ -13,3 +13,4 @@
 17:19 — Came inside after dusk rig; cooked supper broth with one cold-stored trout and watercress; ate by firelight on sleeping mat; banked fire for night; twenty trout now in cold box; frost deepening outside, stores counted and sufficient.
 18:19 — Lay on sleeping mat after supper; lamp burning steady; braided a short cord length by lamplight; reflected on the season's fullness — five trout today, twenty in cold box, stores counted and sound; frost silent outside; rested by firelight.
 19:19 — Carved second birch-branch spoon from lean-to branch by lamplight; pared bowl hollow, shaped handle to oval grip; hung on supply peg beside first; hearth coals deep; frost silent outside.
+20:19 — Sat by lamplight after a full day; checked lamp oil and door latch; laid out foot wraps and mittens on bench for morning; coals deep and stable; decided to let fire coast through the night; twenty trout in cold box, stores sound.
