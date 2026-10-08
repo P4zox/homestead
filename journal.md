@@ -19728,3 +19728,17 @@ Twenty trout in the cold box. Twelve sealed packages on the shelf. A full woodpi
 
 I turned over and thought: enough. More than enough. Sleep takes me back without argument, and I go.
 
+
+---
+
+# Day 108 — Friday, 9 October 2026
+*mid-autumn · grey overcast, frost hard, no wind*
+
+### 6:18 AM · Grey Dawn, New Day
+
+Woke to coals still breathing under grey ash — the last birch split had held well through the night and the cabin was warm. Rebuilt the fire slow, laying dry kindling across the ember bed, and had a good flame in a few minutes. When I unbarred the door, the sky was different from yesterday: the hard-starred clear had given way to a flat grey-white overcast, the world still frosted and white on every surface but the light now soft and even instead of crystalline. No wind at all. The birches stand bare against the cloud; the oaks are stripped to almost nothing. Quieter than yesterday — the cold heavier and closer.
+
+Walked to the bend pool with one larva from the belt pouch and set the morning rig in the slow seam. The ice margins are tighter than yesterday — the open water thread perhaps a hand's breadth and a half at the inner curve now, narrower each morning. I set the line carefully and stood a minute watching it, then walked back to warm at the hearth. The morning belongs to this kind of stillness: waiting, steady, in no hurry.
+
+This is Day 108. Twenty trout in the cold box. All stores counted and sound. The cabin insulated on all four sides, sealed against frost at every seam. I am as ready for winter as I know how to be. Whatever comes now, I face it from solid ground.
+
