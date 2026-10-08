@@ -19710,3 +19710,12 @@ I set the cord aside and just sit a moment. Five trout today. The cabin base ban
 
 I will sleep sound. Twenty trout in the cold box, all sealed packages intact. The cold outside will do the keeping for me until morning.
 
+
+### 10:00 PM · Deep Frost, Still
+
+Already half under sleep when something — a branch settling hard in the cold, or just my own restlessness — drew me back. The lamp has burned nearly to nothing; a small bead of tallow still feeds the wick but barely. The coals glow faintly orange at their centers, the fire settled to its quietest ember bed.
+
+I lay still and listened. The forest was absolutely silent. That kind of silence only comes when frost has sealed every surface closed — no wind, no creak, no creature moving. The cabin held warmth still. I could feel it in the log walls, the stored heat in the clay hearth mass.
+
+I pushed a single dry birch split onto the coals — not to rebuild the fire, only to keep the ember bed alive through the small hours. Then I lay back down and pulled the sleeping cap over my ears. The cold outside cannot reach me here. After 107 days, I can say that truly.
+
