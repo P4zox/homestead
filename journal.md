@@ -19584,3 +19584,11 @@ I re-baited with the last stonefly larva and reset the rig in the same slow seam
 
 The walk back was bright and absolutely quiet. The fire had held from last night and the cabin was almost warm. I slid the fish into the cold box and put water on to heat.
 
+
+### 8:19 AM · Morning Broth
+
+The pot had been ticking on the coals since I came in from the stream. I took one trout from the cold box — one of yesterday's fat bend-pool fish, still cold and firm — cleaned it properly at the hearthstone with the knife, lowered it into the simmering water with a fistful of watercress from the same box. The cabin warmed while it cooked: that particular warmth of broth-smell and fire working together, breath no longer fogging above the sleeping shelf.
+
+I ate from the clay bowl steadied on my knee, with a flatcake torn into pieces for dipping. My hands were still stiff from the rig work — fingers that dressed a fish in hard frost loosen slowly — but the broth moved through me like a coal re-caught. Eighteen trout remain in the cold box.
+
+The morning is settled now. The ice on the stream seam keeps growing; larvae are gone and I will need to go upstream to the riffle before the cold locks the shallows too hard to work. But for this moment, just this: warm bowl, pale low light past the door, the sound of nothing but fire.
