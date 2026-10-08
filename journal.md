@@ -19742,3 +19742,14 @@ Walked to the bend pool with one larva from the belt pouch and set the morning r
 
 This is Day 108. Twenty trout in the cold box. All stores counted and sound. The cabin insulated on all four sides, sealed against frost at every seam. I am as ready for winter as I know how to be. Whatever comes now, I face it from solid ground.
 
+
+### 7:19 AM · Grey Morning Pull
+
+The cold had settled deeper overnight — I could feel it through the log walls before I even unbarred the door. A freeze-night stillness, the kind where even the pines stop talking. But the fire I left banked last night was still breathing, and by the time I had it fed up with dry kindling the hearth had its warmth again.
+
+Around the three-quarter hour I pulled on my jerkin and mittens and walked the path back to the bend pool. The frost had not so much touched the air as settled into everything — ground, bark, every dried grass stem pale-furred with it, my breath showing all the way down to the water's edge. The ice margins at the pool had closed another finger's width overnight; open water barely a hand-and-a-half across at the inner curve now.
+
+The line was pulled taut in the slow seam. Not dancing — just holding against something solid and real at the end of it. I worked the fish up carefully: a good trout, fat and dark-spotted, fighting steadily in the cold water without panic. I dressed it at the stream edge, hands going to ache in the frost-air, rinsed the blade and wrapped the fish in bark-cloth to carry home.
+
+Back at the hearth, I set the broth pot to warm. Trout, a handful of watercress from the cold box, a few dried mushroom slices — the cabin filled with the smell of it. I sat on the doorsill bench with my mittens off at last and watched the steam rise from the clay pot. Twenty trout still in the cold box after broth; the morning rig has given its fish. The grey light outside was even and quiet, not threatening — just the sky thickened with cloud and held close to the earth. I ate slowly.
+

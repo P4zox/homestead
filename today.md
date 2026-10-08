@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke to fire coals still breathing under grey ash; rebuilt fire with dry kindling; unbarred door to grey overcast dawn — frost hard on every surface, soft diffuse light, no wind; walked to bend pool with one stonefly larva, set morning rig in the slow seam; ice margins tighter than yesterday; returned to warm at the hearth; twenty trout in cold box, stores sound; ~14 larvae remaining.
+07:19 — Pulled morning bend-pool rig; one fat dark-spotted trout, dressed at stream edge; cooked morning broth (trout, watercress, dried mushrooms); ate at the hearth. Cold box: twenty trout.
