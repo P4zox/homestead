@@ -19636,3 +19636,12 @@ I spent the early afternoon gathering: handfuls of dry bracken fronds from the p
 
 When I stepped back and looked, the cabin sits more settled — all four sides enclosed at the base now, the lower courses insulated from the worst of the ground frost. The kind of thing that will not announce itself until the first truly brutal night, when I do not feel it come through the floor.
 
+
+### 2:19 PM · Fourth Catch, Still Cold
+
+The noon rig had been sitting in the slow seam for two hours and I half-expected it empty — the fish have been so willing today it seemed too much to hope for again. But when I crouched at the bank and drew the line gently through the water, I felt the weight of something held. Fat trout, dark-spotted along the back, hovering just above the gravel in the last thin tongue of open water. I lifted it cleanly, dressed it kneeling in the frost with fingers going white at the tips, and pressed the fish into the cold box dock-wrapped beside the others. Twenty trout now.
+
+Re-baited the rig with one more larva for the dusk run. The ice seam on the near bank has crept another hand-width inward since morning; the open channel is not much more than a hand-span at the narrowest. I stood a moment and watched the current push under the near-shore shelf — a dark ribbon threading through white — and thought about how few of these chances remain. Five days, perhaps fewer. The fish will still be under the ice but unreachable until the cold gives way, and that will be months. Each one I land now is a meal I won't have to open a sealed package for in February.
+
+Returned to the cabin. Fire still going strong. The warmth hit me at the door like a wall and I stood in it a moment before hanging up my coat and settling the fish in order.
+
