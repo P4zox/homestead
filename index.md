@@ -1889,3 +1889,4 @@ Day 106, 23:19 — Night stir: woke briefly, found all sealed and sound; settled
 Day 107, 2026-10-08, 07:00 — Morning rig at bend pool: fat trout landed in hard frost; dressed at stream edge; re-baited with last larva; larvae exhausted — need upstream riffle collect.
 2026-10-08 08:19 — Day 107 · Morning broth; one trout and watercress at hearthside after frost rig; eighteen trout in cold box; riffle bait collect planned.
 Day 107, 09:18 — Walked upstream riffle; turned stones in cold current; collected ~20 stonefly nymphs in bark box; bait stores replenished before ice locks the shallows.
+Day 107, 10:19 AM — Walked to bend pool; rig yielded a fat trout lip-hooked in the slow seam; dressed and cold-boxed; re-baited with fresh stonefly nymph; nineteen trout in cold storage; reflected on the ice narrowing and the end of fishing season nearing.

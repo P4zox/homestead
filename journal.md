@@ -19606,3 +19606,9 @@ I came away with close to twenty nymphs, nested in damp stream moss in the bark 
 
 Bait sorted. Rigs will run clean in the morning.
 
+
+### 10:19 AM · Bend Pool Check
+
+The hearthfire was burning low but steady, and the cold inside the cabin had eased a little from what it was at dawn. I layered on the jerkin and mittens, picked up the bark bait box, and walked back down to the bend pool.
+
+The float was still in the seam, exactly where Id
