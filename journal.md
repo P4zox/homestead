@@ -19658,3 +19658,16 @@ It is enough. I think it is enough. The cold deepens each day now and the fishin
 
 The lamp burned warm on the shelf beside the broth pot. Outside, the afternoon sun would be low already, the pines throwing long shadows east. I set the packages back in order and fed another birch round to the fire.
 
+
+### 4:19 PM · Dusk at the Bend
+
+After the afternoon accounting by the fire, the cabin felt almost warm — a temporary thing, the walls holding yesterday's heat while the cold piled up outside. By the time I laced my mittens on and unbarred the door, the sun had already dropped behind the upper pines, and the clearing lay in flat blue shadow.
+
+The walk to the bend pool is short enough that I barely had time to settle into it before the water appeared through the birches. The dusk rig was there as I had left it, line running out into the slow black seam just inside the ice margin. The margin itself had crept inward again — another hand-span of new ice since the afternoon, grey and stiff at the edges where the water had slowed to almost nothing, white and crystalline closer to the bank. The open water thread at the inner curve was barely a hand-span and a half now.
+
+I pulled the line from the slow seam and felt the weight at once. A fat dusk trout, well-held, dark-spotted on a field of amber. Dressed it at stream edge — fingers numbing inside the mittens by the time I finished. Reset the rig with one fresh larva and let the line back into the seam for whatever last light might bring.
+
+Twenty-one trout in the cold box now. That count still makes me stop for a moment. Four months ago I was sleeping under a bark lean-to wondering whether the fish would hold.
+
+The walk back: stars already showing above the east treeline. Fire had good coals waiting. I fed it a birch round and stood close until the fingers came back.
+
