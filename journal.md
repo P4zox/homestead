@@ -19719,3 +19719,12 @@ I lay still and listened. The forest was absolutely silent. That kind of silence
 
 I pushed a single dry birch split onto the coals — not to rebuild the fire, only to keep the ember bed alive through the small hours. Then I lay back down and pulled the sleeping cap over my ears. The cold outside cannot reach me here. After 107 days, I can say that truly.
 
+
+### 11:19 PM · Last Light, Frost Still
+
+The lamp burned out somewhere in the small hours — nothing left but the scent of cooled tallow and the faint ember-orange of the birch split I fed the fire at ten. I woke once more, barely, just long enough to register the absolute cold pressing against the cabin walls and the warmth held inside them. The door is latched, the sleeping bag drawn close, the cattail mat solid underneath.
+
+Twenty trout in the cold box. Twelve sealed packages on the shelf. A full woodpile under the eave. The whole season counted and sealed and waiting for winter.
+
+I turned over and thought: enough. More than enough. Sleep takes me back without argument, and I go.
+

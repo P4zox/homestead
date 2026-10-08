@@ -16,3 +16,4 @@
 20:19 — Sat by lamplight after a full day; checked lamp oil and door latch; laid out foot wraps and mittens on bench for morning; coals deep and stable; decided to let fire coast through the night; twenty trout in cold box, stores sound.
 21:19 — Fire coaled down for the night; lamp burning small; set second spoon aside; sat in the deep frost-silence; twenty trout in cold box, all stores sound; settled for sleep.
 22:00 — Woke briefly in absolute frost-silence; lamp nearly spent; fed one dry birch split to ember bed to keep coals alive through the small hours; settled back to sleep — cabin holding warmth well.
+23:19 — Lamp burned out; fire coals holding on last birch split; frost absolute outside; cabin warm and sealed; twenty trout in cold box, all stores counted — settled deep into sleep for the night.

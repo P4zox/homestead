@@ -1902,3 +1902,4 @@ Day 107, 2026-10-08, 19:00 — Carved second birch-branch spoon by lamplight; hu
 Day 107, 20:19 — Long Evening Stillness — sat by lamplight after full day; five trout caught; foot wraps and mittens laid out for morning; coals deep and stable; fire settling toward night.
 2026-10-08 21:00 Day 107 — Settled by lamplight as fire coals down; frost absolute outside; five trout today, stores all sound; slept.
 2026-10-08 Day 107 22:00 — Deep Frost, Still — lay back in absolute frost-silence; fed one birch split to ember bed; cabin warm, stores sound; sleep settled
+2026-10-08 Day 107 23:19 — Last waking tick; lamp burned out, coals holding, frost absolute outside, cabin warm; twenty trout in cold box; settled deep to sleep
