@@ -1892,3 +1892,4 @@ Day 107, 09:18 — Walked upstream riffle; turned stones in cold current; collec
 Day 107, 10:19 AM — Walked to bend pool; rig yielded a fat trout lip-hooked in the slow seam; dressed and cold-boxed; re-baited with fresh stonefly nymph; nineteen trout in cold storage; reflected on the ice narrowing and the end of fishing season nearing.
 2026-10-08 Day 107 11:19 AM — Sat by the hearth after a busy cold morning; braided four more lengths of two-ply cord; nineteen trout in cold storage; fishing season estimate 5–6 days remaining.
 Day 107 (2026-10-08) 12:18 — Noon pull at bend pool: third trout of the day, cooked fresh for noon broth; nineteen cold-boxed; rig re-baited.
+2026-10-08 Day 107 13:19 — Banked north and west cabin base with bracken fronds, deadfall leaves, and dry moss; all four sides now knee-high against the log courses; cabin base perimeter insulation complete.

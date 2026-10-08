@@ -19627,3 +19627,12 @@ The braided lengths coil on the shelf now, ready. There is always a use for cord
 
 The rig I had set at ten was bowed when I reached the bend pool just past noon — tight against the pull of something holding in the slow seam. I worked it carefully along the near-shore ice until a fat trout came to hand: broad-shouldered, dark-spotted, the heaviest I had touched all day. Dressed it at the stream edge, re-baited with a fresh larva before the cold had fully settled into my knuckles, then carried the fish home instead of cold-boxing it. By the time I had the fire fed up, it was in the pot with watercress and a thumb of smoked oyster mushroom — a quick broth, eaten standing at the hearthstone with a flatcake. The sun sat low and pale over the south treeline, the birches bare and absolutely still. Three trout taken today; nineteen cold-boxed; the rig re-baited and waiting in its seam. After the morning's four cold trips, being still inside felt almost foreign, but I let myself stay by the fire and be warm for a while.
 
+
+### 1:19 PM · North and West Banked
+
+After the noon broth sat warm in my chest, I decided the afternoon light — low and pale but still generous — was right for finishing something I had been putting off: the north and west faces of the cabin base. East and south are already banked knee-high with bracken and deadfall leaves since Day 104, but those two sides have been sitting open, and with the frost deepening every morning I can feel how much the ground-cold finds the lower log courses.
+
+I spent the early afternoon gathering: handfuls of dry bracken fronds from the patch south of the clearing, armloads of amber deadfall leaves that have been piling along the north treeline edge, a few clumps of dry moss for filling the tighter gaps where the lowest log sits uneven on the north side. The work is simple — pressing and packing material tight against the base logs, building it knee-high, tamping it firm so the wind cannot hollow it out overnight. The north side took longer; the ground there is harder and the light does not reach it, but the material packed solid and held without slumping. The west side went faster, the logs more even there.
+
+When I stepped back and looked, the cabin sits more settled — all four sides enclosed at the base now, the lower courses insulated from the worst of the ground frost. The kind of thing that will not announce itself until the first truly brutal night, when I do not feel it come through the floor.
+
