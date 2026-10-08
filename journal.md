@@ -19612,3 +19612,13 @@ Bait sorted. Rigs will run clean in the morning.
 The hearthfire was burning low but steady, and the cold inside the cabin had eased a little from what it was at dawn. I layered on the jerkin and mittens, picked up the bark bait box, and walked back down to the bend pool.
 
 The float was still in the seam, exactly where Id
+### 11:19 AM · By the Hearth, Braiding
+
+The fire has been eating well this morning — I banked it heavy at first light and it is still drawing strong, the stones around it holding a steady heat that reaches my feet when I sit on the mat close in. Outside, the cold is the kind that does not soften as the day brightens. I have been out four times already, twice to the bend pool, once to the riffle for larvae, once again to check the rig, and my hands only this past half-hour have felt properly warm again.
+
+So I pulled the cordage stock from the shelf and sat. The inner bark is well-cured now and the strips split cleanly between my fingers; I can work them almost without looking. Two lengths braided, then two more, the rhythm of it settling into something close to rest. There is a particular quiet in useful repetition — hands busy, mind loose, the fire clicking beside me.
+
+I thought about the trout. Nineteen in the cold box, more coming if the pool stays open. The bend pool is honest with me each morning and I am trying to honor that. The larvae from the riffle gravel should last several more rigs. Five or six days, I estimate, before the ice closes things for good. I intend to use every one of them.
+
+The braided lengths coil on the shelf now, ready. There is always a use for cord. This is one of the reliable truths of this life.
+

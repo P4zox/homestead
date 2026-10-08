@@ -4,3 +4,4 @@
 08:19 — Made morning broth with one cold-stored trout and watercress; ate at hearthside with a flatcake; warmth returned to hands after the icy stream work; eighteen trout in cold box; plan to collect stonefly larvae from upstream riffle before midday.
 09:18 — Walked upstream to riffle gravel bar; turned stones in hard frost; collected ~20 stonefly nymphs in damp moss inside bark box; fingers numbed fast but work steady; riffle still open in center flow; ice margins widening; returned with bait for several days of rigs.
 10:19 — Walked to bend pool; morning rig had a fat trout lip-hooked in the slow seam; dressed at stream edge; re-baited with fresh stonefly nymph; nineteen trout now in cold box; ice margins tightening — end of fishing season perhaps five or six days away.
+11:19 — Sat by hearth after four cold outdoor trips; braided four more lengths of two-ply cord by firelight; hands finally warm; nineteen trout in cold box; cordage stock added to shelf.
