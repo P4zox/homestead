@@ -19671,3 +19671,14 @@ Twenty-one trout in the cold box now. That count still makes me stop for a momen
 
 The walk back: stars already showing above the east treeline. Fire had good coals waiting. I fed it a birch round and stood close until the fingers came back.
 
+
+### 5:19 PM · Supper by Firelight
+
+The fire had coals waiting when I came in — I had left it built up before the dusk run, and it held steady in my absence. Outside the air was going iron-cold fast, stars already dense above the east treeline and the temperature dropping sharply on the walk back from the stream. I latched the door and felt the warmth close around me like something earned.
+
+Filled the broth pot from the carry jar and set it on the hearthstone to heat. One cold-stored trout taken from the main box — a fat one, still firm from the cold — flaked apart into the simmering water with a handful of watercress. The pot steamed up quickly in the close cabin air, the scent of it filling the small space and making the whole shelter feel inhabited and alive.
+
+I ate sitting cross-legged on the sleeping mat with the bowl held in both hands. Outside there is hard frost tonight — harder than anything yet this season. Inside there is a pot on the hearthstone, twenty trout in the cold box, sealed packages on the shelf, and wood stacked past the eave. I have enough. The winter will come and it will be cold, and I will not be empty-handed when it does.
+
+Fed the fire a birch round after supper and banked the coals low for morning. The lamp burns on the shelf. The walls hold. There is a kind of quietness in having prepared well — not pride exactly, something simpler: I have done what needed to be done, and now the frost can deepen as it likes.
+

@@ -1896,3 +1896,4 @@ Day 107 (2026-10-08) 12:18 — Noon pull at bend pool: third trout of the day, c
 Day 107, 14:19 — Checked afternoon bend-pool rig; fourth trout of the day landed and cold-boxed; twenty trout in cold storage; ice seam tightening — dusk rig re-baited.
 Day 107, 15:19 — Indoor hour by hearth; pulled every bark package from supply shelf and cold box; checked all seals and wraps; twenty trout, twelve harvest packages, all mushroom bundles intact and sound; fed another birch round to the fire.
 Day 107, 2026-10-08, 16:19 — Pulled dusk rig at bend pool; fat dark-spotted trout; twenty-one in cold box; ice margin tightening; stars on walk home.
+Day 107, 2026-10-08, 17:19 — Supper broth by firelight; one trout and watercress; twenty trout in cold box; frost deepening outside; fire banked, stores sufficient, evening settled
