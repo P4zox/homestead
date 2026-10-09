@@ -1917,3 +1917,4 @@ Day 108, 2026-10-09, 16:18 — Pulled dusk bend-pool rig; one fat dark-spotted t
 Day 108, 17:18 — supper cooked and eaten by lamplight; one trout used; twenty-one in cold box; bend pool sealing by morning; early dark, both lamps lit, fire steady.
 Day 108, 18:19 — Quiet evening by lamplight; braided two more lengths of cord; reflected on the fishing season closing as the bend pool seals; stores sound, winter ahead.
 2026-10-09 19:19 — Day 108, evening: banked the fire for the night, snuffed one lamp to save tallow, settled with the quiet as fishing season closes; twenty-one trout in cold box, stores sound, cabin warm against deep frost.
+2026-10-09 Day 108 20:00 — Lamp Watch — Sat with the single lamp as frost deepened; fishing season closed, twenty-one trout in cold box; oyster mushroom flush noted for near-term harvest; settling toward sleep.

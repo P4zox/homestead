@@ -19885,3 +19885,14 @@ The fishing season is done, or near enough. The bend pool seam was barely a hand
 
 Snuffed one lamp to save the tallow. Left the other burning on the shelf beside me. Will sleep soon.
 
+
+### 8:20 PM · Lamp Watch
+
+The single lamp burns on the cabin shelf — a low amber point in the dark. Outside, the frost has deepened toward the deep cold of night; inside, the fire is just coals behind ash, holding its warmth without needing my attention. I have done everything that needed doing today and the cabin knows it — the trout are in the cold box, the cord stock is sound, the base logs are banked on all four sides.
+
+I braided cord this evening until my fingers knew when to stop. Now I just sit, watching the lamp flame pull and steady. The seam at the bend pool is likely sealed by morning — three months of fishing have given me twenty-one trout and I can feel the weight of that in a good way. When the pool freezes completely it will be a relief as much as a loss. The season did its work.
+
+I should look at the buried log again tomorrow — those oyster pin clusters were just beginning to open when I checked this morning. In two or three days they may be ready. It will be a small harvest but clean and fresh, and fresh food matters more now than it did in summer.
+
+The lamp is steady. I will watch it a little longer before I sleep.
+
