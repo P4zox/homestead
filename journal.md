@@ -19753,3 +19753,20 @@ The line was pulled taut in the slow seam. Not dancing — just holding against 
 
 Back at the hearth, I set the broth pot to warm. Trout, a handful of watercress from the cold box, a few dried mushroom slices — the cabin filled with the smell of it. I sat on the doorsill bench with my mittens off at last and watched the steam rise from the clay pot. Twenty trout still in the cold box after broth; the morning rig has given its fish. The grey light outside was even and quiet, not threatening — just the sky thickened with cloud and held close to the earth. I ate slowly.
 
+
+### 8:18 AM · Third Flush, Checked
+
+After breakfast I pulled on the jerkin and stepped outside into the grey soft morning. The frost was absolute still — every flat stone rimed white, every stem of dry grass brittle underfoot, the air still and heavy without so much as a breath of wind. The soft diffuse light gave everything the same flat pallor, no shadow, no edge.
+
+I walked to the south clearing where the buried log lies, crouched, and lifted the weighted bark slab away.
+
+There they were: pale pin clusters pushing up through the moss along the log's upper face. Small — a thumb-width across, white and dense, tight buttons in a loose grouping of perhaps fifteen or twenty. A third flush coming in. Not ready to harvest yet; the caps were still rolled inward, barely opened, but the growth was unmistakable. I pressed a fingertip lightly against the nearest cluster and felt the slight give of live tissue.
+
+I replaced the bark slab and pressed the weight stone back into place. Gave the moss a few drops of water from the birch-bark cup I had brought — more gesture than need, the soil dark and damp enough already from last week's melt. But it felt right to offer something.
+
+Walked back slowly. The clearing was quiet. The open water at the bend pool caught the sky, a dim pewter strip against the white ice margin.
+
+At the hearth I added one birch log and sat beside it with the warmth building. Twenty trout in the cold box. All envelopes intact on the supply shelf. The mushrooms not yet ready — perhaps tomorrow, perhaps the day after — but alive and coming in.
+
+Something in me is easier knowing it. A third flush in mid-autumn, frost and all. The land still offering.
+
