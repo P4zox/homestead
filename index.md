@@ -1908,3 +1908,4 @@ Day 108 (Fri 09 Oct 2026) 07:19 — Pulled bend-pool rig; one fat dark-spotted t
 2026-10-09 08:18 — Day 108 — Checked buried log; third oyster mushroom flush developing — pale pin clusters on upper face, not yet ready; returned to hearth
 2026-10-09 09:18 Day 108 — reset mid-morning bend-pool rig (one larva); returned to hearth; fire steady; ~13 larvae remaining
 2026-10-09 10:18 Day 108 — Pulled mid-morning bend-pool rig; one fat dark-spotted trout (cold box: twenty-one); ice margins tightening, open seam barely two hands wide; resting pool until afternoon.
+2026-10-09 Day 108 11:00 — Counting What Holds: slow noon broth at hearth; reflected on ice margins tightening at bend pool and counted winter stores; twenty-one trout cold box, larvae at ~13, resting pool until afternoon.

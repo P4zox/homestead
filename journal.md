@@ -19787,3 +19787,16 @@ I stood there after, watching the pool. The ice geometry is changing by the hour
 
 Came back to the cabin. Added a birch round to the fire. The grey overcast has not shifted, and the soft cold light makes everything very still. Sat a while before deciding to rest the pool until afternoon.
 
+
+### 11:00 AM · Counting What Holds
+
+The fire is low but steady, coals red under pale ash. I added one split birch, watched it catch, then set the clay pot over the coals with water and a trout from the cold box, a handful of watercress, two dried mushroom caps. The broth came up slowly while I sat on the doorsill bench, door cracked a hand's width to let light in.
+
+The ice worried me this morning. Barely two hands of open water left at the bend pool's inner seam, and every morning it tightens another finger-width. I counted the larvae: thirteen left. Enough for six or seven more sessions, maybe eight if I am careful with timing. At this rate the pool could seal in ten days, or sooner if the cold deepens fast.
+
+But twenty-one trout in the cold box. Three smoked rabbits, the hare, all the mushroom batches, the flatcakes, the flour, the paste, the dried berries. I sat with that fact while the broth simmered. The stores are real. I built them through September pull by pull, and they will carry me past any stretch where the water freezes over.
+
+Ate at the hearth with the second spoon, the bowl warm in both hands. Quiet. The diffuse light through the smoke vent, the soft grey from the cracked door. Outside absolutely still, no wind, frost long since burned off the clearing grass but the ground still cold underfoot. A good kind of quiet — not empty, just settled.
+
+Afternoon: let the pool rest until at least two o'clock. No urgency in that direction.
+
