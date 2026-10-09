@@ -19839,3 +19839,16 @@ It may catch something. It may not. But the going down — the cold air, the tig
 
 Back at the hearth now. Fire bright. Waiting for dusk.
 
+
+### 4:18 PM · Dusk Seam
+
+The pool was quiet when I got there — grey sky, no wind, frost-cold air sitting heavy in the hollow. The ice shelves on either side of the seam had grown since morning; the open water is barely a hand and a half across now, running dark and still between white walls of ice.
+
+I pulled the rig slowly. The line came tight, then gave — one fat, dark-spotted trout, well-conditioned, cold and heavy in the hand. I dressed it quickly at stream edge, fingers numb before I was done. Twenty-two trout in the cold box now.
+
+Standing up afterward, I looked at the seam. I do not think I will be fishing here much longer. If the frost tonight runs as hard as it has all week — and it will — this seam may close entirely by morning. I decided against setting a new rig: eleven larvae left, the line could freeze under the ice shelf, and the pool itself seems ready to rest. Better to let it go clean.
+
+I have caught a lot from this spot. More than I expected when I first found it. Twenty-two trout stacked in the cold box, the rabbits, mushrooms, dried berries, the acorn flour and paste — winter looks genuinely fed from here. That is worth sitting with for a moment before supper.
+
+Came home with the fish, banked the fire a little, and thought about what to cook.
+
