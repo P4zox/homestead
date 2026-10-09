@@ -1911,3 +1911,4 @@ Day 108 (Fri 09 Oct 2026) 07:19 — Pulled bend-pool rig; one fat dark-spotted t
 2026-10-09 Day 108 11:00 — Counting What Holds: slow noon broth at hearth; reflected on ice margins tightening at bend pool and counted winter stores; twenty-one trout cold box, larvae at ~13, resting pool until afternoon.
 Day 108, 12:00 — Braided two lengths of two-ply cord at the hearth while resting bend pool until afternoon.
 Day 108, 2026-10-09, 13:18 — Set afternoon bend-pool rig; ice margins another finger-width in, open seam barely two hands wide; ~12 larvae remaining.
+Day 108, 14:20 — Afternoon bend-pool pull: one fat dark-spotted trout, twenty-one in cold box; ice seam nearly closed; fishing season end near.

@@ -19815,3 +19815,16 @@ I will go back to the water in the afternoon when the bend seam catches whatever
 Walked to the bend pool in the early afternoon with one larva tucked in my coat pocket. The frost had gone soft by now, the overcast settled and still, but the air still held a deep cold. The ice margins had moved in again — another finger's width since morning, maybe a little more. The open seam is barely two hands across at its widest now, running close to the inner curve where the current still turns. I set the rig carefully: threaded the larva onto the hook, lowered the line over the root fork, let it settle in that thin strip of moving water. The water beneath was dark and very slow, the current almost imperceptible under the ice shelf.
 
 I stood there a moment before walking back. Grey sky, no wind, no sound except the faint draw of current under ice. The pool doesn't give much away standing over it. Twelve larvae left in the bark box. Winter is arriving in increments — each morning a little more ice, each afternoon a slightly smaller window to fish. I'm watching it close.
+
+### 2:20 PM · Afternoon Pull, Ice Closing
+
+I went to the bend pool just after two. The afternoon rig had been sitting in the slow seam since midday — one larva, line over the root fork, the thread barely moving in the glassy cold. I crouched at the bank and watched the tip before touching it: still. Then I lifted.
+
+The line came up heavy. A good fish, fat and dark-spotted, had taken the larva sometime in the quiet hour. I dressed it at the stream edge, working quickly in the cold, and wrapped it in dock leaf for the cold box.
+
+Twenty-one trout now. I stood at the bank after and looked at what remains of the open water — barely two hands across at the inner curve, maybe two and a half where the current still moves. Each morning it is narrower. The ice has been creeping in a finger's width or more with every turn, patient and absolute.
+
+I don't think I can fish this pool much longer. Another week, maybe less. The seam will close and that will be that until the thaw.
+
+Still — twenty-one trout in the cold box, plus the rabbits and smoked stores and flatcakes and pastes and mushrooms. The shelves are not empty. I walked back to the cabin with the fish and let the thought settle: the fishing season is nearly over, and it has been a good one.
+
