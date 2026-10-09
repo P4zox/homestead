@@ -19778,3 +19778,12 @@ The overcast has settled in completely, a flat white-grey lid on the morning, an
 I took one from the bark box and walked the bend pool again at half-nine. The open water looked narrower than yesterday, the ice margin crept another finger-width in. I reset the rig in the slow seam close to the inner bank, where the current slows enough for fish to hold without effort. Set the line over a root fork and came back.
 
 Sitting now at the hearth. There is a kind of patience that winter teaches — not passive exactly, but calibrated. The line is working on its own. The cabin is holding its heat. I am warm, and fed, and the stores are sound. This is what ready looks like from the inside.
+
+### 10:18 AM · The Seam Holds
+
+Went back to the bend pool to pull the mid-morning rig. The open water is tightening fast — ice has pressed in another finger-width since I reset the line an hour ago, and the seam runs barely two hands wide now along the inner bank. The line was draped over the root fork and I lifted it carefully: a fat, dark-spotted trout, cold-caught in the slow current. Dressed it at the bank in a hurry, fingers stiffening before I finished.
+
+I stood there after, watching the pool. The ice geometry is changing by the hour. I do not know how many more good sets the bend pool will give me — the window is closing. But twenty-one trout in cold box now, all the bark packages sound, the firewood past eave-high. The worry that used to track me through October mornings is quieter than it was.
+
+Came back to the cabin. Added a birch round to the fire. The grey overcast has not shifted, and the soft cold light makes everything very still. Sat a while before deciding to rest the pool until afternoon.
+
