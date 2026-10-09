@@ -19949,3 +19949,10 @@ I stood there a moment longer than I needed to. Twenty-one trout in the cold box
 
 Walked back, added a log to the fire, sat with it. The day has a different quality now — no rig to set, no larva to count out, no watching the seam tighten hour by hour. The stores are made. What is left now is to hold what I have and keep the cold from taking any of it.
 
+
+### 7:19 AM · First Broth, Cold Morning
+
+The fire from the rebuild at dawn had settled into steady coals by the time I was ready for broth. I pulled a trout from the cold box — one of yesterday's, fat and cold and still firm in its dock leaf — and set the clay pot directly on the hearthstones to warm. The water took its time. While it heated I tore a handful of watercress and folded in a few slices from the smoked oyster mushroom package, the honey-gold ones that smell like autumn forest when the bark wrapping comes off. The trout went in when the water first moved and I left it alone, the way you leave broth alone when there's no hurry.
+
+I ate it from the wide bowl at the doorsill bench. The door cracked two fingers — cold came in with the grey morning light, but the broth held against it. The yard was all frost again, every surface white and flat under the overcast. Twenty trout still in the cold box. The fishing season is done but the count doesn't lie: the weeks at the bend pool paid, and whatever winter brings it finds a full cold store.
+
