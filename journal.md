@@ -19876,3 +19876,12 @@ What I think about is this: winter is almost here, and I am not behind it. That 
 
 Two new lengths to the cord stock, coil hung on its peg. The lamps hold their light. I will sleep early tonight — no reason not to.
 
+
+### 7:19 PM · Quiet Before Dark
+
+Both lamps burning low and steady on their shelves, throwing the kind of light that only shows what is closest. I checked the fire one more time — built the coals up just enough that they will hold through the night without starving, set the largest piece of birch across the back of the hearth, and swept the hearthstone clean of ash with my sleeve. The cabin holds warm. Outside the doorsill the frost is absolute; I did not open the door, only pressed my hand to the log wall near the base and felt the cold sitting on the other side of the bark insulation like a held breath.
+
+The fishing season is done, or near enough. The bend pool seam was barely a hand and a half of open water this evening and by morning I expect it sealed. Eleven larvae in their bark box still, but there is nowhere left to put a line. Twenty-one trout in the cold storage, smoked fish and rabbit and mushrooms stacked in the dark of the box — I have been counting them all day in my head, the way you count things you are grateful for. The stores are as ready as they can be. I sat and felt the quiet settle around the cabin like the cold settles around the base logs: not heavy exactly, just present, and permanent for now.
+
+Snuffed one lamp to save the tallow. Left the other burning on the shelf beside me. Will sleep soon.
+
