@@ -19907,3 +19907,14 @@ The buried log has its pin clusters growing still. Two days, maybe three, and th
 
 I will let the lamp burn a little longer. The cord stock is sound, the stores are sealed, the base logs are banked on all four sides. I have done what I can with this autumn. Tomorrow is wood and waiting and tending, and it will be enough.
 
+
+### 10:19 PM · Lamp Low, Night Deep
+
+The single lamp has been burning since supper, and the flame is noticeably lower now — the tallow pool smaller than it was at dusk. Not spent, just measurably used. I pinched it back a little earlier in the evening, and what remains will carry through to morning without trouble.
+
+I have been sitting here longer than I meant to. There is a quality to this hour that differs from the ones before it. The fishing season closed today — not as a decision I made, but as a fact the ice made for me. The seam at the bend pool will be solid by morning, I am almost certain of it. All those hours at the water, cold working through my boots, the line trembling in the current. Twenty-one trout in the cold box. That chapter ended quietly, without ceremony, while I was drawing the dusk rig and dressing the last fish at the stream edge.
+
+The fire I banked three hours ago has settled to a deep coal bed that asks nothing of me. The cabin walls hold the cold outside — I can feel it pressing at the logs, a weight in the air around the gable ends, but not inside. Not here.
+
+There is nothing left to do tonight. Check the door bar. Snuff the lamp. Settle into the sleeping bag. Day 108 done — and done well, I think. The oyster flush will be ready in a few days. Until then, I have everything I need.
+
