@@ -19931,3 +19931,21 @@ I did not fight it. I fished until the seam gave out, then came inside.
 
 This is how a good day ends: with nothing left undone that could have been done, and nothing to fear from the dark.
 
+
+---
+
+# Day 109 — Saturday, 10 October 2026
+*Mid-autumn · Grey overcast, frost hard, bend pool sealed*
+
+### 6:18 AM · Pool Sealed at Dawn
+
+Woke to coals still breathing low under thick grey ash. Before I even lifted the door bar I was thinking about the bend pool — whether the last open seam had finally closed overnight. Dressed in layers, wrapped my wrists, laced my foot wraps. The cabin barely warm, fire needing tending.
+
+Rebuilt from the coals with dry kindling, got a good draw going, then walked out to look. The clearing was all pale grey under flat overcast, frost on every surface, breath making white clouds in the still cold. The stream sounded different before I even reached it — less of that low murmur it makes when water still moves somewhere under the ice, more silence. I crouched at the bend and looked: the inner seam was sealed. A thin new skin of milky ice, smooth and even, lay across where the slow current had been.
+
+The pool is closed.
+
+I stood there a moment longer than I needed to. Twenty-one trout in the cold box. Fourteen weeks of season, by my count. The fishing is done.
+
+Walked back, added a log to the fire, sat with it. The day has a different quality now — no rig to set, no larva to count out, no watching the seam tighten hour by hour. The stores are made. What is left now is to hold what I have and keep the cold from taking any of it.
+
