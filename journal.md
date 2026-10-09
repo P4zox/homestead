@@ -19896,3 +19896,14 @@ I should look at the buried log again tomorrow — those oyster pin clusters wer
 
 The lamp is steady. I will watch it a little longer before I sleep.
 
+
+### 9:20 PM · Last Lamp of Autumn
+
+The single lamp is burning and the coals are low and steady beneath their ash. I have been sitting with the silence for an hour — no wind, no sound beyond the faint hiss of resin in the bark walls, the occasional small tick of the fire settling. Outside, the bend pool has almost certainly sealed. I will not know for certain until morning, but I could feel it closing all afternoon: the open seam barely a hand and a half across when I dressed the last trout at the edge. The water made the decision. I only watched.
+
+Twenty-one trout in the cold box. The fishing this autumn ran well past what I had hoped — morning rigs and dusk rigs and the slow learning of exactly where the fish hold in a closing pool. There is something easy to miss in the day-to-day of it: how each small catch is a whole conversation with the stream, the patience, the cold fingers, the line running just so. Now that the season is done I notice the shape of it all at once, and it is a good shape.
+
+The buried log has its pin clusters growing still. Two days, maybe three, and the oysters will be broad enough to harvest — a last gift from the forest before winter takes full hold. That feels right. The stream steps back; the wood offers one more thing.
+
+I will let the lamp burn a little longer. The cord stock is sound, the stores are sealed, the base logs are banked on all four sides. I have done what I can with this autumn. Tomorrow is wood and waiting and tending, and it will be enough.
+
