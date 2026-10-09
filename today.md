@@ -8,3 +8,4 @@
 12:00 — Braided two lengths of two-ply cord at the hearth; pool resting until afternoon; fire quiet and steady; twenty trout in cold box, stores sound.
 13:18 — Took one stonefly larva from bark box; walked to bend pool — ice margins another finger's width inward from morning, open seam barely two hands across; set afternoon rig in slow seam over root fork; returned to hearth. ~12 larvae remaining.
 14:20 — Pulled afternoon bend-pool rig; one fat dark-spotted trout, dressed at stream edge; twenty-one trout in cold box; ice margins closing — open seam barely two hands; rested at hearth after, noting the seam may close within days. ~12 larvae remaining.
+15:19 — Took one stonefly larva from bark box; walked to bend pool — ice margins barely two hands, seam still and quiet; set dusk rig in slow seam over root fork; returned to hearth to wait. ~11 larvae remaining.

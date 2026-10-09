@@ -19828,3 +19828,14 @@ I don't think I can fish this pool much longer. Another week, maybe less. The se
 
 Still — twenty-one trout in the cold box, plus the rabbits and smoked stores and flatcakes and pastes and mushrooms. The shelves are not empty. I walked back to the cabin with the fish and let the thought settle: the fishing season is nearly over, and it has been a good one.
 
+
+### 3:19 PM · Dusk Rig, Ice Closing
+
+The seam at the bend pool is barely two hands across now. I have been watching it narrow all day — each hour another finger-width lost to the ice. I do not know how many more chances I will have before the pool goes silent until spring.
+
+I took one larva from the bark box, laced it onto the hook with care, and carried the rig down the slope in the late afternoon cold. The pool was very still. The ice makes no sound as it comes; it just advances. I set the line over the root fork at the inner edge of the seam, where the current still moves, and weighted the cord.
+
+It may catch something. It may not. But the going down — the cold air, the tightening seam, the patient act of trying one more time — felt like something I owed the season.
+
+Back at the hearth now. Fire bright. Waiting for dusk.
+
