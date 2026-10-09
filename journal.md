@@ -19770,3 +19770,11 @@ At the hearth I added one birch log and sat beside it with the warmth building. 
 
 Something in me is easier knowing it. A third flush in mid-autumn, frost and all. The land still offering.
 
+
+### 9:18 AM · Still Pool, Second Rig
+
+The overcast has settled in completely, a flat white-grey lid on the morning, and the cold has that particular quality of a frost day without sun — not sharp-edged, just deep and thorough, reaching everywhere. After the morning broth I sat a while at the hearth, fire burning clean behind the clay walls, thinking without particular urgency about the day. Twenty trout in the cold box. The mushroom flush still a day or two from ready. The larvae holding at fourteen.
+
+I took one from the bark box and walked the bend pool again at half-nine. The open water looked narrower than yesterday, the ice margin crept another finger-width in. I reset the rig in the slow seam close to the inner bank, where the current slows enough for fish to hold without effort. Set the line over a root fork and came back.
+
+Sitting now at the hearth. There is a kind of patience that winter teaches — not passive exactly, but calibrated. The line is working on its own. The cabin is holding its heat. I am warm, and fed, and the stores are sound. This is what ready looks like from the inside.
