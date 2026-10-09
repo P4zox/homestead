@@ -10,3 +10,4 @@
 14:20 — Pulled afternoon bend-pool rig; one fat dark-spotted trout, dressed at stream edge; twenty-one trout in cold box; ice margins closing — open seam barely two hands; rested at hearth after, noting the seam may close within days. ~12 larvae remaining.
 15:19 — Took one stonefly larva from bark box; walked to bend pool — ice margins barely two hands, seam still and quiet; set dusk rig in slow seam over root fork; returned to hearth to wait. ~11 larvae remaining.
 16:18 — Pulled dusk bend-pool rig; one fat dark-spotted trout, dressed at stream edge; twenty-two trout in cold box; ice seam barely a hand and a half across — may seal by morning; set no new rig; returned to hearth.
+17:18 — Cooked slow supper broth (one trout, watercress, smoked mushrooms) in coil-built pot over coal bed; lit both lamps; ate at the hearth as early dark settled; twenty-one trout in cold box; bend pool seam likely sealed by morning; stores all sound; fire banked for the night.

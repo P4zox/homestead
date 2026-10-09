@@ -1914,3 +1914,4 @@ Day 108, 2026-10-09, 13:18 — Set afternoon bend-pool rig; ice margins another 
 Day 108, 14:20 — Afternoon bend-pool pull: one fat dark-spotted trout, twenty-one in cold box; ice seam nearly closed; fishing season end near.
 Day 108, 15:19 — Set dusk rig in narrowing bend-pool seam; ice closing further, ~11 larvae remaining.
 Day 108, 2026-10-09, 16:18 — Pulled dusk bend-pool rig; one fat dark-spotted trout; twenty-two in cold box; ice seam barely a hand and a half across, may seal by morning; no new rig set.
+Day 108, 17:18 — supper cooked and eaten by lamplight; one trout used; twenty-one in cold box; bend pool sealing by morning; early dark, both lamps lit, fire steady.

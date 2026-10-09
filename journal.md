@@ -19852,3 +19852,12 @@ I have caught a lot from this spot. More than I expected when I first found it. 
 
 Came home with the fish, banked the fire a little, and thought about what to cook.
 
+
+### 5:18 PM · Supper by Lamplight
+
+Supper is a slow broth — one trout from the cold box, a handful of watercress, a curl or two of smoked mushrooms set to simmer in the coil-built pot over a steady coal bed while the light outside shifts from grey to darker grey to early dark. I light both lamps. The tallow catches quiet and steady; the cabin fills with the small warm smell of it.
+
+I eat without hurrying. The broth is good — the trout still firm from the cold, the watercress bright against the darker liquid, the smoked mushrooms adding a woodsy depth I keep finding useful. Outside: nothing. No wind, no bird. The frost is settling in again for another hard night, and the bend pool's open seam is probably gone by morning.
+
+Twenty-two trout in the cold box. After supper, twenty-one. There is something satisfying in that count. The fishing was good this autumn — better than I had any right to expect when the cold first turned serious. Now the pool closes, the fish go deeper, and I turn to what I have stored. Broth, lamplight, early dark. A good enough end to a day that did its work.
+
