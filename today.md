@@ -16,3 +16,4 @@
 20:20 — Sat by the single lamp; cord stock sound, cabin fully insulated; buried-log oyster flush noted for harvest in two to three days; settling toward sleep.
 21:20 — Sat by the single lamp in late-evening quiet; reflected on the fishing season now closed as bend pool seam sealed; twenty-one trout in cold box, stores all sound; cord stock healthy; oyster flush due in two to three days; fire banked low, settling toward sleep.
 22:19 — Sat by the single lamp in the last hour before sleep; flame low but not spent; reflected on the fishing season closing as the bend pool seams sealed by ice; twenty-one trout in cold box; fire banked deep, door barred; Day 108 complete.
+23:19 — Lamp snuffed; last tallow spent; sleeping cap and sleeping bag; Day 108 closed in silence.

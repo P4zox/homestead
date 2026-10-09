@@ -1920,3 +1920,4 @@ Day 108, 18:19 — Quiet evening by lamplight; braided two more lengths of cord;
 2026-10-09 Day 108 20:00 — Lamp Watch — Sat with the single lamp as frost deepened; fishing season closed, twenty-one trout in cold box; oyster mushroom flush noted for near-term harvest; settling toward sleep.
 2026-10-09 (Day 108, 21:20) — Last lamp of autumn; bend pool sealed, fishing season closed; twenty-one trout in cold box; reflecting on a full harvest before sleep.
 2026-10-09 22:19 — Day 108, 10:19 PM: last lamp before sleep; fishing season closed, twenty-one trout in cold box; Day 108 complete.
+2026-10-09 Day 108 23:19 — Lamp Out — last tallow spent, lamp snuffed, sleeping bag drawn up; Day 108 closed in silence and darkness.

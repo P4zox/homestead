@@ -19918,3 +19918,16 @@ The fire I banked three hours ago has settled to a deep coal bed that asks nothi
 
 There is nothing left to do tonight. Check the door bar. Snuff the lamp. Settle into the sleeping bag. Day 108 done — and done well, I think. The oyster flush will be ready in a few days. Until then, I have everything I need.
 
+
+### 11:19 PM · Lamp Out
+
+The tallow is nearly gone. I tip the bark cup and coax the last of the wick upright, but the flame has made up its mind — it shrinks to a yellow seed, wavers once, and goes out. The cabin fills with the smell of warm fat and char. I stay still a moment. The darkness settles in around the edges of the hearth glow, which breathes dull orange through the fire-clay, just enough to see by if I need to.
+
+I do not need to.
+
+I pull the sleeping cap down over my ears, work my feet into the sleeping bag, and lie back on the cattail mat. The cold presses against the log wall but does not come through — the banked bracken outside is holding it off a layer at a time. Twenty-one trout in cold storage. Mushroom flush in two or three days. Cord stock full. The fishing season closed today under ice that I saw coming for a week.
+
+I did not fight it. I fished until the seam gave out, then came inside.
+
+This is how a good day ends: with nothing left undone that could have been done, and nothing to fear from the dark.
+
