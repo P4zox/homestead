@@ -19861,3 +19861,18 @@ I eat without hurrying. The broth is good — the trout still firm from the cold
 
 Twenty-two trout in the cold box. After supper, twenty-one. There is something satisfying in that count. The fishing was good this autumn — better than I had any right to expect when the cold first turned serious. Now the pool closes, the fish go deeper, and I turn to what I have stored. Broth, lamplight, early dark. A good enough end to a day that did its work.
 
+
+### 6:19 PM · The Seam Closes
+
+The cabin is dim and warm, both lamps steady on their shelves. I have eaten. The fire is banked. Outside somewhere in the dark and frost, the bend pool's last open seam is narrowing toward nothing.
+
+I sit with that for a while. Fourteen trips to the pool this week, more than that across the past weeks. Every fish counted. The larvae are almost gone — eleven left in their damp moss, and tomorrow there may be no seam left to drop them in. The fishing season is ending not with any dramatic failure but in the quiet closing of water under ice, inch by inch, degree by degree.
+
+Twenty-one trout. Three rabbits plus pieces. Smoked mushrooms. Acorn flour, hazelnut paste, elderberry reduction, rose hip paste, crab apple paste. The starch cakes. The sealed envelopes on the shelf. I run through it all in my head by lamplight — the same inventory I have kept for weeks — and it still holds.
+
+I pick up the cord braiding. Hands moving almost on their own now, three strands tightening into two-ply, two-ply settling into the growing coil. Good work for dim light. Good for thinking.
+
+What I think about is this: winter is almost here, and I am not behind it. That is a simple fact, but it takes a moment to settle in. I have been building toward this for months. The stores are sound. The cabin walls hold heat. The base is banked all around. I am warm.
+
+Two new lengths to the cord stock, coil hung on its peg. The lamps hold their light. I will sleep early tonight — no reason not to.
+
