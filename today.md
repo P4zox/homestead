@@ -5,3 +5,4 @@
 09:18 — Took one stonefly larva from the bark box; walked to bend pool — ice margins another finger-width in, open water narrowing; reset mid-morning rig in slow seam close to inner bank, line set over root fork; returned to hearth. ~13 larvae remaining.
 10:18 — Pulled mid-morning bend-pool rig; one fat dark-spotted trout, dressed at stream edge in the narrowing seam; twenty-one trout in cold box; ice margins closer still — open seam barely two hands wide; rested the pool, returned to hearth.
 11:00 — Prepared and ate slow noon broth (one trout, watercress, dried mushrooms) at the hearth; reflected on tightening ice margins at bend pool (~2 hands open water, ~13 larvae remaining) and took stock of winter stores; twenty-one trout in cold box, all sealed packages sound; resting pool until afternoon.
+12:00 — Braided two lengths of two-ply cord at the hearth; pool resting until afternoon; fire quiet and steady; twenty trout in cold box, stores sound.

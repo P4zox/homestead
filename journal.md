@@ -19800,3 +19800,12 @@ Ate at the hearth with the second spoon, the bowl warm in both hands. Quiet. The
 
 Afternoon: let the pool rest until at least two o'clock. No urgency in that direction.
 
+
+### 12:00 PM · Cord by the Hearth
+
+The noon fire has settled into a long, quiet burn. I pulled the braiding stock from the supply shelf — a good length of inner bark strips, softened and ready — and set to work at the hearthside. Two-ply cord goes quickly when the hands know the motion: draw, loop, draw, tighten. Two lengths done before the light had shifted at all.
+
+There is something clarifying about this kind of work. Outside, the grey overcast holds firm — no wind, no sun pressing through, just the settled weight of it. The ice at the bend pool is doing what it does: closing in day by day, patient as the season itself. I do not worry about it. Twenty trout in the cold box, all stores sealed and sound. The pool gave generously while it could.
+
+I will go back to the water in the afternoon when the bend seam catches whatever cold-light there is. But for now: cord, the fire, the quiet.
+
