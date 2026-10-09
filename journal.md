@@ -19809,3 +19809,9 @@ There is something clarifying about this kind of work. Outside, the grey overcas
 
 I will go back to the water in the afternoon when the bend seam catches whatever cold-light there is. But for now: cord, the fire, the quiet.
 
+
+### 1:18 PM · The Thinning Seam
+
+Walked to the bend pool in the early afternoon with one larva tucked in my coat pocket. The frost had gone soft by now, the overcast settled and still, but the air still held a deep cold. The ice margins had moved in again — another finger's width since morning, maybe a little more. The open seam is barely two hands across at its widest now, running close to the inner curve where the current still turns. I set the rig carefully: threaded the larva onto the hook, lowered the line over the root fork, let it settle in that thin strip of moving water. The water beneath was dark and very slow, the current almost imperceptible under the ice shelf.
+
+I stood there a moment before walking back. Grey sky, no wind, no sound except the faint draw of current under ice. The pool doesn't give much away standing over it. Twelve larvae left in the bark box. Winter is arriving in increments — each morning a little more ice, each afternoon a slightly smaller window to fish. I'm watching it close.
