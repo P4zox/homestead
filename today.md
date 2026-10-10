@@ -8,3 +8,4 @@
 12:18 — Lit smoke fire under rack (dry birch kindling, green birch bark over coals); smoke rising thin and blue-white; third-flush oyster caps smoking on rack, stem ends going faintly golden; sat at cabin doorway in still cold air.
 13:18 — Tended smoke fire; fed two fresh strips of green birch bark to coals; caps deepening to amber-gold at stem ends, edges curling slightly; smoke still thin blue-white; one more hour of smoke needed; replaced bark flap.
 14:18 — Checked smoke after two full hours; caps cured to amber-gold, edges firm and dry throughout; unwound from cords, packed into two bark packages sealed with pine-resin patches; moved both packages to east seep cold box; raked smoke fire coals aside and let it gust out; rack now empty; seventh smoked oyster batch complete.
+15:19 — Sat by hearth after smoke complete; braided two more lengths of cord; let the afternoon quiet settle — fishing season closed, stores full, nothing urgent.

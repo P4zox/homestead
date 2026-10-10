@@ -20018,3 +20018,14 @@ One more hour of smoke, I think. Then I will let them cool on the rack before se
 ### 2:18 PM · Caps Come Down
 
 Two hours in the smoke, and the third flush has earned its place in cold storage. I lifted each bark cord off the crossbar at the close of the second hour — the caps were amber-gold all the way to their pale edges now, surfaces firm and dry, carrying that sweet-birch smoke scent that means the water is truly out of them. Twelve of the larger caps, the ones I had split lengthwise, caught the smoke in their flat-cut faces and cured faster; the smaller intact ones came fully around by the end. I unwound them from the cords and layered them into two bark packages, pressed flat and folded tight, sealed with pine-resin patches at each corner. Both are now in the cold box beside the east seep. That is seven batches of smoked oysters now, and the buried log may have one more flush in it before the frost closes everything down for good. I let the smoke fire gust out on its own — raked the coals to one side, set no new bark over them, and watched the last thread of blue-white smoke unwind into flat grey sky. The rack stands empty. The season for the buried log is, I think, almost done.
+
+### 3:19 PM · After the Last Smoke
+
+The smoke rack stands empty for the first time in weeks. I went out and looked at it — really looked, not checking anything, just standing there with the smell of birch smoke still on my hands and the flat grey afternoon around me.
+
+Nineteen trout in the cold box. Seven batches of smoked oysters, rabbits, starch, dried berries, flatcakes. The supply shelf looks like something I planned all summer to see. And the bend pool sealed last night while I slept. The season is done.
+
+I came back inside and braided two more lengths of cord by the fire. The work is small and the hands know it; the mind can drift. I thought about the bend pool, how the seam narrowed every morning for a week until this morning there was nothing left of it — just milky ice, flat and still. A quiet ending to a good run of fish.
+
+Frost still clings to the north log faces even now at mid-afternoon. The light is that flat grey-white of deep autumn, no warmth in it, no shadows anywhere. The fire ticks and holds the room. Two lengths braided. I laid them on the supply shelf and let the afternoon sit.
+
