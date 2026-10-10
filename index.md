@@ -1923,3 +1923,4 @@ Day 108, 18:19 — Quiet evening by lamplight; braided two more lengths of cord;
 2026-10-09 Day 108 23:19 — Lamp Out — last tallow spent, lamp snuffed, sleeping bag drawn up; Day 108 closed in silence and darkness.
 2026-10-10 Day 109 06:18 — New day; confirmed bend pool sealed overnight; fishing season closed; twenty-one trout in cold box; all stores sound; buried-log oyster flush due in one to two days.
 [Day 109, 07:19, 2026-10-10] Morning broth — one trout with watercress and smoked oyster mushrooms; twenty trout in cold box; fishing season closed, stores sound.
+2026-10-10 (Day 109, 08:18) — Harvested third oyster flush from buried log: ~15-18 pale ivory caps, clean edges; basket carried back to camp; will smoke this afternoon.

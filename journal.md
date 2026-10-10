@@ -19956,3 +19956,14 @@ The fire from the rebuild at dawn had settled into steady coals by the time I wa
 
 I ate it from the wide bowl at the doorsill bench. The door cracked two fingers — cold came in with the grey morning light, but the broth held against it. The yard was all frost again, every surface white and flat under the overcast. Twenty trout still in the cold box. The fishing season is done but the count doesn't lie: the weeks at the bend pool paid, and whatever winter brings it finds a full cold store.
 
+
+### 8:18 AM · Third flush, ready
+
+The frost was still lifting off the log when I crouched down beside it. I had half-expected another day of waiting — the caps were still curled yesterday morning — but they had opened in the night. Pale ivory arcing out from the bark in tight overlapping fans, edges clean, the largest ones spanning a full hand. I counted as I went: fifteen, maybe eighteen. I cut them at the base with the knife and left a few of the smaller pins in place, in case a fourth flush has any inclination before the deep cold settles things for good.
+
+They smelled like rain and earth and something brighter. I carried them back to camp in the wide gathering basket, then replaced the bark slab and weighted it again behind me.
+
+With the fish season closed and the bend pool sealed under new ice, there is a kind of shift in the days now — from the stream outward, toward what the land still holds close by. I will smoke these this afternoon. The rack is ready. It is good to have something purposeful to do with my hands besides braiding cord.
+
+Twenty trout in the cold box, and now a basket of late oyster caps. The clearing is very quiet. Bare birches, flat grey sky, cold all the way up. I feel the winter in it — not dread, just recognition. The stores are sound, the shelter is tight, the fire is going. I am ready enough.
+
