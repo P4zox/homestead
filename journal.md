@@ -20084,3 +20084,7 @@ The hare is still circling the south snare, leaving prints just short of the gap
 
 The coals will hold past midnight at this depth. Morning will be cold. I'll build the fire back from glow and be glad of it.
 
+
+### 9:19 PM · Hearthside, Then Dark
+
+Stepped back inside from the cold doorsill, pulled the latch bar, and knelt at the hearthstones one last time. The coals were amber at the center, grey-white at the edges — still holding heat but running low. Raked them carefully into a tight pile, laid two fingers of ash over the mound, and set a broad pine chunk tight against the windward side to draw from overnight. The heat will stay in the clay through the dark. The cabin is as snug as I know how to make it: four walls banked with bracken, gables sealed, door latched. Eighteen trout in the cold box, seven batches of smoked oysters, twelve sealed winter envelopes — more than I had last autumn by a long count. The hare can wait until morning. I pulled the sleeping bag around my shoulders and lay down on the cattail mat, listening to the creek settle below and the deep silence the frost makes out of everything. Tomorrow the snare may have something. Tonight that is enough.
