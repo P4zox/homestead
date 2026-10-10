@@ -1933,3 +1933,4 @@ Day 109, 2026-10-10, 11:18 — noon broth cooked (trout, watercress, smoked mush
 Day 109, 15:19 — After the Last Smoke: stores full, bend pool sealed, smoke rack empty; braided two cord lengths by hearth in quiet mid-autumn afternoon.
 2026-10-10 Day 109 16:18 — walked south snare; loop undisturbed, partial hare print just short of gap; viewed clearing from treeline; returned to hearth.
 Day 109, 17:18 — cooked supper broth (trout, watercress, smoked oyster shreds); ate at doorsill bench; eighteen trout remaining in cold box; hare still circling south snare, not committing
+Day 109, 18:19 (2026-10-10, Sat) — Supply shelf inventory by lamplight; all stores named and counted; winter readiness confirmed; fire banked for evening.

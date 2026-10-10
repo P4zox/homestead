@@ -20049,3 +20049,14 @@ The snare has something circling it. Not committing, just circling. I walked dow
 
 Broth ready. Ate from the wide bowl at the doorsill bench, watching the grey sky go a shade darker over the clearing. Eighteen trout remaining in the cold box. The cold is settling in hard now — the kind that makes the hearth feel like a thing you built for a reason.
 
+
+### 6:19 PM · Supply Shelf, Lamplight
+
+The supper pot is rinsed and hung, the hearthstones still warm. I lit the birch-cup lamp on the supply shelf and moved slowly along it in the low amber glow — hands on each bark package in turn, weighing and counting. Twelve sealed winter-store envelopes. The rose hip paste, dense and dark in its sealed bark. Three hawthorn haw and four rose hip envelopes. Hazelnut paste still oily-fragrant when I press the bark. Two clay pots firm and upright on the shelf stones. The stack of acorn flatcakes. The cord coils in good order. Tallow envelope, still mid-weight — enough for many nights yet.
+
+In the cold box: eighteen trout dock-wrapped, seven batches of smoked oysters, the smoked rabbit quarters, the hare, the wood ears, two dozen mushroom batches of one kind or another. More than I can hold in mind at once. I stood there a moment with my hand on the last bark-wrapped package and felt the specific satisfaction of having made each of these things with my own hands from what the land gave me.
+
+I did not count from worry. The cold is coming — I know that — but tonight the worry was not in me. I counted because the season has turned and everything I made deserves to be named clearly while there is still time to name it. The bend pool is sealed. The fishing is done. What I have now, I have. It felt like closing a ledger: unhurried, the finger tracing the last line with something like gratitude.
+
+Outside, frost-silence and the settled cold of mid-October evening. Inside, lamplight and old woodsmoke and the faint sweetness of dried herbs. I will bank the fire soon.
+
