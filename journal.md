@@ -20005,3 +20005,12 @@ The caps caught it almost immediately. I could see the color beginning to shift 
 
 Nineteen trout in the cold box. Three oyster batches in the cold draw. All the snares set. The cordage sound, the lamp burning. It is mid-autumn, hard now, and I can feel the winter pressing in behind it — but the stores are real and the shelter holds. I sat in that smoke for a long time, not needing to do anything else.
 
+
+### 1:18 PM · Caps Turn Gold
+
+The smoke has run an hour now. I lifted the corner of the bark flap to check — the caps have deepened to amber-gold at the stem ends, edges beginning to curl slightly inward the way they do when heat has found them properly. The smoke still rises thin and blue-white, which means the birch bark is burning slow and clean. I fed two fresh strips of green bark onto the coals and replaced the flap.
+
+No wind today. The smoke goes straight up and then spreads wide and flat, like something that does not know where to go next. The frost on the north log ends never lifted, not once since morning. Cold is absolute. But standing here at the hearth feeding small strips of bark to the coals, I feel settled. The caps are curing. Nineteen trout wait in the cold box. The stores are sound. If hard winter comes tomorrow, we are as ready as we are going to be.
+
+One more hour of smoke, I think. Then I will let them cool on the rack before sealing into bark.
+
