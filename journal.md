@@ -19996,3 +19996,12 @@ Ate standing at the doorsill, looking out at the clearing. The frost has not ful
 
 The afternoon will be smoke and tending. For now, the broth is enough.
 
+
+### 12:18 PM · Smoke Rising
+
+The oyster caps had been hanging on the rack since morning, threaded through their stems on bark cord, and by noon the cut edges had dried to a firm pale line — no more weeping moisture, just clean ivory flesh. I took that as the signal. Fed the fire slowly: a layer of dry birch kindling first to get the coals going steady, then green birch bark laid flat over the top, cut close over the embers so it would smolder rather than flame. The smoke came up thin and blue-white, the way birch always gives — cool and slightly sweet, nothing sharp.
+
+The caps caught it almost immediately. I could see the color beginning to shift at the stem ends, the pale ivory going faintly golden at the edges. I pulled my stool to the cabin doorway and sat with the smoke between me and the treeline, watching. The cold sat heavy still — the frost had not fully lifted even at noon — but the smoke made a warm column above the rack and I sat inside it for a while, just watching the caps and thinking about the season.
+
+Nineteen trout in the cold box. Three oyster batches in the cold draw. All the snares set. The cordage sound, the lamp burning. It is mid-autumn, hard now, and I can feel the winter pressing in behind it — but the stores are real and the shelter holds. I sat in that smoke for a long time, not needing to do anything else.
+
