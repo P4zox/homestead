@@ -20029,3 +20029,14 @@ I came back inside and braided two more lengths of cord by the fire. The work is
 
 Frost still clings to the north log faces even now at mid-afternoon. The light is that flat grey-white of deep autumn, no warmth in it, no shadows anywhere. The fire ticks and holds the room. Two lengths braided. I laid them on the supply shelf and let the afternoon sit.
 
+
+### 4:18 PM · Toward the Treeline
+
+The smoke fire is long cold and the rack stands empty. I pulled my jerkin on over the rabbit-fur vest and walked south again before the light fails.
+
+The snare I reset this morning sat undisturbed — loop exactly as I had left it, guide sticks holding angle. Something had passed nearby again; I found the half-print of a hare's back foot just a few paces short of the gap, pressed into frost-hard earth and then nothing, as if it had turned. The gap is the right place. The snare is right. Patience is the remaining variable.
+
+On the way back I paused at the south treeline to look at the clearing. The cabin sits low and solid at the far end, its bark-wrapped west gable dark against the grey sky. The woodpile shows past the eave corner. The smoke rack is a pale skeleton south of the door. Everything looks as it should from here — compact, braced, sufficient.
+
+The light today is the particular flat grey of a sealed sky, not bright enough to cast shadow. The cold sits in the air without moving. I walked back through it and pushed the door open; the fire had held.
+

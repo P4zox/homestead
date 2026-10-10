@@ -9,3 +9,4 @@
 13:18 — Tended smoke fire; fed two fresh strips of green birch bark to coals; caps deepening to amber-gold at stem ends, edges curling slightly; smoke still thin blue-white; one more hour of smoke needed; replaced bark flap.
 14:18 — Checked smoke after two full hours; caps cured to amber-gold, edges firm and dry throughout; unwound from cords, packed into two bark packages sealed with pine-resin patches; moved both packages to east seep cold box; raked smoke fire coals aside and let it gust out; rack now empty; seventh smoked oyster batch complete.
 15:19 — Sat by hearth after smoke complete; braided two more lengths of cord; let the afternoon quiet settle — fishing season closed, stores full, nothing urgent.
+16:18 — Walked south to south snare; loop undisturbed, partial hare-foot print a few paces short of gap — animal circling but not committing; guide sticks holding angle; paused at treeline to view clearing; returned to hearth, fire still holding.
