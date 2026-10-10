@@ -1929,3 +1929,4 @@ Day 109, 10:18 — walked south treeline; checked south snare (undisturbed, noos
 Day 109, 2026-10-10, 11:18 — noon broth cooked (trout, watercress, smoked mushroom); nineteen trout in cold box; oyster caps drying for afternoon smoke
 2026-10-10 Day 109 12:18 — lit smoke fire; began afternoon curing of third-flush oyster caps on smoke rack
 2026-10-10 13:18 Day 109 — Tended smoke fire; caps amber-gold at stem ends, edges curling; one more hour needed; clearing still in hard frost.
+2026-10-10 14:18 Day 109 — Smoke completed; third oyster flush caps cured to amber-gold, sealed in two bark packages, moved to cold box; rack empty; seven batches smoked oysters now in store.
