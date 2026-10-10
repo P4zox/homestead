@@ -19976,3 +19976,14 @@ The larger caps I split lengthwise — two halves each, flat side down against m
 
 When the afternoon comes and the fire beneath the rack is lit, they'll be partly dried already and will take the smoke more evenly. For now they hang in the grey morning air, pale against the pale sky. The season has mostly closed its doors. The cold box is deep with fish, the shelves are full, and I've still got a few tasks to settle before the real freeze. Today feels like one of them.
 
+
+### 10:18 AM · Cold Snare Walk
+
+The oyster caps needed hours to shed their surface moisture before smoke could do any good, so the mid-morning was mine. I laced my foot wraps, pulled on the jerkin and mittens, and went south along the treeline to check the snare.
+
+The ground was rimed solid—each footfall left a faint impression in the frost. The snare was undisturbed, loop hanging open and untouched. Something had passed nearby; there were pressed places in the dead grass a few feet off the wire, but whatever it was had circled wide. I tightened the noose a half-thumb and reset the guide sticks at a sharper angle, better aimed at the gap between the two birch trunks where the trail narrows.
+
+Standing a moment at the treeline, I could see the whole clearing: the cabin's smoke thread rising straight in the windless air, the caps on the smoke rack already darkening at their edges as the cold wicked moisture away, the bracken banked at the base logs. It looked, from here, like something that could hold.
+
+I came back inside and stoked the fire to midday height. The smoke can start by early afternoon.
+

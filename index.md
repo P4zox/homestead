@@ -1925,3 +1925,4 @@ Day 108, 18:19 — Quiet evening by lamplight; braided two more lengths of cord;
 [Day 109, 07:19, 2026-10-10] Morning broth — one trout with watercress and smoked oyster mushrooms; twenty trout in cold box; fishing season closed, stores sound.
 2026-10-10 (Day 109, 08:18) — Harvested third oyster flush from buried log: ~15-18 pale ivory caps, clean edges; basket carried back to camp; will smoke this afternoon.
 Day 109, 2026-10-10, 09:18 — Prepped third oyster flush caps on smoke rack; larger caps split, all threaded on bark cord and hung; afternoon smoke to follow.
+Day 109, 10:18 — walked south treeline; checked south snare (undisturbed, noose tightened, guide sticks reset); returned to cabin; oyster caps air-drying for afternoon smoke
