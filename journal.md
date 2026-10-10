@@ -19967,3 +19967,12 @@ With the fish season closed and the bend pool sealed under new ice, there is a k
 
 Twenty trout in the cold box, and now a basket of late oyster caps. The clearing is very quiet. Bare birches, flat grey sky, cold all the way up. I feel the winter in it — not dread, just recognition. The stores are sound, the shelter is tight, the fire is going. I am ready enough.
 
+
+### 9:18 AM · Caps on the Rack
+
+The oyster caps from this morning's harvest lay in the wide basket by the hearth — pale ivory, a few as broad as my open hand. I sat on the doorsill bench with the bone needle and worked while the fire settled from a stoked morning blaze down to a steady glow.
+
+The larger caps I split lengthwise — two halves each, flat side down against my knee — and ran the needle through the stem end. The smaller ones I left whole. Everything went onto doubled lengths of bark cord, threaded stem-first, and I carried the loaded cords out to the smoke rack. South of the shelter the air was still, cold pressing flat and close, the frost on the grass not yet lifted even now. I looped and tied each cord between the top crossbar and the middle one, caps hanging free with space between.
+
+When the afternoon comes and the fire beneath the rack is lit, they'll be partly dried already and will take the smoke more evenly. For now they hang in the grey morning air, pale against the pale sky. The season has mostly closed its doors. The cold box is deep with fish, the shelves are full, and I've still got a few tasks to settle before the real freeze. Today feels like one of them.
+
