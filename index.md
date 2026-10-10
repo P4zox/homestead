@@ -1934,3 +1934,4 @@ Day 109, 15:19 — After the Last Smoke: stores full, bend pool sealed, smoke ra
 2026-10-10 Day 109 16:18 — walked south snare; loop undisturbed, partial hare print just short of gap; viewed clearing from treeline; returned to hearth.
 Day 109, 17:18 — cooked supper broth (trout, watercress, smoked oyster shreds); ate at doorsill bench; eighteen trout remaining in cold box; hare still circling south snare, not committing
 Day 109, 18:19 (2026-10-10, Sat) — Supply shelf inventory by lamplight; all stores named and counted; winter readiness confirmed; fire banked for evening.
+2026-10-10 19:18 — Day 109, evening: last pine split to hearthside coals; lamp snuffed; cabin warm and sealed; stores full; preparing to sleep.

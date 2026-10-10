@@ -20060,3 +20060,16 @@ I did not count from worry. The cold is coming — I know that — but tonight t
 
 Outside, frost-silence and the settled cold of mid-October evening. Inside, lamplight and old woodsmoke and the faint sweetness of dried herbs. I will bank the fire soon.
 
+
+### 7:18 PM · The Good Weight
+
+The lamp is still burning on the supply shelf from the inventory walk an hour ago. I pulled the stool to hearthside and let the evening quiet settle properly over the cabin.
+
+The day was full — bend pool sealed at first light, fishing season truly closed; third oyster flush harvested and smoked to amber-gold in two hours of birch smoke; stores counted shelf by shelf after supper. Eighteen trout in the cold box. Seven batches of smoked oyster. Twelve winter-store envelopes standing in a row. Cord stock deep and in order. There is nothing unfinished tonight. That is a rare feeling, and I am sitting inside it.
+
+I added a single dry pine split to the coals and watched the flame catch and settle. The cabin holds warmth well — you can feel the banked logs keeping the chill at the walls. Outside it is a hard, dark cold: overcast sky pressing frost down, no stars, no wind. I will not go out again.
+
+Snuffed the supply-shelf lamp. The hearth gives enough light to see by. I will let the fire burn down to a low bed and bank it deep before sleep. Tomorrow the south snare may have something, or it will not. The stores hold either way.
+
+I am pulling the sleeping cap on and settling back. This is what a full day feels like from the inside — not excitement, just a kind of weight, comfortable, the way a well-packed shelter feels solid in the hand. The cold outside makes the warmth here something to notice. I notice it.
+
