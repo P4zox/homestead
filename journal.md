@@ -20122,3 +20122,14 @@ The loop had been triggered. A hare, grey-brown, stiff from overnight cold, lay 
 
 Eighteen trout in cold storage. Now also one fresh hare. Winter stores are sound. There is nothing urgent today — only the long, good work of being ready.
 
+
+### 7:18 AM · Morning Dressing
+
+The hare came in stiff with frost, its coat the same grey-white the whole morning wore. I laid it on the doorsill bench with the fire already built back to amber coals and worked through it before the day asked anything else of me — skinning back from the hips, peeling the pelt in one clean sheet, jointing at the hips and shoulders with the knife.
+
+The fat stripped easily off the belly cavity, pale and clear, enough to fill half a bark cup. I melted it slow in the cook tin over the coals, poured it still-liquid into a bark fold to set alongside the tallow supply. Everything else I jointed into portions — both haunches, both shoulders, the loin in two lengths, the ribs still on the cage for later. Dock-wrapped each section and nested them into the cold box alongside the trout.
+
+The pelt I stretched and pegged flat against the lean-to wall to dry in the still air. Grey and windless out, frost untouched on every surface, chimney smoke rising straight up and thinning at ridge height. The clearing has the quiet of a held breath — no wind, no birds, just the occasional tick of a frozen branch cooling further.
+
+By the time everything was stowed the light had settled fully in. One task done before the cold had a chance to stiffen my hands. That is enough, for now.
+
