@@ -20088,3 +20088,16 @@ The coals will hold past midnight at this depth. Morning will be cold. I'll buil
 ### 9:19 PM · Hearthside, Then Dark
 
 Stepped back inside from the cold doorsill, pulled the latch bar, and knelt at the hearthstones one last time. The coals were amber at the center, grey-white at the edges — still holding heat but running low. Raked them carefully into a tight pile, laid two fingers of ash over the mound, and set a broad pine chunk tight against the windward side to draw from overnight. The heat will stay in the clay through the dark. The cabin is as snug as I know how to make it: four walls banked with bracken, gables sealed, door latched. Eighteen trout in the cold box, seven batches of smoked oysters, twelve sealed winter envelopes — more than I had last autumn by a long count. The hare can wait until morning. I pulled the sleeping bag around my shoulders and lay down on the cattail mat, listening to the creek settle below and the deep silence the frost makes out of everything. Tomorrow the snare may have something. Tonight that is enough.
+
+### 10:19 PM · The Fire Holds
+
+The cabin is dark except for the slow red pulse of the banked hearth. I pulled the sleeping bag up to my jaw and lay still, listening.
+
+Outside: nothing. The frost has swallowed all sound. No wind, no creak of branches — just the deep cold pressing against bark and log, the same silence that has been building for weeks, growing heavier each night as the season turns final. When I exhaled I could feel the warmth pooling inside the bag around my face.
+
+The stores are all confirmed. I know this. I counted them in lamplight at six and again in my head at nine and once more now in the dark: eighteen trout in the cold box, seven smoked oyster batches, twelve winter envelopes sealed, tallow mid-weight, cord in order. The numbers hold. I will not need to count them again tonight.
+
+The pine chunk I banked against will hold until first light. I have watched it catch enough times to trust the geometry of it — the ash insulating the base, the bark side windward, the small air gap I left on the leeward face so it breathes but does not flare. The cabin will be warm when I wake.
+
+I let my eyes close. The coals were still speaking — small adjustments, the quiet language of wood becoming coal becoming ash — and I listened until it became only sound without meaning, and sleep came in behind it.
+
