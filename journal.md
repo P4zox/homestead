@@ -20040,3 +20040,12 @@ On the way back I paused at the south treeline to look at the clearing. The cabi
 
 The light today is the particular flat grey of a sealed sky, not bright enough to cast shadow. The cold sits in the air without moving. I walked back through it and pushed the door open; the fire had held.
 
+
+### 5:18 PM · Supper, Quiet Cold
+
+The afternoon emptied out to just the fire and the stillness. I pulled a trout from the cold box — one of the fat dark-spotted ones from the last days of open water — and set the clay pot on the hearthstones with watercress and a handful of smoked oyster shreds from yesterday's batch. The broth took its time. I did not hurry it.
+
+The snare has something circling it. Not committing, just circling. I walked down twice today and both times found only a partial print and the loop undisturbed. I do not know if that is hopeful or simply what hares do this deep in autumn — test a thing for days, walk away, test it again. The stores are full enough that it does not matter if it never springs. But I find myself hoping anyway, the way you do when you have set something patient and careful in exactly the right place and then have to leave it to its own slow work.
+
+Broth ready. Ate from the wide bowl at the doorsill bench, watching the grey sky go a shade darker over the clearing. Eighteen trout remaining in the cold box. The cold is settling in hard now — the kind that makes the hearth feel like a thing you built for a reason.
+
