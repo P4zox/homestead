@@ -20073,3 +20073,14 @@ Snuffed the supply-shelf lamp. The hearth gives enough light to see by. I will l
 
 I am pulling the sleeping cap on and settling back. This is what a full day feels like from the inside — not excitement, just a kind of weight, comfortable, the way a well-packed shelter feels solid in the hand. The cold outside makes the warmth here something to notice. I notice it.
 
+
+### 8:19 PM · Embers, Nothing More
+
+The pine split I added at seven o'clock is coals now — orange-red at the center, ashening at the edges. I'm sitting on the doorsill bench with no lamp lit, just the hearthglow reaching the south wall in a low red wash.
+
+Today felt complete in a way not every day does. The oyster flush harvested and smoked, the stores walked and named, a supper that was good and simple. The bend pool sealed. The season turned.
+
+The hare is still circling the south snare, leaving prints just short of the gap. It knows something is off. I don't fault it. The stores are full either way — eighteen trout, seven batches of smoked oysters, twelve sealed envelopes, tallow for the lamps. I don't need the hare. But I'm glad it's alive out there, moving in the dark, pressing frost with its feet.
+
+The coals will hold past midnight at this depth. Morning will be cold. I'll build the fire back from glow and be glad of it.
+
