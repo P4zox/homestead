@@ -20101,3 +20101,8 @@ The pine chunk I banked against will hold until first light. I have watched it c
 
 I let my eyes close. The coals were still speaking — small adjustments, the quiet language of wood becoming coal becoming ash — and I listened until it became only sound without meaning, and sleep came in behind it.
 
+
+### 11:18 PM · Pine Spoke Once
+
+The pine chunk spoke once — a sharp crack that pulled me half-awake. I lay still, eyes barely slit. Hearthglow still warm on the south wall, the chunk holding exactly as I had set it. No cold pressing through the logs, no draft under the door. I pulled the sleeping bag up to my chin and let the fire keep its watch. Sleep came back almost at once. That is the only kind of night I could ask for.
+
