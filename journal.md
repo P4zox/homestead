@@ -20106,3 +20106,19 @@ I let my eyes close. The coals were still speaking — small adjustments, the qu
 
 The pine chunk spoke once — a sharp crack that pulled me half-awake. I lay still, eyes barely slit. Hearthglow still warm on the south wall, the chunk holding exactly as I had set it. No cold pressing through the logs, no draft under the door. I pulled the sleeping bag up to my chin and let the fire keep its watch. Sleep came back almost at once. That is the only kind of night I could ask for.
 
+
+---
+
+# Day 110 — Sunday, 11 October 2026
+*Mid-autumn · frost hard, grey overcast, no wind*
+
+### 6:18 AM · Snare at Dawn
+
+The pine chunk held through the night. When I opened my eyes the south wall carried its faint amber glow, and the air inside was cold but not biting — the hearth had done its quiet work. I lay still for a moment listening to the frost-silence outside, then rose, pushed dry kindling into the coals, and waited for the flame to come.
+
+Day 110. The bend pool sealed yesterday. Fishing is over. Everything I caught this season is in the cold box or smoked and sealed. The south snare had a hare circling for two days — coming close but not committing. This morning I pulled on the foot wraps and mittens, latched the door behind me, and walked south through the frosted grass to find out.
+
+The loop had been triggered. A hare, grey-brown, stiff from overnight cold, lay at the gap between the two birch stems. It had finally come through — in the dark, alone, in the deep cold, as animals do when they have to. I crouched there a moment. The clearing was pale and still. Then I reset the guide sticks at their sharpest angle, collected the hare, and carried it back to the cabin.
+
+Eighteen trout in cold storage. Now also one fresh hare. Winter stores are sound. There is nothing urgent today — only the long, good work of being ready.
+
