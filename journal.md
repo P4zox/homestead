@@ -19987,3 +19987,12 @@ Standing a moment at the treeline, I could see the whole clearing: the cabin's s
 
 I came back inside and stoked the fire to midday height. The smoke can start by early afternoon.
 
+
+### 11:18 AM · Broth at Midday
+
+The fire is running well from this morning's stoke, and the cabin holds warmth against the still grey cold outside. The oyster caps hang on the smoke rack with their edges beginning to curl and firm — another hour before the afternoon smoke. I pulled a trout from the cold box and put it in the clay pot with watercress and a few shreds of smoked mushroom from last week's batch, and let it come to a slow simmer.
+
+Ate standing at the doorsill, looking out at the clearing. The frost has not fully left the ground — it probably will not today, with this flat overcast holding the temperature in. Everything is quiet. The clearing is still. Nineteen trout left in the cold box, all stores sound.
+
+The afternoon will be smoke and tending. For now, the broth is enough.
+
