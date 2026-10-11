@@ -20176,3 +20176,14 @@ Noon came grey and still, the frost on every surface unchanged from morning. I s
 
 Brought the hare pelt in from the lean-to wall around midday — six hours of grey frost-still air had firmed it up just right, not yet stiff as board but no longer slack. Set it membrane-side up across a split pine log propped against the hearth stones and worked it with the back of the knife, short strokes from center out, lifting the silvery membrane away in thin curling sheets. The grey-white winter fur on the outside stayed clean and dense. An hour of slow work by the fire: the smell of raw hide warming, the sound of the scraper, the creak of the wood settling. When the inner face was smooth and pale, I pegged it back out on the lean-to wall, stretched taut again, to finish curing in the cold air. The belly-fat tallow is waiting — work it in once the pelt dries another day or two and the hide is fully set. A second good winter pelt takes shape.
 
+
+### 2:18 PM · Still-Air Round
+
+The grey sat perfectly flat all afternoon — no wind, no shift in cloud, just cold that pressed close and stayed. I put on the jerkin and mittens and walked the south treeline to check the snare.
+
+Nothing. The reset was undisturbed; the guide sticks were exactly as I had left them this morning after the hare. The ground around the birch gap was dimpled with old tracks — circling, certainly, maybe more than one — but nothing had taken the gap today. I pulled the bark surround a little tighter and re-bent the guide sticks to narrow the approach angle, then left it to sit overnight.
+
+The walk back was slow. I was not in a hurry. The birches stood completely bare now, every last twig visible against a pale nowhere sky. The pines were still themselves — dark and heavy — but even they seemed to be holding their breath. Mid-autumn has that quality, just before real winter: the whole world paused, not yet frozen, not quite itself.
+
+Back inside I checked the pelt. Still stiffening well on the lean-to wall. Another full day at least before the tallow goes in — maybe two. I smoothed the stretched edges and left it. Then just the fire, and the afternoon going slowly grey at the window.
+
