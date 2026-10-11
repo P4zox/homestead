@@ -20225,3 +20225,12 @@ The hare pelt hangs outside, curing in the frost. I will bring it in tomorrow an
 
 I sat by the lamp for a long time after that, not doing much — just watching the small flame and letting the evening be what it was. A quiet day. A complete one. That is enough.
 
+
+### 7:18 PM · By Lamplight
+
+The two lamps hold steady — both wicks clean, both cups filled from this afternoon. I pulled strips of birch inner bark from the supply pile and sat close to the fire with the braiding routine: split the strip, twist each half against itself, wind them together, repeat. My fingers know the moves now without thinking. Two lengths of two-ply cord added to the stock.
+
+Outside the frost grips absolutely. I can feel the cold pressing at the west gable even through the bark and daub — a faint, distant weight, nothing more. The hare pelt cures on the lean-to wall overnight; tomorrow I will work the tallow in while the day is still and the fire is good. The tinder and kindling are laid ready by the hearthstone. Everything that needed doing today is done.
+
+The cord stock is deep now. Deeper than I imagined when I started braiding in earnest a month back. I keep adding to it the way you add firewood — not because you are afraid, but because the work is good and the pile can always be higher. Some evenings the work and the rest are the same thing.
+

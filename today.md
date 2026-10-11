@@ -12,3 +12,4 @@
 16:18 — Walked cabin perimeter in late grey light; base banking frost-locked firm on all four sides; gable daub intact, west gable bark tight; hare pelt firm and set on lean-to wall (ready for tallow tomorrow); returned inside, fed fire; both lamps burning steady before evening.
 17:19 — Cooked supper broth from one trout, watercress, and smoked oyster shreds; ate at doorsill bench by lamplight; seventeen trout remaining in cold storage.
 18:19 — Laid out dry tinder (birch bark curls, fine dry grass) and split birch kindling in bark tray by hearthstone — morning fire materials ready; sat by lamplight through early evening; hare pelt curing on lean-to wall overnight.
+19:18 — Braided two lengths of two-ply cord by lamplight at the hearth fire; both lamps burning steady; cord stock deep; hare pelt curing on lean-to wall overnight.
