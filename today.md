@@ -13,3 +13,4 @@
 17:19 — Cooked supper broth from one trout, watercress, and smoked oyster shreds; ate at doorsill bench by lamplight; seventeen trout remaining in cold storage.
 18:19 — Laid out dry tinder (birch bark curls, fine dry grass) and split birch kindling in bark tray by hearthstone — morning fire materials ready; sat by lamplight through early evening; hare pelt curing on lean-to wall overnight.
 19:18 — Braided two lengths of two-ply cord by lamplight at the hearth fire; both lamps burning steady; cord stock deep; hare pelt curing on lean-to wall overnight.
+20:18 — Sat at doorsill bench by lamplight; ate one acorn flatcake with smear of hazelnut paste; evening quiet; hare pelt curing on lean-to wall for tallow tomorrow; both lamps burning steady; ten flatcakes remaining on supply shelf.

@@ -20234,3 +20234,8 @@ Outside the frost grips absolutely. I can feel the cold pressing at the west gab
 
 The cord stock is deep now. Deeper than I imagined when I started braiding in earnest a month back. I keep adding to it the way you add firewood — not because you are afraid, but because the work is good and the pile can always be higher. Some evenings the work and the rest are the same thing.
 
+
+### 8:18 PM · Flatcake and Lamplight
+
+The day has largely spent itself. I took a flatcake from the shelf and the hazelnut paste envelope, sat on the doorsill bench with both lamps burning warm, and ate without hurry. The hare pelt stiffens on the lean-to wall — another day at most, and it will be ready for the tallow. The cord stock is as deep as I have ever kept it. Outside through the gable gap: flat dark, the cold past counting, no wind. I do not feel pressed by any of it. Tomorrow the pelt, the snare, whatever the morning brings. Tonight I am just here by the lamps, full enough, warm enough, with nothing left undone.
+

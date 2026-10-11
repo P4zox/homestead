@@ -1953,3 +1953,4 @@ Day 110, 16:18 — Walked cabin perimeter in late grey light; base banking frost
 Day 110, 17:19 — Cooked supper broth (trout, watercress, smoked oyster shreds) by lamplight; seventeen trout remaining in cold storage.
 Day 110, 18:19 — Tinder for Tomorrow — laid out dry tinder and kindling by hearthstone for morning fire; sat by lamplight through the early evening; hare pelt curing on lean-to wall overnight.
 2026-10-11 19:18 — Day 110 — braided two lengths of two-ply cord by lamplight; cord stock deep; hare pelt curing overnight on lean-to wall.
+Day 110, 8:18 PM — Flatcake and Lamplight — ate flatcake with hazelnut paste by lamplight; hare pelt curing overnight; both lamps steady; evening quiet.
