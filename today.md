@@ -5,3 +5,4 @@
 09:00 — Cooked morning broth from fresh hare shoulder, watercress stems, and smoked oyster shreds; ate at doorsill bench; grey still morning, frost unbroken.
 10:18 — Walked east to the buried log to check for fourth oyster flush; none found — wood spent in hard frost; seep cache lid checked and tight; returned to cabin; pelt still drying on lean-to wall.
 11:18 — Sorted and organized supply shelf by the hearth fire; checked resin seals on all twelve winter envelopes and bark packages; reordered for easy winter access; all seals sound; pelt still drying on lean-to wall; noon approaching.
+12:00 — Cooked noon broth from one trout and watercress; ate at doorsill bench in the grey still cold; hare pelt firm and stiffening on lean-to wall.

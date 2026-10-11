@@ -20166,3 +20166,8 @@ There is something settling about this kind of work. Not the push of building or
 
 The hare pelt is still soft from this morning on the lean-to wall. It will take two or three days to dry through in this cold. Noon coming. Fire is good.
 
+
+### 12:00 PM · Grey Noon, Trout Broth
+
+Noon came grey and still, the frost on every surface unchanged from morning. I set a trout in the pot with watercress and water drawn from the bark bucket, and let it come slow to heat over the coals. The fire was easy and warm; I was generous with the wood. When the broth was ready I carried it to the doorsill bench and sat with it in both hands, watching the clearing. Nothing moved out there — no wind, no birds, no sound past the low hiss of the stream beyond the tree line. The cold came in at my back from the open door and I did not mind it. The broth was clear and right. On the lean-to wall behind me the hare pelt was stiffening in the dry cold air; I pressed my palm to it in passing — firm and holding shape. A few more days of this and I can begin to work it.
+
