@@ -20142,3 +20142,7 @@ Outside, the frost held all morning. I could hear the silence of it — no birds
 
 I braided two lengths of two-ply cord before the fire settled to coals and added them to the stock on the supply shelf. Eighteen trout, the jointed hare, tallow up, cord up — the stores feel solid. Whatever the long winter brings, I am not poorly placed to meet it.
 
+
+### 9:00 AM · First Hare Broth
+
+Set the clay pot over the coals with a hare shoulder and two cups of water from the morning bucket. Added a few watercress stems and a pinch of smoked oyster shreds from the bark package on the shelf. The broth came to a slow simmer; the cabin filled with a richer, sweeter smell than trout — something warmer, more animal. Ate at the doorsill bench with the grey light coming in flat and still through the open door. The hare came up fat after a full summer and autumn on the south meadow. It will carry me well through the week.
