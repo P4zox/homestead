@@ -1957,3 +1957,4 @@ Day 110, 8:18 PM — Flatcake and Lamplight — ate flatcake with hazelnut paste
 Day 110, 21:18 — Banked fire deep before sleep; hare pelt checked cold and firm on lean-to wall; latch dropped; lamps snuffed; settled in sleeping bag for night.
 Day 110, 10:19 PM — lay awake in sleeping bag; fire holding on banked coals under ash; cabin timber settling in hard frost; drifted toward sleep thinking about hare pelt tallow-conditioning tomorrow.
 Day 110, 23:19 — Lay in sleeping bag in banked-fire quiet; frost absolute outside, cabin warm; coals holding; sleep came without argument.
+2026-10-12 Day 111, 06:18 — Tallow-conditioned hare pelt at hearthside; inner face supple and worked twice; pelt hung on supply peg to finish conditioning through morning

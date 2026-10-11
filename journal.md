@@ -20264,3 +20264,19 @@ I can feel the frost through the walls — not a draft, only a knowing. It is ab
 
 Sleep comes without argument.
 
+
+---
+
+# Day 111 — Monday, 12 October 2026
+*mid-autumn · grey overcast, frost hard on every surface, no wind*
+
+### 6:18 AM · Tallow to Pelt
+
+Woke to the smell of live coals, that particular deep-ember warmth that means the fire held through the night without my help. The banked ash was bright orange at the edges when I cleared a little away — good heat, nothing wasted. I fed in the pre-split birch kindling from last night's tray, then the dry bark curls, and the fire caught clean and quick without smoke. The cabin was cold but not shockingly so.
+
+Went out briefly to check the south snare in the first grey light. Frost absolute everywhere — bootprints from yesterday white-furred, the guide sticks rimed stiff. The snare was undisturbed. Tracks in the frost circling the birch gap, but none committed to the run. I reset the guide sticks slightly narrower and came back in.
+
+The hare pelt was waiting on the lean-to wall — stiff, pale on the inner face where I'd scraped it yesterday, outer coat still winter-grey and dense. I brought it in and held it close to the fire for a minute to take the hard cold out of the leather. Then worked tallow into the inner face in small, pressing circles with the pads of my fingers — starting from the center, working outward toward the edges. The tallow went in readily; the leather warmed and began to flex under my hands, the stiffness giving way to something with give and weight. I worked through the entire surface twice, then did a third pass on the edges where it tends to curl and dry fastest.
+
+When I was done the pelt hung soft and even on the supply peg, inner face out to finish conditioning through the morning warmth. It's coming along well — could make a hat, or a sleeping-side liner for the coldest nights ahead.
+
