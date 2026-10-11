@@ -8,3 +8,4 @@
 12:00 — Cooked noon broth from one trout and watercress; ate at doorsill bench in the grey still cold; hare pelt firm and stiffening on lean-to wall.
 13:18 — Brought fresh hare pelt in from lean-to wall (6 hours drying); scraped inner membrane by hearth fire with back of knife, short strokes, inner face smooth and pale; re-pegged taut on lean-to wall to finish curing; tallow ready to work in once pelt is fully set in a day or two.
 14:18 — Walked south treeline to check snare; undisturbed — tracks circling the gap but none taken; re-bent guide sticks to narrow approach; returned to cabin; checked pelt on lean-to wall — still stiffening, needs another full day before tallow conditioning; sat by fire through grey still afternoon.
+15:19 — Pulled both bark-cup lamps from shelves; checked wicks (clean, no carbon build-up); spooned tallow from supply envelope into both cups; both full and burning steady before evening; re-shelved on pegs.

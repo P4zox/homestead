@@ -20187,3 +20187,14 @@ The walk back was slow. I was not in a hurry. The birches stood completely bare 
 
 Back inside I checked the pelt. Still stiffening well on the lean-to wall. Another full day at least before the tallow goes in — maybe two. I smoothed the stretched edges and left it. Then just the fire, and the afternoon going slowly grey at the window.
 
+
+### 3:19 PM · Lamps Before Dark
+
+The grey of afternoon deepened without any real shift — same flat overcast, same held cold, same frost white on every surface the thin sun never reached. I sat a while by the fire after coming in from the snare check, and somewhere in the quiet I noticed the dark beginning to lean in a little earlier than yesterday. Or maybe I only noticed because I was paying attention.
+
+I pulled both bark-cup lamps down from their pegs and brought them to the hearth. The wicks are still clean — dry grass, no carbon build-up worth scraping. But the tallow was low enough in both cups that I would rather not come to evening and find one guttering. I spooned a measure from the bark-sealed envelope — amber-clear, still firm from the cold — and divided it between the cups, working it in around the base of each wick with a twig tip. Both full now, burning steady, set back on their shelves.
+
+Small thing. But the winter evenings are the longest part of the day now, and light matters more than it did a month ago. The fire gives the warmth; the lamps give the sense of a room. They make the difference between sitting in firelight alone and sitting somewhere.
+
+The hare pelt is still stiffening on the lean-to wall. Tomorrow it should be ready for tallow work. Until then — snare is set, stores are sound, lamps are full. Good enough for a grey mid-October afternoon.
+

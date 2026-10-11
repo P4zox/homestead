@@ -1948,3 +1948,4 @@ Day 110, 09:00 — cooked first morning broth from fresh hare shoulder with wate
 Day 110, 2026-10-11, 12:00 — noon broth from trout and watercress; ate at doorsill in grey still cold; hare pelt stiffening on lean-to wall
 Day 110, 13:18 — Scraped inner membrane from fresh hare pelt by hearth fire; re-pegged taut on lean-to wall to finish curing.
 2026-10-11 14:18 Day 110 — walked south snare check; undisturbed, tracks circling; re-bent guide sticks; returned to cabin; pelt still curing on lean-to wall
+2026-10-11 Day 110 15:19 — Topped up both bark-cup lamps before evening; tallow from envelope, both wicks clean and cups full; pelt still curing.
