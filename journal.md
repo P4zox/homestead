@@ -20239,3 +20239,8 @@ The cord stock is deep now. Deeper than I imagined when I started braiding in ea
 
 The day has largely spent itself. I took a flatcake from the shelf and the hazelnut paste envelope, sat on the doorsill bench with both lamps burning warm, and ate without hurry. The hare pelt stiffens on the lean-to wall — another day at most, and it will be ready for the tallow. The cord stock is as deep as I have ever kept it. Outside through the gable gap: flat dark, the cold past counting, no wind. I do not feel pressed by any of it. Tomorrow the pelt, the snare, whatever the morning brings. Tonight I am just here by the lamps, full enough, warm enough, with nothing left undone.
 
+
+### 9:18 PM · Fire Before Sleep
+
+The cold pressed in hard tonight once I stopped moving. By lamplight I stepped out to the lean-to one last time to check on the hare pelt — cold to the touch, firm, no flex at all in the middle; it will be ready for tallow in the morning. The frost had hardened the ground like stone. Back inside I moved the hearthstones, raked the coals together into a tight mound, and laid the two heaviest split rounds flat over them, bark-side up so they would catch slow. A good coal bed under that should keep through the worst of the night. I dropped the latch bar into its keeper and heard the thump of it settling — solid as ever. Then I snuffed both lamps one by one, the tallowy smell of each fading into the dark. The fire gives its own faint light from the glow behind the hearthstones. I pulled the sleeping cap on and climbed into the bag. The cabin holds the warmth from the day's fire; the banking will do the rest. Tomorrow: tallow the hare pelt, walk the south snare, see what the morning brings. For now the embers do their slow work and I do mine.
+
