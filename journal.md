@@ -20244,3 +20244,12 @@ The day has largely spent itself. I took a flatcake from the shelf and the hazel
 
 The cold pressed in hard tonight once I stopped moving. By lamplight I stepped out to the lean-to one last time to check on the hare pelt — cold to the touch, firm, no flex at all in the middle; it will be ready for tallow in the morning. The frost had hardened the ground like stone. Back inside I moved the hearthstones, raked the coals together into a tight mound, and laid the two heaviest split rounds flat over them, bark-side up so they would catch slow. A good coal bed under that should keep through the worst of the night. I dropped the latch bar into its keeper and heard the thump of it settling — solid as ever. Then I snuffed both lamps one by one, the tallowy smell of each fading into the dark. The fire gives its own faint light from the glow behind the hearthstones. I pulled the sleeping cap on and climbed into the bag. The cabin holds the warmth from the day's fire; the banking will do the rest. Tomorrow: tallow the hare pelt, walk the south snare, see what the morning brings. For now the embers do their slow work and I do mine.
 
+
+### 10:19 PM · Still Dark, Fire Holds
+
+The cabin is quiet. Through the sleeping bag the banked fire throws just enough warmth to hold off the edge, not enough to see by — the coals are buried under ash and the split rounds catching slowly. I lay listening: the timber settles once, a small crack overhead where frost is working the bark. Nothing else. No wind in the pines. The frost outside is absolute.
+
+I am going to drift off thinking about the pelt. It was firm and cold under my hand this evening — ready tomorrow for the tallow, no question. There is a kind of satisfaction in knowing exactly what the first task of morning will be before I have slept. The day handed me that: close the pelt's cure, condition it against the winter.
+
+Seventeen trout in the cold box. Nine flatcakes on the shelf. The cord stock is deep. The fire will hold the night.
+

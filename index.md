@@ -1955,3 +1955,4 @@ Day 110, 18:19 — Tinder for Tomorrow — laid out dry tinder and kindling by h
 2026-10-11 19:18 — Day 110 — braided two lengths of two-ply cord by lamplight; cord stock deep; hare pelt curing overnight on lean-to wall.
 Day 110, 8:18 PM — Flatcake and Lamplight — ate flatcake with hazelnut paste by lamplight; hare pelt curing overnight; both lamps steady; evening quiet.
 Day 110, 21:18 — Banked fire deep before sleep; hare pelt checked cold and firm on lean-to wall; latch dropped; lamps snuffed; settled in sleeping bag for night.
+Day 110, 10:19 PM — lay awake in sleeping bag; fire holding on banked coals under ash; cabin timber settling in hard frost; drifted toward sleep thinking about hare pelt tallow-conditioning tomorrow.
