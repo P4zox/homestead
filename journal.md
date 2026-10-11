@@ -20280,3 +20280,12 @@ The hare pelt was waiting on the lean-to wall — stiff, pale on the inner face 
 
 When I was done the pelt hung soft and even on the supply peg, inner face out to finish conditioning through the morning warmth. It's coming along well — could make a hat, or a sleeping-side liner for the coldest nights ahead.
 
+
+### 7:18 AM · Morning Broth, Iced Pool
+
+The hare pelt is nearly right. I took another slow pass across the edges before the fire this morning — the leather has that particular give now, the kind that moves with you instead of resisting. Hung it back inner-face-out on the supply peg and left it to finish.
+
+Then I went down to the bend pool. The shelf ice has thickened overnight — thin still, but continuous along the far bank and beginning to bridge the still water at the inside bend. The stream still runs dark underneath, and the riffle upstream stays open, but the slow seam where I have set every rig this past month is nearly sealed. I stood there for a while studying it, and I did not bait. There was no point setting a hook under closing ice for a fish I do not need. Sixteen now in the cold box — after this morning — along with the rabbits and hare and all the smoked stores. We are provisioned.
+
+I cooked the broth slowly: one trout, watercress, three shreds of smoked oyster mushroom, good water. Simmered until the cabin smelled of it, then sat on the doorsill bench with the clay pot in both hands and drank before it could go cold. The air inside was mild against the outdoor cold, and for that half-hour everything felt held — the season, the stores, the slow turning toward harder weather. It is coming. But we are ready.
+
