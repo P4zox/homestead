@@ -20157,3 +20157,12 @@ No fourth flush. I crouched there a moment, hands on my knees, looking at the gr
 
 Stood there a little while in the still cold, then came back. The pelt is still drying on the lean-to wall, pale and stiff at the edges. The fire is holding.
 
+
+### 11:18 AM · Stock in Order
+
+The grey held through all morning without moving. No wind, no shift in the cloud. I sat by the fire and went through the supply shelf — taking each package down, checking resin seals, making sure nothing had worked loose. Twelve sealed winter envelopes in order. Hawthorn, rose hip, elderberry. The flatcakes. Hazelnut paste. The tallow fold still closed solid. Smoked mushrooms in their bark wrappers, everything cool and dry.
+
+There is something settling about this kind of work. Not the push of building or the focus of catching — just steady handling of things that will matter. Putting each envelope back in its place. Knowing what the shelf holds.
+
+The hare pelt is still soft from this morning on the lean-to wall. It will take two or three days to dry through in this cold. Noon coming. Fire is good.
+

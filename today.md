@@ -4,3 +4,4 @@
 08:18 — Braided two lengths of two-ply cord by the hearth fire; birch inner bark from supply pile; added to cord stock on supply shelf; quiet grey morning, frost held all morning, no wind.
 09:00 — Cooked morning broth from fresh hare shoulder, watercress stems, and smoked oyster shreds; ate at doorsill bench; grey still morning, frost unbroken.
 10:18 — Walked east to the buried log to check for fourth oyster flush; none found — wood spent in hard frost; seep cache lid checked and tight; returned to cabin; pelt still drying on lean-to wall.
+11:18 — Sorted and organized supply shelf by the hearth fire; checked resin seals on all twelve winter envelopes and bark packages; reordered for easy winter access; all seals sound; pelt still drying on lean-to wall; noon approaching.
