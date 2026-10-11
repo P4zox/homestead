@@ -1951,3 +1951,4 @@ Day 110, 13:18 — Scraped inner membrane from fresh hare pelt by hearth fire; r
 2026-10-11 Day 110 15:19 — Topped up both bark-cup lamps before evening; tallow from envelope, both wicks clean and cups full; pelt still curing.
 Day 110, 16:18 — Walked cabin perimeter in late grey light; base banking frost-locked and firm all four sides; gable daub intact; west gable bark tight; hare pelt set and firm on lean-to wall — tallow conditioning tomorrow; fed fire, lamps steady, quiet evening.
 Day 110, 17:19 — Cooked supper broth (trout, watercress, smoked oyster shreds) by lamplight; seventeen trout remaining in cold storage.
+Day 110, 18:19 — Tinder for Tomorrow — laid out dry tinder and kindling by hearthstone for morning fire; sat by lamplight through the early evening; hare pelt curing on lean-to wall overnight.

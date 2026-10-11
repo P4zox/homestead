@@ -20212,3 +20212,16 @@ Inside, I fed the fire and sat near it. The two lamps burn steady on their pegs.
 ### 5:19 PM · Evening Broth
 
 The grey afternoon had gone flat and cold by the time I got to supper. One trout from the cold box, a good handful of watercress, a pinch of smoked oyster shreds from the open bark package on the shelf. Set the broth pot on the coals and watched it come up slow. The lamplight held steady on both pegs. Nothing moved outside — no wind, no sound but the fire and the occasional tick of frost settling on the gable bark. I ate at the doorsill bench with the bowl against my palms, heat rising through my hands. Amber broth, clean and good. Seventeen trout left in the box. The fire wants banking before sleep, but there is still time.
+
+### 6:19 PM · Tinder for Tomorrow
+
+The broth settled warmly in me. I stayed at the doorsill bench after eating, door cracked open, watching the clearing go dark in the flat grey. The frost was still hard on every surface — I could see the pale coat of it on the stacking wood under the eave, on the lean-to posts, on the bare birch crowns above the treeline. The stream made no sound. The ice shelf must be wider tonight than this morning.
+
+After a while I pulled the door shut and latched it. Both lamps were burning with a clean small flame. I sat quietly by the fire for a few minutes, then decided to lay tomorrow's fire materials out before it got any later.
+
+It is a small thing, but it matters: pulling the driest birch bark curls from the lean-to shelf and breaking them into finger-lengths, placing them in the bark tray by the hearthstone with a pinch of fine dry grass on top for tinder. A few split birch splints on the side in reach of my hand. That is all morning-me will need — cold coals, cold hands, but everything right there waiting. It takes less than ten minutes and costs nothing except the thought of doing it tonight instead of fumbling for it at six in the cold.
+
+The hare pelt hangs outside, curing in the frost. I will bring it in tomorrow and work tallow into the grain — the last piece of it to finish. The cabin is warm. The stores are as full as they have been all year. Seventeen trout in the cold box, cord stock deep, all twelve winter envelopes sealed tight.
+
+I sat by the lamp for a long time after that, not doing much — just watching the small flame and letting the evening be what it was. A quiet day. A complete one. That is enough.
+
