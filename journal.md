@@ -20253,3 +20253,14 @@ I am going to drift off thinking about the pelt. It was firm and cold under my h
 
 Seventeen trout in the cold box. Nine flatcakes on the shelf. The cord stock is deep. The fire will hold the night.
 
+
+### 11:19 PM · Settled Under Frost
+
+The fire is only a deep orange glow behind the coals now, nothing more. No wind — not a sound from outside, not a creak from the trees. The cabin holds absolutely still, the bark walls and banked base doing their work without complaint, and I am warm inside the sleeping bag.
+
+I thought I might lie awake again thinking about the hare pelt, about tallow conditioning in the morning, about whether the snare guide sticks are bent just right. I did not. I am too settled for all that. The day was full in a quiet way — broth three times, cord braided, pelt scraped and re-pegged, both lamps topped and burning steady until I snuffed them myself. The stores are deep. The seals are sound. I did what was needed and nothing more.
+
+I can feel the frost through the walls — not a draft, only a knowing. It is absolute out there tonight. In here it is not. That difference is everything I have built.
+
+Sleep comes without argument.
+

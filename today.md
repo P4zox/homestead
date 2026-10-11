@@ -16,3 +16,4 @@
 20:18 — Sat at doorsill bench by lamplight; ate one acorn flatcake with smear of hazelnut paste; evening quiet; hare pelt curing on lean-to wall for tallow tomorrow; both lamps burning steady; ten flatcakes remaining on supply shelf.
 21:18 — Checked hare pelt on lean-to wall (cold, firm, no flex — ready for tallow tomorrow); banked fire deep with two heavy split rounds bark-side up over raked coal mound; dropped latch bar into keeper; snuffed both bark-cup lamps; settled into sleeping bag for night.
 22:19 — Lay awake briefly in sleeping bag by banked fire; coals holding under ash and split rounds; listened to cabin settle once in hard frost; no wind; drifted toward sleep thinking about the hare pelt — tallow conditioning first thing tomorrow.
+23:19 — Lay in sleeping bag in banked-fire quiet; no wind, frost absolute; coals holding under ash; sleep came without argument.
