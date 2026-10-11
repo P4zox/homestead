@@ -1946,3 +1946,4 @@ Day 110, 09:00 — cooked first morning broth from fresh hare shoulder with wate
 2026-10-11 10:18 — Day 110 — Walked east to the buried log; no fourth oyster flush found; seep cache checked and tight; returned to cabin.
 2026-10-11 Day 110 11:18 — sorted supply shelf by fire; checked resin seals on all winter envelopes and bark packages; reordered for easy winter access; pelt drying; noon approaching
 Day 110, 2026-10-11, 12:00 — noon broth from trout and watercress; ate at doorsill in grey still cold; hare pelt stiffening on lean-to wall
+Day 110, 13:18 — Scraped inner membrane from fresh hare pelt by hearth fire; re-pegged taut on lean-to wall to finish curing.

@@ -20171,3 +20171,8 @@ The hare pelt is still soft from this morning on the lean-to wall. It will take 
 
 Noon came grey and still, the frost on every surface unchanged from morning. I set a trout in the pot with watercress and water drawn from the bark bucket, and let it come slow to heat over the coals. The fire was easy and warm; I was generous with the wood. When the broth was ready I carried it to the doorsill bench and sat with it in both hands, watching the clearing. Nothing moved out there — no wind, no birds, no sound past the low hiss of the stream beyond the tree line. The cold came in at my back from the open door and I did not mind it. The broth was clear and right. On the lean-to wall behind me the hare pelt was stiffening in the dry cold air; I pressed my palm to it in passing — firm and holding shape. A few more days of this and I can begin to work it.
 
+
+### 1:18 PM · Scraping the Pelt
+
+Brought the hare pelt in from the lean-to wall around midday — six hours of grey frost-still air had firmed it up just right, not yet stiff as board but no longer slack. Set it membrane-side up across a split pine log propped against the hearth stones and worked it with the back of the knife, short strokes from center out, lifting the silvery membrane away in thin curling sheets. The grey-white winter fur on the outside stayed clean and dense. An hour of slow work by the fire: the smell of raw hide warming, the sound of the scraper, the creak of the wood settling. When the inner face was smooth and pale, I pegged it back out on the lean-to wall, stretched taut again, to finish curing in the cold air. The belly-fat tallow is waiting — work it in once the pelt dries another day or two and the hide is fully set. A second good winter pelt takes shape.
+
