@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke to held coals; rebuilt fire with dry kindling; walked south in first grey light to south snare — hare caught overnight, snare triggered at birch-gap; collected hare, reset guide sticks for next catch; returned to cabin; eighteen trout plus one fresh hare in cold storage; Day 110 begun.
 07:18 — Dressed and jointed the fresh hare at the cabin fire; belly fat rendered into half-cup of tallow added to supply; haunches, shoulders, loin sections, and ribs dock-wrapped and placed in cold box alongside trout; pelt stretched and pegged on lean-to wall to dry.
+08:18 — Braided two lengths of two-ply cord by the hearth fire; birch inner bark from supply pile; added to cord stock on supply shelf; quiet grey morning, frost held all morning, no wind.

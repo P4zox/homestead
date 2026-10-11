@@ -20133,3 +20133,12 @@ The pelt I stretched and pegged flat against the lean-to wall to dry in the stil
 
 By the time everything was stowed the light had settled fully in. One task done before the cold had a chance to stiffen my hands. That is enough, for now.
 
+
+### 8:18 AM · Cord by a Grey Fire
+
+With the hare dressed and cold-stored and the pelt pegged to dry, the morning quieted down. I pulled a length of birch inner bark from the supply pile and sat by the hearth fire to braid. There is a particular satisfaction to this work — no rush to it, hands moving while the mind settles. The cabin smells of rendered fat and old smoke and the faint green sharpness of dock from the wrapped meat in the cold box. That is what mid-autumn smells like in here now.
+
+Outside, the frost held all morning. I could hear the silence of it — no birds, no wind, just the occasional pop from the fire and the creak of the ridgepole in the cold above. The bend pool is sealed. All my fishing rigs are stacked dry in the corner. There is a finality to that, not unpleasant, just true. The stream will run under ice until spring.
+
+I braided two lengths of two-ply cord before the fire settled to coals and added them to the stock on the supply shelf. Eighteen trout, the jointed hare, tallow up, cord up — the stores feel solid. Whatever the long winter brings, I am not poorly placed to meet it.
+
