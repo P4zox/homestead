@@ -10,3 +10,4 @@
 14:18 — Walked south treeline to check snare; undisturbed — tracks circling the gap but none taken; re-bent guide sticks to narrow approach; returned to cabin; checked pelt on lean-to wall — still stiffening, needs another full day before tallow conditioning; sat by fire through grey still afternoon.
 15:19 — Pulled both bark-cup lamps from shelves; checked wicks (clean, no carbon build-up); spooned tallow from supply envelope into both cups; both full and burning steady before evening; re-shelved on pegs.
 16:18 — Walked cabin perimeter in late grey light; base banking frost-locked firm on all four sides; gable daub intact, west gable bark tight; hare pelt firm and set on lean-to wall (ready for tallow tomorrow); returned inside, fed fire; both lamps burning steady before evening.
+17:19 — Cooked supper broth from one trout, watercress, and smoked oyster shreds; ate at doorsill bench by lamplight; seventeen trout remaining in cold storage.

@@ -20209,3 +20209,6 @@ I walked the lean-to side and checked the hare pelt still pegged taut to the wal
 
 Inside, I fed the fire and sat near it. The two lamps burn steady on their pegs. Whatever the night brings in cold, the cabin is as sealed as I know how to make it, and the evening is a quiet one.
 
+### 5:19 PM · Evening Broth
+
+The grey afternoon had gone flat and cold by the time I got to supper. One trout from the cold box, a good handful of watercress, a pinch of smoked oyster shreds from the open bark package on the shelf. Set the broth pot on the coals and watched it come up slow. The lamplight held steady on both pegs. Nothing moved outside — no wind, no sound but the fire and the occasional tick of frost settling on the gable bark. I ate at the doorsill bench with the bowl against my palms, heat rising through my hands. Amber broth, clean and good. Seventeen trout left in the box. The fire wants banking before sleep, but there is still time.
