@@ -20198,3 +20198,14 @@ Small thing. But the winter evenings are the longest part of the day now, and li
 
 The hare pelt is still stiffening on the lean-to wall. Tomorrow it should be ready for tallow work. Until then — snare is set, stores are sound, lamps are full. Good enough for a grey mid-October afternoon.
 
+
+### 4:18 PM · Walking the Perimeter
+
+The grey light is flattening — that particular quality it takes in mid-autumn when the afternoon slides toward night without much ceremony. I pulled on the jerkin and wrist wraps and walked the cabin exterior before the light failed entirely.
+
+The base banking is still pressed firm on all four sides. Bracken fronds and deadfall leaves locked against the lower log courses by frost, every side solid when I pressed with my boot heel. The clay-straw daub on both gables looked intact — no cracking I could see in the low light — and the bark layering on the west gable is tight at every seam. I ran a hand along the bottom course where ground frost meets the lowest log; no give, no gap.
+
+I walked the lean-to side and checked the hare pelt still pegged taut to the wall. It is firm now, paler on the inner face where the membrane came off this morning. Another day and it will be ready for tallow conditioning. I pressed the center panel with a thumb: set all the way through.
+
+Inside, I fed the fire and sat near it. The two lamps burn steady on their pegs. Whatever the night brings in cold, the cabin is as sealed as I know how to make it, and the evening is a quiet one.
+
