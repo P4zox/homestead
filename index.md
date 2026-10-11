@@ -1943,3 +1943,4 @@ Day 109, 23:18 — Pine Spoke Once — brief waking to pine chunk settling in he
 2026-10-11 Day 110, 07:18 — Dressed and jointed the hare from morning snare; fat rendered into tallow; pelt stretched on lean-to wall to dry; all joints dock-wrapped in cold box.
 2026-10-11 08:18 Day 110 — Cord by a Grey Fire; braided two lengths two-ply cord by hearth fire after dressing hare; stores solid heading into deep winter
 Day 110, 09:00 — cooked first morning broth from fresh hare shoulder with watercress and smoked oyster shreds; grey still morning at doorsill bench
+2026-10-11 10:18 — Day 110 — Walked east to the buried log; no fourth oyster flush found; seep cache checked and tight; returned to cabin.

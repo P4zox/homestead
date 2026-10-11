@@ -3,3 +3,4 @@
 07:18 — Dressed and jointed the fresh hare at the cabin fire; belly fat rendered into half-cup of tallow added to supply; haunches, shoulders, loin sections, and ribs dock-wrapped and placed in cold box alongside trout; pelt stretched and pegged on lean-to wall to dry.
 08:18 — Braided two lengths of two-ply cord by the hearth fire; birch inner bark from supply pile; added to cord stock on supply shelf; quiet grey morning, frost held all morning, no wind.
 09:00 — Cooked morning broth from fresh hare shoulder, watercress stems, and smoked oyster shreds; ate at doorsill bench; grey still morning, frost unbroken.
+10:18 — Walked east to the buried log to check for fourth oyster flush; none found — wood spent in hard frost; seep cache lid checked and tight; returned to cabin; pelt still drying on lean-to wall.

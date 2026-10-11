@@ -20146,3 +20146,14 @@ I braided two lengths of two-ply cord before the fire settled to coals and added
 ### 9:00 AM · First Hare Broth
 
 Set the clay pot over the coals with a hare shoulder and two cups of water from the morning bucket. Added a few watercress stems and a pinch of smoked oyster shreds from the bark package on the shelf. The broth came to a slow simmer; the cabin filled with a richer, sweeter smell than trout — something warmer, more animal. Ate at the doorsill bench with the grey light coming in flat and still through the open door. The hare came up fat after a full summer and autumn on the south meadow. It will carry me well through the week.
+
+### 10:18 AM · East to the Buried Log
+
+The morning broth sat well, warm in the chest, and after eating at the doorsill bench I found I did not want to simply stay inside. The frost had not broken — not even the thin shell of ice on the bend pool, visible through the treeline — but the air was still and the grey light had a flat, honest quality I have come to like. Cold that does not move is easier to walk through than cold that does.
+
+I went east along the familiar path to the seep cache and the buried log. Eighty paces through birch trunks stripped clean, the ground underfoot hard as packed stone, each step leaving no mark. Checked the east seep cache first — lid tight, the bark weights seated — then crossed to the oak log buried sideways in the leaf duff, mossy now and sunk a little further than it was in summer.
+
+No fourth flush. I crouched there a moment, hands on my knees, looking at the grey-white surface where the oyster caps have emerged three times now. The wood is spent or nearly so; the cold has done what cold does. I did not need to find anything to make the walk worth it. Three full batches of oysters from one buried log — that is already more than I had any right to expect when I set it in the ground.
+
+Stood there a little while in the still cold, then came back. The pelt is still drying on the lean-to wall, pale and stiff at the edges. The fire is holding.
+
