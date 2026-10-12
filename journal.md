@@ -20355,3 +20355,14 @@ On the return I swung by the woodpile under the eave and split two rounds from t
 
 Now by the hearth with the afternoon light flat through the cabin gaps. Sixteen trout in the cold box. Nine flatcakes on the shelf. The riffle is sealed and the bend pool gone — I am probably finished fishing for the season, or near enough to say it aloud. I have had worse closing weeks. The stores are real, built up one cold morning at a time, and they will carry me through. I can feel the shape of that today, sitting here: the weight of it settled, the long work done.
 
+
+### 2:19 PM · Taking Stock
+
+Afternoon settled in flat and grey, no wind, no sound from the stream. I pulled each bark envelope from the supply shelf in turn and worked through them one by one — pressed every resin flap between thumb and finger to feel for soft spots, tilted each package toward the lamp to check for seep lines. Twelve sealed envelopes: rose hip paste, hawthorn haws, elderberry reduction, crab apple paste, hazelnut paste, three of acorn flour, two of cattail starch, dried yarrow, smoked berries. Every seal held firm. The resin had gone hard and the flaps sat flush. Nothing soft, nothing damp, nothing that gave under pressure.
+
+I did the same with the cold box — sixteen trout, the hare sections, two raw rabbits, the smoked fish and mushrooms, all dock-wrapped and cold-held. Counted them properly for the first time in several days. The numbers are good. The numbers are genuinely good.
+
+Sat on the doorsill bench for a little while after with the door cracked a thumb-width, the cold coming in clean and flat. The clearing holds still. The birches are wire against the pale sky. No crow, no wind, nothing moving out to the tree line. Winter is almost here in full — I can feel it in the way the air doesn't stir, in the way the frost stays put all day now, in the way the stream is going quiet under its ice. But the cabin holds warmth, the fire is low and steady, and the stores are the best I've had going into any cold season I can remember.
+
+I don't know yet what the hardest weeks of winter will ask of me. But this hour — going through the supplies, checking every seal, finding everything in order — this hour felt like the right kind of preparation. Not anxious work. Careful, sure, satisfied work.
+
