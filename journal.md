@@ -20471,3 +20471,10 @@ I stepped out to the south snare in first grey light. The frost was absolute, ev
 
 Fifteen trout in the cold box. Twelve sealed envelopes on the shelf. The fire steady now, and the day beginning.
 
+
+### 7:19 AM · Both Lamps Lit
+
+The lamps sat cold on the hearthstone through first light, warming slowly in the fire's glow. When the heat had softened the leftover tallow enough to loosen each cup, I tipped them in turn and worked out the spent wicks — blackened grass stems matted flat against the bark. Twisted new ones from the dry-grass bundle, rolling four or five stems tight between my palms until they cord well. Threaded each through the cup and let the tip curl up above the tallow line. Then spooned from the envelope until both cups sat full. Touched each wick tip to the fire, just a moment. Both caught clean.
+
+Hung them back on their shelf pegs — one east, one west. Two steady pools of amber in the grey morning. It is a small thing, re-wicking a lamp. But a cold one on a still grey morning like this one is its own kind of dim, and now the cabin holds its light again.
+
