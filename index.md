@@ -1971,3 +1971,4 @@ Day 111, 16:19 — Neck Wrap, Bound — Sewed two hare-pelt strips back-to-back 
 Day 111, 17:18 — First Wearing, Evening Broth — evening meal (trout, watercress, smoked oyster shreds) cooked and eaten at doorsill in new neck wrap; fifteen trout in cold box
 2026-10-12 18:19 Day 111 — Settled by lamplight after supper; both lamps trimmed, coals banked, door shut against frost; fishing season closed, winter stores counted full; braiding cord before sleep.
 2026-10-12 Day 111 19:00 — Braided two more cord lengths by lamplight; quiet evening at hearthside before sleep
+2026-10-12 20:20 Day 111 — Tallow-conditioned foot wraps by lamplight; both wraps supple and ready for winter; quiet evening; stores full.

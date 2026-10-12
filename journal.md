@@ -20419,3 +20419,14 @@ I have been thinking about the neck wrap all evening. It is a small thing — tw
 
 You cannot prepare for everything. But you can prepare for this winter. I think I have.
 
+
+### 8:20 PM · Tallow the Wraps
+
+The lamps are burning low and steady, both flames holding their shape in the still air. I pulled the foot wraps from the doorsill bench — the two moccasin-style pieces, reinforced back in Day 100 — and set them across my lap. They have carried me all autumn: to the stream and back across frozen ground, to the treeline for firewood, to the snares in the grey pre-dawn. The leather at the toe and heel has stiffened some in the cold, the patches riding a little rigid under my fingers. It was time.
+
+I drew the tallow envelope from the shelf and opened it in the lamplight. The fat is amber-clear, still soft enough to work with a fingertip. I pressed small circles into the toe patch first, letting the warmth of my hands thin it into the grain. Then the heel, then the side panels, working each surface until the colour darkened and the leather softened under my touch. Both wraps, both sides, every seam. The smell of tallow and cured hide rose quietly in the warm air of the cabin.
+
+By the time I finished and re-folded them on the bench, they moved the way leather should — giving a little, holding a little, neither cracking nor flapping loose. Ready for the weeks ahead.
+
+I sat a moment with the empty tallow fold in my hands. Outside there was nothing — no wind, no branch-crack, no animal sound. Just the cold pressing against the bark and log. I am in as good a position as I have been in memory going into a hard winter. The stores are full. The cabin is sealed. The wraps are conditioned. There is almost nothing left to do but wait for it.
+
