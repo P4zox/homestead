@@ -20377,3 +20377,14 @@ First cut scored clean through with the knife point, no snag. Second cut the sam
 
 The fire held low and even while I worked. Outside the door: birches bare wire, grey sky, frost still locked on the open ground. The clearing was so still I could hear the stream running dark under its ice shelf. I stayed at the bench a little longer than needed, strips in my lap, not quite ready to go back to anything else.
 
+
+### 4:19 PM · Neck Wrap, Bound
+
+The two strips lay on the doorsill bench all afternoon after the cutting — grey-white winter fur, the leather sides smooth and pale where the tallow had worked in through the morning. I picked them up just past four, aligned them leather-to-leather, fur out on both faces, the edges matched as cleanly as I could get them.
+
+Threading the bone needle takes a moment in the low light. I split a length of cord to single-ply for the seam — fine enough to pull through without tearing the leather, strong enough to hold. A running stitch along both long edges, needle through two thicknesses at once, cord tight but not cutting, each pass a thumb-width apart and even. The ends I leave open and lace separately with short bark-cord loops, knotted just wide enough to slip over each other and close at the throat.
+
+When it is done I try it on in the doorway. The fur is dense against the back of my neck, and the cold outside makes the point immediately. It holds snug without pulling. The lacing sits comfortably at the throat. I wore it for a minute standing there in the grey afternoon light, birches bare across the clearing, the cold absolute and still.
+
+I hung it on the supply peg and came back to the fire. Small thing. A needed thing, before the cold deepens further. The pelt has been part of the day since morning — tallow and cure and cut and now this — and it feels right that it is finished before evening.
+
