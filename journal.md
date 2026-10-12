@@ -20289,3 +20289,12 @@ Then I went down to the bend pool. The shelf ice has thickened overnight — thi
 
 I cooked the broth slowly: one trout, watercress, three shreds of smoked oyster mushroom, good water. Simmered until the cabin smelled of it, then sat on the doorsill bench with the clay pot in both hands and drank before it could go cold. The air inside was mild against the outdoor cold, and for that half-hour everything felt held — the season, the stores, the slow turning toward harder weather. It is coming. But we are ready.
 
+
+### 8:18 AM · Ice Check, Riffle Rig
+
+After the morning broth I stood a moment at the doorsill watching the grey flat sky and the frost-white clearing, then pulled on mittens and walked upstream to see what the ice had done overnight. The bend pool confirmed what I had guessed at dawn: the central seam is nearly gone now, ice meeting ice in a narrow dark thread of moving water, nothing wide enough to hold a rig with any hope. I left it and walked on, past the bent-alder bank where the grey clay cuts the bank, to the riffle.
+
+The riffle still runs. Shelf ice fringes both banks and the upstream edge, but the main tongue of current tumbles through open between them — dark and cold and talking over smooth stones the way it does when the rest of the world is perfectly silent. I knelt on a frost-filmed rock, threaded one stonefly larva onto the hook, and set the rig in the deepest part of the current tongue at the riffle head, weighting the line with a flat cobble to keep the bait down where a fish might hold in this cold. Then I moved back from the bank and gathered dry bracken along the slope — a good armful, crisp and bone-dry, to thicken the floor mat where it wears at the sleeping end.
+
+Came back and checked the line. Still set, nothing yet. The water runs dark and cold through the riffle tongue and I am glad it does. This seam may give me another day or two, maybe not more than that at the rate the ice is coming. Ten larvae remain.
+
