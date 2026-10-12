@@ -20455,3 +20455,19 @@ Fifteen trout in the cold box. Twelve sealed envelopes on the shelf. Stores the 
 
 I am not afraid of it. I close my eyes again.
 
+
+---
+
+# Day 112 — Tuesday, 13 October 2026
+*mid-autumn · grey overcast, absolute frost, still*
+
+### 6:19 AM · Ash to Flame
+
+The fire had held — just. I pressed my hand near the hearthstone before I was fully awake and felt warmth rising from the ash, though the air of the cabin was cold enough to see breath. I had laid the winter dress out the night before for exactly this: sleeping cap pulled low, wrist wraps on, neck wrap laced at the throat, all before I moved from the sleeping bag. I knelt at the hearth, scooped the ash back from the center, and found three orange coals still alive underneath. Two strips of dry bark and a split birch stick, and then steady slow breath over it until real flame caught and the cabin filled with moving light again.
+
+Both lamps were cold — the first guttered sometime in the second half of the night, the second spent itself by dawn. I set them on the hearthstone to warm slowly beside the new fire. Re-wicking both is the mid-morning task, once the light is fully up and the tallow runs easy. It is not urgent; the fire holds the cabin well enough in daylight.
+
+I stepped out to the south snare in first grey light. The frost was absolute, every surface pale and hard, not a breath of wind. The loop was undisturbed — the tracks frozen exactly where they were yesterday, not one fresh print. I reset nothing. The clearing held its silence, birches bare wire against a flat overcast sky, and I stood there a moment with my hands in my pockets before coming back inside.
+
+Fifteen trout in the cold box. Twelve sealed envelopes on the shelf. The fire steady now, and the day beginning.
+
