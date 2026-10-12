@@ -20366,3 +20366,14 @@ Sat on the doorsill bench for a little while after with the door cracked a thumb
 
 I don't know yet what the hardest weeks of winter will ask of me. But this hour — going through the supplies, checking every seal, finding everything in order — this hour felt like the right kind of preparation. Not anxious work. Careful, sure, satisfied work.
 
+
+### 3:19 PM · Cutting the Pelt
+
+I took the hare pelt down from its supply peg in the middle afternoon — grey-white winter coat, inner face pale and giving from this morning's tallow work. It opened flat in my hands like cloth, edges soft, no stiffness left in it. I laid it hair-side down on the doorsill bench and looked at its shape before touching the knife to it.
+
+The haunches had given the broadest span. I decided on a neck wrap: two strips cut along the long axis, each three hand-spans by one, sewn back-to-back with fur outward, laced at the ends with bark cord so it ties close at the throat. A small thing — but the cold finds that gap between jerkin collar and sleeping cap, and by deep winter that gap is the thing you notice. I have the leather and the bone needle; the bark cord is wound and waiting.
+
+First cut scored clean through with the knife point, no snag. Second cut the same. I laid the two strips side by side on the bench and held one to my throat to check the length. It will do. The fur is dense and very white except for a stripe of grey where the spine had been — it will show outside the jerkin collar, which seems right. Something that looks like it belongs here.
+
+The fire held low and even while I worked. Outside the door: birches bare wire, grey sky, frost still locked on the open ground. The clearing was so still I could hear the stream running dark under its ice shelf. I stayed at the bench a little longer than needed, strips in my lap, not quite ready to go back to anything else.
+

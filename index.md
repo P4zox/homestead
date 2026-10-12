@@ -1966,3 +1966,4 @@ Day 111, 2026-10-12, 07:18 — Morning broth (one trout); bend pool shelf ice th
 Day 111, 12:18 — Pulled riffle rig at noon (tongue narrowed to two hand-widths, no catch all morning); noon broth eaten; sixteen trout in cold box; nine larvae preserved in bark box.
 2026-10-12 13:19 — Day 111, Mon — walked south to check snare (empty, tracks frozen sharp, loop left as set); split two rounds under eave; back inside by hearth; sixteen trout, nine flatcakes, stores solid for winter
 2026-10-12 14:19 Day 111 — Afternoon supply inventory; checked every resin seal and bark envelope on supply shelf — all twelve held firm; cold box counted, sixteen trout; stores the best going into winter yet.
+Day 111 15:19 — Cut hare pelt into two neck-wrap strips (three hand-spans × one hand-span each); fur-side out, to be sewn back-to-back; neck wrap in progress.
