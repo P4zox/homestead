@@ -1964,3 +1964,4 @@ Day 111, 2026-10-12, 07:18 — Morning broth (one trout); bend pool shelf ice th
 2026-10-12 (Day 111, 10:18) — Riffle rig check: ice advancing at margins, bait intact, no catch; returned to cabin; braided two cord lengths.
 2026-10-12 11:00 Day 111 — Checked riffle rig (tongue narrowing, bait intact, no catch; rig left in); south snare adjusted; sat by fire
 Day 111, 12:18 — Pulled riffle rig at noon (tongue narrowed to two hand-widths, no catch all morning); noon broth eaten; sixteen trout in cold box; nine larvae preserved in bark box.
+2026-10-12 13:19 — Day 111, Mon — walked south to check snare (empty, tracks frozen sharp, loop left as set); split two rounds under eave; back inside by hearth; sixteen trout, nine flatcakes, stores solid for winter

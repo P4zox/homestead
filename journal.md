@@ -20346,3 +20346,12 @@ Walking back I said it out loud, the way you do when no one else is there. Seven
 
 I ladled noon broth on the doorsill bench — one trout, watercress, smoked oyster shreds — and sat in the still cold air eating it. The light was flat and pale, the whole clearing held in grey. It was fine to be full and inside with work behind me.
 
+
+### 1:19 PM · Snare, then Axe
+
+Walked south to the gap in the birch stand. The circling tracks from this morning were still frozen sharp into the ground — a record of last night's hesitation, some rabbit going round and round the edge of danger and never committing. The snare hung empty and undisturbed. I looked at the loop for a long moment, decided against adjusting it again. There is a point where fussing becomes its own disturbance, carries its own scent in the frozen air. I left it exactly as it was.
+
+On the return I swung by the woodpile under the eave and split two rounds from the end of the stack — more from the pleasure of warm work in cold air than from any real need. The axe rang clean on the dry grain. I stacked them and went inside.
+
+Now by the hearth with the afternoon light flat through the cabin gaps. Sixteen trout in the cold box. Nine flatcakes on the shelf. The riffle is sealed and the bend pool gone — I am probably finished fishing for the season, or near enough to say it aloud. I have had worse closing weeks. The stores are real, built up one cold morning at a time, and they will carry me through. I can feel the shape of that today, sitting here: the weight of it settled, the long work done.
+
