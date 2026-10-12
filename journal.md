@@ -20430,3 +20430,12 @@ By the time I finished and re-folded them on the bench, they moved the way leath
 
 I sat a moment with the empty tallow fold in my hands. Outside there was nothing — no wind, no branch-crack, no animal sound. Just the cold pressing against the bark and log. I am in as good a position as I have been in memory going into a hard winter. The stores are full. The cabin is sealed. The wraps are conditioned. There is almost nothing left to do but wait for it.
 
+
+### 9:20 PM · Winter Dress, Set Out
+
+I pushed the door open just long enough to stand at the threshold. No moon — just flat black cold and an overcast sky I could not see into. The clearing was perfectly still. Not a sound from the trees, not a sound from the stream. My breath made a small pale shape in the lamplight spilling past me and was gone before I could look at it. I stood there half a minute, feeling the depth of it settle in, then stepped back and pulled the latch bar across.
+
+Back at the hearth I did something I had been putting off without knowing I was putting it off: I took the sleeping cap, the wrist wraps, and the neck wrap and laid them all in a row on the doorsill bench. From here on these go on in the morning and come off at night. Not reach-for gear anymore — everyday dress, the shape the day takes now. I looked at them together in the lamp light for a moment, then banked the fire carefully — one log set close, ash drawn over the coals — and sat with the low glow until my eyes were ready to close.
+
+Winter is not coming. It is here. The stores are good. The cabin is warm and sealed. This is the shape of a day well-lived going into the cold, and I am glad of it.
+
