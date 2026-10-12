@@ -20410,3 +20410,12 @@ Fishing is done. The riffle is sealed, the bend pool gone under shelf ice. I pul
 
 I will braid a length or two of cord before I sleep. Keep the hands busy, keep the stock ahead of need. But there is no urgency in it tonight. Just lamplight, just the fire ticking, just winter doing what winter does on the other side of a solid door.
 
+
+### 7:00 PM · Cord at Hearthside
+
+Both lamps burn low and even. I settled against the east wall with a length of stripped inner bark and began splitting strands — the motion is known to me now, the way bark follows its grain if you do not rush it, the way it closes against you if you do. Two lengths braided and added to the shelf pile. Outside: nothing. The clearing has gone perfectly still.
+
+I have been thinking about the neck wrap all evening. It is a small thing — two strips of pelt, some cord, a bone needle — but wearing it at the doorway while the broth cooled tonight I felt something settle. The cold is coming. Fifteen trout in the cold box, twelve sealed envelopes on the shelf, smoked stores intact. A cabin that holds warmth. Two lamps that burn clean.
+
+You cannot prepare for everything. But you can prepare for this winter. I think I have.
+

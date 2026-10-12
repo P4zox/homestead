@@ -1970,3 +1970,4 @@ Day 111 15:19 — Cut hare pelt into two neck-wrap strips (three hand-spans × o
 Day 111, 16:19 — Neck Wrap, Bound — Sewed two hare-pelt strips back-to-back with bone needle and single-ply bark cord; ends laced with bark cord loops; neck wrap complete and hung on supply peg.
 Day 111, 17:18 — First Wearing, Evening Broth — evening meal (trout, watercress, smoked oyster shreds) cooked and eaten at doorsill in new neck wrap; fifteen trout in cold box
 2026-10-12 18:19 Day 111 — Settled by lamplight after supper; both lamps trimmed, coals banked, door shut against frost; fishing season closed, winter stores counted full; braiding cord before sleep.
+2026-10-12 Day 111 19:00 — Braided two more cord lengths by lamplight; quiet evening at hearthside before sleep
