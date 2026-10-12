@@ -15,3 +15,4 @@
 19:00 — Settled at east wall with inner bark; braided two lengths of two-ply cord by lamplight; quiet evening before sleep — stores all held, cabin warm, both lamps burning steady.
 20:20 — Pulled foot wraps from doorsill bench; worked tallow into toe patches, heels, side panels, and all seams by lamplight — both wraps fully conditioned and supple; returned to doorsill bench; quiet evening by hearth; lamps steady; stores all held.
 21:20 — Stepped to the cabin door in full dark; stood at threshold in absolute frost, breath gone in the still overcast night; laid sleeping cap, wrist wraps, and neck wrap in a row on doorsill bench — everyday winter dress from here on; banked fire deep under ash for the night.
+22:21 — Pulled on sleeping cap and wrist wraps by lamplight; settled into sleeping bag; fire banked deep under ash; both lamps burning low; asleep.

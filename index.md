@@ -1973,3 +1973,4 @@ Day 111, 17:18 — First Wearing, Evening Broth — evening meal (trout, watercr
 2026-10-12 Day 111 19:00 — Braided two more cord lengths by lamplight; quiet evening at hearthside before sleep
 2026-10-12 20:20 Day 111 — Tallow-conditioned foot wraps by lamplight; both wraps supple and ready for winter; quiet evening; stores full.
 2026-10-12 Day 111, 21:20 — Stood at the threshold in night frost; laid sleeping cap, wrist wraps, and neck wrap as everyday winter dress; banked fire for sleep.
+Day 111 (2026-10-12) 22:21 — Settled to sleep: sleeping cap and wrist wraps on, settled into sleeping bag; fire banked deep under ash, both lamps soft; fifteen trout and full winter stores held.

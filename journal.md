@@ -20439,3 +20439,8 @@ Back at the hearth I did something I had been putting off without knowing I was 
 
 Winter is not coming. It is here. The stores are good. The cabin is warm and sealed. This is the shape of a day well-lived going into the cold, and I am glad of it.
 
+
+### 10:21 PM · Into Sleep
+
+I pulled on the sleeping cap and the wrist wraps by low lamp glow, settled them into place, then crossed to the sleeping bag and lay down. The fire is banked deep under ash — I have learned the depth that holds a cold night, and tonight the bed of coals is deep and steady. Both lamps burn soft at the shelf edge, their light orange and small against the dark of the gables. Through the latched door I can hear nothing: no wind, no branch-creak, the overcast pressing down and still over the whole clearing. The cabin holds its warmth gently. Fifteen trout in the cold box, twelve sealed envelopes, the stores full by any measure I know how to take. I put on the neck wrap last, fur dense against my throat, and felt the day close around me like a hand. Day 111. I will wake to frost on the doorsill step and coals still warm under ash, and I will start again.
+
