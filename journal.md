@@ -20298,3 +20298,14 @@ The riffle still runs. Shelf ice fringes both banks and the upstream edge, but t
 
 Came back and checked the line. Still set, nothing yet. The water runs dark and cold through the riffle tongue and I am glad it does. This seam may give me another day or two, maybe not more than that at the rate the ice is coming. Ten larvae remain.
 
+
+### 9:18 AM · Still Running
+
+Back up to the riffle in the flat grey cold. The line was taut at the cobble, angled right where I had left it in the current tongue, and when I eased it up a trout came with it — not large, but firm and cold-held and fighting the current, a good autumn fish. Dressed it at the bank with numb fingers, wrapped it in dock leaf for the cold box. Reset the rig with another larva and wedged the cobble back into position.
+
+Seventeen trout now. The word sits differently when I say it to myself against the cold.
+
+Walked back past the bend pool. The seam had closed another hand-width overnight — a thin dark thread of moving water with shelf ice built solid from both banks, nearly meeting in the middle. Another hard night and that will be done. The riffle runs because the current is faster there, because it has somewhere to be. For now it does, and while it does I will work it.
+
+Nine larvae left in the bark box. I am being careful with them.
+

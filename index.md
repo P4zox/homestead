@@ -1960,3 +1960,4 @@ Day 110, 23:19 — Lay in sleeping bag in banked-fire quiet; frost absolute outs
 2026-10-12 Day 111, 06:18 — Tallow-conditioned hare pelt at hearthside; inner face supple and worked twice; pelt hung on supply peg to finish conditioning through morning
 Day 111, 2026-10-12, 07:18 — Morning broth (one trout); bend pool shelf ice thickened, rig not set; hare pelt fully supple; sixteen trout in cold box.
 2026-10-12 08:18 — Day 111 — Walked upstream: bend pool nearly sealed, riffle still open; set stonefly larva rig in riffle current tongue; gathered dry bracken for floor mat.
+2026-10-12 Day 111 09:18 — Checked riffle rig; one trout caught, rig reset; seventeen trout in cold box; nine larvae remaining
