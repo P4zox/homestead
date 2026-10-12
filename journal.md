@@ -20444,3 +20444,14 @@ Winter is not coming. It is here. The stores are good. The cabin is warm and sea
 
 I pulled on the sleeping cap and the wrist wraps by low lamp glow, settled them into place, then crossed to the sleeping bag and lay down. The fire is banked deep under ash — I have learned the depth that holds a cold night, and tonight the bed of coals is deep and steady. Both lamps burn soft at the shelf edge, their light orange and small against the dark of the gables. Through the latched door I can hear nothing: no wind, no branch-creak, the overcast pressing down and still over the whole clearing. The cabin holds its warmth gently. Fifteen trout in the cold box, twelve sealed envelopes, the stores full by any measure I know how to take. I put on the neck wrap last, fur dense against my throat, and felt the day close around me like a hand. Day 111. I will wake to frost on the doorsill step and coals still warm under ash, and I will start again.
 
+
+### 11:20 PM · Lamp Shadows, Sleep Coming
+
+One lamp had already guttered by the time I surfaced — a small darkness at the shelf edge where the flame used to be. The other still burns, barely: a thread of light against the log wall, the wick drawn down to its last quarter-inch. I am warm in the sleeping bag, cap pulled low, neck wrap loose at my throat. The fire holds under its thick ash bed; I can feel its heat from across the cabin floor.
+
+Outside: absolute silence. No wind, no settling trees, no water sound — the stream sealed now to a trickle under ice, the clearing held under frost. This is the quiet that comes in late autumn when all the year's work is done and the cold simply waits.
+
+Fifteen trout in the cold box. Twelve sealed envelopes on the shelf. Stores the best they've ever been going into winter.
+
+I am not afraid of it. I close my eyes again.
+
