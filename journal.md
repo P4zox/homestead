@@ -20397,3 +20397,16 @@ Came back inside and set the first clay pot over the coals. One trout from the c
 
 Sat in the open doorway in the neck wrap, bowl in both hands. The clearing was still as stone — birch trunks pale in the last grey light, frost already reforming across the open ground. Fifteen trout in the cold box. Nine flatcakes on the shelf. All twelve winter envelopes sealed. The neck warm.
 
+
+### 6:19 PM · Lamplight, Winter Here
+
+The broth is eaten and the door is pulled to against the cold. I banked the coals up after supper, trimmed both lamp wicks, and the light holds steady now — steady enough to see by without squinting. I stood at the closed door a minute listening: the clearing is silent the way hard frost makes things silent. No wind, nothing moving, the birches still wire against a sky gone dark.
+
+I sat down by the hearth with both lamps burning and counted myself up. Fifteen trout in the cold box. Smoked rabbits, smoked hare, mushrooms in seven batches. Twelve sealed envelopes on the supply shelf, every seal held when I pressed them this afternoon. Neck wrap sewn and warm against my throat right now. Foot wraps reinforced, mittens tallow-conditioned, the cabin banked all the way around on all four sides.
+
+I did not expect to be this ready. There were evenings earlier in the autumn when the inventory felt thin and the walls felt thin and the cold felt like a threat I was not quite keeping ahead of. This is different. The fire is low tonight, but low feels right — it is the right size of a fire at the end of a full day, not a fire kept burning out of fear. That is a real difference, and I notice it.
+
+Fishing is done. The riffle is sealed, the bend pool gone under shelf ice. I pulled the rig this noon and it felt clean, not like a loss. The season gave what it had and I have what it gave. That is the whole of it.
+
+I will braid a length or two of cord before I sleep. Keep the hands busy, keep the stock ahead of need. But there is no urgency in it tonight. Just lamplight, just the fire ticking, just winter doing what winter does on the other side of a solid door.
+
