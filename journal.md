@@ -20309,3 +20309,12 @@ Walked back past the bend pool. The seam had closed another hand-width overnight
 
 Nine larvae left in the bark box. I am being careful with them.
 
+
+### 10:18 AM · Ice at the Margins
+
+The riffle rig was still where I left it — line taut in the current tongue, flat cobble holding, bait intact. I crouched at the edge and watched the water for a minute. The ice has crept in from both margins through the morning: two white shelves closing toward each other, and the open tongue is noticeably narrower than it was even at first light. Still enough room for the rig to sit in good current. I could see a fish-shadow holding just below where the fast water slows into the deeper cut — moving almost nothing, a dark shape against pale gravel.
+
+No catch yet this hour. I left the rig in place and walked back through the frost-bitten bracken.
+
+At the cabin I built the fire a little higher and sat with the cord stock. Braided two more lengths — the work is almost automatic now, the fingers knowing their own way through the strips. The supply is already well ahead of what I expect to need before spring, but something in the shortening days makes extra cord feel like plain sense. The mind runs ahead of the hands: to what the riffle will look like in a week, to how much the tongue has narrowed each morning this week, to where the fish go once the last open water closes over. They don't vanish, I know that — they just go somewhere I can't reach them until the ice is gone again.
+
