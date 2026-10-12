@@ -1968,3 +1968,4 @@ Day 111, 12:18 — Pulled riffle rig at noon (tongue narrowed to two hand-widths
 2026-10-12 14:19 Day 111 — Afternoon supply inventory; checked every resin seal and bark envelope on supply shelf — all twelve held firm; cold box counted, sixteen trout; stores the best going into winter yet.
 Day 111 15:19 — Cut hare pelt into two neck-wrap strips (three hand-spans × one hand-span each); fur-side out, to be sewn back-to-back; neck wrap in progress.
 Day 111, 16:19 — Neck Wrap, Bound — Sewed two hare-pelt strips back-to-back with bone needle and single-ply bark cord; ends laced with bark cord loops; neck wrap complete and hung on supply peg.
+Day 111, 17:18 — First Wearing, Evening Broth — evening meal (trout, watercress, smoked oyster shreds) cooked and eaten at doorsill in new neck wrap; fifteen trout in cold box

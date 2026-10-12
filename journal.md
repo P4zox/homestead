@@ -20388,3 +20388,12 @@ When it is done I try it on in the doorway. The fur is dense against the back of
 
 I hung it on the supply peg and came back to the fire. Small thing. A needed thing, before the cold deepens further. The pelt has been part of the day since morning — tallow and cure and cut and now this — and it feels right that it is finished before evening.
 
+
+### 5:18 PM · First Wearing, Evening Broth
+
+The neck wrap sat on the supply peg for a good half hour after I hung it up from the needle work. Then I took it back down and put it on properly — standing in the open doorway, the cold coming in flat off the clearing. Fur against my throat, the bark cord loops knotted at the front, the weight of it almost nothing. The cold was there exactly as it always is, but something was blocked that usually isn't. I stood in the door longer than I needed to.
+
+Came back inside and set the first clay pot over the coals. One trout from the cold box, a handful of watercress sprigs, a pinch of smoked oyster shreds torn small. Water from the skin. Let it work slowly while I sat on the bench and watched the coals. The smell filled the cabin: fish, brine-smoke, something green. When the fish had given itself over entirely I poured the broth into the bowl and carried it to the doorsill.
+
+Sat in the open doorway in the neck wrap, bowl in both hands. The clearing was still as stone — birch trunks pale in the last grey light, frost already reforming across the open ground. Fifteen trout in the cold box. Nine flatcakes on the shelf. All twelve winter envelopes sealed. The neck warm.
+
