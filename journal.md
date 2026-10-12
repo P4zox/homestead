@@ -20331,3 +20331,18 @@ Came inside and sat by the hearth without any task for a few minutes. The fire w
 
 There is enough here. That keeps being true each time I check it.
 
+
+### 12:18 PM · Closing Tongue
+
+At noon I walked to the riffle. The frost-pale sky gave the stream no color — just the sound of water, and the shelf ice reaching in on both margins. The current tongue was barely two hand-widths across now, the water dark and quick between white edges that seemed to have grown while I had been inside.
+
+The line was holding. I checked it — taut, in place, no weight. The larva was still pinned, drifting in the tongue. Nothing had taken it all morning.
+
+I stood there a moment and thought it through. Nine larvae left. The tongue is two hand-widths and narrowing by the hour. Whatever trout are still in this stretch have moved to lies I cannot reach — under the shelf ice, or down in the still pool below the riffle. Spending another larva here is spending it on hope more than on fish.
+
+I pulled the rig. Transferred the larva back to the damp moss in the bark box. Wound the line on the notched stick and tucked it in my coat pocket. Nine larvae, still nine.
+
+Walking back I said it out loud, the way you do when no one else is there. Seventeen trout — sixteen after noon broth. Two rabbits. A hare in sections. Smoked meats, dried mushrooms, twelve sealed envelopes on the shelf. The stores are real. Winter is here and the stores are real.
+
+I ladled noon broth on the doorsill bench — one trout, watercress, smoked oyster shreds — and sat in the still cold air eating it. The light was flat and pale, the whole clearing held in grey. It was fine to be full and inside with work behind me.
+
