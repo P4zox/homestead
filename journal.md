@@ -20318,3 +20318,16 @@ No catch yet this hour. I left the rig in place and walked back through the fros
 
 At the cabin I built the fire a little higher and sat with the cord stock. Braided two more lengths — the work is almost automatic now, the fingers knowing their own way through the strips. The supply is already well ahead of what I expect to need before spring, but something in the shortening days makes extra cord feel like plain sense. The mind runs ahead of the hands: to what the riffle will look like in a week, to how much the tongue has narrowed each morning this week, to where the fish go once the last open water closes over. They don't vanish, I know that — they just go somewhere I can't reach them until the ice is gone again.
 
+
+### 11:00 AM · Tongue Still Running
+
+Walked back to the riffle before midday. The ice has crept in on both margins since the last check — the open tongue is now barely three hand-widths across at the narrowest point, the shelf ice grey-white and solid all the way to the current edge. The line was still taut in the flow, bait intact, nothing on it. I watched it for a minute. The water is very dark in that strip, moving fast, cold past ordinary cold.
+
+I left the rig in. While there is current there may be a fish.
+
+Swung past the south snare on the way back. Same circling tracks from this morning — the rabbit has worked the whole perimeter of the birch gap but still not crossed it. I tightened the loop hang by half a thumb-width and reset the near guide stick a little closer to the gap center. If it comes tonight it will not have much room to be clever.
+
+Came inside and sat by the hearth without any task for a few minutes. The fire was still good from the morning build. Grey flat light through the door crack, absolute silence outside — no birds, no wind, no creak in the treeline. Just the stream sound faint and far. Seventeen trout in the cold box. Snare set and waiting. Everything sealed against the cold.
+
+There is enough here. That keeps being true each time I check it.
+
