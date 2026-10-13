@@ -20513,3 +20513,18 @@ Both cold boxes opened, each bundle lifted and set back carefully. Fourteen trou
 
 I do not know exactly how long this winter runs. I know it will be cold and I know the stream is closing and I know the snares will keep doing their quiet work. But running my hands over each package — smelling the smoke, pressing the resin seals — something settled in my chest. The season of gathering is done. It is in the boxes now. What I have, I have. The rest is tending and waiting and keeping the fire.
 
+
+### 11:00 AM · The Buried Log
+
+The morning settled into itself — fire low and steady, both lamps lit, stores counted and closed. I pulled on the jerkin and hare neck wrap and walked east to the buried mushroom log.
+
+The ground was iron-hard. My footsteps barely dented the frost crust on the leaf duff. I crouched at the base of the big birch and pushed the duff aside with a stick — and there they were: four small pins, pale as milk, no bigger than a thumbnail, just barely lifting off the wood beneath a thin shell of ice.
+
+A fourth flush. Against all expectation.
+
+I left them. In this cold they'll push slowly — two days, maybe three — and when they're broad enough to cup in a hand I'll smoke them. Not a large harvest. But the log still has something to give, and I am glad for it.
+
+Walked back across the frost-still clearing. The stream just barely audible through the still air. Every pine needle white and frosted. The sky a flat unbroken grey.
+
+Winter is here. Everything is ready.
+
