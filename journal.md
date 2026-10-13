@@ -20608,3 +20608,12 @@ I have laid everything out for dawn: foot wraps near the hearthstone, hare-pelt 
 The mushroom flush on the buried log is moving — four pale pins when I checked this morning. Another day, maybe two, and they will be palm-wide. That will be a good morning.
 
 I am not restless. The trout and fungi and resin-sealed envelopes are all there, the fire is banked, the cord stock is sound. What I have, I made, and it is enough. The west lamp will burn on its own for a while yet. I will be asleep before it goes out.
+
+### 9:20 PM · West Lamp Down
+
+The west lamp has been burning since morning. Lying here on the mat, I watched its light move against the south wall — soft and unsteady, the way lamplight moves when you are still and everything else is still with you. The cabin is warm under the ash dome. The coals will hold until dawn without tending.
+
+The day feels complete. Stores tallied, cord braided, jerkin conditioned, fire banked. The fourth mushroom flush is lifting on the buried log — four pins this morning, two or three days until they are ready to pick. The south snare had fresh tracks circling the trigger this evening, close enough that dawn may tell a story.
+
+I reached over and tipped the lamp flat. It dimmed to a thread of orange, then nothing. Cabin dark now. I can smell tallow cooling and woodsmoke deep in the walls and a thread of cold air under the doorsill. Foot wraps near the hearthstone, neck wrap on the peg above. I am warm and the day is done.
+

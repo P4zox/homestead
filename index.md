@@ -1990,3 +1990,4 @@ Day 112, 12:18 — noon broth at hearthstone; clearing grey and frost-still; thi
 Day 112, 2026-10-13, 18:00 — Evening banking: banked hearthfire for night under ash dome with split birch log; counted all stores by lamplight — twelve trout, twelve envelopes, seven mushroom batches, tallow full, cord healthy; fourth mushroom flush in two to three days; south snare check at dawn; cabin warm and secure.
 Day 112 (2026-10-13, Tue) 19:00 — Lamplight, Small Work: two more cord lengths braided by evening lamp; east lamp tipped to dim; west lamp still burning; cabin warm, all stores sound.
 2026-10-13 Day 112 20:00 — evening close: laid out dawn kit by hearthstone, west lamp still burning, settled to sleep
+Day 112, 21:20 — tipped west lamp out for night; both lamps cold; cabin dark under ash dome; settled to sleep on sleeping mat.
