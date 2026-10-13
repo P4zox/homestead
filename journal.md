@@ -20645,3 +20645,14 @@ Reset the snare — same trigger tension, same loop height — and carried the r
 
 The morning has a settled feeling. The fire is going, the snare gave something, the stores are sound.
 
+
+### 7:18 AM · First Broth, Still Morning
+
+The rabbit came in before first light and the fire caught quickly from the ash bed. By the time the coals were strong enough I had the pot hung with water, a length of backbone and the ribs fitted in, watercress from the cold box, a pinch of dried yarrow crumbled between my palms. The broth was ready before the grey light outside brightened by much.
+
+It is perfectly still this morning. The overcast is low and even — not a weather sky, just the flat pale ceiling that comes before deep winter settles and stops moving altogether. The frost is still absolute outside. I ate by the fire with the birch spoon and let the warmth work its way in.
+
+The cabin is holding. That is the thing I keep noticing — how the banked base and the sealed gables and the ash dome have changed what it feels like inside. The cold is still out there, pressing at the wood; I can hear it in the silence. But in here there is a real warmth that stays. Seven months of labor in these walls, and what it comes to is this: a morning where the broth is hot and the fire needs only a log at a time and nothing is urgent.
+
+The haunches and the loin are still cold-boxed. Today can be a quiet one.
+

@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke to held coals in warm cabin; rebuilt fire from ash bed (bark tinder, split birch caught fast); dressed in full winter gear and walked south snare at first grey light; snare held a rabbit — grey-brown winter coat, well-fattened, caught cleanly before dawn; thanked it and reset snare at same tension; carried rabbit to doorsill bench, dressed it there: gut to cold box for tallow consideration, pelt on splitting block, meat dock-wrapped cold box; one more rabbit in store entering hard winter.
+07:18 — morning broth from fresh-caught rabbit ribs and backbone, watercress, dried yarrow; ate by fire; haunches and loin dock-wrapped cold box; cabin warm and sealed; overcast flat and windless.
