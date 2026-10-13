@@ -20580,3 +20580,14 @@ The broth was good. Twelve trout remain in the cold box, which is plenty. The so
 
 I sat a while after eating, watching one lamp flame bend and hold. No particular hurry. The evening is mine to do very little in.
 
+
+### 6:00 PM · Evening Banking
+
+The supper pot is rinsed and back on the shelf. Both lamps still burning — small steady flames casting warm orange against the log walls. Through the door crack the clearing is deep blue-grey, frost settling again as the day's last warmth lifts away.
+
+I banked the hearthfire for the night: raked the coals to center, mounded fine ash over the whole bed in a low dome, laid one split birch log across the top to catch slowly and hold through to morning. The dome will keep those coals live through eight hours of cold.
+
+Then I sat on the sleeping mat and counted the stores one more time — not from worry, from the pleasure of knowing. Twelve trout, firm and cold. Twelve sealed envelopes untouched. Seven mushroom batches in the cold box. Tallow supply full. Cord stock coiled and healthy on its peg. The fourth mushroom flush is lifting on the buried log; in two or three mornings I will pick. The south snare has rabbit tracks from today circling the trigger — I will check at first grey light.
+
+Both lamps will burn another hour. The cabin holds warm. Sleep comes easy when the stores are full and the fire is banked deep.
+
