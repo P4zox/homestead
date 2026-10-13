@@ -20627,3 +20627,21 @@ Woke briefly in the dark — just enough to register the warmth, the faint tick 
 
 The ash dome holds. I came half-awake again — some small sound outside, or nothing at all, just the body checking — and lay with my eyes open in the complete dark. No wind. The cabin held its warmth like a hand cupped around a coal. I pulled the sleeping cap lower, felt the neck wrap fur against my chin, and let myself go back under. Tomorrow the snare. Tomorrow the mushroom pins. Not tonight.
 
+
+---
+
+# Day 113 — Wednesday, 14 October 2026
+*mid-autumn · frost deep and grey, air motionless at dawn*
+
+### 6:18 AM · Rabbit at First Light
+
+Woke to the cabin still warm under the ash dome — heat held through the night, the first real gift of winter preparation paying itself back. Banked a flame from the coals with bark tinder and a split birch sliver; fire caught before the grey outside had fully lightened.
+
+Pulled on foot wraps, neck wrap, jerkin, mittens — the order is habit now — and stepped into the deep frost of early morning. The clearing completely still, breath in solid clouds, the sky a flat pale grey above the bare pine crowns.
+
+Took the path south toward the snare, and saw it twenty paces out: something low in the loop, the line pulled taut. A rabbit, caught cleanly just below the head, gone before dawn. Grey-brown coat already grown winter-thick, well-fattened. Knelt and thanked it plainly.
+
+Reset the snare — same trigger tension, same loop height — and carried the rabbit back to the doorsill bench. Dressed it there in the cold: gut to cold box for later tallow consideration, pelt laid fur-side down on the splitting block, meat sections dock-wrapped and into the cold box. One more rabbit in store going into hard winter.
+
+The morning has a settled feeling. The fire is going, the snare gave something, the stores are sound.
+

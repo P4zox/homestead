@@ -1993,3 +1993,4 @@ Day 112 (2026-10-13, Tue) 19:00 — Lamplight, Small Work: two more cord lengths
 Day 112, 21:20 — tipped west lamp out for night; both lamps cold; cabin dark under ash dome; settled to sleep on sleeping mat.
 Day 112, 2026-10-13, 22:19 — Woke briefly in night; banked coals holding warmth; all still and cold outside; drifted back to sleep.
 2026-10-13 23:20 — Day 112 — Still Dark — second waking in night quiet; ash dome held; cabin completely dark; drifted back under
+Day 113, 2026-10-14, 06:18 — Dawn snare check; south snare held a rabbit (grey-brown winter coat, well-fattened); dressed at doorsill, dock-wrapped cold box; snare reset; new day begun.
