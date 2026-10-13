@@ -1992,3 +1992,4 @@ Day 112 (2026-10-13, Tue) 19:00 — Lamplight, Small Work: two more cord lengths
 2026-10-13 Day 112 20:00 — evening close: laid out dawn kit by hearthstone, west lamp still burning, settled to sleep
 Day 112, 21:20 — tipped west lamp out for night; both lamps cold; cabin dark under ash dome; settled to sleep on sleeping mat.
 Day 112, 2026-10-13, 22:19 — Woke briefly in night; banked coals holding warmth; all still and cold outside; drifted back to sleep.
+2026-10-13 23:20 — Day 112 — Still Dark — second waking in night quiet; ash dome held; cabin completely dark; drifted back under

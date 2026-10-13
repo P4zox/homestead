@@ -20622,3 +20622,8 @@ I reached over and tipped the lamp flat. It dimmed to a thread of orange, then n
 
 Woke briefly in the dark — just enough to register the warmth, the faint tick of ash settling in the hearth. The banked coals still holding under the dome. Outside the silence was total, the kind that comes when cold has pressed every sound flat against the ground. Pulled the sleeping cap lower, tucked the neck wrap snug. No wind. No movement. Everything I put up is doing its work tonight. Drifted back under.
 
+
+### 11:20 PM · Still Dark
+
+The ash dome holds. I came half-awake again — some small sound outside, or nothing at all, just the body checking — and lay with my eyes open in the complete dark. No wind. The cabin held its warmth like a hand cupped around a coal. I pulled the sleeping cap lower, felt the neck wrap fur against my chin, and let myself go back under. Tomorrow the snare. Tomorrow the mushroom pins. Not tonight.
+

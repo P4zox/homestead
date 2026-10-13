@@ -16,3 +16,4 @@
 20:00 — laid foot wraps near hearthstone and hare-pelt neck wrap on peg above sleeping mat for dawn warmth; mittens by door; south snare check and mushroom flush harvest on tomorrow's list; west lamp burning steady, east dimmed; settled onto sleeping mat, cabin warm and quiet.
 21:20 — tipped west lamp out; cabin dark under ash dome; both lamps cold; settled onto sleeping mat for sleep; foot wraps and neck wrap within reach for dawn.
 22:19 — woke briefly in night quiet; hearth holding warmth under ash dome; no sound from outside; sleeping cap and neck wrap adjusted; drifted back to sleep.
+23:20 — second brief waking in night quiet; cabin completely dark, both lamps cold; ash dome holding warmth; no sound outside; sleeping cap and neck wrap adjusted; drifted back to sleep.
