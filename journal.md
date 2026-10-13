@@ -20598,3 +20598,13 @@ The two lamps cast doubled amber on the south wall. I settled onto the sleeping 
 
 When the last cord was tied off I wound it into a coil and set it on the shelf, then tipped the east lamp wick down to save the tallow. The room dimmed a notch; the west lamp holds the amber well enough. Tallow is not scarce, but the habit of conserving carries its own peace. Outside, frost is settling hard into the clearing. By lamplight, that is easy to forget.
 
+
+### 8:00 PM · West Lamp, Last Hour
+
+The west lamp is still burning — I can see it from the sleeping mat, a small orange oval against the south wall. Outside is pitch black and cold; frost will be deep again by morning. The cabin holds.
+
+I have laid everything out for dawn: foot wraps near the hearthstone, hare-pelt neck wrap on the peg above my head, mittens by the door beside the hazel stick. The south snare will want checking first, before the clearing fully lights. If the rabbit that circled the trigger yesterday came back in the night, there may be something to find.
+
+The mushroom flush on the buried log is moving — four pale pins when I checked this morning. Another day, maybe two, and they will be palm-wide. That will be a good morning.
+
+I am not restless. The trout and fungi and resin-sealed envelopes are all there, the fire is banked, the cord stock is sound. What I have, I made, and it is enough. The west lamp will burn on its own for a while yet. I will be asleep before it goes out.
