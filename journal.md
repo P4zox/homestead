@@ -20489,3 +20489,16 @@ The broth came up slowly in the quiet. No wind outside. Just the small voice of 
 
 There is a kind of completion to this morning. The lamps burn, the store is full, the cabin holds its warmth. I ate slowly and rinsed the pot after.
 
+
+### 9:19 AM · Pulling the Line
+
+The bend pool was silent under a skin of ice. I stood at the bank in foot wraps and leather jerkin, hare pelt neck wrap pulled snug at my throat, watching a thin sheet of grey ice stretch from the shaded north bank almost to the fast water — a hand's width of open current was all that remained. The riffle below was quieter still: ice feathering in from both banks, the tongue narrowed to a finger-width seam. Maybe two cold nights and even that closes.
+
+I pulled the bend-pool rig. The line came up clean — no bait remaining, nothing had touched it through the night's hard frost. I coiled it hand-over-hand, checked the notch in the hook-twig, found it sound and true. Then I opened the bark bait box: nine stonefly nymphs in their damp moss, legs still moving when I tilted it. I tipped them back at the riffle edge and let them find their way into the gravel. They'll overwinter in the streambed as they would have done anyway; no sense keeping them through a winter I don't need them for.
+
+Standing at the bank with the coiled line in my hand, I felt the season close. Not with grief — it had been a good autumn at the water. Fourteen trout in the cold box, more than enough to see me deep into winter alongside everything else on the supply shelf. The stream will keep running under its ice, slow and dark, and come spring the fish will be there again.
+
+I walked back along the bank slowly. Alder catkins hardened to tight brown cylinders. Frost still heavy in the low places. The clearing very still, very itself. Stored the fishing line on its supply peg, coiled clean, ready for March.
+
+Winter begins in earnest now.
+

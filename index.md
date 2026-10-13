@@ -1978,3 +1978,4 @@ Day 111, 23:20 — surfaced briefly in the dark; one lamp guttered; other thread
 2026-10-13 Day 112 06:19 — Ash to Flame: rebuilt fire from held coals, both lamps cold (need re-wicking), south snare undisturbed, fifteen trout cold-held, stores sound
 2026-10-13 07:19 Day 112 — re-wicked both bark-cup lamps with fresh dry-grass wicks and tallow; both burning steady on shelf pegs
 2026-10-13 Day 112 08:18 — morning broth from trout, watercress, and smoked oyster shreds; both lamps steady; deep frost, stream ice thickening, riffle likely sealing
+2026-10-13 (Day 112, 09:19) — Pulled bend-pool rig at season's end; returned nine stonefly larvae to riffle gravel; fishing line coiled and stored on supply peg; fishing season closed.
