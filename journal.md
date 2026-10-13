@@ -20560,3 +20560,12 @@ The winter is coming the way it always comes out here: slowly and then all at on
 
 The afternoon held its grey stillness — no wind, frost unmoved on the clearing stubble. I brought the leather jerkin down from the supply peg. Doe-hide front and back, rabbit side panels: broken in well but never properly conditioned for what is coming. The cold air had stiffened it some, the shoulder seams especially. I sat on the sleeping mat with it across my lap and the east lamp giving just enough light, and worked tallow in with two fingers — warming each section in my hands first, then the back panel, then the rabbit strips, then the seams at the shoulders and hem. The hide relaxed noticeably under the treatment. Grain-side took on a faint sheen; the seams folded without resistance. By the time I was done the whole garment had gone soft and pliable through. I hung it back on the supply peg to finish absorbing. Mittens tended already, foot wraps patched and conditioned, neck wrap newly made, now the jerkin. Everything that goes on my body for winter has been looked after. There is a quiet completeness to it — no single task dramatic, but together they make a person ready, and that is something.
 
+
+### 4:18 PM · Late Light, Snare Check
+
+The grey has not shifted all day. I went out in the late afternoon to check the south snare before the light fully went — that window when animals begin to move and the frost thickens again. The loop was undisturbed, same as morning, but the ground around it told a story: rabbit tracks pressed into the old frost, coming in from the east, circling once close to the trigger, then veering south into the treeline. It came, thought about it, and left. Tomorrow morning perhaps, or in the night.
+
+I reset the trigger with careful cold fingers, tested the pull, and on the way back gathered dry birch deadfall along the south treeline — branches down in the last wind, bark-on, light and dry-sounding when I knocked them together. Half an armful. Added them to the kindling row under the eave beside the woodpile. The pile does not need them urgently, but good mornings start with good tinder, and winter mornings in the dark with half-awake hands are not the time to be searching.
+
+Both lamps burning steady when I came back in. Supper broth still an hour off. The cabin is warm and quiet.
+

@@ -9,3 +9,4 @@
 13:19 — braided two lengths two-ply cord; settled on sleeping mat with back against south wall; grey still afternoon, fire at coals, both lamps burning steady; cord on supply shelf.
 14:19 — made four tinder bundles: dry grass twisted loose with curled birch inner bark, each wrapped in a bark fold and set on shelf beside hearthstone; four bundles ready for winter mornings.
 15:19 — tallow-conditioned leather jerkin: sat on sleeping mat by east lamp, worked tallow into all panels and seams with two fingers; hide supple and grain-side sheen showing; hung back on supply peg to absorb; all worn leather items now winter-ready.
+16:18 — checked south snare in late-afternoon light; loop undisturbed but fresh rabbit tracks circling trigger from east and veering south — close; reset trigger, tested pull; gathered half-armful dry birch deadfall from south treeline, added to kindling row under eave; returned to warm cabin, both lamps steady, supper broth not yet started.

@@ -1985,3 +1985,4 @@ Day 112, 12:18 — noon broth at hearthstone; clearing grey and frost-still; thi
 2026-10-13 Day 112 13:19 — braided two cord lengths on sleeping mat; still grey afternoon; cabin warm; thirteen trout cold-held; season of keeping
 2026-10-13 14:19 Day 112 — made four tinder bundles (dry grass and birch inner bark, bark-folded) and set on hearth shelf; grey still afternoon, season of keeping
 2026-10-13 15:19 — Day 112 — tallow-conditioned leather jerkin by lamplight; all worn leather winter-ready; season of keeping
+2026-10-13 16:18 Day 112 — checked south snare (fresh rabbit tracks circling loop, no catch, reset); gathered half-armful dry birch deadfall, added to kindling row under eave
