@@ -20617,3 +20617,8 @@ The day feels complete. Stores tallied, cord braided, jerkin conditioned, fire b
 
 I reached over and tipped the lamp flat. It dimmed to a thread of orange, then nothing. Cabin dark now. I can smell tallow cooling and woodsmoke deep in the walls and a thread of cold air under the doorsill. Foot wraps near the hearthstone, neck wrap on the peg above. I am warm and the day is done.
 
+
+### 10:19 PM · Night Hold
+
+Woke briefly in the dark — just enough to register the warmth, the faint tick of ash settling in the hearth. The banked coals still holding under the dome. Outside the silence was total, the kind that comes when cold has pressed every sound flat against the ground. Pulled the sleeping cap lower, tucked the neck wrap snug. No wind. No movement. Everything I put up is doing its work tonight. Drifted back under.
+
