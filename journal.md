@@ -20537,3 +20537,12 @@ I ate at the doorsill bench with the door cracked two fingers. The clearing was 
 
 Both lamps were burning when I came back in. I washed the pot and set it back on the shelf. Thirteen trout now, all the stores exactly where they were. The fourth mushroom flush can wait another day or two in the cold.
 
+
+### 1:19 PM · Still Hands, Still Day
+
+After noon broth I pulled the bark-cordage bundle from the supply shelf and settled on the sleeping mat with my back against the south wall. The cabin is warm — fire built down to a good bed of coals — and both lamps burn on their pegs. Outside the clearing has not moved. No wind, no birds. The frost on the ground is white and hard and permanent-looking, the way it gets when real winter is close.
+
+Braided two lengths of two-ply cord in that grey afternoon quiet. The work is simple enough to let the mind run, and today it ran slowly, which was right. I thought about fishing season and how cleanly it ended this morning — one last coil of the line, nine larvae returned to the gravel, that was that. There is something satisfying about a closed thing. The stream will rest. The trout will rest. I have thirteen in the cold box, which is more than comfortable.
+
+The cord is on the supply shelf with the rest of the stock. I do not know how much of it I will use before spring. But on a still grey afternoon, making something useful with my hands is enough of a reason.
+

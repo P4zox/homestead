@@ -6,3 +6,4 @@
 10:19 — opened both cold boxes and supply shelf; counted all winter stores: fourteen trout dock-wrapped and firm, twelve sealed envelopes sound, seven oyster mushroom batches, all fungi and paste envelopes accounted; season of gathering closed, stores confirmed.
 11:00 — walked east seep to check buried log; found four pale mushroom pins lifting under frost crust on buried log; left to grow; fourth flush underway; returned to cabin.
 12:18 — cooked noon broth: one trout from cold box, watercress stems; simmered at hearthstone; ate at doorsill bench with door cracked two fingers; clearing frost-still and grey; both lamps burning; pot rinsed and returned to shelf.
+13:19 — braided two lengths two-ply cord; settled on sleeping mat with back against south wall; grey still afternoon, fire at coals, both lamps burning steady; cord on supply shelf.
