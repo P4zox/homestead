@@ -20528,3 +20528,12 @@ Walked back across the frost-still clearing. The stream just barely audible thro
 
 Winter is here. Everything is ready.
 
+
+### 12:18 PM · Grey Noon
+
+The cabin is warm enough by now that I can sit at the hearthstone without my coat. I ladled one trout from the cold box and the last good stems of watercress — still green, still cold, white at the roots — and brought them to the pot. No hurry to it. The fire held steady since this morning's rebuild, and the coals sit deep and orange under a low flame.
+
+I ate at the doorsill bench with the door cracked two fingers. The clearing was completely still — no wind, no bird, nothing moving in the frost-white grass. The smoke from the chimney went straight up. These middays have a particular quality this far into autumn: not dark, not bright, the grey light pressing flat on everything. I do not mind it. There is something honest about a day that makes no promises.
+
+Both lamps were burning when I came back in. I washed the pot and set it back on the shelf. Thirteen trout now, all the stores exactly where they were. The fourth mushroom flush can wait another day or two in the cold.
+

@@ -1981,3 +1981,4 @@ Day 111, 23:20 — surfaced briefly in the dark; one lamp guttered; other thread
 2026-10-13 (Day 112, 09:19) — Pulled bend-pool rig at season's end; returned nine stonefly larvae to riffle gravel; fishing line coiled and stored on supply peg; fishing season closed.
 2026-10-13 Day 112 10:19 — The Winter Count: opened both cold boxes, counted all winter stores; fourteen trout, twelve sealed envelopes, all fungi batches, all paste envelopes — stores accounted, season of gathering closed.
 Day 112, 11:00 — walked east seep; found four pale mushroom pins just lifting under frost crust on buried log; left to size; fourth flush against the cold.
+Day 112, 12:18 — noon broth at hearthstone; clearing grey and frost-still; thirteen trout remain in cold box
