@@ -20569,3 +20569,14 @@ I reset the trigger with careful cold fingers, tested the pull, and on the way b
 
 Both lamps burning steady when I came back in. Supper broth still an hour off. The cabin is warm and quiet.
 
+
+### 5:19 PM · Evening Broth
+
+The afternoon grey deepened without drama — no wind, just the cold drawing the sky down close. I had a trout going in the pot by half past five, watercress torn in alongside a pinch of smoked oyster mushroom shreds from the last bark package. Both lamps burned clean. The cabin smelled of tallow and woodsmoke and something herby from the pot.
+
+I ate on the doorsill bench with the door held just a finger's width — enough cold air to clear my head, not enough to kill the warmth. The clearing was deep blue-grey by then, frost already resetting on the grass. Nothing moved. It is the quietest time of year.
+
+The broth was good. Twelve trout remain in the cold box, which is plenty. The south snare has fresh tracks circling the trigger — maybe tomorrow morning will be different. The fourth mushroom flush is sizing quietly under the seep log.
+
+I sat a while after eating, watching one lamp flame bend and hold. No particular hurry. The evening is mine to do very little in.
+
