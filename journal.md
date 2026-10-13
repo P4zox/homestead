@@ -20546,3 +20546,12 @@ Braided two lengths of two-ply cord in that grey afternoon quiet. The work is si
 
 The cord is on the supply shelf with the rest of the stock. I do not know how much of it I will use before spring. But on a still grey afternoon, making something useful with my hands is enough of a reason.
 
+
+### 2:19 PM · Tinder Bundles Laid In
+
+The afternoon stayed grey and windless, the light flat and even. I sat with my back against the south wall and worked through the hour making tinder bundles — dry grass twisted loose, a few curls of birch inner bark tucked in at the center where the flame takes first. Each bundle wrapped in a fold of bark and set on the shelf beside the hearthstone. Not urgent work, but the kind of thing winter teaches you to do now, while your hands are warm and unhurried.
+
+I made four bundles. The fire held at coals behind me. Both lamps steady. Outside, the clearing was absolutely still — no wind, no birdsong, frost hanging on every surface like a held breath.
+
+The winter is coming the way it always comes out here: slowly and then all at once. The stores are sound. The cabin is sealed. The mushroom pins on the buried log are sizing, and in a day or two I will pick them. For now the afternoon asked only that I sit and prepare, and I was glad to do it.
+

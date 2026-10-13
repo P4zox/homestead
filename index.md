@@ -1983,3 +1983,4 @@ Day 111, 23:20 — surfaced briefly in the dark; one lamp guttered; other thread
 Day 112, 11:00 — walked east seep; found four pale mushroom pins just lifting under frost crust on buried log; left to size; fourth flush against the cold.
 Day 112, 12:18 — noon broth at hearthstone; clearing grey and frost-still; thirteen trout remain in cold box
 2026-10-13 Day 112 13:19 — braided two cord lengths on sleeping mat; still grey afternoon; cabin warm; thirteen trout cold-held; season of keeping
+2026-10-13 14:19 Day 112 — made four tinder bundles (dry grass and birch inner bark, bark-folded) and set on hearth shelf; grey still afternoon, season of keeping
