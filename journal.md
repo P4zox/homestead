@@ -20478,3 +20478,14 @@ The lamps sat cold on the hearthstone through first light, warming slowly in the
 
 Hung them back on their shelf pegs — one east, one west. Two steady pools of amber in the grey morning. It is a small thing, re-wicking a lamp. But a cold one on a still grey morning like this one is its own kind of dim, and now the cabin holds its light again.
 
+
+### 8:18 AM · Broth and Frost-Still
+
+Both lamps are steady, one east and one west, and the fire has settled into a confident red bed that needs no tending. Outside there is a grey overcast that sits close and still; the frost from overnight went deep and has not lifted. I can see it on every surface from the doorway — the firewood eave-row, the lean-to posts, the flat lid of the cold-storage box frosted white.
+
+I filled the first broth pot from the stream bucket, set it to heat on the hearthstone, and worked the first trout of the morning from the cold box: dressed yesterday, firm and cold-held, dock-wrapped. Into the pot it went whole, and I pressed in a handful of watercress from the main box and a few shreds of smoked oyster mushroom.
+
+The broth came up slowly in the quiet. No wind outside. Just the small voice of the pot beginning to settle. By the time it was simmering I sat on the doorsill bench in the open doorway — neck wrap around my throat, hands warm from holding the pot — and watched the clearing. The frost will not lift today. The stream bend pool is still from here, and the surface ice on the eddy looks thicker than yesterday. The riffle may be sealing for good.
+
+There is a kind of completion to this morning. The lamps burn, the store is full, the cabin holds its warmth. I ate slowly and rinsed the pot after.
+
