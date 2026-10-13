@@ -20502,3 +20502,14 @@ I walked back along the bank slowly. Alder catkins hardened to tight brown cylin
 
 Winter begins in earnest now.
 
+
+### 10:19 AM · The Winter Count
+
+The morning settled into a particular quiet after I came back from the stream. Fishing closed and that was that — the bend pool still, ice feathering toward the fast water. I hung the coiled line on its peg and stood a moment in the doorway. The clearing was grey and frost-white and absolutely still.
+
+Then I did what you do when one season of gathering ends and the long keeping begins: I counted.
+
+Both cold boxes opened, each bundle lifted and set back carefully. Fourteen trout in the main box, dock-wrapped and firm — the whole of the bend-pool season written in that cold weight. Three smoked rabbits, two raw, and the jointed hare still mostly whole. Seven batches of smoked oyster mushrooms in the east seep cache, alongside hen-of-the-woods, honey mushroom caps, wood ears, fan-cap clusters. Twelve sealed winter envelopes on the supply shelf, each one pressed shut, resin-lipped, none of them giving. Rose hip paste, hawthorn haws, elderberry reduction, hazelnut paste, crab apple, acorn flatcakes, cattail starch cakes, more acorn flour.
+
+I do not know exactly how long this winter runs. I know it will be cold and I know the stream is closing and I know the snares will keep doing their quiet work. But running my hands over each package — smelling the smoke, pressing the resin seals — something settled in my chest. The season of gathering is done. It is in the boxes now. What I have, I have. The rest is tending and waiting and keeping the fire.
+
