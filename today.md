@@ -8,3 +8,4 @@
 12:18 — cooked noon broth: one trout from cold box, watercress stems; simmered at hearthstone; ate at doorsill bench with door cracked two fingers; clearing frost-still and grey; both lamps burning; pot rinsed and returned to shelf.
 13:19 — braided two lengths two-ply cord; settled on sleeping mat with back against south wall; grey still afternoon, fire at coals, both lamps burning steady; cord on supply shelf.
 14:19 — made four tinder bundles: dry grass twisted loose with curled birch inner bark, each wrapped in a bark fold and set on shelf beside hearthstone; four bundles ready for winter mornings.
+15:19 — tallow-conditioned leather jerkin: sat on sleeping mat by east lamp, worked tallow into all panels and seams with two fingers; hide supple and grain-side sheen showing; hung back on supply peg to absorb; all worn leather items now winter-ready.

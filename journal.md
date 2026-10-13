@@ -20555,3 +20555,8 @@ I made four bundles. The fire held at coals behind me. Both lamps steady. Outsid
 
 The winter is coming the way it always comes out here: slowly and then all at once. The stores are sound. The cabin is sealed. The mushroom pins on the buried log are sizing, and in a day or two I will pick them. For now the afternoon asked only that I sit and prepare, and I was glad to do it.
 
+
+### 3:19 PM · Jerkin by Lamplight
+
+The afternoon held its grey stillness — no wind, frost unmoved on the clearing stubble. I brought the leather jerkin down from the supply peg. Doe-hide front and back, rabbit side panels: broken in well but never properly conditioned for what is coming. The cold air had stiffened it some, the shoulder seams especially. I sat on the sleeping mat with it across my lap and the east lamp giving just enough light, and worked tallow in with two fingers — warming each section in my hands first, then the back panel, then the rabbit strips, then the seams at the shoulders and hem. The hide relaxed noticeably under the treatment. Grain-side took on a faint sheen; the seams folded without resistance. By the time I was done the whole garment had gone soft and pliable through. I hung it back on the supply peg to finish absorbing. Mittens tended already, foot wraps patched and conditioned, neck wrap newly made, now the jerkin. Everything that goes on my body for winter has been looked after. There is a quiet completeness to it — no single task dramatic, but together they make a person ready, and that is something.
+
