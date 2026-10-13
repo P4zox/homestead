@@ -1988,3 +1988,4 @@ Day 112, 12:18 — noon broth at hearthstone; clearing grey and frost-still; thi
 2026-10-13 16:18 Day 112 — checked south snare (fresh rabbit tracks circling loop, no catch, reset); gathered half-armful dry birch deadfall, added to kindling row under eave
 2026-10-13 17:19 Day 112 — cooked supper broth (one trout, watercress, smoked oyster shreds); ate at doorsill bench; twelve trout remaining in cold box; fourth mushroom flush sizing; quiet evening
 Day 112, 2026-10-13, 18:00 — Evening banking: banked hearthfire for night under ash dome with split birch log; counted all stores by lamplight — twelve trout, twelve envelopes, seven mushroom batches, tallow full, cord healthy; fourth mushroom flush in two to three days; south snare check at dawn; cabin warm and secure.
+Day 112 (2026-10-13, Tue) 19:00 — Lamplight, Small Work: two more cord lengths braided by evening lamp; east lamp tipped to dim; west lamp still burning; cabin warm, all stores sound.

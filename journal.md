@@ -20591,3 +20591,10 @@ Then I sat on the sleeping mat and counted the stores one more time — not from
 
 Both lamps will burn another hour. The cabin holds warm. Sleep comes easy when the stores are full and the fire is banked deep.
 
+
+### 7:00 PM · Lamplight, Small Work
+
+The two lamps cast doubled amber on the south wall. I settled onto the sleeping mat with my back against the east log and braided two more lengths of cord — the motions slow and nearly unconscious now, strands crossing under lamplight until each length was done. The cabin holds; the banked fire whispers from under its ash dome. Twelve trout in the cold box, twelve envelopes sealed, cord stock sound. This is what the threshold of winter looks like — not abundance, but sufficiency, and I have it.
+
+When the last cord was tied off I wound it into a coil and set it on the shelf, then tipped the east lamp wick down to save the tallow. The room dimmed a notch; the west lamp holds the amber well enough. Tallow is not scarce, but the habit of conserving carries its own peace. Outside, frost is settling hard into the clearing. By lamplight, that is easy to forget.
+
