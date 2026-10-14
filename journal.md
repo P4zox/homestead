@@ -20760,3 +20760,12 @@ I keep circling back to the mushroom pins at the buried log. Four days into the 
 
 For now this is enough: the lamps, the cord growing in a coil beside me, the fire steady. A full day behind me and a warm place to close it. Winter is arriving week by week. Tonight it can wait outside.
 
+
+### 7:19 PM · Flatcake by Lamplight
+
+Both lamps steady on the hearthstone, wicks burning without flutter in the still cabin air. I reached for one acorn flatcake from the shelf and spread a thin layer of hazelnut paste across it — the paste thick and fragrant, oil still in it after weeks of storage, almost amber-colored in the lamplight. Ate slowly, sitting cross-legged on the floor mat with my back to the south wall, watching the fire work its way down through the pine splits to low coals.
+
+Outside is full dark and the cold that has been pressing in for weeks now. In here: warmth, sealed walls, lamplight on bark and clay. The mushroom flush will be ready tomorrow or the day after, I can feel the season narrowing the window. The cord stock is deep, food laid in as carefully as I could manage before the stream iced over. Tonight asks nothing of me but to eat well and rest before sleep.
+
+Finished the flatcake and wiped the wooden bowl clean with a fingertip. Both lamps still burning steady. I will bank the fire deeper before the second one goes out, then sleep in the warm dark.
+

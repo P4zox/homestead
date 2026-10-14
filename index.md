@@ -2006,3 +2006,4 @@ Day 113, 15:19 — stood at supply shelf and counted the winter store; enough fo
 Day 113, 16:19 — Evening broth: one trout, smoked oyster shreds, watercress; ate at doorsill as clearing went dim; fire banked with two splits and ash dome; lamp to light at full dark.
 Day 113, 17:18 — Lit both lamps at dusk; sat by fire with cord in hand as cabin sealed against the dark.
 2026-10-14 Day 113 18:18 — cord-work by both lamps; two more lengths braided; fire steady; full dark, cold outside; mushroom fourth flush one to two more days from harvest
+2026-10-14 19:19 Day 113 — Flatcake by Lamplight — evening meal of acorn flatcake with hazelnut paste by lamplight, fire banking toward sleep
