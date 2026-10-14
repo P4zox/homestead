@@ -20669,3 +20669,7 @@ The garden plots looked silent and right under their leaf mulch — the nettles 
 
 Back inside, the fire rekindled to steady coals. The cache is sound. The mushrooms will come when they come.
 
+
+### 9:19 AM · Tallow by Firelight
+
+The morning catch left its fat in the cold box, waiting. Mid-morning now, the cabin warm, the fire steady at good coals — I drew out the gut and cavity fat from today's rabbit and began to render it. Trimmed the membrane away on a flat bark sheet, dropped the white pieces into the clay pot with a pour of stream water to start the melt slow. The grey overcast presses down outside; inside it is close and warm. The fat went translucent quickly, then started to clear, the water bubbling away gradually as the tallow settled amber and still at the bottom. I skimmed the browned scraps off with the spoon and let it go another few minutes until the fat ran clear and fragrant. Poured it off through folded bark into the reserve envelope — nearly a half-cup of clean tallow added to the supply, resealed with a pine pin and resin flap. The lamps will burn longer for it. A quiet, useful hour.
