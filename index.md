@@ -2001,3 +2001,4 @@ Day 113, 2026-10-14, 10:18 — Mid-morning walk to south treeline; two dry birch
 2026-10-14 11:19 Day 113 — Noon broth from cold-held trout and watercress; ate at doorsill bench watching frost-held clearing; still and grey; mushroom pins still sizing.
 Day 113, 2026-10-14, 12:18 — Afternoon cord braiding by fireside; cabin quiet after morning work; mushroom pins to check before dusk.
 Day 113, 13:19 — checked buried log mushroom flush in still grey afternoon; pins growing, caps lifting and straw-gold at margins; another day to size
+Day 113, 14:19 — sharpened knife on gneiss grinding stone by hearthside; blade pulls a clean shaving from birch bark; tallow-wiped and resheathed; winter tools ready.

@@ -20708,3 +20708,10 @@ I replaced the bark flap carefully, pressing the edges flat against the log. The
 
 Walked back to the cabin slowly, looking at the clearing. Woodpile sound. Garden under mulch. Smoke still going straight up. A good afternoon to be patient.
 
+
+### 2:19 PM · Sharpening by Firelight
+
+The afternoon is still and grey, the kind of cold that settles rather than bites — you barely feel it if you stay inside and keep the fire fed. I sat cross-legged at the hearthstone and brought out the flat gneiss grinding stone. The knife has served well this season — trout dressed at the stream bank, pelts scored, hare dressed at the doorsill — but I could feel it dragging slightly when I pulled it across the back of my thumbnail, that small blunting that comes from months of steady work. I wet the stone with stream water, found the bevel angle by feel, and worked through it slowly. Scrape of steel on stone — a clean, patient sound.
+
+A few strokes on each side, checking the edge in the flat grey window light between passes. By the time the fire had burned another quarter through the birch log, the blade was shaving thin curls from a strip of birch bark without tearing. Good enough. I wiped the blade dry, drew a thin smear of tallow along the flat, wiped it clean, and slid the knife back into the sheath. The mushroom pins are still a day or so from harvest. The oyster flush will come when it comes. This afternoon was for the tools that keep everything else possible — the ones you want sharp before winter asks anything of them.
+

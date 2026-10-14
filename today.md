@@ -7,3 +7,4 @@
 11:19 — prepared noon broth from one cold-held trout and watercress; sat at doorsill bench with door cracked to watch the clearing; frost and still grey overcast; mushroom pins still folded at edge — check before dusk.
 12:18 — sat by fire after noon broth; braided two more lengths two-ply cord from birch inner bark by firelight; cabin warm and still; mushroom pins to check before dusk.
 13:19 — walked to buried log to check fourth-flush oyster pins; caps lifting and softening, pale ivory going straw-gold at margins — not yet harvest size; one to two more days; patient return to warm cabin.
+14:19 — sharpened knife on flat gneiss grinding stone at hearthside; wet stone, found bevel angle by feel, worked until blade pulls a clean shaving from birch bark without tearing; tallow-wiped blade, resheathed — tools ready for winter.
