@@ -20749,3 +20749,14 @@ I set the lamps on the hearthstone where the warmth won't gutter them and sat do
 
 The cabin is sealed and still. I can hear almost nothing from outside — no wind, no animal. The cold presses at the walls and finds nothing. Tallow reserve replenished this morning, firewood eave-high, cold box heavy with trout and rabbit and smoked mushroom. The oyster pins will be ready in a day or two. There is nothing urgent tonight except to be warm and quiet, and I am both.
 
+
+### 6:18 PM · By Both Lamps
+
+Full dark came while I was still settling the lamps. The east one burns a little brighter tonight; I think the wick found a better seat in the tallow. Both are steady on the hearthstone now, and I have been braiding by their light — two-ply cord, the twist coming easy from weeks of the same motion. My hands know what to do without much asking.
+
+The fire breathes quietly behind me. I have pine splits enough to keep it through midnight and beyond. No wind outside that I can hear; the bark roof is silent, the gable wattles hold. If it is clear, the cold will be deep by morning. If still overcast, a little less so. Either way the cabin will be warm when I wake.
+
+I keep circling back to the mushroom pins at the buried log. Four days into the fourth flush — not quite ready at dusk check, but close. Pale ivory going straw-gold at the margins. Tomorrow morning, or the morning after, I think they will be there. I want that harvest smoked and in the east seep cache before the cold locks the wood down for good.
+
+For now this is enough: the lamps, the cord growing in a coil beside me, the fire steady. A full day behind me and a warm place to close it. Winter is arriving week by week. Tonight it can wait outside.
+
