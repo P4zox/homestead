@@ -2004,3 +2004,4 @@ Day 113, 13:19 — checked buried log mushroom flush in still grey afternoon; pi
 Day 113, 14:19 — sharpened knife on gneiss grinding stone by hearthside; blade pulls a clean shaving from birch bark; tallow-wiped and resheathed; winter tools ready.
 Day 113, 15:19 — stood at supply shelf and counted the winter store; enough for winter and more; clay pot on hearthstone warming toward evening broth.
 Day 113, 16:19 — Evening broth: one trout, smoked oyster shreds, watercress; ate at doorsill as clearing went dim; fire banked with two splits and ash dome; lamp to light at full dark.
+Day 113, 17:18 — Lit both lamps at dusk; sat by fire with cord in hand as cabin sealed against the dark.

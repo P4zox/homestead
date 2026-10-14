@@ -20740,3 +20740,12 @@ The cabin filled with that particular smell: smoke and fish and mushroom all tog
 I ate at the doorsill bench with the door cracked a hand's width. The clearing was going dim at the edges, the pines absorbed into grey-blue. No wind. The broth was good — not a feast, just steady, the kind of meal that earns a good night's sleep.
 
 Afterwards I banked the fire with two pine splits and set the ash dome over the coals. First lamp when full dark comes. There is firewood. There is food. What I am doing now, in these last weeks before the hardest cold arrives, is keeping.
+
+### 5:18 PM · Lamp Against Dusk
+
+Full dark comes fast now. An hour ago I was still watching the clearing go dim through the cracked door; now the light outside is iron-grey and dropping, the pines only a darker band against the sky. I lifted the east lamp from its supply peg, tipped a little tallow from the envelope to top the cup, and touched the wick with a coal from the ash dome. It caught small, steadied, then rose to a warm orange tongue that filled the corner. Second lamp next: same careful tipping, same steady catch. Two flames now, and the cabin holds the light close inside its log walls.
+
+I set the lamps on the hearthstone where the warmth won't gutter them and sat down on the floor mat with a length of bark strip. Not working in earnest — just the habit of hands at dusk, pulling strand against strand while the fire rebuilds slowly under the pine splits. The ash dome is still thick over the coals; by morning it will have kept them alive all night without my attention. That trust, earned slowly over a hundred nights of tending the same fire, feels like one of the real competences I carry now.
+
+The cabin is sealed and still. I can hear almost nothing from outside — no wind, no animal. The cold presses at the walls and finds nothing. Tallow reserve replenished this morning, firewood eave-high, cold box heavy with trout and rabbit and smoked mushroom. The oyster pins will be ready in a day or two. There is nothing urgent tonight except to be warm and quiet, and I am both.
+
