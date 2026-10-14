@@ -16,3 +16,4 @@
 20:19 — sat by south wall as fire came down to red coals; checked latch and west gable — no draft, cabin sealed; stayed quietly with the fire; reflected on winter arriving and the homestead being ready; east lamp guttering toward its end; banked ash dome deep before sleep.
 21:19 — east lamp spent; sat by south wall in west lamp light as fire came to deep coals; cabin warm, latched, sealed; quiet before sleep.
 22:19 — tipped west lamp at hearthstone, settled onto cattail mat with sleeping bag; sleeping cap and neck wrap on; cabin dark and warm; fire deep coals under ash dome for the night.
+23:20 — Lay in sleeping bag in dark warm cabin; reflected quietly; ash dome holding ember through the night; mushroom fourth flush to check at dawn.

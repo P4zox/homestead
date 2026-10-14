@@ -2010,3 +2010,4 @@ Day 113, 17:18 — Lit both lamps at dusk; sat by fire with cord in hand as cabi
 2026-10-14 Day 113 20:19 — Embers Settling: fire banked to red coals, ash dome deep; latch and gable checked, no draft; sat quietly by fire; mushroom flush in a day or two; winter arriving, cabin holds.
 2026-10-14 21:19 Day 113 — east lamp spent; sat by south wall in west lamp light; cabin warm, sealed, fire coaled; quiet evening before sleep
 2026-10-14 22:19 Day 113 — tipped west lamp, settled to sleep on cattail mat; cabin dark and warm; mushroom fourth flush close by morning
+Day 113, 23:20 — Dark and Still: lay in sleeping bag in dark warm cabin, reflected on the day complete and winter arrived; ash dome holding its ember through the night.

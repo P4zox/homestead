@@ -20798,3 +20798,10 @@ I tip the west lamp now, touch the wick down, and the flame goes out. The only l
 
 The mushroom fourth flush will be close by morning. The cold box is full. The woodpile is sound. I settle onto the cattail mat, pull the sleeping bag up, and let the quiet do its work.
 
+
+### 11:20 PM · Dark and Still
+
+Lying in the sleeping bag with the cabin entirely dark, I can feel the warmth the fire holds — not heat exactly, but its lingering presence in the log walls and the ash dome doing its patient work. The sleeping cap is snug over my ears; the neck wrap holds close. Outside there is frost and dead-still cold, the kind that will only deepen before dawn. In here it is only dark and warm and quiet.
+
+Today had its weight: a rabbit caught cleanly, tallow rendered, cord braided by lamplight, the knife edge restored. The mushroom pins are inching toward harvest. Tomorrow morning I will check the flush and likely bring them in. But that is tomorrow, and tomorrow is far off. Right now there is only the smell of old woodsmoke in the log walls, the faint settling tick of the cabin finding its rest, and the ash dome holding its slow ember through the night. I am glad to be in here. I let the dark carry what remains of the day.
+
