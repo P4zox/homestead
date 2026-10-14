@@ -8,3 +8,4 @@
 12:18 — sat by fire after noon broth; braided two more lengths two-ply cord from birch inner bark by firelight; cabin warm and still; mushroom pins to check before dusk.
 13:19 — walked to buried log to check fourth-flush oyster pins; caps lifting and softening, pale ivory going straw-gold at margins — not yet harvest size; one to two more days; patient return to warm cabin.
 14:19 — sharpened knife on flat gneiss grinding stone at hearthside; wet stone, found bevel angle by feel, worked until blade pulls a clean shaving from birch bark without tearing; tallow-wiped blade, resheathed — tools ready for winter.
+15:19 — stood at supply shelf and took quiet stock of winter provisions: sealed bark packages, tallow reserve, preserved pastes, acorn flatcakes, dried herbs all confirmed; added three pine splits to fire and set clay pot with stream water on hearthstone toward evening broth.

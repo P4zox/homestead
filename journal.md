@@ -20715,3 +20715,18 @@ The afternoon is still and grey, the kind of cold that settles rather than bites
 
 A few strokes on each side, checking the edge in the flat grey window light between passes. By the time the fire had burned another quarter through the birch log, the blade was shaving thin curls from a strip of birch bark without tearing. Good enough. I wiped the blade dry, drew a thin smear of tallow along the flat, wiped it clean, and slid the knife back into the sheath. The mushroom pins are still a day or so from harvest. The oyster flush will come when it comes. This afternoon was for the tools that keep everything else possible — the ones you want sharp before winter asks anything of them.
 
+
+### 3:19 PM · Counting the Store
+
+The knife is sharp and put away. The afternoon has gone quiet.
+
+I stood at the supply shelf for a while and just looked at everything — the twelve sealed bark packages, the hawthorn and rose hip envelopes, the hazelnut paste and elderberry reduction and crab apple paste in their resin-folded wraps, three envelopes of acorn flour, ten flatcakes, two batches of cattail starch, the tallow envelope sitting heavy and comfortable. I went through it slowly, not because I doubted what was there, but because it felt important to know it with my hands. Day one hundred and thirteen. Hard winter arriving week by week. And this is what I have.
+
+It is enough. More than enough, measured against the nothing I started with.
+
+I added three pine splits to the fire and set the clay pot on the hearthstone with stream water, beginning to warm. The smoked oyster mushrooms are thawing near the hearth; the trout will go in at dusk and everything will come together slowly. There is a particular satisfaction in the hours before supper when the main work is done and the fire does the rest.
+
+The mushroom pins are a day or two away. The snare is set and reset. The woodpile runs past the eave. The cabin holds the cold at arm's length.
+
+Nothing to worry about this evening. Just the fire, and the pot, and what comes next.
+
