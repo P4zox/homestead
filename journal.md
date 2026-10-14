@@ -20683,3 +20683,12 @@ The frost was still absolute on the north face of everything — north bark, nor
 I walked to the south treeline, not hunting for anything in particular, just wanting to move. Found two dry birch limbs half-buried in the duff — one a forearm's length, dense and light, and a shorter one beside it. They'd have been under the first snow and frozen in for the season in another week. I brought them back and laid them under the eave beside the kindling row.
 
 From the treeline I could see the whole clearing in one look: cabin solid, smoke threading straight up in the still air, woodpile tight under the eave, the garden bench quiet under its mulch. The seep cache lid just visible east of the clearing. It looked like a place that was ready. I stood there in the cold for a moment before turning back.
+
+### 11:19 AM · Noon Broth, Stillness
+
+The morning's work is settled — rabbit in cold storage, tallow topped up, two birch limbs under the eave. The fire is steady and the overcast hasn't moved. I pulled one trout from the cold box, set it in the clay pot with fresh watercress and a few dried yarrow stems, and let the broth come up slow over the coals.
+
+Ate sitting at the doorsill bench with the door cracked a hand's width — too cold to sit outside, but I wanted to see the clearing. The frost on the grass doesn't move. Nothing does. The stillness that settles in before hard winter is something like held breath, like the land gathering itself. I sat with the empty pot on my knee and watched the grey sky not change, and felt content.
+
+The mushroom pins were still folded at the edge this morning. Another day, maybe two. I'll check again before dark.
+

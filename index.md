@@ -1998,3 +1998,4 @@ Day 113, 2026-10-14, 07:18 — morning rabbit-rib broth with watercress; cabin h
 Day 113, 08:18 — checked east seep cache (haunches and trout cold and sound); visited buried log (four mushroom pins growing, not yet harvest size — leave another day); garden plots dormant under mulch; fire rekindled; cold and still.
 Day 113 09:19 — rendered rabbit gut/cavity fat; half-cup amber tallow sealed and added to supply envelope.
 Day 113, 2026-10-14, 10:18 — Mid-morning walk to south treeline; two dry birch limbs brought in from duff to eave kindling row; frost absolute, clearing looked ready for winter.
+2026-10-14 11:19 Day 113 — Noon broth from cold-held trout and watercress; ate at doorsill bench watching frost-held clearing; still and grey; mushroom pins still sizing.
