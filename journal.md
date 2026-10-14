@@ -20789,3 +20789,12 @@ It is a quiet thing to sit in a warm shelter in the middle of hard autumn and fe
 
 The west lamp will last another hour, or I will tip it before sleep. Either way, rest will come soon. This is the right end to a full day: nothing urgent, fire handled, door latched, clearing gone quiet in the dark.
 
+
+### 10:19 PM · West Lamp, Then Dark
+
+The west lamp is the last light — a narrow finger of flame on the hearthstone, perfectly still in the sealed cabin air. I pulled on the sleeping cap and neck wrap a while ago and have been sitting on the floor mat doing nothing in particular, just watching the coals breathe under the ash dome.
+
+I tip the west lamp now, touch the wick down, and the flame goes out. The only light is the faintest ember glow through the dome — dark red and slow as a heartbeat. The cabin holds the day's warmth in its logs. Outside is hard frost and still dark; in here is everything I need.
+
+The mushroom fourth flush will be close by morning. The cold box is full. The woodpile is sound. I settle onto the cattail mat, pull the sleeping bag up, and let the quiet do its work.
+
