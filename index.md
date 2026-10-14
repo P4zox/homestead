@@ -1999,3 +1999,4 @@ Day 113, 08:18 — checked east seep cache (haunches and trout cold and sound); 
 Day 113 09:19 — rendered rabbit gut/cavity fat; half-cup amber tallow sealed and added to supply envelope.
 Day 113, 2026-10-14, 10:18 — Mid-morning walk to south treeline; two dry birch limbs brought in from duff to eave kindling row; frost absolute, clearing looked ready for winter.
 2026-10-14 11:19 Day 113 — Noon broth from cold-held trout and watercress; ate at doorsill bench watching frost-held clearing; still and grey; mushroom pins still sizing.
+Day 113, 2026-10-14, 12:18 — Afternoon cord braiding by fireside; cabin quiet after morning work; mushroom pins to check before dusk.

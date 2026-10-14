@@ -20692,3 +20692,8 @@ Ate sitting at the doorsill bench with the door cracked a hand's width — too c
 
 The mushroom pins were still folded at the edge this morning. Another day, maybe two. I'll check again before dark.
 
+
+### 12:18 PM · Afternoon Cords
+
+The noon broth is finished and the cabin is quiet. After a morning of moving — snare check, tallow render, wood carry — it feels right to sit. I pulled birch inner bark from the shelf and braided two more lengths of two-ply cord by firelight, hands moving through the familiar twist without thinking. The overcast outside is flat and dim, the kind of grey that does not shift all day. Wind still zero. Before the light goes I will walk out and check the mushroom pins. They should be near ready by now.
+
