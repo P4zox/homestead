@@ -20778,3 +20778,14 @@ Sat back on the floor mat and stayed with the fire a long while. Hard winter arr
 
 After the flush there will be a longer stretch of just keeping warm, keeping still. Some cord-work, some tending, the lamps going in and out on their own schedule. There are worse ways to meet a winter.
 
+
+### 9:19 PM · Lamp Fades, Night Holds
+
+The east lamp went cold sometime after the fire came down to coals — a thin wisp of smoke, then nothing. I did not relight it. The west lamp still burns on the hearthstone, small and steady, and by this hour that is enough.
+
+I have been sitting against the south wall in the amber half-dark. Outside there is nothing — no wind at all, no animal sound, just the cold pressing at the bark and the daub. The cabin holds it off. The ash dome traps the coals' warmth and will carry it through until morning. Everything is sealed, latched, banked.
+
+It is a quiet thing to sit in a warm shelter in the middle of hard autumn and feel like you are not short of anything. The mushroom fourth flush will come in a day or two. The snares are set. The tallow is sealed. Twelve bark packages on the supply shelf, enough cord to lash whatever comes apart next. I came here with almost nothing, and now the list of what I have goes on and on.
+
+The west lamp will last another hour, or I will tip it before sleep. Either way, rest will come soon. This is the right end to a full day: nothing urgent, fire handled, door latched, clearing gone quiet in the dark.
+

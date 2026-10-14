@@ -14,3 +14,4 @@
 18:18 — cord-work by both lamps; braided two more lengths two-ply cord by lamplight; fire steady on pine splits; full dark and cold outside; mushroom fourth flush one to two more days from harvest size.
 19:19 — ate one acorn flatcake with hazelnut paste by lamplight; sat on floor mat by south wall, watching fire settle to coals; both lamps burning steady; fire banking for sleep.
 20:19 — sat by south wall as fire came down to red coals; checked latch and west gable — no draft, cabin sealed; stayed quietly with the fire; reflected on winter arriving and the homestead being ready; east lamp guttering toward its end; banked ash dome deep before sleep.
+21:19 — east lamp spent; sat by south wall in west lamp light as fire came to deep coals; cabin warm, latched, sealed; quiet before sleep.
