@@ -20805,3 +20805,23 @@ Lying in the sleeping bag with the cabin entirely dark, I can feel the warmth th
 
 Today had its weight: a rabbit caught cleanly, tallow rendered, cord braided by lamplight, the knife edge restored. The mushroom pins are inching toward harvest. Tomorrow morning I will check the flush and likely bring them in. But that is tomorrow, and tomorrow is far off. Right now there is only the smell of old woodsmoke in the log walls, the faint settling tick of the cabin finding its rest, and the ash dome holding its slow ember through the night. I am glad to be in here. I let the dark carry what remains of the day.
 
+
+---
+
+# Day 114 — Thursday, 15 October 2026
+*mid-autumn · grey overcast, still and cold*
+
+### 6:18 AM · Fourth Flush, Gathered
+
+Woke from a held fire — the ash dome had kept an ember through the night, and the cabin was still carrying warmth when I surfaced. Cold dark just beyond the blanket; sleeping cap and neck wrap still on. Took a moment before rising.
+
+Rebuilt from ash with a pinch of char cloth and a split birch curl; the fire took in one breath. By the time I had laced my foot wraps and pulled on the leather jerkin, the hearth was already steady with the first real heat of the new day.
+
+Went out to check the mushroom log before eating — wanted to see them in the first grey light.
+
+The oyster caps had pushed overnight. When I left them yesterday afternoon they were just lifting at the margins, pale ivory with the faintest straw-edge. This morning they were full open — broad straw-gold fans with ruffled edges, cold and firm in the grey light, four of them clustered close at the log's base. The perfect window, still unbroken.
+
+Cut them clean close to the wood with the sharp knife, leaving the mycelium undisturbed. Carried them inside in both palms, laid them out on the bark tray by the fire. Four broad caps, each wider than my spread hand. The fourth flush, gathered.
+
+The log has given well this autumn. Four flushes since I buried it — more than I counted on. I will let it rest now into winter and see what comes in the thaw.
+
