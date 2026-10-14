@@ -20656,3 +20656,16 @@ The cabin is holding. That is the thing I keep noticing — how the banked base 
 
 The haunches and the loin are still cold-boxed. Today can be a quiet one.
 
+
+### 8:18 AM · Cold Cache Walk
+
+Stepped out after the morning broth into a sky that offers no warmth — flat grey, frost absolute from earth to the lowest pine boughs, breath leaving me in small quick clouds. Wrapped the hare-fur piece tight against my throat and walked the east seep path: eighty paces through leaf duff locked stiff underfoot.
+
+The seep cache lid was undisturbed, the flat stone well-seated. I lifted it and checked — the rabbit haunches and dock-wrapped trout held at near-ice cold, firm to the touch, no spoilage smell. Replaced the lid and pressed the stone back down. The seep is doing exactly what I built it to do.
+
+Then south to the buried log. The four pale pins I left on Day 112 have grown — caps wider than a thumbnail now, edges still folded under, gills just starting to show a pale blush. Not quite ready. Another day, maybe two. I left them to their own pace and resisted the pull to hurry.
+
+The garden plots looked silent and right under their leaf mulch — the nettles reduced to frostbitten stumps, the garlic strip invisible, the sorrel green gone. Everything dormant. That is the right posture for this time of year, and I felt something settle in me recognizing it: the homestead has gone to ground for winter, holding what it gathered, waiting. I am doing the same.
+
+Back inside, the fire rekindled to steady coals. The cache is sound. The mushrooms will come when they come.
+

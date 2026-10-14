@@ -1995,3 +1995,4 @@ Day 112, 2026-10-13, 22:19 — Woke briefly in night; banked coals holding warmt
 2026-10-13 23:20 — Day 112 — Still Dark — second waking in night quiet; ash dome held; cabin completely dark; drifted back under
 Day 113, 2026-10-14, 06:18 — Dawn snare check; south snare held a rabbit (grey-brown winter coat, well-fattened); dressed at doorsill, dock-wrapped cold box; snare reset; new day begun.
 Day 113, 2026-10-14, 07:18 — morning rabbit-rib broth with watercress; cabin holds warmth; frost deep and still; a quiet morning
+Day 113, 08:18 — checked east seep cache (haunches and trout cold and sound); visited buried log (four mushroom pins growing, not yet harvest size — leave another day); garden plots dormant under mulch; fire rekindled; cold and still.
