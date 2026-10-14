@@ -20673,3 +20673,13 @@ Back inside, the fire rekindled to steady coals. The cache is sound. The mushroo
 ### 9:19 AM · Tallow by Firelight
 
 The morning catch left its fat in the cold box, waiting. Mid-morning now, the cabin warm, the fire steady at good coals — I drew out the gut and cavity fat from today's rabbit and began to render it. Trimmed the membrane away on a flat bark sheet, dropped the white pieces into the clay pot with a pour of stream water to start the melt slow. The grey overcast presses down outside; inside it is close and warm. The fat went translucent quickly, then started to clear, the water bubbling away gradually as the tallow settled amber and still at the bottom. I skimmed the browned scraps off with the spoon and let it go another few minutes until the fat ran clear and fragrant. Poured it off through folded bark into the reserve envelope — nearly a half-cup of clean tallow added to the supply, resealed with a pine pin and resin flap. The lamps will burn longer for it. A quiet, useful hour.
+
+### 10:18 AM · South Treeline, Dry Birch
+
+The cabin had settled into a comfortable even warmth by mid-morning, coals deep and holding from the rebuild at dawn. With the tallow render finished and the mushroom pins not yet ready, I pulled on the leather jerkin, laced the foot wraps tight over my heels, and stepped outside.
+
+The frost was still absolute on the north face of everything — north bark, north stone, north log all white-rimed and hard. The ground rang under my feet, no give at all, and my breath moved straight ahead of me in the still air. No wind again today. The grey overcast sat flat and close above the pines.
+
+I walked to the south treeline, not hunting for anything in particular, just wanting to move. Found two dry birch limbs half-buried in the duff — one a forearm's length, dense and light, and a shorter one beside it. They'd have been under the first snow and frozen in for the season in another week. I brought them back and laid them under the eave beside the kindling row.
+
+From the treeline I could see the whole clearing in one look: cabin solid, smoke threading straight up in the still air, woodpile tight under the eave, the garden bench quiet under its mulch. The seep cache lid just visible east of the clearing. It looked like a place that was ready. I stood there in the cold for a moment before turning back.
