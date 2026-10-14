@@ -20730,3 +20730,13 @@ The mushroom pins are a day or two away. The snare is set and reset. The woodpil
 
 Nothing to worry about this evening. Just the fire, and the pot, and what comes next.
 
+
+### 4:19 PM · Dusk Fire, Warm Bowl
+
+The stream water I had set on the hearthstone had been warming quietly all afternoon. By the time the light in the clearing started to flatten and grey, it was ready. I shredded a handful of smoked oyster mushrooms — they had been thawing by the fire since noon, still holding that birch-smoke smell — and let them sink in. Added one trout from the cold box, skinned at the doorsill, the pieces set in without ceremony.
+
+The cabin filled with that particular smell: smoke and fish and mushroom all together, something that by now I understand as warmth and enough. Watercress went in near the end, just to wilt.
+
+I ate at the doorsill bench with the door cracked a hand's width. The clearing was going dim at the edges, the pines absorbed into grey-blue. No wind. The broth was good — not a feast, just steady, the kind of meal that earns a good night's sleep.
+
+Afterwards I banked the fire with two pine splits and set the ash dome over the coals. First lamp when full dark comes. There is firewood. There is food. What I am doing now, in these last weeks before the hardest cold arrives, is keeping.
