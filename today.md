@@ -13,3 +13,4 @@
 17:18 — lit both bark-cup lamps at dusk (east lamp first, then west; tallow topped from reserve envelope; both wicks caught steady); set lamps on hearthstone; sat on floor mat with bark strip cord-work while fire rebuilt under pine splits; ash dome holding; cabin warm, sealed, and quiet as full dark came on.
 18:18 — cord-work by both lamps; braided two more lengths two-ply cord by lamplight; fire steady on pine splits; full dark and cold outside; mushroom fourth flush one to two more days from harvest size.
 19:19 — ate one acorn flatcake with hazelnut paste by lamplight; sat on floor mat by south wall, watching fire settle to coals; both lamps burning steady; fire banking for sleep.
+20:19 — sat by south wall as fire came down to red coals; checked latch and west gable — no draft, cabin sealed; stayed quietly with the fire; reflected on winter arriving and the homestead being ready; east lamp guttering toward its end; banked ash dome deep before sleep.

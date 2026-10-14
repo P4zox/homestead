@@ -20769,3 +20769,12 @@ Outside is full dark and the cold that has been pressing in for weeks now. In he
 
 Finished the flatcake and wiped the wooden bowl clean with a fingertip. Both lamps still burning steady. I will bank the fire deeper before the second one goes out, then sleep in the warm dark.
 
+
+### 8:19 PM · Embers Settling
+
+The coals are down to a single red bed now, the ash dome pulling all the heat inward. Both lamps still burning — the east one quieting toward its end, flame shrunk to a thumbnail and steady. I got up to check the latch and put a hand to the west gable bark: nothing coming through, no draft at the doorsill. Outside will be black frost and silence.
+
+Sat back on the floor mat and stayed with the fire a long while. Hard winter arriving week by week — I remember when that felt like a threat. Tonight it is just the year doing what years do. The supply shelf is heavy enough. The cabin holds. The snare is reset and the fourth mushroom flush will be ready in a day or two.
+
+After the flush there will be a longer stretch of just keeping warm, keeping still. Some cord-work, some tending, the lamps going in and out on their own schedule. There are worse ways to meet a winter.
+
