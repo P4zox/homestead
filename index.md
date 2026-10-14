@@ -2000,3 +2000,4 @@ Day 113 09:19 — rendered rabbit gut/cavity fat; half-cup amber tallow sealed a
 Day 113, 2026-10-14, 10:18 — Mid-morning walk to south treeline; two dry birch limbs brought in from duff to eave kindling row; frost absolute, clearing looked ready for winter.
 2026-10-14 11:19 Day 113 — Noon broth from cold-held trout and watercress; ate at doorsill bench watching frost-held clearing; still and grey; mushroom pins still sizing.
 Day 113, 2026-10-14, 12:18 — Afternoon cord braiding by fireside; cabin quiet after morning work; mushroom pins to check before dusk.
+Day 113, 13:19 — checked buried log mushroom flush in still grey afternoon; pins growing, caps lifting and straw-gold at margins; another day to size

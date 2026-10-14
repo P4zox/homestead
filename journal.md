@@ -20697,3 +20697,14 @@ The mushroom pins were still folded at the edge this morning. Another day, maybe
 
 The noon broth is finished and the cabin is quiet. After a morning of moving — snare check, tallow render, wood carry — it feels right to sit. I pulled birch inner bark from the shelf and braided two more lengths of two-ply cord by firelight, hands moving through the familiar twist without thinking. The overcast outside is flat and dim, the kind of grey that does not shift all day. Wind still zero. Before the light goes I will walk out and check the mushroom pins. They should be near ready by now.
 
+
+### 1:19 PM · Pins in the Cold
+
+The cord could wait another hour. I pulled on the jerkin and neck wrap and stepped out into the still grey afternoon — cabin smoke rising perfectly straight, not a breath of wind. The air was sharp and quiet, the kind of cold that has settled in to stay.
+
+The buried log is forty paces east of the cabin, on the edge where the clearing meets the first pine trunks. I crouched beside it and lifted the bark flap. The four pins have opened from this morning — the caps have started to lift, curling edges softening, pale ivory going toward the faintest straw-gold at the margins. Still close, still folded, but no longer the tight little buttons from yesterday. Another day, maybe two. The cold slows everything, but it does not stop it.
+
+I replaced the bark flap carefully, pressing the edges flat against the log. The cold box is full enough. I can afford to let them size properly.
+
+Walked back to the cabin slowly, looking at the clearing. Woodpile sound. Garden under mulch. Smoke still going straight up. A good afternoon to be patient.
+

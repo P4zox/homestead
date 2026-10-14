@@ -6,3 +6,4 @@
 10:18 — walked south treeline for dry wood; found two dry birch limbs in the duff and brought them in under the eave; stood at the treeline and looked back at the clearing — cabin solid, smoke straight, woodpile sound; one brief cold walk before the cold shuts the duff down for winter.
 11:19 — prepared noon broth from one cold-held trout and watercress; sat at doorsill bench with door cracked to watch the clearing; frost and still grey overcast; mushroom pins still folded at edge — check before dusk.
 12:18 — sat by fire after noon broth; braided two more lengths two-ply cord from birch inner bark by firelight; cabin warm and still; mushroom pins to check before dusk.
+13:19 — walked to buried log to check fourth-flush oyster pins; caps lifting and softening, pale ivory going straw-gold at margins — not yet harvest size; one to two more days; patient return to warm cabin.
