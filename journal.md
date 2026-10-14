@@ -20825,3 +20825,13 @@ Cut them clean close to the wood with the sharp knife, leaving the mycelium undi
 
 The log has given well this autumn. Four flushes since I buried it — more than I counted on. I will let it rest now into winter and see what comes in the thaw.
 
+
+### 7:18 AM · Morning Smoke
+
+The mushrooms from the morning harvest had warmed to the fire's edge by the time I had the smoke rack ready — the four straw-gold fans laid flat on the lower crossbar, gills up so they'd take smoke evenly. I banked the fire with a few small green birch chips for cool smoke and let it find its own pace.
+
+An hour of watching. The fans curled gently at the edges and deepened from pale gold to amber. I turned them once when the near side was gilded through and the far still soft. By the time they were done they'd shrunk to about two-thirds size and held firm under the thumb — the sign I've come to trust.
+
+Two bark packages, resin-sealed, set into the east seep cache alongside the rest. The buried log has given its fourth flush now, and I think that's its winter rest begun. The wood looked quieter this morning — no new pins forming on the cut faces, just the old mycelium running silver-white through the heartwood. I'll check again in a week, but I'm not expecting a fifth this year.
+
+The morning is grey and still, exactly as yesterday. Frost holds the ground through midday. I ate a flatcake from the shelf while the last smoke thread drifted off the rack, and sat in the doorway with the quiet of it for a while before coming in.

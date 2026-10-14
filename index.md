@@ -2012,3 +2012,4 @@ Day 113, 17:18 — Lit both lamps at dusk; sat by fire with cord in hand as cabi
 2026-10-14 22:19 Day 113 — tipped west lamp, settled to sleep on cattail mat; cabin dark and warm; mushroom fourth flush close by morning
 Day 113, 23:20 — Dark and Still: lay in sleeping bag in dark warm cabin, reflected on the day complete and winter arrived; ash dome holding its ember through the night.
 [Day 114 — Thu 15 Oct 2026, 06:18] Fourth-flush oyster mushrooms harvested — four straw-gold fans, palm-wide, clean cut; on bark tray for smoking.
+Day 114, 07:18 — Smoked fourth-flush oyster mushrooms (four fans, cool birch-chip smoke); two bark packages resin-sealed, east seep cache.
