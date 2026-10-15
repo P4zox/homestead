@@ -20835,3 +20835,14 @@ An hour of watching. The fans curled gently at the edges and deepened from pale 
 Two bark packages, resin-sealed, set into the east seep cache alongside the rest. The buried log has given its fourth flush now, and I think that's its winter rest begun. The wood looked quieter this morning — no new pins forming on the cut faces, just the old mycelium running silver-white through the heartwood. I'll check again in a week, but I'm not expecting a fifth this year.
 
 The morning is grey and still, exactly as yesterday. Frost holds the ground through midday. I ate a flatcake from the shelf while the last smoke thread drifted off the rack, and sat in the doorway with the quiet of it for a while before coming in.
+
+### 8:18 AM · Broth and Stillness
+
+The smoke rack is clear and both bark packages are sealed in the east seep cache. I came back inside to the fire still steady — the green birch chips burned slow and cool the way I wanted, and now only dry pine feeds the coals.
+
+I pulled one trout from the cold box and set it in the clay pot with water and a stem of watercress and two curls of smoked oyster mushroom from the fresh batch. Hung it on the pot-sling hook. The cabin warmed fast against the cold outside — I could feel the difference just standing at the doorsill, the wall logs holding in what the fire makes.
+
+The broth was ready before I had fully settled. I ate it standing at first, then sat on the sleeping mat with the bowl warming both palms. Trout and oyster mushroom together have a kind of depth that plain broth doesn't — something round and smoke-edged underneath the clean fish. It tasted like the whole autumn, honestly. Every flush the buried log gave, every catch from the bend pool before the ice came.
+
+The log is resting now. The fishing is done. The snares still run and the stores are solid. All I need to do today is keep the fire, keep the cabin, and let winter settle in around me like it knows its place. This stillness after a working morning is its own kind of good.
+
