@@ -20973,3 +20973,19 @@ The pot-hook waits on the bench, half-carved. I will fit it to the ridgepole peg
 
 Autumn is almost done. Winter has its weight on everything now, on the ice, on the frost, on the full cold dark. But the cabin is sealed and warm and mine, and I am dry and fed inside it. The wind presses again. The walls hold.
 
+
+---
+
+# Day 115 — Friday, 16 October 2026
+*Mid-autumn · cold grey dawn; deep overnight frost; embers held under ash dome; still and dry*
+
+### 6:18 AM · Pot-Hook Fitted
+
+Woke to embers still breathing under the ash dome — the birch split worked under the coals before sleep had held, just. The cabin was not cold but close; I fed a dry birch split to the coals and the fire caught in one breath off the char cloth. The warmth began to return while I dressed.
+
+The pot-hook sat on the supply shelf, rough-shaped last night by lamplight — a straight-grained birch scrap with the shank blocked in and the arm angled downward, left thick for trimming. I carried it to the ridgepole peg and held it in position in the grey morning light: shank against the notch, arm swinging toward the hearth center. Scored the shank length with a thumbnail mark, then set the hook on the doorsill bench and pared it back with the knife in short careful cuts. Tested against the peg, pared again, tested once more — then it seated snugly in the notch without rocking. Trimmed the arm end square and planed a slight concave groove along the underside where the pot handle rests, just deep enough to keep it from sliding forward when the water heats.
+
+Hung it empty on the peg and swung the arm over the hearth center. Then lifted the second clay pot full of water onto the arm to test the load. The hook did not flex. The wood is thick enough. The pot settled directly over the fire, hanging true.
+
+It is a small thing — a forked stick and a notch. But this morning the broth water is heating while both hands are free, and that is new. The October light is just beginning at the door gap: frost-white clearing, still and quiet, the line of pines dark against the grey sky.
+
