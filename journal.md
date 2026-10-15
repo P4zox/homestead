@@ -20989,3 +20989,16 @@ Hung it empty on the peg and swung the arm over the hearth center. Then lifted t
 
 It is a small thing — a forked stick and a notch. But this morning the broth water is heating while both hands are free, and that is new. The October light is just beginning at the door gap: frost-white clearing, still and quiet, the line of pines dark against the grey sky.
 
+
+### 7:18 AM · First Broth on the Hook
+
+The pot hook held.
+
+I lifted a trout from the cold box, stripped the dock wrapping, and set it in the clay pot with a handful of watercress stems and a few shreds of smoked oyster mushroom from last week's cure. Hung the pot on the arm over the hearth center — the birch shank barely flexed, seated firm in its groove on the ridgepole peg — and fed the fire another split.
+
+It simmered without any hand on the bail. That's the whole point, of course, but still: something changes when the pot just hangs there and you can stand back. The broth built slowly. I crouched at the doorway to check the clearing while it cooked — frost still white across the open ground, no tracks near the snare line, the ice glare off the pool flat and still. The stream sounds different when its open water is gone. Quieter in a way that feels like held breath.
+
+Ate by the fire before the light fully came in. The broth was good — clean and warm — and the pot-hook earned its place.
+
+Now I'll check the south snare before the frost hardens the ground any more than it already has.
+
