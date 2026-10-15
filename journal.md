@@ -20852,3 +20852,12 @@ The log is resting now. The fishing is done. The snares still run and the stores
 Out to the south snare in the still cold of mid-morning. The frost overnight had gone deep — every stem sheathed white, the ground crunching faintly under my boots, breath blooming and gone. The snare loop hung undisturbed. No tracks in the frosted duff, nothing had passed since yesterday. I reset the loop carefully, re-pegged the leader, and stood a moment in the treeline edge. The forest was very quiet — no wind at all, not even a branch creaking. Just cold, and silence, and the pale grey sky through the bare crowns.
 
 Came back in to the cabin warmth. The fire had held well; I fed it a split of dry birch and sat on the doorsill bench to warm through. Empty hands this morning, but the cold-storage box is good, and the trout are there for noon broth. An empty snare is not a loss — only an honest accounting of what the morning held.
+
+### 10:19 AM · Cord by Morning Fire
+
+The cabin has settled into its morning warmth. I fed the fire an extra split after coming in from the snare check, and now it holds steady — orange coals banked behind the clay hearth walls, heat spreading low across the floor. The daylight coming through the bark is thin and grey but enough.
+
+I pulled the cordage bundle from the supply peg and sat at the doorsill bench with my back to the door. The cold reaches in at the doorsill but not hard — the bench sits low, below the worst of it. Two more lengths of two-ply bark cord braided, working strips I split and soaked days ago. The rhythm is easy now: split the strip to the right thickness, loop the anchor, walk each half around and through. The finished cord comes out tight and firm, a little darker than fresh birch from being laid up dry.
+
+I hung the new lengths on the cord bundle peg and dropped the offcuts into the bark tinder basket. Everything that comes through my hands here finds some use in the end. Outside the frost holds, the pines stand still — no wind, nothing moving. The world is very quiet today.
+

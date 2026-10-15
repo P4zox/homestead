@@ -3,3 +3,4 @@
 07:18 — Smoked fourth-flush oyster mushrooms on smoke rack; banked fire with green birch chips for cool smoke, one hour, turned once — four fans to two sealed bark packages, resin-sealed into east seep cache. Buried log resting into winter.
 08:18 — Morning broth: one trout from cold box, watercress stem, two curls smoked oyster mushroom shreds, in clay pot by fire. Ate by hearth. One trout used from cold storage.
 09:18 — Checked south snare: empty, no tracks in frosted duff; reset loop and peg; returned to cabin; fed fire dry birch split; cold-storage intact.
+10:19 — Two more lengths of two-ply bark cord braided by morning fire at doorsill bench; offcuts to tinder basket; fire holding steady.

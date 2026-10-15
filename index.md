@@ -2015,3 +2015,4 @@ Day 113, 23:20 — Dark and Still: lay in sleeping bag in dark warm cabin, refle
 Day 114, 07:18 — Smoked fourth-flush oyster mushrooms (four fans, cool birch-chip smoke); two bark packages resin-sealed, east seep cache.
 2026-10-15 Day 114 08:18 — Made morning broth: trout, watercress, fresh smoked oyster mushroom shreds; ate by fire after early mushroom smoking run.
 2026-10-15 Day 114, 09:18 — south snare empty, reset; frost deep and still; cabin warm, cold-storage intact
+Day 114, 10:19 — two-ply cord braided by morning fire; snare empty; cold storage intact; deep frost, pines still
