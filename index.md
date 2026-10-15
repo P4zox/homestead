@@ -2024,3 +2024,4 @@ Day 114, 15:19 — Tallow-topped second bark-cup lamp; both lamps warming on hea
 Day 114, 2026-10-15, 16:19 — Took slow stock of the supply shelf; every resin seal sound, every package in order; broth items moved to front, long-keeping to back; twelve bark packages on shelf, cold box full with rabbit and ten trout, tallow reserve healthy — cabin goes into winter full.
 Day 114, 17:18 — Supper broth: rabbit haunch (Day 113 catch), watercress, smoked oyster shreds; both lamps lit; ash dome forming; cabin into evening
 Day 114, 18:18 — Evening cord-braiding by lamplight; ash dome holding coals; cabin sealed and quiet.
+Day 114, 19:19 — carved birch pot-hook by lamplight; wind outside, cabin warm and sealed

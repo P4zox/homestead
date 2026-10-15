@@ -12,3 +12,4 @@
 16:19 — Pulled supply shelf forward and went through every sealed package: all resin seals sound; re-ordered broth items to front, long-keeping to back; twelve bark packages, cold box full, tallow healthy; took quiet stock of what winter holds.
 17:18 — Supper broth from rabbit haunch (Day 113 catch) — one haunch, watercress stems, smoked oyster mushroom shreds in second clay pot; ate at doorsill bench; haunch stripped clean; both lamps lit; ash dome forming over coals.
 18:18 — Two more lengths of two-ply bark cord braided by lamplight at doorsill bench; both lamps steady on hearth pegs; ash dome laid over coals; cabin quiet into night.
+19:19 — Carved a birch pot-hook by lamplight from a straight-grained scrap: short shank, downward-angled arm, left thick for now; will fit and trim against ridgepole peg tomorrow. Wind picked up at full dark outside; cabin sealed and warm, both lamps steady.

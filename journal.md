@@ -20936,3 +20936,12 @@ The ash dome is laid over the coals now. It will hold until morning. The cabin i
 
 Two lengths by the time I set down the cord. The stock doesn't need them, but I'm glad they're there.
 
+
+### 7:19 PM · Birch Scrap, Lamplight
+
+The supper warmth is still in me. Both lamps throw their small steady circles on the walls, and the ash dome is settled over the coals — the cabin will hold heat well into the night. I pulled a birch scrap from the split-wood pile, thumb-thick and straight-grained, a leftover from the last round of pin-cutting. There is a hook I have been turning over in my mind: a short wooden one to hang the clay pot above the hearth on cold mornings, so broth stays warm without sitting directly on the ash and scorching the base.
+
+I worked the piece with the knife in the lamplight, angling the blade in short careful passes, the scrap braced against my knee. The grain was kind — split clean, no twisting. Half an hour in, a rough hook shape had appeared: a short shank, a downward-angled arm, still blocky but plainly a hook. I left the wood thick for now; tomorrow I will test the angle against the ridgepole peg and trim where it binds. No hurry. The knife is sharp and the night is long.
+
+Wind came up outside toward full dark — I could hear it work across the bark courses, a low flutter and then nothing. Nothing moved inside. Days like this feel like the whole argument for the cabin: warm, fed, a useful shape forming under the hands while the lamps stand steady. That is enough for one evening.
+
