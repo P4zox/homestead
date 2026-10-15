@@ -8,3 +8,4 @@
 12:18 — Noon broth ready; ladled at doorsill bench — trout, watercress, smoked oyster mushroom curls; ate slowly with door cracked a finger's width; fed fire dry birch split after; pot cleared; afternoon open and unhurried.
 13:18 — Slow perimeter walk: banked base on all four cabin sides confirmed firm and frost-solid; woodpile checked eave-high and dry under overhang; birch kindling at row end dry; treeline south clear, no fresh tracks; returned to hearth, fire rebuilt.
 14:19 — Re-wicked first bark-cup lamp: tapped dead wick free, fresh dry-grass tuft twisted and threaded, tallow spooned from reserve until cup half-full; lamp set on hearth peg to warm and wick through. Ready for evening.
+15:19 — Retrieved second bark-cup lamp from shelf peg; wick from Day 112 still intact and dry; spooned tallow from reserve envelope into cup until full; set warming on hearth peg beside first lamp. Both lamps ready for evening.

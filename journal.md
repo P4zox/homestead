@@ -20899,3 +20899,8 @@ Back inside I hung the jerkin on its peg and sat by the rebuilt fire. There is s
 
 The afternoon settled into stillness. Both lamps had seen heavy use these past nights, and the first one burned itself out yesterday — wick gone to ash, cup cold and empty on its peg. I pulled it down, tapped the dead wick free, and drew a fresh tuft of dry grass from the store, twisting it tight between two fingers until it held its shape. Threaded the loop through the bark cup, set the tail low in the tallow, then spooned from the reserve envelope until the cup sat half-full. Set it back on its peg in the warmth above the hearth to let the fat wick the grass through. By evening it will be ready. There is something satisfying about readying a lamp in daylight — the whole of the dark hour already provided for before it arrives.
 
+
+### 3:19 PM · Second Lamp Ready
+
+The afternoon is still and grey, the cold settled into the clearing like a presence that has no intention of leaving. With the first lamp already warming on the hearth peg, I reached for the second — cold and dark on its shelf peg since last night's tipping. The wick from Day 112's re-wicking was still intact, just dry and cold; I drew a spoonful of tallow from the reserve envelope and filled the cup until it gleamed. Set it beside the first on the hearth peg. Two lamps together against the dark — a small, quiet abundance. The light coming through the door crack is that flat winter white-grey that makes the inside feel deeper and warmer by comparison. I fed the fire a dry birch split and settled back on the doorsill bench for a while, listening to the resin pop in the wood. This hour asked nothing more of me than this, and I was glad to give only that.
+

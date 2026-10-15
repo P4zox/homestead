@@ -2020,3 +2020,4 @@ Day 114, 10:19 — two-ply cord braided by morning fire; snare empty; cold stora
 Day 114, 12:18 — Noon broth eaten at the doorsill bench; stream sealed and world still; woodpile full, afternoon unhurried.
 2026-10-15 Day 114 13:18 — Slow Perimeter Walk: walked cabin perimeter, banked base and woodpile checked and sound, treeline clear, returned to hearth.
 2026-10-15 14:19 (Day 114) — Re-wicked first bark-cup lamp, tallow topped from reserve; lamp warming on hearth peg, ready for evening.
+Day 114, 15:19 — Tallow-topped second bark-cup lamp; both lamps warming on hearth peg, ready for the long dark evening ahead.
