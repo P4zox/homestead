@@ -20915,3 +20915,13 @@ What I have is a lot. Twelve sealed packages on the main shelf. The cold box hol
 
 I stayed a moment with my hands on the shelf rail after putting the last thing back. Mid-October, Day 114. The stream is fully frozen. The garden is under mulch. I do not know if winter will be easy or long, but I go into it holding more than I arrived with in summer, by a very great measure.
 
+### 5:18 PM · Rabbit Haunch at Dusk
+
+The light was going copper in the gaps between overcast when I pulled the rabbit haunch from the cold box — Day 113's catch, haunches dock-wrapped and sitting two days patient in the cold. Past time to use one. Settled it into the second clay pot with a cup of water, a handful of watercress stems, and two shreds of today's smoked oyster mushrooms. The pot went onto the coals.
+
+While the broth came up to heat I sat at the doorsill bench, door cracked a finger's width, watching the last of the afternoon light drain from the clearing. There is something in the early dark of autumn that is not just darkness — it is permission to stop. To let the day have been what it was. The oyster mushroom catch this morning, the smoking, the two meals, the perimeter walk, both lamps re-wicked — all of it done, all of it good.
+
+The broth began to smell of meat and smoke and something rich from the mushrooms. I ladled a full cup when the surface settled to a gentle roll. Drank it slowly. The haunch stripped clean; the marrow was good. Both lamps lit on their hearth pegs now, steady flames. The ash dome beginning to form over the coals as I cleared the pot.
+
+Day 114 coming to a close. Cabin full, larder sound, the cold held off by fire and bark and banked bracken. A good winter day.
+

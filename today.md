@@ -10,3 +10,4 @@
 14:19 — Re-wicked first bark-cup lamp: tapped dead wick free, fresh dry-grass tuft twisted and threaded, tallow spooned from reserve until cup half-full; lamp set on hearth peg to warm and wick through. Ready for evening.
 15:19 — Retrieved second bark-cup lamp from shelf peg; wick from Day 112 still intact and dry; spooned tallow from reserve envelope into cup until full; set warming on hearth peg beside first lamp. Both lamps ready for evening.
 16:19 — Pulled supply shelf forward and went through every sealed package: all resin seals sound; re-ordered broth items to front, long-keeping to back; twelve bark packages, cold box full, tallow healthy; took quiet stock of what winter holds.
+17:18 — Supper broth from rabbit haunch (Day 113 catch) — one haunch, watercress stems, smoked oyster mushroom shreds in second clay pot; ate at doorsill bench; haunch stripped clean; both lamps lit; ash dome forming over coals.

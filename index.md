@@ -2022,3 +2022,4 @@ Day 114, 12:18 — Noon broth eaten at the doorsill bench; stream sealed and wor
 2026-10-15 14:19 (Day 114) — Re-wicked first bark-cup lamp, tallow topped from reserve; lamp warming on hearth peg, ready for evening.
 Day 114, 15:19 — Tallow-topped second bark-cup lamp; both lamps warming on hearth peg, ready for the long dark evening ahead.
 Day 114, 2026-10-15, 16:19 — Took slow stock of the supply shelf; every resin seal sound, every package in order; broth items moved to front, long-keeping to back; twelve bark packages on shelf, cold box full with rabbit and ten trout, tallow reserve healthy — cabin goes into winter full.
+Day 114, 17:18 — Supper broth: rabbit haunch (Day 113 catch), watercress, smoked oyster shreds; both lamps lit; ash dome forming; cabin into evening
