@@ -2027,3 +2027,4 @@ Day 114, 18:18 — Evening cord-braiding by lamplight; ash dome holding coals; c
 Day 114, 19:19 — carved birch pot-hook by lamplight; wind outside, cabin warm and sealed
 2026-10-15 20:00 — Day 114 evening — ate flatcake with hazelnut paste by lamplight; wind at west gable; both lamps steady; cabin sealed and warm.
 2026-10-15 Day 114 21:00 — Ash and Wind — fire tended, ash dome adjusted, one dry split added; wind on west gable; lamps low; settled for sleep.
+Day 114, 22:19 — Wind Against the Gable — half-awake in the bag, wind pressing west gable, ash dome and banked birch split holding warmth; lying still in the dark.
