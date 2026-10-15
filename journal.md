@@ -20945,3 +20945,11 @@ I worked the piece with the knife in the lamplight, angling the blade in short c
 
 Wind came up outside toward full dark — I could hear it work across the bark courses, a low flutter and then nothing. Nothing moved inside. Days like this feel like the whole argument for the cabin: warm, fed, a useful shape forming under the hands while the lamps stand steady. That is enough for one evening.
 
+
+### 8:00 PM · Wind at the Gable
+
+The wind has come up since full dark — I can hear it against the west gable, low and steady, testing the daub and bark. Nothing alarming; just the sound of winter reminding me it is here.
+
+I ate one of the flatcakes by lamplight, spread with hazelnut paste, the old flat gneiss stone at my knee for a plate. The paste is thick and faintly sweet, and the flatcake held up to spreading without crumbling. Ate it slowly, watching the first lamp flicker slightly as the wind found some gap too small to find by eye. It settled; the lamp held.
+
+Both lamps have enough tallow for the night. The ash dome is sound. Cold outside, sealed in here — I will bank the coals properly before I sleep and let the warmth hold through till morning. The pot-hook blank sits on the shelf peg, rough-shaped; I will fit it to the ridgepole peg tomorrow and trim it to length. Something small to look forward to at first light.

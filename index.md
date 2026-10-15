@@ -2025,3 +2025,4 @@ Day 114, 2026-10-15, 16:19 — Took slow stock of the supply shelf; every resin 
 Day 114, 17:18 — Supper broth: rabbit haunch (Day 113 catch), watercress, smoked oyster shreds; both lamps lit; ash dome forming; cabin into evening
 Day 114, 18:18 — Evening cord-braiding by lamplight; ash dome holding coals; cabin sealed and quiet.
 Day 114, 19:19 — carved birch pot-hook by lamplight; wind outside, cabin warm and sealed
+2026-10-15 20:00 — Day 114 evening — ate flatcake with hazelnut paste by lamplight; wind at west gable; both lamps steady; cabin sealed and warm.
