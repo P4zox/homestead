@@ -20894,3 +20894,8 @@ I stopped at the south corner and looked along the treeline for a moment. No fre
 
 Back inside I hung the jerkin on its peg and sat by the rebuilt fire. There is something — not pride exactly, more like quiet reassurance — in walking the edges of a prepared thing and finding it sound.
 
+
+### 2:19 PM · Wicking the First Lamp
+
+The afternoon settled into stillness. Both lamps had seen heavy use these past nights, and the first one burned itself out yesterday — wick gone to ash, cup cold and empty on its peg. I pulled it down, tapped the dead wick free, and drew a fresh tuft of dry grass from the store, twisting it tight between two fingers until it held its shape. Threaded the loop through the bark cup, set the tail low in the tallow, then spooned from the reserve envelope until the cup sat half-full. Set it back on its peg in the warmth above the hearth to let the fat wick the grass through. By evening it will be ready. There is something satisfying about readying a lamp in daylight — the whole of the dark hour already provided for before it arrives.
+
