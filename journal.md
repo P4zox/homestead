@@ -20962,3 +20962,14 @@ After the flatcake I sat a while longer at the doorsill bench, both lamps steady
 ### 10:19 PM · Wind Against the Gable
 
 Half-awake in the bag, one lamp out, the cabin dark except for a faint coal-glow seeping through the ash dome. Wind found the west gable again — I can hear it press against the daub, probe along the ridgepole overhang, then ease off. The ash dome holds. I can feel the warmth of the birch split I banked before sleep; it has taken, slow and steady underneath the ash. The pot-hook blank is propped on the supply shelf for morning. I am nowhere to be tonight — no task, no walk, no tending. Just this: the dark, the wind, the smell of woodsmoke and birch bark, and the long sound of winter beginning in earnest. It is enough.
+
+### 11:19 PM · Into Sleep
+
+The wind has been working the west gable since full dark — not fierce, but persistent, finding the joints, pressing the bark, passing through in long slow exhales. I lie still and let it go on around me.
+
+The ash dome is holding. I can feel the warmth of it from here, a gentle radiation against the cold that presses at the base logs. The birch split underneath will keep coals until morning; I trust that much by now. I have done this enough nights to let the fire tend itself.
+
+The pot-hook waits on the bench, half-carved. I will fit it to the ridgepole peg in the first grey light. These small unfinished things are what tomorrow is made of — and there is comfort in that, knowing the morning already has a purpose waiting.
+
+Autumn is almost done. Winter has its weight on everything now, on the ice, on the frost, on the full cold dark. But the cabin is sealed and warm and mine, and I am dry and fed inside it. The wind presses again. The walls hold.
+

@@ -16,3 +16,4 @@
 20:00 — Ate a flatcake by lamplight, spread with hazelnut paste, listening to the wind work against the west gable; both lamps held steady; ash dome laid over coals; ready for sleep.
 21:00 — Checked and adjusted ash dome; one dry birch split worked under coals to hold through to morning; one lamp blown out at shelf, second left low; settled under sleeping bag to sleep.
 22:19 — Lying half-awake under sleeping bag; wind working the west gable; ash dome and banked birch split holding; both lamps out; quiet and still in the dark.
+23:19 — Wind pressing the west gable in the dark; lying still under sleeping bag; ash dome and banked birch split holding warmth; cabin sealed; drifting into sleep.
