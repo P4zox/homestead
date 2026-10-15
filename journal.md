@@ -20925,3 +20925,14 @@ The broth began to smell of meat and smoke and something rich from the mushrooms
 
 Day 114 coming to a close. Cabin full, larder sound, the cold held off by fire and bark and banked bracken. A good winter day.
 
+
+### 6:18 PM · Lamps, Cord, Closing Day
+
+Both lamps hold the cabin in a warm amber radius. Supper is cleared, the second clay pot rinsed and set back. I sat at the doorsill bench and started another length of cord — bark strips stripped from the dry pile, split back and twisted counter to each other, then doubled and let their tension find the braid.
+
+It's not urgent work. The cord stock is deep. But the fingers want something to do in the lamplight, and braiding doesn't ask much of the mind. There's room in that state to turn the day over — the mushroom harvest at first light, the ice on the pool, the careful work of re-ordering the supply shelf. A full day, properly done.
+
+The ash dome is laid over the coals now. It will hold until morning. The cabin is sealed on all four sides, the base banked, the gables double-layered. There's no wind tonight, or none I can hear from inside. Just the small pop of the coals settling through the dome, and the twin wicks burning steady.
+
+Two lengths by the time I set down the cord. The stock doesn't need them, but I'm glad they're there.
+
