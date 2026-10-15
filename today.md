@@ -6,3 +6,4 @@
 10:19 — Two more lengths of two-ply bark cord braided by morning fire at doorsill bench; offcuts to tinder basket; fire holding steady.
 11:19 — Walked to stream to check ice progression; pool and eddy fully sealed, current faintly visible under pale grey ice; stood at bank a while; returned to cabin; noon broth put on — trout, watercress, smoked oyster mushroom shreds in clay pot. One trout used from cold storage.
 12:18 — Noon broth ready; ladled at doorsill bench — trout, watercress, smoked oyster mushroom curls; ate slowly with door cracked a finger's width; fed fire dry birch split after; pot cleared; afternoon open and unhurried.
+13:18 — Slow perimeter walk: banked base on all four cabin sides confirmed firm and frost-solid; woodpile checked eave-high and dry under overhang; birch kindling at row end dry; treeline south clear, no fresh tracks; returned to hearth, fire rebuilt.

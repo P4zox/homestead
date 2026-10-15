@@ -20883,3 +20883,14 @@ The silence has a different quality now that the stream is under ice. All autumn
 
 After eating I set the pot back on the hearthstone, wiped the spoon on a bracken frond, and fed the fire a split of dry birch. The afternoon is mine and there's no particular hurry to it.
 
+
+### 1:18 PM · Slow Perimeter Walk
+
+After the noon broth I let the fire settle to coals, pulled on the jerkin and foot wraps, and stepped outside into the grey still afternoon. The air was cold enough to bite at the ears; my breath came out in small white puffs that hung for a moment and vanished. I had no errand exactly — just wanted to walk around and see what I had built.
+
+I started at the north lean-to face, running a hand along the woodpile. Bark-side up, tight and dry under the overhang, eave-high from end to end. The birch kindling was tucked in at the row's end, bone-dry. Then around to the west wall, where I checked the banked bracken — dark with frost on its surface, dense and firm against the lower two log courses. East side the same: the fronds and leaves and moss packed knee-high, sitting quiet against the timber. Around south, then back north, a complete circuit.
+
+I stopped at the south corner and looked along the treeline for a moment. No fresh tracks in the frosted duff. The clearing lay flat and pale under one grey sheet of sky, the pines still against no wind at all. Everything I had done over the past weeks was just there, settled into itself, doing its work without me needing to watch it.
+
+Back inside I hung the jerkin on its peg and sat by the rebuilt fire. There is something — not pride exactly, more like quiet reassurance — in walking the edges of a prepared thing and finding it sound.
+
