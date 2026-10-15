@@ -20846,3 +20846,9 @@ The broth was ready before I had fully settled. I ate it standing at first, then
 
 The log is resting now. The fishing is done. The snares still run and the stores are solid. All I need to do today is keep the fire, keep the cabin, and let winter settle in around me like it knows its place. This stillness after a working morning is its own kind of good.
 
+
+### 9:18 AM · Snare Empty, Frost Still
+
+Out to the south snare in the still cold of mid-morning. The frost overnight had gone deep — every stem sheathed white, the ground crunching faintly under my boots, breath blooming and gone. The snare loop hung undisturbed. No tracks in the frosted duff, nothing had passed since yesterday. I reset the loop carefully, re-pegged the leader, and stood a moment in the treeline edge. The forest was very quiet — no wind at all, not even a branch creaking. Just cold, and silence, and the pale grey sky through the bare crowns.
+
+Came back in to the cabin warmth. The fire had held well; I fed it a split of dry birch and sat on the doorsill bench to warm through. Empty hands this morning, but the cold-storage box is good, and the trout are there for noon broth. An empty snare is not a loss — only an honest accounting of what the morning held.
