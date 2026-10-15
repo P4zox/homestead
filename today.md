@@ -14,3 +14,4 @@
 18:18 — Two more lengths of two-ply bark cord braided by lamplight at doorsill bench; both lamps steady on hearth pegs; ash dome laid over coals; cabin quiet into night.
 19:19 — Carved a birch pot-hook by lamplight from a straight-grained scrap: short shank, downward-angled arm, left thick for now; will fit and trim against ridgepole peg tomorrow. Wind picked up at full dark outside; cabin sealed and warm, both lamps steady.
 20:00 — Ate a flatcake by lamplight, spread with hazelnut paste, listening to the wind work against the west gable; both lamps held steady; ash dome laid over coals; ready for sleep.
+21:00 — Checked and adjusted ash dome; one dry birch split worked under coals to hold through to morning; one lamp blown out at shelf, second left low; settled under sleeping bag to sleep.
