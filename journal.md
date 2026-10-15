@@ -20904,3 +20904,14 @@ The afternoon settled into stillness. Both lamps had seen heavy use these past n
 
 The afternoon is still and grey, the cold settled into the clearing like a presence that has no intention of leaving. With the first lamp already warming on the hearth peg, I reached for the second — cold and dark on its shelf peg since last night's tipping. The wick from Day 112's re-wicking was still intact, just dry and cold; I drew a spoonful of tallow from the reserve envelope and filled the cup until it gleamed. Set it beside the first on the hearth peg. Two lamps together against the dark — a small, quiet abundance. The light coming through the door crack is that flat winter white-grey that makes the inside feel deeper and warmer by comparison. I fed the fire a dry birch split and settled back on the doorsill bench for a while, listening to the resin pop in the wood. This hour asked nothing more of me than this, and I was glad to give only that.
 
+
+### 4:19 PM · Counting What Holds
+
+The afternoon has gone quiet. Both lamps sit on their hearth pegs, wicks already drawing tallow slow into themselves, and a split birch log hisses faintly on the coals. I pulled the supply shelf forward and went through it — every bark envelope, every sealed package, every item I have been adding to since the early summer days when I barely had enough.
+
+I opened each one just far enough to check. The hazelnut paste dense and fragrant. The elderberry reduction still holding its dark seal behind pine resin. The rose hip paste firm and dark-pink. The acorn flatcakes stacked flat under their bark cover. The cattail starch cakes dry and sound. All resin seals unbroken. I re-ordered as I went — broth ingredients to the front where a cold morning hand can find them fast, longer-keeping items to the back. It took half an hour of steady, quiet work that felt like tending rather than labor.
+
+What I have is a lot. Twelve sealed packages on the main shelf. The cold box holding rabbit haunches and ten trout. Smoked mushrooms in the east seep cache. Root starch, flour, fruit reductions, hazelnut paste, garlic on the braid. Tallow reserve full. Both lamps full. The firewood stacked to the eave.
+
+I stayed a moment with my hands on the shelf rail after putting the last thing back. Mid-October, Day 114. The stream is fully frozen. The garden is under mulch. I do not know if winter will be easy or long, but I go into it holding more than I arrived with in summer, by a very great measure.
+
