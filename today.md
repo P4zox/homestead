@@ -4,3 +4,4 @@
 08:18 — Morning broth: one trout from cold box, watercress stem, two curls smoked oyster mushroom shreds, in clay pot by fire. Ate by hearth. One trout used from cold storage.
 09:18 — Checked south snare: empty, no tracks in frosted duff; reset loop and peg; returned to cabin; fed fire dry birch split; cold-storage intact.
 10:19 — Two more lengths of two-ply bark cord braided by morning fire at doorsill bench; offcuts to tinder basket; fire holding steady.
+11:19 — Walked to stream to check ice progression; pool and eddy fully sealed, current faintly visible under pale grey ice; stood at bank a while; returned to cabin; noon broth put on — trout, watercress, smoked oyster mushroom shreds in clay pot. One trout used from cold storage.

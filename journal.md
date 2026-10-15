@@ -20861,3 +20861,16 @@ I pulled the cordage bundle from the supply peg and sat at the doorsill bench wi
 
 I hung the new lengths on the cord bundle peg and dropped the offcuts into the bark tinder basket. Everything that comes through my hands here finds some use in the end. Outside the frost holds, the pines stand still — no wind, nothing moving. The world is very quiet today.
 
+
+### 11:19 AM · Ice in the Seam
+
+The cord braiding held me at the bench longer than I meant, fingers working on their own while the fire settled to a slow constant heat. When the tenth loop dropped finished onto the pile I set the bundle aside and pulled on the jerkin and neck wrap and stepped outside.
+
+Not to do anything. Just to look.
+
+The stream was what I wanted to see. I walked the eighty paces down the slope, following the line of frosted grass, and stood at the bank where the pool used to be open. Ice all the way across now — pale grey and faintly clouded at the centre, clearer near the stones. Below it, dimly, the water still moved. You could see the current through the ice if you looked at the right angle. Not still. Slow, dark, and continuing.
+
+I stood there a while. Nothing needed from it. Just that it was there, and winter was here, and both were fine.
+
+Came back in and put the clay pot over the fire for noon broth. Trout, watercress, a thread of smoked oyster mushroom shreds. The pot is seasoned now and the broth comes fast.
+
