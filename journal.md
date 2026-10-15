@@ -20874,3 +20874,12 @@ I stood there a while. Nothing needed from it. Just that it was there, and winte
 
 Came back in and put the clay pot over the fire for noon broth. Trout, watercress, a thread of smoked oyster mushroom shreds. The pot is seasoned now and the broth comes fast.
 
+
+### 12:18 PM · Noon at the Hearth
+
+I ladled the noon broth at the fire's edge — the pot had been simmering low for nearly an hour by then, trout flesh parting from the bone at a touch, watercress wilted dark green, and the two smoked oyster mushroom curls soft and fragrant in the steam. I ate slowly at the doorsill bench with the door cracked a finger's width. Outside the clearing was white and still. The birch trunks stood pale against the treeline. No wind, no movement.
+
+The silence has a different quality now that the stream is under ice. All autumn there was the faint sound of running water at the edge of things. Now it's gone, and the air outside feels heavier for it. But I'm not uneasy. The cold box is well-stocked, the woodpile stands past eave-high, the cabin holds its heat. I have cord to braid, clay work if I want it, leather to tend. The days between now and the hardest winter will be slow and interior — and that suits me fine.
+
+After eating I set the pot back on the hearthstone, wiped the spoon on a bracken frond, and fed the fire a split of dry birch. The afternoon is mine and there's no particular hurry to it.
+
