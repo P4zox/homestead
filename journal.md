@@ -21065,3 +21065,14 @@ It was about arm-length, two fingers thick, clean grain. I stripped the bark fir
 
 The afternoon suited the work. Cold grey outside, frost holding in the clearing, fire steady at my side. When I finished I hung it on the supply peg beside the spoons. The pot-hook for hanging, the paddle for tending — a complete little system, and none of it planned more than a day ahead.
 
+
+### 3:19 PM · Larder Count
+
+Pulled the supply shelf clear onto the doorsill bench this afternoon — all the sealed bark packages laid out in a row in the grey light coming through the cracked door. I went through each one by hand: pressing envelopes to gauge fill, running a thumb along resin-sealed edges, setting each back in its place once checked.
+
+What I found was solid. Twelve sealed packages of smoked protein — trout, rabbit, mushroom, hare — most still firm and amber-fragrant. The mushroom envelopes from the east seep cache are the crown of it: four batches of smoked oyster fans stacked resin-tight, each one pressed cool and sound. Elderberry reduction, hawthorn haw, rose hip paste, hazelnut paste dark and oily in its fold. Cattail starch at two full portions. The wide-bellied crock still holds.
+
+What is thin: acorn flour. One envelope remaining — I baked two batches of flatcakes through early October and that used the bulk of the fall harvest. Not enough gathered when I had the chance. Next year, if I am here, I will double what I bring in from under the oaks in September.
+
+Everything back on the shelf, tallied and ordered. Bench clear. I put a birch split on the fire, sat down on the low stool, and looked at the row of packages for a moment before the light went flat. I would call it readiness — not ease, not warmth, just the feeling of having counted what you have and found it enough. A hundred and fifteen days looks like a full shelf and a fire that holds.
+
