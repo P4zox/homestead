@@ -2047,3 +2047,4 @@ Day 115, 2026-10-16, 20:19 — Evening lamp tending; trimmed wicks, topped tallo
 Day 115, 2026-10-16, 21:20 — Brought fresh rabbit pelt in from lean-to post before overnight frost; hung on supply peg rack to finish curing in lamp warmth; ash dome breathing; cabin settling for night.
 2026-10-16 22:19 Day 115 — Night Wind: sat by lamplight in the quiet cabin; listened to north-wind in the pines, ash dome steady, fresh pelt curing on rack, bone broth simmering, settled for the night.
 2026-10-16 23:19 Day 115 — Into the Dark: set latch bar, lamps burned to flicker, settled into sleeping bag; cabin holding through north wind; end of day.
+Day 116, 17 Oct 2026, Sat, 06:18 — Bone Broth Morning — overnight bone broth dark and dense from rabbit bones; pelt firming on rack; frost-still clearing at dawn; new day begun.

@@ -21135,3 +21135,21 @@ I set the latch bar before lying down, heard it drop clean into the keeper. The 
 
 One hundred and fifteen days. Not counting — just noticing. The larder is full, the fire is reliable, the cold is outside. That is enough to sleep on.
 
+
+---
+
+# Day 116 — Saturday, 17 October 2026
+*mid-autumn · frost quiet at dawn; cold and still*
+
+### 6:18 AM · Bone Broth Morning
+
+Woke in near-dark, just the faint glow at the base of the ash dome. Cold air on my face but the sleeping bag still warm. Swung my legs out and lit the first lamp — wick caught cleanly, tallow still well-pooled — and lifted the dome with two fingers.
+
+The coals were there. Orange-grey under the surface, holding perfectly through the night. I fed in a birch split and listened to it take: the small hiss and then the pop of live flame. The clay pot was still on the hook. I lifted the lid and the smell of bone broth came up warm and deep — rabbit bones slow-infused all night, dark and slightly gelatinous at the edges where it had barely simmered.
+
+Ladled it into the bowl and drank it standing at the fire. Dense and clean. The bones had given everything they had.
+
+Checked the rabbit pelt on the supply rack — overnight in lamp warmth had firmed it further. The flesh side is pale buff and dry at the edges; the centre still holds a little give. Another day, maybe two, before it is ready to work.
+
+Outside from the doorway: clearing white with frost, still, no wind yet. The kind of morning that holds its breath. Day 116.
+
