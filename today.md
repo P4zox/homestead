@@ -5,3 +5,4 @@
 09:18 — Fleshed the fresh rabbit pelt at hearth; bone scraper cleared inner face from tail to shoulder in short strokes; pelt stretched and pegged to lean-to post to air-dry flat.
 10:19 — Walked the south treeline in frost gear; found a birch snag in the duff, dragged two dry limbs and one dry pine bough back; stacked all three under the eave bark-side up.
 11:18 — Noon broth on pot-hook hands-free; one trout with watercress and smoked oyster mushroom shreds; pot hung central, simmered without tending; ate at doorsill bench, door cracked, frost holding in clearing.
+12:18 — Sat by the fire after noon broth; braided two lengths of two-ply cord from inner bark; pelt air-drying on lean-to post, frost holding in clearing all day.

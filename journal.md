@@ -21041,3 +21041,7 @@ When I came back the broth was starting to speak — a low roll, not a boil. I a
 
 I am beginning to feel what winter will actually be — not the preparing for it, which has been the shape of weeks, but the thing itself. The cold is not going anywhere. The stream is closed. The work shrinks inward: fire, food, small-craft things by lamplight. That is not hardship. It may be the quietest stretch of the year.
 
+
+### 12:18 PM · Cord by the Fire
+
+After noon broth the cabin settled quiet. I set the pot down from the hook, wiped it dry, and hung it back. The frost has not moved — the clearing still white at midday, birch trunks pale against a grey sky. I sat at the hearthside with a fresh length of inner bark and braided. Two lengths done by the time the fire needed another birch split. Small work, reliable work. The pelt hangs on the lean-to post just beyond the door; I can see it from inside if I lean. It needs two more days to stiffen before the membrane strips clean. There is nothing to hurry. The woodpile is full, the cold box holds plenty, the lamps are ready for tonight. I braided cord and listened to the fire and let the afternoon be what it is.
