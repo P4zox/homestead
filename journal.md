@@ -21126,3 +21126,12 @@ There is a particular sound to a pine slope in deep autumn wind — not the soft
 
 The fresh rabbit pelt hangs on the supply peg rack by the door, taking warmth from the lamps. By morning it should be pliable enough for the final scraping and the start of tanning. The larder shelf is full. The lamps are steady. Tomorrow the south snare, the broth, and the pelt — but that is tomorrow. Tonight the wind runs over the outside of everything without getting in, and that is enough.
 
+
+### 11:19 PM · Into the Dark
+
+The lamps have burned to their last. I did not trim them — just let them settle into flicker and watched the light shrink to a single warm point on the log wall. The ash dome is quiet, the bone broth at a slow bubble on the pot-hook. The fresh rabbit pelt on the supply rack has gone still, soft in the dying warmth.
+
+I set the latch bar before lying down, heard it drop clean into the keeper. The door held solid against the wind. Outside, the north wind moved through the pines in long even waves, and the cabin gave nothing back to it.
+
+One hundred and fifteen days. Not counting — just noticing. The larder is full, the fire is reliable, the cold is outside. That is enough to sleep on.
+
