@@ -2031,3 +2031,4 @@ Day 114, 22:19 — Wind Against the Gable — half-awake in the bag, wind pressi
 Day 114, 23:19 — last waking moment; wind on west gable; ash dome banked; birch split under coals; settling fully into sleep
 2026-10-16 Day 115 06:18 — Fitted and trimmed birch pot-hook to ridgepole peg; clay pot now hangs hands-free over fire.
 Day 115, 07:18 — First morning broth cooked on the new birch pot-hook; trout, watercress, and smoked oyster shreds; pot hung hands-free over hearth; clearing still frost-white and quiet.
+Day 115, 08:18 — Checked south snare; one grey-brown winter rabbit caught, dressed at doorsill bench, dock-wrapped cold box; snare reset; returned to cabin fire.

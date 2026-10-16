@@ -21002,3 +21002,16 @@ Ate by the fire before the light fully came in. The broth was good — clean and
 
 Now I'll check the south snare before the frost hardens the ground any more than it already has.
 
+
+### 8:18 AM · South Snare Yields
+
+Pulled the leather mittens on, wrapped the hare-pelt neck strip snug at my throat, and stepped out into the frost. The clearing was perfectly still — no wind, no tracks except my own pressed earlier in the doorway check. Frost had settled thick on every grass stem and the bracken hunched white along the cabin base. My breath went straight up and disappeared.
+
+The south snare is fifteen minutes into the treeline along a packed path I know by its contours now, every root-crossing and dip. The path had a skim of ice over the packed earth — I took it carefully, hazel stick in hand. The birch trunks were silver in the flat grey morning light; the pines behind them dark and still.
+
+The snare had caught: a grey-brown winter rabbit, well-furred, heavy in the hand. A good animal, fat from autumn. I held it a moment — that familiar weight — then reset the snare carefully, adjusting the loop height over the run and re-pinning the anchor stake into frozen ground before turning back toward the cabin.
+
+Dressed it at the doorsill bench in the thin morning light: pelt lifted clean, gut-string saved, cavity sound and clear. The hide is dense grey-brown winter coat — laid flat on the bench for now. The meat went dock-wrapped into the cold box, alongside the haunch and loin already waiting there from the Day 113 rabbit. Storage is good.
+
+Back inside with hands rinsed in frost-melt and warmed over the hearth coals. The clay pot still hangs quiet on the birch hook. Outside: frost-white, still, the clearing undisturbed except for a set of rabbit prints crossing the far edge that weren't there yesterday.
+

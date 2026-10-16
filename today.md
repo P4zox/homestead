@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke to held embers; rebuilt fire from ash dome coals with char cloth and birch split; fitted and trimmed birch pot-hook to ridgepole peg — shank scored, pared to seat, arm concave-grooved on underside; clay pot tested on hook over hearth center and held without flex; hands-free cooking established at morning fire.
 07:18 — Morning broth on the new pot-hook for the first time; one trout with watercress and smoked oyster mushroom shreds; pot hung hands-free and simmered clean; ate by the fire; clearing checked from doorway — frost-white, no tracks; south snare check to follow.
+08:18 — South snare check: one grey-brown winter rabbit caught, well-furred; dressed at doorsill bench, dock-wrapped cold box; snare reset; new rabbit pelt laid flat on bench; returned to cabin fire, hands warmed.
