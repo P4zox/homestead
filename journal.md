@@ -21076,3 +21076,11 @@ What is thin: acorn flour. One envelope remaining — I baked two batches of fla
 
 Everything back on the shelf, tallied and ordered. Bench clear. I put a birch split on the fire, sat down on the low stool, and looked at the row of packages for a moment before the light went flat. I would call it readiness — not ease, not warmth, just the feeling of having counted what you have and found it enough. A hundred and fifteen days looks like a full shelf and a fire that holds.
 
+
+### 4:00 PM · Cord by Firelight
+
+The larder count this afternoon left me with a quiet feeling — everything accounted for, everything where it should be. Now the day's work is done and the fire wants only feeding before supper. I sat at the hearth and pulled out the inner bark bundle, hands still cold from the morning's snare check, and began braiding cord. Two-ply, slow rhythm, the same motion I've done hundreds of times now. The light through the south gable gap is already amber and slanting low — October going the way October goes.
+
+I checked the rabbit pelt on the lean-to post before settling in. It's taken a good flat shape; the flesh side is pale and beginning to firm up. I'll leave it through the night and see where the membrane is come morning. Not yet time to strip it, but it's moving the right direction.
+
+Two lengths braided, coiled, set on the supply shelf. Supper to come.

@@ -9,3 +9,4 @@
 13:19 — Walked east to seep cache; lifted bark lid, checked eight mushroom packages — all resin-sealed, amber-firm, sound; lid replaced and stone-weighted; returned to cabin, added birch split to fire.
 14:20 — Carved a long birch stirring paddle from dry scrap branch — arm-length, two-finger-thick, bark stripped, working end paddle-faced and smooth-edged; hung on supply peg beside spoons.
 15:19 — Pulled supply shelf onto doorsill bench; full winter larder count: twelve sealed protein packages, mushroom cache full, elderberry/rose hip/hazelnut pastes sound, cattail starch at two portions; acorn flour thin at one envelope — noted for next year; everything back on shelf in order; birch split on fire; felt readiness looking at the row of packages in the grey afternoon light.
+16:00 — Checked pelt on lean-to post — flesh side pale and firming, drying flat and well; settled at hearth; braided two lengths two-ply cord from inner bark; fire fed; supper to follow.
