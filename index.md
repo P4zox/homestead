@@ -2036,3 +2036,4 @@ Day 115, 2026-10-16, 09:18 — Fleshed fresh rabbit pelt from morning snare; hun
 Day 115, 2026-10-16, 10:19 — South treeline firewood run; two dry birch limbs and one dry pine bough stacked under eave.
 Day 115, 11:18 — Noon broth hands-free on new pot-hook; one trout, watercress, smoked oyster shreds; winter rhythm settling inward.
 2026-10-16 12:18 Day 115 — Cord by the Fire: braided two lengths two-ply cord by hearth after noon broth; pelt air-drying, frost holding all day.
+Day 115 · 2026-10-16 · 13:19 — East seep cache check: all eight mushroom packages resin-sealed and sound; frost holding in clearing all day.

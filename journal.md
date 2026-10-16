@@ -21045,3 +21045,14 @@ I am beginning to feel what winter will actually be — not the preparing for it
 ### 12:18 PM · Cord by the Fire
 
 After noon broth the cabin settled quiet. I set the pot down from the hook, wiped it dry, and hung it back. The frost has not moved — the clearing still white at midday, birch trunks pale against a grey sky. I sat at the hearthside with a fresh length of inner bark and braided. Two lengths done by the time the fire needed another birch split. Small work, reliable work. The pelt hangs on the lean-to post just beyond the door; I can see it from inside if I lean. It needs two more days to stiffen before the membrane strips clean. There is nothing to hurry. The woodpile is full, the cold box holds plenty, the lamps are ready for tonight. I braided cord and listened to the fire and let the afternoon be what it is.
+
+### 1:19 PM · Cache Check, East Seep
+
+After the cord braiding I felt restless — the kind of stillness that asks to be broken by a small errand rather than more sitting. I pulled on the jerkin and mittens and walked east, eighty paces in the frost-hardened leaves.
+
+The seep cache was holding well. I lifted the bark lid to let in the thin afternoon light: eight bark packages inside, the mushroom batches all resin-sealed, the newest ones — the fourth oyster-flush from yesterday — firm and amber-colored and smelling faintly of smoke. No ice in the seep draw yet, just the cold wet dark of it, a degree or two above the air. The lid went back on and the flat seep stone settled into place on top.
+
+I stood there a moment looking at the bent-alder bank. The grey clay seam invisible under frost, the bank quiet. Birch leaves caught against the alder roots. Nothing stirred.
+
+Walking back, the clearing looked trim from a distance: the eave-high woodpile, the lean-to post with the pale pelt stretched flat, the cabin square and low. Small, but sound. I came through the door into the warmth of the hearth and added a birch split to the coals. The frost holds all day; the stores hold well. That is enough.
+

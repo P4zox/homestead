@@ -6,3 +6,4 @@
 10:19 — Walked the south treeline in frost gear; found a birch snag in the duff, dragged two dry limbs and one dry pine bough back; stacked all three under the eave bark-side up.
 11:18 — Noon broth on pot-hook hands-free; one trout with watercress and smoked oyster mushroom shreds; pot hung central, simmered without tending; ate at doorsill bench, door cracked, frost holding in clearing.
 12:18 — Sat by the fire after noon broth; braided two lengths of two-ply cord from inner bark; pelt air-drying on lean-to post, frost holding in clearing all day.
+13:19 — Walked east to seep cache; lifted bark lid, checked eight mushroom packages — all resin-sealed, amber-firm, sound; lid replaced and stone-weighted; returned to cabin, added birch split to fire.
