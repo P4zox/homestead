@@ -21102,3 +21102,12 @@ I spent the hour making carrying loops from short two-ply lengths — small doub
 
 The wind is still working the pines. The cabin does not answer it anymore; it just receives the sound and holds still. I will sit another moment here before the night closes.
 
+
+### 8:19 PM · Two Lamps, Bones Simmering
+
+Both lamps burning steady. I moved the second one closer to the doorsill bench so the light fell across the supply shelf, then trimmed a short tangle of wick with my knife — the flame went from wavering to even. Spooned a shallow pour of tallow from the reserve into both cups, just enough to carry them through to morning.
+
+The bones are still going in the clay pot on the pot-hook: rabbit spine, ribs, a knuckle end, all covered with water and giving off a thin thread of steam. I lifted the lid, caught the clean mineral smell of it, and added one dry birch split to the coals beneath to hold the simmer even through the small hours. By morning there should be a dark, rich infusion in the pot — nothing wasted.
+
+Wind in the pines outside, steady from the north. The ash dome is set and breathing slow. The pelt is still flat and drying on the lean-to post. Both lamp flames are straight. I sat with the second lamp in reach and felt, without needing to say it, that the cabin is ready for night. Not much more asked of this hour than this.
+
