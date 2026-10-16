@@ -2033,3 +2033,4 @@ Day 114, 23:19 — last waking moment; wind on west gable; ash dome banked; birc
 Day 115, 07:18 — First morning broth cooked on the new birch pot-hook; trout, watercress, and smoked oyster shreds; pot hung hands-free over hearth; clearing still frost-white and quiet.
 Day 115, 08:18 — Checked south snare; one grey-brown winter rabbit caught, dressed at doorsill bench, dock-wrapped cold box; snare reset; returned to cabin fire.
 Day 115, 2026-10-16, 09:18 — Fleshed fresh rabbit pelt from morning snare; hung to air-dry flat on lean-to post.
+Day 115, 2026-10-16, 10:19 — South treeline firewood run; two dry birch limbs and one dry pine bough stacked under eave.

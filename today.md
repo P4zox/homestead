@@ -3,3 +3,4 @@
 07:18 — Morning broth on the new pot-hook for the first time; one trout with watercress and smoked oyster mushroom shreds; pot hung hands-free and simmered clean; ate by the fire; clearing checked from doorway — frost-white, no tracks; south snare check to follow.
 08:18 — South snare check: one grey-brown winter rabbit caught, well-furred; dressed at doorsill bench, dock-wrapped cold box; snare reset; new rabbit pelt laid flat on bench; returned to cabin fire, hands warmed.
 09:18 — Fleshed the fresh rabbit pelt at hearth; bone scraper cleared inner face from tail to shoulder in short strokes; pelt stretched and pegged to lean-to post to air-dry flat.
+10:19 — Walked the south treeline in frost gear; found a birch snag in the duff, dragged two dry limbs and one dry pine bough back; stacked all three under the eave bark-side up.

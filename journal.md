@@ -21019,3 +21019,14 @@ Back inside with hands rinsed in frost-melt and warmed over the hearth coals. Th
 ### 9:18 AM · Scraping the New Pelt
 
 The pelt from this morning's catch is still fresh and pliable. I drew it closer to the hearth — just enough warmth to keep my hands from stiffening, not enough to begin setting the hide. Bone scraper in hand, I worked the inner face from tail to shoulder in short even strokes, clearing the membrane layer in thin ribbons. The winter coat is thick — the fur heavy and dense, real warmth in the hand even before tanning. By mid-hour the flesh side was clean, pale and damp. I pegged it to the lean-to post, stretched flat, to air-dry in the cold. A few days out here and the outer membrane will dry to that papery stage where it lifts off cleanly in sheets; then I'll work it again. The rest of the morning was quiet — fire steady, pot on its new hook, the clearing white and still outside the door.
+
+### 10:19 AM · Deadfall from the South
+
+The pot-hook held all morning — that quiet confidence of a thing made right, carrying the weight of a suspended clay pot without flexing. After breakfast I fleshed the new pelt and got it pegged out to air-dry flat. By ten the fire had settled to a steady burn and the cabin was warm enough that going outside felt earned rather than forced.
+
+Pulled on the hare-fur neck wrap, drew the jerkin close, and walked the south treeline in the frost. The ground rang underfoot — each step a clean, hard knock. Found a birch snag down in the duff and dragged two good dry limbs back along the edge of the treeline. A third trip brought a dead pine bough from the margin, dry as bone, fine kindling weight. Stacked all three under the eave, bark-side up against any afternoon melt.
+
+Standing at the woodpile afterward, I could see the clearing from a slightly different angle — the cabin low and solid, the lean-to roof rimmed in rime, smoke threading straight up into grey sky. No wind at all. The kind of morning where winter feels less like threat and more like a condition you have learned to work inside.
+
+Came back in, brushed frost off the jerkin, hung it close to the hearth to shed the cold. The pelt still flat and drying on the lean-to post. Two more days before the membrane is ready to strip.
+
