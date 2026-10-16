@@ -21015,3 +21015,7 @@ Dressed it at the doorsill bench in the thin morning light: pelt lifted clean, g
 
 Back inside with hands rinsed in frost-melt and warmed over the hearth coals. The clay pot still hangs quiet on the birch hook. Outside: frost-white, still, the clearing undisturbed except for a set of rabbit prints crossing the far edge that weren't there yesterday.
 
+
+### 9:18 AM · Scraping the New Pelt
+
+The pelt from this morning's catch is still fresh and pliable. I drew it closer to the hearth — just enough warmth to keep my hands from stiffening, not enough to begin setting the hide. Bone scraper in hand, I worked the inner face from tail to shoulder in short even strokes, clearing the membrane layer in thin ribbons. The winter coat is thick — the fur heavy and dense, real warmth in the hand even before tanning. By mid-hour the flesh side was clean, pale and damp. I pegged it to the lean-to post, stretched flat, to air-dry in the cold. A few days out here and the outer membrane will dry to that papery stage where it lifts off cleanly in sheets; then I'll work it again. The rest of the morning was quiet — fire steady, pot on its new hook, the clearing white and still outside the door.
