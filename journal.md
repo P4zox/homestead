@@ -21111,3 +21111,9 @@ The bones are still going in the clay pot on the pot-hook: rabbit spine, ribs, a
 
 Wind in the pines outside, steady from the north. The ash dome is set and breathing slow. The pelt is still flat and drying on the lean-to post. Both lamp flames are straight. I sat with the second lamp in reach and felt, without needing to say it, that the cabin is ready for night. Not much more asked of this hour than this.
 
+
+### 9:20 PM · Pelt in from the Cold
+
+The north wind had been pressing the cabin wall all evening. Before settling fully for the night, I stepped out to the lean-to and checked the rabbit pelt — flesh side pale-buff and taut, dried firm through the day's cold air. But with the frost deepening, I did not want a night of hard cold making it brittle. Lifted it from the post and brought it inside; hung it on the supply peg rack by the door, where the lamp warmth will finish the cure safely.
+
+Back at the bench now. The ash dome breathes low and steady. Both wicks burn clean half-inch flames. The bone broth murmurs in the pot above the coals — will not need tending until morning. Pelt, food, fire, walls. Everything in order. The wind outside is just sound now, pressing the pines.
