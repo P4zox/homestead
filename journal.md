@@ -21030,3 +21030,14 @@ Standing at the woodpile afterward, I could see the clearing from a slightly dif
 
 Came back in, brushed frost off the jerkin, hung it close to the hearth to shed the cold. The pelt still flat and drying on the lean-to post. Two more days before the membrane is ready to strip.
 
+
+### 11:18 AM · Hands-Free at Noon
+
+The pot-hook changes the hours. I do not know why it took this long to notice how much of each day I spent crouched or kneeling at the hearth — feeding the flame with one hand, steadying the pot with the other, smoke pressing down into my eyes. This morning was a trial; this noon I used it properly.
+
+One trout hung in the pot with watercress and a few shreds of yesterday's smoked oyster mushrooms — the fourth flush, amber-gold from the birch-chip smoke. I set the hook in the ridgepole notch, adjusted the pot over the coals, and let it go. Stood up. Fed the fire from the side. Crossed to the door to check the pelt on the lean-to post — still flat, drying well, the frost just beginning to release from the corners of the hide.
+
+When I came back the broth was starting to speak — a low roll, not a boil. I ate at the doorsill bench with the door cracked a thumb's width: cold air against my shins, warmth from the hearth at my back. The clearing holds its frost through the middle of the day now. No wind. Grey sky, the pines dark against it.
+
+I am beginning to feel what winter will actually be — not the preparing for it, which has been the shape of weeks, but the thing itself. The cold is not going anywhere. The stream is closed. The work shrinks inward: fire, food, small-craft things by lamplight. That is not hardship. It may be the quietest stretch of the year.
+

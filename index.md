@@ -2034,3 +2034,4 @@ Day 115, 07:18 — First morning broth cooked on the new birch pot-hook; trout, 
 Day 115, 08:18 — Checked south snare; one grey-brown winter rabbit caught, dressed at doorsill bench, dock-wrapped cold box; snare reset; returned to cabin fire.
 Day 115, 2026-10-16, 09:18 — Fleshed fresh rabbit pelt from morning snare; hung to air-dry flat on lean-to post.
 Day 115, 2026-10-16, 10:19 — South treeline firewood run; two dry birch limbs and one dry pine bough stacked under eave.
+Day 115, 11:18 — Noon broth hands-free on new pot-hook; one trout, watercress, smoked oyster shreds; winter rhythm settling inward.
