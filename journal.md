@@ -21056,3 +21056,12 @@ I stood there a moment looking at the bent-alder bank. The grey clay seam invisi
 
 Walking back, the clearing looked trim from a distance: the eave-high woodpile, the lean-to post with the pale pelt stretched flat, the cabin square and low. Small, but sound. I came through the door into the warmth of the hearth and added a birch split to the coals. The frost holds all day; the stores hold well. That is enough.
 
+
+### 2:20 PM · The Stirring Paddle
+
+The morning piled up its hours well — the pot-hook proved itself over two broths, the snare gave another grey rabbit, and the pelt is hanging flat on the lean-to post in the frost. By early afternoon I had done what needed doing, and I sat down close to the fire with a straight dry birch branch from the scrap pile.
+
+It was about arm-length, two fingers thick, clean grain. I stripped the bark first, then took the knife to one end steadily — flattening a paddle face, rounding the edges so there are no splits to catch or snag on the pot rim. The grip end left round and smooth. Longer than the eating spoon by a good span, which is what I wanted: something to reach into the hanging pot without leaning over the coals.
+
+The afternoon suited the work. Cold grey outside, frost holding in the clearing, fire steady at my side. When I finished I hung it on the supply peg beside the spoons. The pot-hook for hanging, the paddle for tending — a complete little system, and none of it planned more than a day ahead.
+

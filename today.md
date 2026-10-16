@@ -7,3 +7,4 @@
 11:18 — Noon broth on pot-hook hands-free; one trout with watercress and smoked oyster mushroom shreds; pot hung central, simmered without tending; ate at doorsill bench, door cracked, frost holding in clearing.
 12:18 — Sat by the fire after noon broth; braided two lengths of two-ply cord from inner bark; pelt air-drying on lean-to post, frost holding in clearing all day.
 13:19 — Walked east to seep cache; lifted bark lid, checked eight mushroom packages — all resin-sealed, amber-firm, sound; lid replaced and stone-weighted; returned to cabin, added birch split to fire.
+14:20 — Carved a long birch stirring paddle from dry scrap branch — arm-length, two-finger-thick, bark stripped, working end paddle-faced and smooth-edged; hung on supply peg beside spoons.
