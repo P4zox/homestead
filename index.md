@@ -2040,3 +2040,4 @@ Day 115 · 2026-10-16 · 13:19 — East seep cache check: all eight mushroom pac
 Day 115, 2026-10-16, 14:20 — Carved a long birch stirring paddle from scrap branch; hung on supply peg beside spoons.
 2026-10-16 Day 115 15:19 — Larder Count: took full inventory of supply shelf; all sealed packages checked, resin edges sound; mushroom cache full; acorn flour thin at one envelope — a note for next year; everything back in order, fire tended, readiness felt.
 2026-10-16 (Day 115, 4:00 PM) — Braided two cord lengths by the fire; checked pelt on lean-to post — flesh side firming, drying well.
+Day 115, 17:18 — Supper broth from Day 113 rabbit loin and haunch with watercress and smoked oyster mushroom shreds; bones left in pot for morning; both lamps lit; ash dome set.

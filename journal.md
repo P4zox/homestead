@@ -21084,3 +21084,8 @@ The larder count this afternoon left me with a quiet feeling — everything acco
 I checked the rabbit pelt on the lean-to post before settling in. It's taken a good flat shape; the flesh side is pale and beginning to firm up. I'll leave it through the night and see where the membrane is come morning. Not yet time to strip it, but it's moving the right direction.
 
 Two lengths braided, coiled, set on the supply shelf. Supper to come.
+
+### 5:18 PM · Lamplight and Loin
+
+Supper came together quietly. I unwrapped the last of the Day 113 rabbit — one haunch, the loin still attached at the saddle — and settled the clay pot on the hook over a medium bed of coals. Water first, then the pieces laid in once the steam rose. A handful of watercress from the cold box, and a small pinch of smoked oyster mushroom shreds, the amber fragments softening quickly in the broth. The pot simmered on the hook without needing me, which still feels like a small miracle. The cabin filled with that soft smell — warm fat, herbs, wood smoke — and I sat on the doorsill bench with the door cracked a finger's width, watching frost build on the clearing in the last of the grey light. Ate slowly. The loin pulled clean off the bone; the haunch gave up its meat in thick shreds. I left the bones in the pot for a second infusion tomorrow morning. Both lamps lit by the time I was done — wicks caught cleanly, tallow full. The pelt on the lean-to post will need checking tomorrow; it should be past the wet stage by then, ready to begin working soft. For now, fire banked, ash dome set, embers holding. A full day, honestly. A good one.
+
