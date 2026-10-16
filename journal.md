@@ -21093,3 +21093,12 @@ Supper came together quietly. I unwrapped the last of the Day 113 rabbit — one
 ### 6:18 PM · Lamplight and Wind
 
 Supper done and bones resting in the pot. The ash dome is set, lamps burning steady, and there is nothing left that needs doing tonight except being still. I sat on the cattail mat with a length of inner bark across my lap and braided two more cord lengths by the warm amber light, fingers moving without thought. The cabin is tight — no draft comes through the gabled walls, no breath of wind finds the threshold. Outside I can hear the pine boughs working against each other in the dark, a low creak and settle, and the frost is deepening by the hour I am sure. But in here the air is warm and faintly smoky and close. The new rabbit pelt is out on the lean-to post — I cannot see it from inside, but I know it is there, stiffening in the cold, the flesh side slowly firming toward leather. Two or three days and I can strip the membrane and begin work. The bones in the pot will give a good morning infusion. I braided until my hands told me they were finished, then set the cord on the shelf, checked both lamp wicks once, and sat a while longer just listening. The wind does not get in. That is the whole point of the last four months. That the wind does not get in.
+
+### 7:19 PM · Small Loops, Wind Outside
+
+The bones are set to their overnight slow in the crock on the pot-hook, and both lamps are burning steady. After supper, the ash dome solid and the wind pressing the west gable in long gusts, I found myself sitting with a length of spare cord and nothing large pressing on me.
+
+I spent the hour making carrying loops from short two-ply lengths — small doubled rings, finger-wide, worked into a square knot and tightened close. By the time the first lamp guttered once and steadied, I had three. I threaded one around the sealed throat of the rose hip paste envelope, one onto the elderberry reduction, one on the hazelnut. A small thing. But now when I need any of them in the low morning light — before the lamps are trimmed, before the fire is fully up — I will not have to feel along the whole shelf. I will find the cord loop and lift.
+
+The wind is still working the pines. The cabin does not answer it anymore; it just receives the sound and holds still. I will sit another moment here before the night closes.
+

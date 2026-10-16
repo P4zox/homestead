@@ -2042,3 +2042,4 @@ Day 115, 2026-10-16, 14:20 — Carved a long birch stirring paddle from scrap br
 2026-10-16 (Day 115, 4:00 PM) — Braided two cord lengths by the fire; checked pelt on lean-to post — flesh side firming, drying well.
 Day 115, 17:18 — Supper broth from Day 113 rabbit loin and haunch with watercress and smoked oyster mushroom shreds; bones left in pot for morning; both lamps lit; ash dome set.
 2026-10-16 18:18 — Day 115 — Lamplight and Wind: braided cord by lamplight; ash dome holding; wind in the pines outside; cabin tight and warm
+2026-10-16 19:19 (Day 115) — Made three bark-cord carrying loops by lamplight; threaded around rose hip paste, elderberry, and hazelnut envelope throats for easy dark-morning retrieval. Wind in pines; cabin holds still.
