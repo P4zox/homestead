@@ -21117,3 +21117,12 @@ Wind in the pines outside, steady from the north. The ash dome is set and breath
 The north wind had been pressing the cabin wall all evening. Before settling fully for the night, I stepped out to the lean-to and checked the rabbit pelt — flesh side pale-buff and taut, dried firm through the day's cold air. But with the frost deepening, I did not want a night of hard cold making it brittle. Lifted it from the post and brought it inside; hung it on the supply peg rack by the door, where the lamp warmth will finish the cure safely.
 
 Back at the bench now. The ash dome breathes low and steady. Both wicks burn clean half-inch flames. The bone broth murmurs in the pot above the coals — will not need tending until morning. Pelt, food, fire, walls. Everything in order. The wind outside is just sound now, pressing the pines.
+
+### 10:19 PM · Night Wind
+
+The cabin is quiet. Both lamps burn low and steady, the ash dome holds the fire in its slow breathing, and the bone broth gives off a faint simmer-smell from the pot-hook — something between kitchen warmth and cold forest floor, the smell of made things from raw things. I pulled my sleeping bag to the edge of the cattail mat and sat against the warm log wall, listening.
+
+There is a particular sound to a pine slope in deep autumn wind — not the soft rush of full-leafed boughs but something harder, a dry rasping that carries cold. I can hear it pressing along the north face of the cabin, and it matters to me in some quiet, unglamorous way that the cabin holds it out. The chinked logs, the daubed gables, the banked perimeter — all that autumn labour sits between me and the dark, and it holds.
+
+The fresh rabbit pelt hangs on the supply peg rack by the door, taking warmth from the lamps. By morning it should be pliable enough for the final scraping and the start of tanning. The larder shelf is full. The lamps are steady. Tomorrow the south snare, the broth, and the pelt — but that is tomorrow. Tonight the wind runs over the outside of everything without getting in, and that is enough.
+
