@@ -21153,3 +21153,14 @@ Checked the rabbit pelt on the supply rack — overnight in lamp warmth had firm
 
 Outside from the doorway: clearing white with frost, still, no wind yet. The kind of morning that holds its breath. Day 116.
 
+
+### 7:18 AM · Winter Cord by Fire
+
+The fire is hot by seven, coals glowing red through the ash. After the bone broth I sat a while watching them, letting the warmth settle into my hands. Outside at the doorway the clearing was frost-white and still — no wind, just cold held flat, the pines dark against a pale sky.
+
+The rabbit pelt on the rack looks right. Pale-buff across the whole flesh side, firming toward the edges, drying evenly in the lamp heat. I turned it once, checked that the center was not damp, pressed the edge gently — not yet ready to strip the membrane. Another day, maybe two. I left it alone.
+
+I took up cord braiding. The stock is healthy but two-ply never goes to waste in deep winter — everything that wants tying or lashing calls on it, and you are glad every time you can reach for a prepared length rather than wrestle raw bark with cold fingers. Two new lengths twisted and added to the pile on the supply shelf. The motions are nearly meditative now: peel, wet, twist, cross, lay aside. I sat with the sounds of the fire and the slow light coming gray through the gable crack.
+
+Quiet Saturday. More of these ahead.
+
