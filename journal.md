@@ -21191,3 +21191,12 @@ Small work. Precise work. In winter the hours between meals exist to keep the to
 
 Pulled the belly and cavity fat from the Day 116 rabbit — a good double-handful, pale and dense — and set it in the clay pot with a little water to render over the fire. The pot hung easy on the birch hook. I diced the fat small with the knife and waited while the water steamed off and the fat began to weep clear. By the time the small crispy bits floated free, I strained the liquid through folded bark into the reserve tallow envelope — a good cupful, amber-clear and warm. Resealed the flap with the pine pin. The lamp supply deepens; each cup of tallow is another hour of light when the nights stretch to fourteen, fifteen hours. Outside, frost still holding at mid-morning. Both pelts curing on their pegs. One more day for the Day 115 hide; I will know by feel at supper whether the center has firmed through.
 
+
+### 11:18 AM · Quiet Midday
+
+Lifted the clay pot onto the hook and set water to warm. The clearing through the doorway is all frost and shadow — still, no wind, the kind of mid-October morning that seems to have decided it wants to stay all day. I pulled a trout from the cold box, dressed it at the hearthstone, and slid it into the warming water with a fistful of watercress and a few shreds of smoked oyster mushroom.
+
+Checked the Day 115 pelt while the broth came up. Edges stiff and pale buff to the crown, but there is still a small patch of give at the center. One more day. I smoothed it back on the rack and waited.
+
+Ladled the noon broth into the wide bowl and ate in the open doorway — fire warm at my back, cold coming off the clearing. The stream is silent under its ice. Both snares are reset. Two rabbits in the cold box, seven trout, the whole shelf of dried and smoked stores, the woodpile solid under the eave. I counted through it while I ate, the bowl warm between my palms. Everything is where it should be. That is a strange and good feeling, sitting at the edge of hard winter with enough.
+
