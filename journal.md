@@ -21241,3 +21241,12 @@ Both pelts hang quiet on their pegs. Day 115's is firm at the edges, one more mo
 
 Two new cord lengths coiled and set on the shelf. The afternoon passes quietly.
 
+
+### 4:18 PM · Cold Gold Light
+
+There is a particular quality to the light this late in autumn — low and amber, slanting sharp across the clearing, turning the frost-crystals on the grass to bright points for about half an hour before the tree line swallows the sun. I have started timing the snare reset around it.
+
+I went south along the familiar path, following the worn trace through the bracken to the snare site. The ground was iron-hard; the frost had not thawed at all today, not in the clearing and not under the trees. The snare loop was intact and undisturbed — no catch since this morning — and I reformed the loop carefully, checking the trigger notch, resetting the spring tension in the bent sapling. Two rabbits in two days. I am not counting on a third, but the loop is set and the morning will tell.
+
+On the way back the light was failing fast, that sudden dimming that mid-autumn does. The cabin showed a thin thread of smoke above the tree line — my fire, still drawing. I paused once at the clearing edge to look at it: the bark-brown walls, the smoke, the woodpile under the eave. A small solid thing against all that cold and dark. I felt, standing there, genuinely glad.
+

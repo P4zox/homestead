@@ -2057,3 +2057,4 @@ Day 116, 12:19 PM — Baked last acorn flour envelope into eight flatcakes on he
 2026-10-17 Day 116 13:19 — Rose hip infusion brewed; one flatcake at doorsill bench; clearing frost-still and windless; Day 115 pelt ready tomorrow for membrane strip.
 2026-10-17 14:18 Day 116 — baked six cattail starch cakes from reserve starch; nine starch cakes total on supply shelf; winter larder solid
 2026-10-17 Day 116 15:19 — Two cord lengths braided at hearthside; both pelts curing; afternoon frost-still and quiet
+Day 116, 16:18 — South snare reset before dusk in amber cold light; cabin smoke visible from clearing edge; glad for the solid, warm shelter against the dark.
