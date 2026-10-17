@@ -2056,3 +2056,4 @@ Day 116, 2026-10-17, 11:00 — Noon Broth, Still: trout and watercress simmered 
 Day 116, 12:19 PM — Baked last acorn flour envelope into eight flatcakes on hearth pad; acorn flour supply exhausted; sixteen flatcakes now on supply shelf.
 2026-10-17 Day 116 13:19 — Rose hip infusion brewed; one flatcake at doorsill bench; clearing frost-still and windless; Day 115 pelt ready tomorrow for membrane strip.
 2026-10-17 14:18 Day 116 — baked six cattail starch cakes from reserve starch; nine starch cakes total on supply shelf; winter larder solid
+2026-10-17 Day 116 15:19 — Two cord lengths braided at hearthside; both pelts curing; afternoon frost-still and quiet

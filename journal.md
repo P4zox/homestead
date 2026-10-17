@@ -21232,3 +21232,12 @@ I measured out one portion into the wide bowl — cold water, a small spoonful o
 
 Fire still steady. Both pelts curing on their pegs. The afternoon light through the gable is flat and grey; the south treeline shadow is almost to the woodpile. Another hour of working light, then lamp evening.
 
+
+### 3:19 PM · Cord by Firelight
+
+Afternoon settled over the clearing, frost still white and unbroken out past the doorsill. I sat at the hearthside with a bundle of birch inner bark strips and worked through two more cord lengths — the motion familiar now, easy and almost absent-minded. The light coming through the gable gap has turned that low October gold, angled and thin, not warming anything but still something you look at.
+
+Both pelts hang quiet on their pegs. Day 115's is firm at the edges, one more morning from the membrane strip. Day 116's is still pale and soft, curing slowly in the lamp warmth. The supply shelf stands full — flatcakes and starch cakes stacked, paste envelopes in their row, mushrooms bark-wrapped and sealed in the cold box. I do not need much more today. Mostly I am just being here in a well-prepared cabin while winter holds steady outside.
+
+Two new cord lengths coiled and set on the shelf. The afternoon passes quietly.
+
