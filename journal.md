@@ -21292,3 +21292,17 @@ Both lamps burning at their lowest — the flames a steady thread above the gras
 
 Brief wakefulness at the edge of midnight — I surfaced from the first soft layer of sleep, the kind that has not gone fully deep yet. The coals hold steady under their ash dome, orange and low. One lamp wick guttered and found itself again; both burn at almost nothing now, thin amber threads in the dark. The mittens sit soft on the doorsill bench where I set them to absorb. Day 115's pelt is pale and dry on its peg — tomorrow I will strip the membrane and start the leather work. Day 116's pelt is drying clean beside it. I turned once in the sleeping bag, pulled it closer at my chin, and let the cold dark of the clearing settle over everything again. The pines are still. The stars are still. The fire will hold until morning.
 
+
+---
+
+# Day 117 — Sunday, 18 October 2026
+*mid-autumn · frost on the clearing; dawn still and cold*
+
+### 6:18 AM · Coals Hold, Day Opens
+
+The ash dome is lifted before full light comes gray to the doorway. Beneath it the coals are still orange — not all the way down, but enough — and a split of dry birch catches on them without coaxing. I hang the clay pot on the pot-hook while the flame builds. Yesterday's broth is still in it: trout and watercress gone thick overnight in the cold of the cabin. It heats slowly and I stand at the hearth with my back to the door listening to it tick.
+
+Day 115's pelt is on the rack. I check it with both hands — flesh side pale-buff, stiff at center now, no give left. The membrane has dried to a faint papery layer across the surface. Today I'll strip it. That was the plan last night, and the pelt has kept its word. Day 116's pelt is still on the lean-to post, softer yet, another day or two before it's ready.
+
+I ladle broth into the wide bowl and eat standing at the open doorway. The clearing is white with frost, birch trunks dark against a pale sky, not a breath of wind. Two rabbits in the cold box. Six trout. A shelf of flatcakes and starch cakes. Cord stocked. Both lamps trimmed and full. The winter is as settled as it gets, and I am inside it, and all right.
+
