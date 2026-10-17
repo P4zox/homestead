@@ -2049,3 +2049,4 @@ Day 115, 2026-10-16, 21:20 — Brought fresh rabbit pelt in from lean-to post be
 2026-10-16 23:19 Day 115 — Into the Dark: set latch bar, lamps burned to flicker, settled into sleeping bag; cabin holding through north wind; end of day.
 Day 116, 17 Oct 2026, Sat, 06:18 — Bone Broth Morning — overnight bone broth dark and dense from rabbit bones; pelt firming on rack; frost-still clearing at dawn; new day begun.
 Day 116, 07:18 — Checked curing rabbit pelt (pale-buff, firming, not ready to strip); braided two more cord lengths by fire — quiet winter Saturday morning.
+Day 116, 08:18 — Checked south snare; second rabbit caught, dressed and cold-boxed; pelt hung to cure beside yesterday's.

@@ -21164,3 +21164,14 @@ I took up cord braiding. The stock is healthy but two-ply never goes to waste in
 
 Quiet Saturday. More of these ahead.
 
+
+### 8:18 AM · Snare at Frost-Light
+
+I laced on my foot wraps and leather jerkin at the doorway, mittens tucked in my belt — cold but still, the kind of morning that holds its breath. The clearing lay frost-white under flat pale cloud, my boot prints from yesterday already crystallized into little ridges. I walked the treeline south, weaving between the birches, breath rising in small plumes.
+
+The snare cord was taut. A young rabbit, grey-brown winter coat, had come in overnight and now lay still and frosted in the loop — the south snare true again, just like Day 115. I killed it cleanly, reset the cord tight against the pine root where it sits best, and carried it back toward the clearing. Small and well-furred, a little lighter than yesterday's, but solid.
+
+Back inside, I dressed it at the hearthstone — pelt stripped whole, no nicks. Pelt fleshed quickly on the bark board and hung on the lean-to post beside yesterday's curing pelt, fur-side against post. Meat jointed and dock-wrapped into the cold box. I washed my hands in snow melted in a bark cup over the coals, then just stood at the open door a moment — cold pouring in, fire warm at my back, both pulling at once. The clearing still holding its frost.
+
+Two rabbits in cold storage now. The winter larder, already solid, takes on another notch.
+

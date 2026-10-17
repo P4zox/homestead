@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke to held coals; lifted ash dome; fed birch split to fire; ladled bone broth from clay pot — dark and rich from rabbit bones simmered overnight; drank at hearthside; checked rabbit pelt on rack, flesh side pale-buff and firming well; stepped to doorway, clearing frost-white and still, no wind yet.
 07:18 — Checked rabbit pelt on rack — pale-buff, firming evenly, edges drying well; center not damp; too early to strip membrane (1–2 more days); turned pelt once; settled by fire — two new cord lengths braided and added to supply shelf stock.
+08:18 — Walked south through frost to check snare; second rabbit caught overnight, killed and dressed; pelt fleshed and hung on lean-to post beside Day 115 pelt; meat jointed and dock-wrapped cold box; two rabbits now in cold storage.
