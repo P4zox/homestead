@@ -2062,3 +2062,4 @@ Day 116, 2026-10-17, 17:19 — Supper broth (trout, watercress, smoked oyster sh
 2026-10-17 Day 116 18:00 — Braided two cord lengths by lamplight; evening still and frost-clear; both pelts curing; winter stores complete.
 2026-10-17 Day 116 19:18 — Leather mittens tallow-conditioned by lamplight; both joints and seams worked supple; set on doorsill bench to absorb overnight.
 2026-10-17 Day 116 20:19 — Banked coals for the night; both lamps trimmed and low; mittens finishing tallow-soak on bench; fire set for a long night; larder full, pelts curing, clearing frost-still
+2026-10-17 21:19 — Day 116, 9 PM: turned both pelts in lamplight; Day 115 nearly ready for membrane strip; two cord lengths braided; mittens tallow-soaking; fire banked, ready for sleep.

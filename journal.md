@@ -21280,3 +21280,7 @@ I sat back from the fire and let the quiet settle. The larder is full — two ra
 
 I will sleep well tonight.
 
+
+### 9:19 PM · Lamp Watch, Still Night
+
+Both lamps at their lowest now, the banked fire sending a slow orange pulse through the ash dome. I turned each pelt in the lamplight — Day 115s
