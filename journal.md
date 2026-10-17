@@ -21211,3 +21211,16 @@ They cooked slowly. The cabin filled with that faint nutty smell — the smell o
 
 The last of the acorn flour, used completely. Three full envelopes gathered and processed across the fall, and now they are done — turned into flatcakes that will carry me through several mornings and suppers yet. Nothing wasted. Nothing short. The clearing frost-white and still outside the open door, the light thin and pale, and in here the smell of toasted flour still faint on the air.
 
+
+### 1:19 PM · Warmth Without Wind
+
+The flatcakes are cooled and stacked. Two pelts hang curing. The fire holds itself now, needing nothing from me.
+
+I pulled one of the rose hip envelopes from the supply shelf — the dried berries crumble slightly between fingers, rust-red and lightly fragrant. I crushed a small handful in the clay bowl with the round hand cobble, then steeped them in near-boiling water from the clay pot, lid set loose. The infusion turned amber-pink, tart and faintly sweet.
+
+I took the cup to the doorsill bench and sat. The clearing is frost-white and absolutely still. No wind at all. The birch stand east has shed every last leaf; bare silver branches hold the pale afternoon sky. The pines behind the cabin are dark and motionless. It is the kind of cold that does not press — it just settles, permanent and unhurried.
+
+I ate one flatcake with the infusion. Toasted nut and tart hip, together in the quiet. Both pelts hold well on their pegs. The Day 115 pelt will be ready tomorrow for membrane strip.
+
+Simple afternoon. Winter is here, fully. Everything is in order.
+
