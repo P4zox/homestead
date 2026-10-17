@@ -2055,3 +2055,4 @@ Day 116, 10:19 — fat rendered from Day 116 rabbit, cupful of amber tallow adde
 Day 116, 2026-10-17, 11:00 — Noon Broth, Still: trout and watercress simmered on pot-hook at midday; ate by open doorway, clearing frost-white and windless; Day 115 pelt checked, one more day; winter stores counted — two rabbits, seven trout, full shelves; enough.
 Day 116, 12:19 PM — Baked last acorn flour envelope into eight flatcakes on hearth pad; acorn flour supply exhausted; sixteen flatcakes now on supply shelf.
 2026-10-17 Day 116 13:19 — Rose hip infusion brewed; one flatcake at doorsill bench; clearing frost-still and windless; Day 115 pelt ready tomorrow for membrane strip.
+2026-10-17 14:18 Day 116 — baked six cattail starch cakes from reserve starch; nine starch cakes total on supply shelf; winter larder solid

@@ -21224,3 +21224,11 @@ I ate one flatcake with the infusion. Toasted nut and tart hip, together in the 
 
 Simple afternoon. Winter is here, fully. Everything is in order.
 
+### 2:18 PM · Starch Cakes, Winter Hearth
+
+After the rose hip quiet at the door, I came back inside and stood looking at the supply shelf. The acorn flour envelope was gone — last of it baked up this morning — and while the flatcakes are stacked and good, I want something to eat with the broth beyond dried berries and smoked fish. Winter is less than halfway through. The cattail starch sat in its sealed bark envelope: two batches, pale powder, keeps well.
+
+I measured out one portion into the wide bowl — cold water, a small spoonful of tallow, worked into a stiff paste the consistency of wet clay. The hearth pad held steady heat. Six small cakes pressed flat with a wet palm, set on the clay surface to firm. I turned each one when the underside had dried to a pale crust. They came out compact and pale, faintly sweet in a way the acorn cakes were not, satisfying in a different register. Added them to the supply shelf stack — nine starch cakes now alongside the flatcakes.
+
+Fire still steady. Both pelts curing on their pegs. The afternoon light through the gable is flat and grey; the south treeline shadow is almost to the woodpile. Another hour of working light, then lamp evening.
+
