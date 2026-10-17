@@ -21200,3 +21200,14 @@ Checked the Day 115 pelt while the broth came up. Edges stiff and pale buff to t
 
 Ladled the noon broth into the wide bowl and ate in the open doorway — fire warm at my back, cold coming off the clearing. The stream is silent under its ice. Both snares are reset. Two rabbits in the cold box, seven trout, the whole shelf of dried and smoked stores, the woodpile solid under the eave. I counted through it while I ate, the bowl warm between my palms. Everything is where it should be. That is a strange and good feeling, sitting at the edge of hard winter with enough.
 
+
+### 12:19 PM · Last of the Acorn Flour
+
+The afternoon quiet settled after the broth bowl went back on the shelf. With both pelts still curing on their pegs and nothing urgent pulling at me, I went to the supply shelf and lifted down the last acorn flour envelope — the final one, the third from the fall harvest. I have been careful with it, making it last, and today seemed right.
+
+I measured the flour into the wide bowl and worked in a small spoonful of tallow until the flour crumbled soft and even between my fingers. Then cold water, a little at a time, drawing the dough together slowly. It came out firm and pale, exactly right. Eight small rounds pressed flat, thumb-thick, and set near the coals on the clay hearth pad to toast.
+
+They cooked slowly. The cabin filled with that faint nutty smell — the smell of autumn in the middle of hard winter, which is a strange and good thing. I sat by the fire while they darkened on one side, turned them with a stick, let them finish. By early afternoon all eight had cooled and were stacked on the supply shelf.
+
+The last of the acorn flour, used completely. Three full envelopes gathered and processed across the fall, and now they are done — turned into flatcakes that will carry me through several mornings and suppers yet. Nothing wasted. Nothing short. The clearing frost-white and still outside the open door, the light thin and pale, and in here the smell of toasted flour still faint on the air.
+

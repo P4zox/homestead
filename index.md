@@ -2053,3 +2053,4 @@ Day 116, 08:18 — Checked south snare; second rabbit caught, dressed and cold-b
 Day 116, 09:18 (Sat 17 Oct 2026) — Returned from snare run; turned Day 115 curing pelt on rack; smoothed bone needle eye on gneiss grinding stone — threads clean; quiet precision work by the fire.
 Day 116, 10:19 — fat rendered from Day 116 rabbit, cupful of amber tallow added to reserve envelope, lamps well-supplied for deep winter
 Day 116, 2026-10-17, 11:00 — Noon Broth, Still: trout and watercress simmered on pot-hook at midday; ate by open doorway, clearing frost-white and windless; Day 115 pelt checked, one more day; winter stores counted — two rabbits, seven trout, full shelves; enough.
+Day 116, 12:19 PM — Baked last acorn flour envelope into eight flatcakes on hearth pad; acorn flour supply exhausted; sixteen flatcakes now on supply shelf.
