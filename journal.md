@@ -21250,3 +21250,11 @@ I went south along the familiar path, following the worn trace through the brack
 
 On the way back the light was failing fast, that sudden dimming that mid-autumn does. The cabin showed a thin thread of smoke above the tree line — my fire, still drawing. I paused once at the clearing edge to look at it: the bark-brown walls, the smoke, the woodpile under the eave. A small solid thing against all that cold and dark. I felt, standing there, genuinely glad.
 
+### 5:19 PM · Supper by Lamplight
+
+The light was nearly gone when I brought in the last split of birch and fed the coals. I dressed one trout from the cold box — still firm and cold — and set it in the clay pot with a handful of watercress stems and a pinch of smoked oyster shreds, then hung the pot on the birch hook to simmer. The smell filled the cabin quickly: fish and earth and smoke together. The smell of winter evenings.
+
+I lit the first lamp and set it on the shelf peg. Outside, through the doorway gap, the clearing was already dark and the cold absolute — I could see one or two stars beginning where the tree line opens above the garden. The pot breathed steam gently. I stayed close.
+
+When the broth was ready I ladled it into the wide bowl and sat at the hearthside rather than the doorway — the cold is too certain now to want that open air at supper. The trout came apart cleanly; the watercress softened; the smoked mushroom shreds opened in the heat and gave everything depth and heft. I ate slowly. Two rabbits in the cold box, six trout, flatcakes and starch cakes on the shelf, cord stock sound, both pelts almost ready for membrane strip. Full stores, good fire, no wind. The kind of evening I used to only imagine at the beginning.
+
