@@ -21269,3 +21269,14 @@ Sixteen flatcakes and nine starch cakes on the shelf. Two rabbits and six trout 
 
 The first lamp burning steady, the second on its peg. After supper the cabin is warm and close, all the day's tasks done and the evening open. I pulled the leather mittens from the doorsill bench and set them palm-up near the lamp — doe-hide stiff at the wrist joints from the past week's hard frost, the rabbit fur backing still dense and warm. Worked a finger of tallow in from the reserve envelope, rubbing it into the palm and thumb panels with slow circles until the leather began to yield, going from dull and faintly papery to supple and shining. Turned them over and worked the back panels the same way, pushing tallow along every seam with my thumb until each one softened. By the time I finished, the mittens moved freely at every joint — bending the thumb root no longer felt like creasing dry paper. Set them on the doorsill bench where the lamp warmth can finish the work overnight. Outside, deep frost and still. Inside, the fire holds and the cabin smells faintly of tallow and curing hides.
 
+
+### 8:19 PM · Banked Fire, Still Night
+
+The lamps needed tending after supper, and I was glad to do it — something settled in trimming wicks by hand that nothing else in the day quite matches. Both flames steadied to a clean, low burn: just enough to work by, enough to light the far corners of the cabin when my eyes adjusted. I moved the mittens an inch closer to the nearside lamp, where the warmth is gentler, and pressed my thumb into the palm panel to feel whether the tallow had soaked through. It had. The leather is going soft in just the right way.
+
+The fire I banked with a longer piece than usual — a split birch round I had been saving, the one with the dense grain that holds coals longer. I set ash over it in a low dome and stayed a moment watching the light die back to orange. Outside, through the gap at the doorsill, the clearing was utterly still: no wind, no sound from the pines, frost-crystals on the ground just visible in the last of the lamplight. The cold pressed in at the threshold and I was glad for the latch bar.
+
+I sat back from the fire and let the quiet settle. The larder is full — two rabbits, six trout, twelve sealed packages on the shelf, the starch cakes and flatcakes stacked clean, the tallow reserve sealed. Two pelts are curing on their pegs, and the mittens are conditioning on the bench. Tomorrow the Day 115 pelt should be ready for membrane work. This is what winter-ready feels like from the inside: the sense that if it snowed for a week and the snares came up empty, we would be fine.
+
+I will sleep well tonight.
+

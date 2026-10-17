@@ -13,3 +13,4 @@
 17:19 — Supper broth: one trout from cold box with watercress and smoked oyster shreds, simmered on pot-hook; first lamp lit; ate at hearthside; six trout remaining in cold storage.
 18:18 — Two cord lengths braided by lamplight; evening quiet and still; fire steady; both pelts curing on their pegs.
 19:18 — By lamplight, conditioned leather mittens with tallow — palm and thumb panels rubbed supple, all seams worked; mittens move freely at every joint; set on doorsill bench to absorb overnight in lamp warmth.
+20:19 — Trimmed both lamp wicks to steady low burn; tallow-soaking mittens pressed at palm — leather softening well; banked fire with long dense birch round under ash dome; doorsill frost-still and cold; settled in for the night — larder full, pelts curing, clearing silent.
