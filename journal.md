@@ -21306,3 +21306,14 @@ Day 115's pelt is on the rack. I check it with both hands — flesh side pale-bu
 
 I ladle broth into the wide bowl and eat standing at the open doorway. The clearing is white with frost, birch trunks dark against a pale sky, not a breath of wind. Two rabbits in the cold box. Six trout. A shelf of flatcakes and starch cakes. Cord stocked. Both lamps trimmed and full. The winter is as settled as it gets, and I am inside it, and all right.
 
+
+### 7:18 AM · Membrane Work
+
+The clearing was cold and bright when I carried the Day 115 pelt to the doorsill bench. Pale-buff and stiff as expected — the dry tell that says the time is right. I settled in the doorway with the morning light coming in over my shoulder and began.
+
+Membrane stripping is slow, careful work. You find the edge with a thumbnail and work across the grain — not tearing, just separating, the thin grey film peeling back in long strips when the angle is right. The pelt held tension in my lap; I followed the contours from haunch forward, the cold air carrying the smell of dry hide and pine smoke out past the threshold.
+
+By the time I finished, the flesh side was clean and white. A little warmth had come back into the skin just from the handling. I folded it fur-side out and set it back on the supply peg — ready now for the first tallow work when I turn to it. The Day 116 pelt still has a day or two on the lean-to post before it reaches this stage.
+
+Two pelts moving forward. I sat a moment longer on the doorsill bench after, watching the frost melt off the near ground in the sun's first angle. The cabin is warm, the cold box full. It is enough to sit and notice that.
+
