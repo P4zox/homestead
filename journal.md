@@ -21258,3 +21258,10 @@ I lit the first lamp and set it on the shelf peg. Outside, through the doorway g
 
 When the broth was ready I ladled it into the wide bowl and sat at the hearthside rather than the doorway — the cold is too certain now to want that open air at supper. The trout came apart cleanly; the watercress softened; the smoked mushroom shreds opened in the heat and gave everything depth and heft. I ate slowly. Two rabbits in the cold box, six trout, flatcakes and starch cakes on the shelf, cord stock sound, both pelts almost ready for membrane strip. Full stores, good fire, no wind. The kind of evening I used to only imagine at the beginning.
 
+
+### 6:18 PM · Evening by Lamplight
+
+The lamp is burning warm and the fire has settled to a steady base. After supper, I pull bark strips from the stack and braid two more cord lengths in the lamplight — the familiar over-under rhythm, fingers moving without much thought. The Day 115 pelt hangs on the rack above the hearth, pale-buff and stiffening. Another day and I will strip the membrane. The newer pelt is still on the lean-to post, fleshing done, just needing time.
+
+Sixteen flatcakes and nine starch cakes on the shelf. Two rabbits and six trout in the cold box. The snare is reset for the night. It has been a full day of stocking — flatcakes, starch cakes, tallow rendered, cord braided, snare checked twice. There is something settling about ending a day with everything topped up. Not hoarding, exactly. Readiness. The wind has not come up this evening. Frost outside, but still. I sit close to the lamp and braid. The light is small but steady.
+

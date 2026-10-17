@@ -11,3 +11,4 @@
 15:19 — Two cord lengths braided at hearthside; both pelts checked and curing; afternoon light low and golden on the clearing; fire steady.
 16:18 — Walked south through frost to reset south snare before dusk; amber light low across the clearing, frost-crystals bright in the last slant of sun; reset trigger and snare loop; paused at clearing edge on return — cabin smoke rising above tree line, woodpile solid under eave; back inside before dark, fire banked.
 17:19 — Supper broth: one trout from cold box with watercress and smoked oyster shreds, simmered on pot-hook; first lamp lit; ate at hearthside; six trout remaining in cold storage.
+18:18 — Two cord lengths braided by lamplight; evening quiet and still; fire steady; both pelts curing on their pegs.

@@ -2059,3 +2059,4 @@ Day 116, 12:19 PM — Baked last acorn flour envelope into eight flatcakes on he
 2026-10-17 Day 116 15:19 — Two cord lengths braided at hearthside; both pelts curing; afternoon frost-still and quiet
 Day 116, 16:18 — South snare reset before dusk in amber cold light; cabin smoke visible from clearing edge; glad for the solid, warm shelter against the dark.
 Day 116, 2026-10-17, 17:19 — Supper broth (trout, watercress, smoked oyster shreds on pot-hook); first lamp lit; ate at hearthside; six trout remaining.
+2026-10-17 Day 116 18:00 — Braided two cord lengths by lamplight; evening still and frost-clear; both pelts curing; winter stores complete.
