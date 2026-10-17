@@ -21175,3 +21175,14 @@ Back inside, I dressed it at the hearthstone — pelt stripped whole, no nicks. 
 
 Two rabbits in cold storage now. The winter larder, already solid, takes on another notch.
 
+
+### 9:18 AM · Needle and Pelt
+
+Came back in from the frost with the snare done. The clearing was absolutely white and still — no wind, just cold sitting there without moving. I knocked my boots against the doorsill, pulled the latch bar, and stepped into the smell of fire and dried grass.
+
+The Day 115 pelt was where I left it, draped on the peg rack in the lamp warmth. I ran both thumbs along the edge — pale-buff and stiff at the border, still a little give at the center. Not ready to membrane-strip yet; another full day at least, maybe two. I turned it once to expose a different face to the warmth. The Day 116 pelt on the lean-to post will not be touchable for stripping for longer yet — just fleshed this morning, still damp and cooling.
+
+Then I noticed the bone needle's eye. It had caught a thread wrong sometime in the past few days — a microscopic burr, too small to see but you feel it when you thread. I took it to the flat gneiss grinding stone on the hearthstone and worked it lightly with the round hand cobble until the surface at the eye ran smooth. Tested it: cord passes through clean, no snag. Returned it to the supply shelf.
+
+Small work. Precise work. In winter the hours between meals exist to keep the tools honest.
+
