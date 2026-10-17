@@ -2051,3 +2051,4 @@ Day 116, 17 Oct 2026, Sat, 06:18 — Bone Broth Morning — overnight bone broth
 Day 116, 07:18 — Checked curing rabbit pelt (pale-buff, firming, not ready to strip); braided two more cord lengths by fire — quiet winter Saturday morning.
 Day 116, 08:18 — Checked south snare; second rabbit caught, dressed and cold-boxed; pelt hung to cure beside yesterday's.
 Day 116, 09:18 (Sat 17 Oct 2026) — Returned from snare run; turned Day 115 curing pelt on rack; smoothed bone needle eye on gneiss grinding stone — threads clean; quiet precision work by the fire.
+Day 116, 10:19 — fat rendered from Day 116 rabbit, cupful of amber tallow added to reserve envelope, lamps well-supplied for deep winter

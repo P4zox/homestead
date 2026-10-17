@@ -21186,3 +21186,8 @@ Then I noticed the bone needle's eye. It had caught a thread wrong sometime in t
 
 Small work. Precise work. In winter the hours between meals exist to keep the tools honest.
 
+
+### 10:19 AM · Fat to Tallow
+
+Pulled the belly and cavity fat from the Day 116 rabbit — a good double-handful, pale and dense — and set it in the clay pot with a little water to render over the fire. The pot hung easy on the birch hook. I diced the fat small with the knife and waited while the water steamed off and the fat began to weep clear. By the time the small crispy bits floated free, I strained the liquid through folded bark into the reserve tallow envelope — a good cupful, amber-clear and warm. Resealed the flap with the pine pin. The lamp supply deepens; each cup of tallow is another hour of light when the nights stretch to fourteen, fifteen hours. Outside, frost still holding at mid-morning. Both pelts curing on their pegs. One more day for the Day 115 hide; I will know by feel at supper whether the center has firmed through.
+
