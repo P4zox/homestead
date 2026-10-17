@@ -21284,3 +21284,6 @@ I will sleep well tonight.
 ### 9:19 PM · Lamp Watch, Still Night
 
 Both lamps at their lowest now, the banked fire sending a slow orange pulse through the ash dome. I turned each pelt in the lamplight — Day 115s
+### 10:18 PM · Last Lamp Check
+
+Both lamps burning at their lowest — the flames a steady thread above the grass wicks, barely flickering. I press my thumb against the leather mittens: the tallow has pulled in well, the palm panels soft and pliant where they were stiff this morning. I set them palm-down on the bench and press once more, then leave them to finish absorbing in what warmth remains. The fire holds under its ash dome; I can just hear the coals ticking as they cool and settle. One long slow breath at the doorway — clearing frost-white under a hard sky, stars brilliant and still, no wind. The pines are dark shapes against the cold glitter of it. Both pelts curing on their pegs, the larder full, the cabin tight. Not much more to ask on a night this clear. I draw the door shut and latch it.

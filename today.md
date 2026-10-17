@@ -15,3 +15,4 @@
 19:18 — By lamplight, conditioned leather mittens with tallow — palm and thumb panels rubbed supple, all seams worked; mittens move freely at every joint; set on doorsill bench to absorb overnight in lamp warmth.
 20:19 — Trimmed both lamp wicks to steady low burn; tallow-soaking mittens pressed at palm — leather softening well; banked fire with long dense birch round under ash dome; doorsill frost-still and cold; settled in for the night — larder full, pelts curing, clearing silent.
 21:19 — Turned both pelts in lamplight; Day 115 pale-buff and ready for membrane strip tomorrow; Day 116 cooling and drying clean; two cord lengths braided; mittens tallow-soaking on doorsill bench; fire holding under ash dome; ready for sleep.
+22:18 — Final lamp trim; pressed mittens — tallow fully absorbed, palm panels supple; one look at the doorway — frost-white clearing, brilliant starfield, no wind; banked coals ticking; latched door and settled for sleep.
