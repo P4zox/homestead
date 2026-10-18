@@ -21359,3 +21359,7 @@ Day 115's pelt has been drinking tallow for four hours now. I'll do the second p
 
 The shelf holds well: flatcakes and starch cakes from yesterday, tallow envelope full again, haunches and loins from both rabbits still cold-boxed. A still October midday. It is enough.
 
+
+### 1:19 PM · Second Tallow Pass
+
+The fire had burned down to a steady low bed by early afternoon, the cabin warm enough that I left the door open a hands
