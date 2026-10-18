@@ -2068,3 +2068,4 @@ Day 116, 23:19 (2026-10-17, Sat) — Brief wakefulness near midnight; coals unde
 Day 117 (2026-10-18, Sun) 06:18 — New day; rolled over from Day 116; ash dome lifted; fire rebuilt on held coals; morning broth reheated; Day 115 pelt ready for membrane strip.
 Day 117, 07:18 — membrane stripped Day 115 pelt; flesh side clean and white, ready for tallow work; Day 116 still curing.
 2026-10-18 08:18 Day 117 — Tallow-conditioned Day 115 pelt (flesh side first pass); set fur-side down on doorsill bench to absorb in hearth warmth; Day 116 pelt still curing.
+Day 117, 2026-10-18 09:18 — South snare checked and reset (empty); dry birch kindling collected from treeline duff; Day 115 pelt tallow absorbing; Day 116 pelt still curing on lean-to post.

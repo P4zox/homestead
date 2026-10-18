@@ -21322,3 +21322,16 @@ Two pelts moving forward. I sat a moment longer on the doorsill bench after, wat
 
 The Day 115 pelt came off the peg dry and stiff from the membrane strip — pale-buff on the flesh side, clean all the way to the edges. I worked a thumbnail of tallow from the reserve envelope into the flesh side first, rubbing in slow circles with both thumbs, feeling the fiber begin to give. The grain side stayed fur-side out and dry, which is how it should be at this stage. By the time I had covered the full panel, the tallow had absorbed and the flesh side had gone from rigid pale-buff to a warmer, faintly yielding cream — not soft yet, a single pass rarely does that, but the hide is opening. I set it fur-side down on the doorsill bench close to the hearth warmth and left it to absorb while I had a second cup of broth. Day 116 pelt still hangs on the lean-to post; another day before its membrane dries enough to strip. Two rabbit hides in progress on a hard-frost morning in mid-autumn — the cabin stocked, the lamps full, the snare reset. This feels like the right kind of work for a Sunday.
 
+
+### 9:18 AM · Snare Trail, Frost Clear
+
+The pelt is absorbing on the doorsill bench — tallow doing its quiet work in the hearth warmth — and there is nothing to do for it now but let it be. I pulled on the jerkin and wrist wraps and stepped out.
+
+The clearing was sharp and still. My breath came in short white puffs. The frost crust on the dead grass held my weight for half a step before crumbling through to the soft mat beneath — a fine sound, like walking on thin paper. The pine shadows were long and blue across the white ground, and the sky above them very pale, almost white at the horizon, deeper blue straight overhead.
+
+The snare trail is only a few minutes south, along the treeline where the rabbits run. I found the loop intact, trigger stick in place — empty, but the set undisturbed. Good. I reset the loop height, cleared a few dead stems that had fallen across the run, and pressed a small heel-print into the frost to freshen the scent cover. The birches along the south edge were bare white columns against the dark pines behind them, their thin upper branches making a fine lacework against the sky. I stood a moment in that quiet.
+
+On the way back I picked up a dry birch branch from the duff at the treeline — arm-length, clean, no punky wood — and carried it back for kindling. A small thing, but every piece laid by before dark is one less to think about.
+
+The Day 115 pelt will want a second tallow pass this afternoon or evening. Day 116 pelt was fleshed yesterday and is still on the lean-to post; by tomorrow morning it should be dry enough to strip. Two pelts moving through at once, both aimed at winter use. That is good work, even if it is slow.
+
