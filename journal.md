@@ -21389,3 +21389,10 @@ The fire was burning well with the birch I brought in earlier. I sat for a while
 
 The broth will go on the pot-hook in an hour or so. Tonight feels easy.
 
+
+### 5:18 PM · Evening Broth, Firelight
+
+The haunch had been warming on the hearthstone since the last flatcake — the chill mostly out of it by the time I set the pot back over the coals. Watercress went in first, wilting down in a breath, then the haunch pieces followed, the stock going slow-amber as the bones heated through. By the time full dark had settled on the clearing the broth was ready: deep and fragrant, a thread of smoke from the birch, the watercress still faintly green in the bowl. I ate at the doorsill bench with the door pulled to a hand-width — cold air narrow along my left arm, warmth at my back from the fire. Both lamps were burning by then, wicks steady, the low light pooling on the log walls.
+
+Outside, the clearing had gone into its winter quiet — no wind, just frost thickening on every needle and the slow creak of pines settling in the cold. Day 115's pelt has taken the second tallow pass well; tomorrow morning's third pass should finish it, and I can turn to Day 116's on the rack. The haunches are spent now, bones resting in the pot for an overnight draw. Another good day closed.
+

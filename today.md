@@ -10,3 +10,4 @@
 14:18 — Two more cord lengths braided by the fire; Day 115 pelt absorbing second tallow pass on doorsill bench; quiet winter afternoon.
 15:19 — Checked Day 115 pelt second tallow absorption (flesh side drawn in well, folded and set back on bench); split birch from woodpile, brought inside for evening fire; Day 116 pelt still drying on peg rack; third pass on Day 115 and first pass on Day 116 tomorrow; quiet afternoon at doorsill bench.
 16:19 — Cold box checked; Day 115 rabbit haunch and watercress pulled and set on hearthstone to warm for evening broth; Day 116 pelt checked on peg rack — still stiff at neck fold, needs overnight; confirmed first tallow pass tomorrow morning; flatcake at doorsill bench in last amber light.
+17:18 — Evening broth cooked and eaten: Day 115 rabbit haunch with watercress, pot on coals, ate at doorsill bench by lamplight; bones set to draw overnight in pot; both lamps burning clean.
