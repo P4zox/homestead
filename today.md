@@ -7,3 +7,4 @@
 11:19 — Noon broth started: Day 116 rabbit shoulder and ribs with smoked oyster mushroom shreds on pot-hook; Day 115 pelt absorbing first tallow pass on doorsill bench; Day 116 pelt hanging on supply peg rack, still drying — tallow work likely tomorrow.
 12:18 — Noon broth eaten at doorsill bench (Day 116 rabbit shoulder + smoked oyster mushroom shreds); Day 115 pelt still absorbing first tallow pass — second pass this afternoon; Day 116 pelt drying on peg rack, tallow work tomorrow.
 13:19 — Day 115 pelt second tallow pass complete — tallow worked along spine seam, haunches, and neck fold; pelt now pliable and supple, set on doorsill bench to absorb; one more pass tomorrow will finish it; Day 116 pelt still drying on peg rack.
+14:18 — Two more cord lengths braided by the fire; Day 115 pelt absorbing second tallow pass on doorsill bench; quiet winter afternoon.

@@ -21363,3 +21363,11 @@ The shelf holds well: flatcakes and starch cakes from yesterday, tallow envelope
 ### 1:19 PM · Second Tallow Pass
 
 The fire had burned down to a steady low bed by early afternoon, the cabin warm enough that I left the door open a hands
+### 2:18 PM · Threads and Frost
+
+Two more lengths of cord braided in the firelight this afternoon. The cabin is warm and still — frost thick outside, but in here the coals hold and the air sits close and steady. Day 115's pelt spreads on the doorsill bench, absorbing the second tallow pass; I can already tell it will be a good piece of leather when it's done.
+
+I found myself thinking, as my hands worked the bark strips, about how the supply shelf looks now compared to what it must have been at the very beginning. The cold box is full. Smoked fish, smoked mushrooms, rabbit waiting in the dock-wrapped cold. Flatcakes and starch cakes on the shelf. The woodpile is eave-high and past. The cord stock is long and serviceable.
+
+There's a particular quietness to a winter afternoon when the work is already done well enough — when the main thing left is to braid cord by the fire and let the day wind slowly toward dusk. I'll check the snare before the light fails. For now, this is enough.
+

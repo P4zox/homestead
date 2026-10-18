@@ -2073,3 +2073,4 @@ Day 117, 2026-10-18 09:18 — South snare checked and reset (empty); dry birch k
 Day 117 (2026-10-18 Sun) 11:19 — Noon broth started with Day 116 rabbit shoulder and smoked oyster mushroom shreds; pelts curing on bench and peg rack.
 2026-10-18 Day 117 12:18 — Noon broth eaten at doorsill (Day 116 rabbit shoulder + smoked oyster shreds); Day 115 pelt second tallow pass due this afternoon
 2026-10-18 13:19 Day 117 — Second tallow pass on Day 115 pelt; now absorbing on doorsill bench; Day 116 pelt still drying on rack.
+2026-10-18 14:18 Day 117 — Two more cord lengths braided by the fire; Day 115 pelt absorbing second tallow pass on doorsill bench; winter afternoon quiet.
