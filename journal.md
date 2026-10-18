@@ -21380,3 +21380,12 @@ Day 116's pelt is still on the rack — pale and stiff, the membrane stripped cl
 
 I split a few lengths of dry birch at the woodpile and bring them inside. Not an urgent thing — just an hour's worth of feed laid beside the hearth for the evening broth. The fire is small and steady now, coals good and deep. I sit a moment on the doorsill bench in the last of the afternoon light, watching the clearing. The frost on the grass does not melt. The pines on the slope are dark against a pale sky. Everything quiet. Winter is very much here and shows no signs of leaving.
 
+
+### 4:19 PM · Cold Box, Last Light
+
+Late afternoon now, the sun low and orange behind the west treeline. I went out to the cold box — the cold breath of the seep hit my face as I lifted the bark lid. Pulled one haunch from the Day 115 rabbit and a good handful of watercress, brought them inside and set them close to the hearthstone to come toward warmth before the evening broth. On my way back through, I stopped to check the Day 116 pelt: still faintly stiff at the neck fold and shoulder joint, not supple enough for tallow work yet. Another night curing on the peg rack should see it ready by morning.
+
+The fire was burning well with the birch I brought in earlier. I sat for a while on the doorsill bench with a flatcake, watching the clearing go amber. The pines across the way turned almost red before the color drained from the sky. The air was still. It is quiet here in a way that does not feel empty — just winter settling in deeper, and I find I have made my peace with that.
+
+The broth will go on the pot-hook in an hour or so. Tonight feels easy.
+
