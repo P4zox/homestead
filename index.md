@@ -2070,3 +2070,4 @@ Day 117, 07:18 — membrane stripped Day 115 pelt; flesh side clean and white, r
 2026-10-18 08:18 Day 117 — Tallow-conditioned Day 115 pelt (flesh side first pass); set fur-side down on doorsill bench to absorb in hearth warmth; Day 116 pelt still curing.
 Day 117, 2026-10-18 09:18 — South snare checked and reset (empty); dry birch kindling collected from treeline duff; Day 115 pelt tallow absorbing; Day 116 pelt still curing on lean-to post.
 2026-10-18 10:18 Day 117 — Day 116 pelt membrane stripped and hung on supply peg rack; Day 115 first tallow pass absorbed, second pass pending
+Day 117 (2026-10-18 Sun) 11:19 — Noon broth started with Day 116 rabbit shoulder and smoked oyster mushroom shreds; pelts curing on bench and peg rack.

@@ -21341,3 +21341,12 @@ The Day 115 pelt will want a second tallow pass this afternoon or evening. Day 1
 The Day 116 pelt had hung on the lean-to post since yesterday morning. By ten o'clock I stepped out to check it — pressed a thumb across the flesh side and felt what I was looking for: membrane tight and dry, lifting already at the thinnest edges where I'd fleshed most closely. Close enough. I brought it inside to the doorsill bench where the light was better and worked the membrane free in long strokes with the bone edge held flat — heel to shoulder — the same rhythm as yesterday's strip on Day 115's pelt. It came away in pale ribbons, the flesh side emerging clean and even underneath. Folded it fur-side out and hung it on the supply peg rack beside Day 115's. Both pelts stripped now, both making their way.
 
 Day 115's first tallow pass has been absorbing for two hours. I pressed the surface gently and it gave back nothing greasy — the tallow has drawn in cleanly. I'll do a second pass this afternoon when the fire is stoked and the cabin at its warmest, work the tallow deeper into the fibers while the hide is pliable. Two pelts advancing in step. The cold holds steady outside; inside, the fire is content.
+
+### 11:19 AM · Broth While Pelts Cure
+
+Fire holding strong through the morning, coals banked deep under the ash. I lifted the latch and went to the cold box — the Day 116 rabbit, jointed and dock-wrapped, still firm and frost-kissed. Took the shoulder and rib section, left the haunches for later. Filled the broth pot from the stream bucket, set it on the pot-hook over the fire, and added the meat and a palmful of smoked oyster mushroom shreds from the bark package in the cold box. The pot will simmer through the noon hour.
+
+Day 115's pelt is still flat on the doorsill bench, flesh side up, the tallow absorbing in slowly — another couple of hours at least before the second pass. Day 116's pelt is on the peg rack, fur-side out, still drying from the membrane strip. I ran my thumb across the flesh side: still a little damp, a little cool. Tomorrow morning for its tallow work, most likely.
+
+The clearing outside holds that still, grey-white cold. Frost has not lifted today. A raven called once from somewhere up the slope, then went quiet. I stood in the doorway with the broth beginning to bubble and let the smell fill the shelter — rabbit and smoke and woodsmoke, the ordinary comfort of a warm cabin in hard winter.
+
