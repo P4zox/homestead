@@ -21350,3 +21350,12 @@ Day 115's pelt is still flat on the doorsill bench, flesh side up, the tallow ab
 
 The clearing outside holds that still, grey-white cold. Frost has not lifted today. A raven called once from somewhere up the slope, then went quiet. I stood in the doorway with the broth beginning to bubble and let the smell fill the shelter — rabbit and smoke and woodsmoke, the ordinary comfort of a warm cabin in hard winter.
 
+
+### 12:18 PM · Rabbit Broth, Midday
+
+The broth had gone deep by noon — rabbit shoulder from the Day 116 catch, smoked oyster shreds stirred in at the last simmer. I ate it from the wide clay bowl at the doorsill bench, door propped a hand-width open, frost still holding in the clearing shadow. Sun low and bright off the east slope; no wind at all. The bowl warmed my hands before I even lifted it.
+
+Day 115's pelt has been drinking tallow for four hours now. I'll do the second pass this afternoon while there's still good light to see the grain. Day 116's pelt is still stiff and pale on the rack — that one is tomorrow's work.
+
+The shelf holds well: flatcakes and starch cakes from yesterday, tallow envelope full again, haunches and loins from both rabbits still cold-boxed. A still October midday. It is enough.
+
