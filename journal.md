@@ -21317,3 +21317,8 @@ By the time I finished, the flesh side was clean and white. A little warmth had 
 
 Two pelts moving forward. I sat a moment longer on the doorsill bench after, watching the frost melt off the near ground in the sun's first angle. The cabin is warm, the cold box full. It is enough to sit and notice that.
 
+
+### 8:18 AM · First Tallow Pass
+
+The Day 115 pelt came off the peg dry and stiff from the membrane strip — pale-buff on the flesh side, clean all the way to the edges. I worked a thumbnail of tallow from the reserve envelope into the flesh side first, rubbing in slow circles with both thumbs, feeling the fiber begin to give. The grain side stayed fur-side out and dry, which is how it should be at this stage. By the time I had covered the full panel, the tallow had absorbed and the flesh side had gone from rigid pale-buff to a warmer, faintly yielding cream — not soft yet, a single pass rarely does that, but the hide is opening. I set it fur-side down on the doorsill bench close to the hearth warmth and left it to absorb while I had a second cup of broth. Day 116 pelt still hangs on the lean-to post; another day before its membrane dries enough to strip. Two rabbit hides in progress on a hard-frost morning in mid-autumn — the cabin stocked, the lamps full, the snare reset. This feels like the right kind of work for a Sunday.
+
