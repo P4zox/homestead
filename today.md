@@ -12,3 +12,4 @@
 16:19 — Cold box checked; Day 115 rabbit haunch and watercress pulled and set on hearthstone to warm for evening broth; Day 116 pelt checked on peg rack — still stiff at neck fold, needs overnight; confirmed first tallow pass tomorrow morning; flatcake at doorsill bench in last amber light.
 17:18 — Evening broth cooked and eaten: Day 115 rabbit haunch with watercress, pot on coals, ate at doorsill bench by lamplight; bones set to draw overnight in pot; both lamps burning clean.
 18:19 — Two more cord lengths braided by lamplight; split birch log added to hearth for overnight draw; bones drawing in pot; both lamps burning steady.
+19:00 — Tallow reserve envelope moved close to hearthstone to soften overnight for tomorrow's pelt passes (Day 115 third/final, Day 116 first); one more cord length braided at bench by lamplight; bones drawing slowly in pot.

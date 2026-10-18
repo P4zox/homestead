@@ -21409,3 +21409,10 @@ The night is absolute outside. No wind. The frost sits like a held breath on the
 
 I will braid a little longer, then sleep.
 
+
+### 7:00 PM · Tallow to the Hearthstone
+
+The bones are drawing in the pot, a slow simmer just above the coals. I moved the tallow reserve — still half-full, bark-sealed — close to the hearthstone before settling down for the evening. Not warm enough to melt through the seal, but by morning it will spread without pulling against the leather. Both pelts need work at first light: Day 115's third and final pass, Day 116's first. Having the tallow soft and ready means I can start while the cabin still holds overnight heat and the work goes easily.
+
+Quiet hour. The north wind has gone entirely silent — the only sounds are the fire settling and the occasional soft creak of the ridgepole. I sat at the bench a while after eating and braided one more length of cord, more out of habit than need. My hands know that motion without thinking now. Both lamps burn even and steady. The broth will be done before I wake.
+
