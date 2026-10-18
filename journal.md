@@ -21371,3 +21371,12 @@ I found myself thinking, as my hands worked the bark strips, about how the suppl
 
 There's a particular quietness to a winter afternoon when the work is already done well enough — when the main thing left is to braid cord by the fire and let the day wind slowly toward dusk. I'll check the snare before the light fails. For now, this is enough.
 
+
+### 3:19 PM · Pelt Check, Fire Fed
+
+The afternoon light has gone flat and grey, the cold leaking through the cabin walls in a way you only notice when you stop moving. The Day 115 pelt has been on the doorsill bench since 13:19 — two hours drawing in the second tallow pass. I lift it and turn the flesh side to the fire light: the fat has soaked well into the grain, the surface gone dark and supple where it had been pale and stiff. One more pass tomorrow should finish it. I fold it flesh-side in, set it back on the bench carefully, and hang a corner over the peg so it does not go flat and chill.
+
+Day 116's pelt is still on the rack — pale and stiff, the membrane stripped clean this morning, drying in the cold cabin air. Nothing to do there yet. Tomorrow both pelts will move forward: third and final pass on Day 115, first tallow pass on Day 116.
+
+I split a few lengths of dry birch at the woodpile and bring them inside. Not an urgent thing — just an hour's worth of feed laid beside the hearth for the evening broth. The fire is small and steady now, coals good and deep. I sit a moment on the doorsill bench in the last of the afternoon light, watching the clearing. The frost on the grass does not melt. The pines on the slope are dark against a pale sky. Everything quiet. Winter is very much here and shows no signs of leaving.
+
