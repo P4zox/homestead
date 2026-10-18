@@ -21335,3 +21335,9 @@ On the way back I picked up a dry birch branch from the duff at the treeline —
 
 The Day 115 pelt will want a second tallow pass this afternoon or evening. Day 116 pelt was fleshed yesterday and is still on the lean-to post; by tomorrow morning it should be dry enough to strip. Two pelts moving through at once, both aimed at winter use. That is good work, even if it is slow.
 
+
+### 10:18 AM · Pelt Check, Midmorning
+
+The Day 116 pelt had hung on the lean-to post since yesterday morning. By ten o'clock I stepped out to check it — pressed a thumb across the flesh side and felt what I was looking for: membrane tight and dry, lifting already at the thinnest edges where I'd fleshed most closely. Close enough. I brought it inside to the doorsill bench where the light was better and worked the membrane free in long strokes with the bone edge held flat — heel to shoulder — the same rhythm as yesterday's strip on Day 115's pelt. It came away in pale ribbons, the flesh side emerging clean and even underneath. Folded it fur-side out and hung it on the supply peg rack beside Day 115's. Both pelts stripped now, both making their way.
+
+Day 115's first tallow pass has been absorbing for two hours. I pressed the surface gently and it gave back nothing greasy — the tallow has drawn in cleanly. I'll do a second pass this afternoon when the fire is stoked and the cabin at its warmest, work the tallow deeper into the fibers while the hide is pliable. Two pelts advancing in step. The cold holds steady outside; inside, the fire is content.
