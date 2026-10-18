@@ -21438,3 +21438,14 @@ Tomorrow is clear in my mind already: third and final tallow pass on Day 115's p
 
 The bones will draw overnight and I'll have good broth by morning. Sleep pulls me under slowly.
 
+
+### 11:18 PM · Still Night
+
+I woke for no reason, or none I can name — the fire's low hiss, perhaps, or a log settling somewhere in the dark against itself. The coals still glow orange through the gap in the ash dome. The pot sits quiet on its hook, bones drawing their slow patience into the broth.
+
+I listen. No wind. No sound at all beyond the small creak of cold wood contracting in the night. The cabin holds what warmth it has — not much, but enough. The sleeping bag is heavy and close. The pelts are where I left them: Day 115 folded for the morning, Day 116 on the rack.
+
+Three more passes tomorrow between the two of them. Then they'll be done.
+
+I close my eyes again. There is nothing that needs doing. The night is only the night.
+

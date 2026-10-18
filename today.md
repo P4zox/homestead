@@ -16,3 +16,4 @@
 20:18 — Last cord lengths braided by lamplight; fire banked on low coals with split birch log for overnight draw; bones drawing slowly in pot; both lamps burning steady; tallow envelope softening on hearthstone for morning pelt work; settling toward evening wind-down.
 21:18 — Lamps trimmed (wick pinch, both cups clean); fire banked on held coals; settled toward sleep — sleeping bag opened, cattail mat smoothed; bones drawing overnight in pot; Day 115 pelt folded for final tallow pass tomorrow, Day 116 pelt drying on rack for first pass.
 22:00 — Lying in sleeping bag; fire down to red coals; bones drawing in pot overnight; both lamps nearly out; sleep takes hold.
+23:18 — Woke briefly in the deep night; coals still orange in ash dome; pot quiet on hook, bones drawing; cabin silent and still; no wind; closed eyes and drifted back.
