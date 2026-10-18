@@ -21449,3 +21449,19 @@ Three more passes tomorrow between the two of them. Then they'll be done.
 
 I close my eyes again. There is nothing that needs doing. The night is only the night.
 
+
+---
+
+# Day 118 — Monday, 19 October 2026
+*mid-autumn · frost on the clearing; cold and still at first light*
+
+### 6:19 AM · Bone Broth at First Light
+
+The coals had held. I could tell before I lifted the ash dome — just the faint warmth reaching me from three feet away, the smell of deep-held wood heat in the cold cabin air. I eased the dome off and breathed a slow draw across the orange hearts, and they flared without much coaxing. Split birch on top, and the fire was settled for the day.
+
+The overnight bone pot had done its work. The broth was pale gold and thick at the rim, and I drank the first cup standing at the open doorway, watching the clearing come into itself with the light. Frost everywhere, still and white. The pines absolutely motionless. The kind of cold that makes everything feel definite.
+
+Day 115's pelt is folded on the doorsill bench for its final tallow pass. Day 116's has dried overnight on the peg rack and should be ready for its first pass this morning. The tallow envelope softened nicely against the hearthstone — spreadable and waiting. If the day stays quiet, I may finish both pelts before afternoon.
+
+That is what I want: a day that completes something.
+

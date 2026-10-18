@@ -2083,3 +2083,4 @@ Day 117 [2026-10-18 20:18] — Embers, Last Cord — banked fire, braided cord, 
 Day 117, 21:18 — Lamp trim, wick pinch, bones drawing; quiet reflection by lamplight before sleep; cabin warm and sealed against the frost.
 Day 117, 2026-10-18 22:00 — Long Night Settles — lying in sleeping bag, fire on held coals, bones drawing overnight, lamps nearly out; all supplies and shelter solid as winter settles in.
 Day 117, 23:18 — Night waking; coals still orange, bones drawing, winter silence, settled back to sleep.
+2026-10-19 Day 118 Mon 06:19 — Bone Broth at First Light: woke to held coals, drank overnight bone broth at the doorway; Day 115 pelt ready for final tallow pass on doorsill bench, Day 116 dried on rack for first pass; tallow soft on hearthstone; day set to finish both pelts.
