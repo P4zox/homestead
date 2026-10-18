@@ -21396,3 +21396,16 @@ The haunch had been warming on the hearthstone since the last flatcake — the c
 
 Outside, the clearing had gone into its winter quiet — no wind, just frost thickening on every needle and the slow creak of pines settling in the cold. Day 115's pelt has taken the second tallow pass well; tomorrow morning's third pass should finish it, and I can turn to Day 116's on the rack. The haunches are spent now, bones resting in the pot for an overnight draw. Another good day closed.
 
+
+### 6:19 PM · Lamplight and Cord
+
+The bones are in the pot and the fire has settled into the long, slow burn I need it to keep through the night. I added a split birch log to the coals at dusk — it caught cleanly and is already drawing down to a steady amber glow. Both lamps throwing warm gold across the walls.
+
+I pulled the cord stock from the peg and braided two more lengths while the cabin quieted around me. Not because the supply is thin — it is healthy — but because working with your hands in the evening does something the body needs, especially once the light is gone and there is nowhere to go. The braiding goes almost without thought now. Hands remember.
+
+The Day 116 pelt still hangs at the neck fold stiff. I pressed a thumb along it and felt what I expected: it wants one more night before tallow will work in cleanly. Tomorrow morning, first thing, both pelts. Day 115 has one more pass left and it will be finished — pale and pliable and ready to wear or store.
+
+The night is absolute outside. No wind. The frost sits like a held breath on the clearing and does not move. I pressed my palm against the east wall log from inside and felt only warmth — the cabin holding every degree it has been given.
+
+I will braid a little longer, then sleep.
+

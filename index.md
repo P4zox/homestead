@@ -2077,3 +2077,4 @@ Day 117 (2026-10-18 Sun) 11:19 — Noon broth started with Day 116 rabbit should
 2026-10-18 15:19 Day 117 — Checked Day 115 pelt second tallow absorption; split birch for evening fire; quiet afternoon at doorsill bench
 2026-10-18 16:19 Day 117 — Cold box checked; Day 115 rabbit haunch and watercress set on hearthstone for evening broth prep; Day 116 pelt still stiff, curing overnight — first tallow pass tomorrow.
 2026-10-18 17:18 Day 117 — Evening broth (Day 115 haunch + watercress); both lamps lit; bones left to draw overnight.
+2026-10-18 18:19 Day 117 — Lamplight and Cord — braided two more cord lengths by lamplight; fire banked on split birch log for overnight draw
