@@ -21465,3 +21465,14 @@ Day 115's pelt is folded on the doorsill bench for its final tallow pass. Day 11
 
 That is what I want: a day that completes something.
 
+
+### 7:18 AM · Cold Path, Good Catch
+
+Pulled on the mittens and the neck wrap before stepping out, and even then the clearing bit hard. The frost had settled overnight into the grass and bark and the still air held it — everything crisp and silent and very blue in the early light.
+
+South path through the treeline was quiet. The snare had caught in the night — a young rabbit, grey-brown and winter-coated, well-furred. I thanked it quietly, reset the noose, tucked the trigger peg back level, checked the anchor stake still solid. The peg had held through whatever wind came in the dark.
+
+Back at the cold-storage box I dressed it quick in the cold air, dock-wrapped it, and set it inside. The cold closed around my hands as I worked and the breath misted in front of my face. Came back to the fire and stood until the feeling returned to my fingers, then sat on the doorsill bench looking out at the clearing going amber where the low sun touched the frost-white grass.
+
+Two pelts on the bench beside me, both wanting their tallow work this afternoon. The tallow envelope is soft on the hearthstone. The morning is still — just the fire and the cold and the small satisfaction of a full cold box.
+
