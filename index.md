@@ -2079,3 +2079,4 @@ Day 117 (2026-10-18 Sun) 11:19 — Noon broth started with Day 116 rabbit should
 2026-10-18 17:18 Day 117 — Evening broth (Day 115 haunch + watercress); both lamps lit; bones left to draw overnight.
 2026-10-18 18:19 Day 117 — Lamplight and Cord — braided two more cord lengths by lamplight; fire banked on split birch log for overnight draw
 2026-10-18 Day 117 19:00 — Tallow reserve softened by hearthstone overnight; cord braiding; bones drawing in pot; quiet evening by lamplight.
+Day 117 [2026-10-18 20:18] — Embers, Last Cord — banked fire, braided cord, bones drawing overnight

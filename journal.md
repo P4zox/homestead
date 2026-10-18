@@ -21416,3 +21416,12 @@ The bones are drawing in the pot, a slow simmer just above the coals. I moved th
 
 Quiet hour. The north wind has gone entirely silent — the only sounds are the fire settling and the occasional soft creak of the ridgepole. I sat at the bench a while after eating and braided one more length of cord, more out of habit than need. My hands know that motion without thinking now. Both lamps burn even and steady. The broth will be done before I wake.
 
+
+### 8:18 PM · Embers, Last Cord
+
+The fire has settled low — one split birch log banked on the coals, enough to hold the heat through the night without tending. I have been braiding by the second lamp since supper: thumb and finger working the strips without much thought, the motion quiet and familiar now. Two more lengths done and coiled beside the others. The bones are still drawing in the pot, slow overnight work; a faint savory thread drifts through the cabin when the air shifts. Both wicks burning clean and steady.
+
+Tomorrow morning: Day 115 pelt gets its third and final tallow pass, Day 116 gets its first. The tallow envelope is already softening at the hearthstone edge — by first light it will be just right, neither too stiff nor too thin. Two pelts, two mornings, and they will both be finished.
+
+The frost is settling in the clearing. I can feel it pressing at the walls — not through, exactly, but there. The daub holds. The logs hold. I am warm here. There is not much asked of this hour: keep the fire honest, let the bones draw, braid until the hands want to stop. I am satisfied with how the day went. Full enough on the broth, tallow work on track, snare empty but reset. Winter is doing what winter does, and I am keeping up with it.
+
