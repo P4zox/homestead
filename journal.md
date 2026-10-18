@@ -21429,3 +21429,12 @@ The frost is settling in the clearing. I can feel it pressing at the walls — n
 
 The lamps burned true all evening and I trimmed each wick before settling in — just a pinch from each, holding the charred tip between finger and thumb so they would not smoke. Now one sits on the east peg, one on the west, and their light lays warm bars across the ceiling logs. The bone broth ticks faintly in the pot. Outside, the clearing is completely still — the kind of cold-night still where you can hear your own breath if you stand at the door. I did not stand at the door long. The cabin is warm. That is the whole story tonight. Day 115's pelt is folded and waiting for its final tallow pass in the morning; Day 116's hangs stiff at the neck fold and will want its first pass by mid-morning. The tallow envelope is softening slowly at hearthstone. Everything is set for tomorrow. I pulled the sleeping bag open, smoothed the bracken mat under it, and sat for a minute in the lamplight — just held still with the warmth and the smell of woodsmoke and the soft amber glow. One hundred and seventeen days. The cabin holds. That is enough for tonight.
 
+
+### 10:00 PM · Long Night Settles
+
+Lying in the sleeping bag now, the fire down to a red pulse in the clay walls. The bones are drawing in the pot — small settling ticks as the coals shift. Both lamps are nearly pinched to nothing, just enough glow to make out the dark bark of the ceiling overhead.
+
+Tomorrow is clear in my mind already: third and final tallow pass on Day 115's pelt come morning, first pass on Day 116's after the snare check. Nothing presses. The supply shelf holds, the cold box holds, the woodpile holds past the eave. This is what all the summer and autumn work was built toward — nights like this, still and cold outside, warm and provisioned inside.
+
+The bones will draw overnight and I'll have good broth by morning. Sleep pulls me under slowly.
+
