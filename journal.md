@@ -21576,3 +21576,12 @@ The Day 115 ribs and spine scraps I set aside at noon were sitting in their bark
 
 A good trade: ten minutes of work now, a warm draw ready at first light. I set the pot lid — a flat piece of bark — over the clay rim to keep the heat and went back to the bench. The evening is quiet. The fire says what it always says in winter: I am inside, and warm, and fed. I accept that easily tonight.
 
+
+### 7:22 PM · Lamplight and cord
+
+The cabin is quiet. Supper settled long ago; the bone pot ticks and steams low in the coal bed, drawing slow through the night. Both lamps burn steady on the shelf above the sleeping side, fire banked to a patient glow. Outside there is nothing — no wind, just the frost pressing cold against the west gable bark.
+
+I sat with a length of inner bark and braided two more cords by lamplight. The work is easy in the evening — hands remember the motion without thought now, three strands turning under fingers, the twist pulling tight before I consciously choose it. The cord stock is already healthy, but I keep adding to it the way one adds wood to the pile, because winter will find uses I have not imagined yet.
+
+Tomorrow at first light: the Day 118 pelt comes out of the cold box for membrane work. The bone broth will be ready in the pot, and the day will begin the same way the last hundred have — cold air at the door, something warm waiting, something to do with my hands.
+

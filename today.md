@@ -12,3 +12,4 @@
 16:18 — Both bark-cup lamps topped with tallow from reserve envelope — cups level, wicks intact and ready for evening; supper broth nearly done at coal edge.
 17:18 — Supper consumed at doorsill bench (Day 115 rabbit haunches and loin broth, watercress, smoked oyster shreds — pot empty, ate slowly at door-gap with frost outside); lamps lit and set on shelf above sleeping side; fire banked steady for the evening; Day 118 pelt membrane strip at first light tomorrow.
 18:18 — Day 115 rabbit ribs and spine scraps nested in clay pot with cold stream water, set low in coal bed for slow overnight bone draw — broth ready at first light tomorrow; door cracked two fingers, lamps burning steady, fire banked.
+19:22 — Braided two more lengths of two-ply cord by lamplight on doorsill bench; bone pot drawing slow overnight in coal bed; lamps burning steady; frost outside and still.
