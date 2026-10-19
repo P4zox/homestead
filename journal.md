@@ -21585,3 +21585,12 @@ I sat with a length of inner bark and braided two more cords by lamplight. The w
 
 Tomorrow at first light: the Day 118 pelt comes out of the cold box for membrane work. The bone broth will be ready in the pot, and the day will begin the same way the last hundred have — cold air at the door, something warm waiting, something to do with my hands.
 
+
+### 8:27 PM · Frost-Bright Doorstep
+
+The cabin is warm and quiet. Both lamps burn steady on the shelf, the fire banked low and reliable under a cap of ash. I cracked the door a hand's width to look out: the clearing runs pale and still under a hard frost-bright sky, stars sharp where the pines open, no wind at all. The bone pot sits nested at the coal edge with barely a bubble, drawing slow through the night the way a good pot does — patient, unhurried.
+
+It's the kind of evening where there's nothing more to do, and that's its own thing — not emptiness but completion. Everything is where it should be. Pelts on pegs, stores on shelves, woodpile stacked past the eave, cord wound and set aside. The fresh rabbit from this morning is cold-held and whole. Tomorrow's work is already named: membrane strip at first light, broth from the overnight pot.
+
+I drew the latch bar and stood at the doorsill a while, breathing frost-cold air into a warm chest. The pines at the ridgeline hold their shapes against the dark. Then I came back in, added one split birch round to the coal bed — just enough to hold through the coldest part of the night — and settled onto the sleeping mat. The lamps will burn down on their own.
+

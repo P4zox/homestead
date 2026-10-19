@@ -2097,3 +2097,4 @@ Day 118 (Mon 2026-10-19) 16:18 — Topped both bark-cup lamps with tallow before
 Day 118, 17:18 (Mon 19 Oct 2026) — Supper eaten at dusk; Day 115 rabbit haunch broth with watercress and smoked oyster shreds consumed at doorsill; lamps lit for evening; Day 116 pelt absorbing tallow on peg rack overnight; Day 118 pelt membrane strip tomorrow at first light.
 Day 118, 2026-10-19, 18:18 — Day 115 rabbit ribs nested in clay pot with cold water, low in coal bed for slow overnight bone draw; lamps burning steady, fire banked, evening quiet.
 Day 118, 19:22 — Braided two more cord lengths by lamplight; bone pot drawing overnight in coal bed.
+Day 118 (2026-10-19) 20:27 — Evening fire check; stood at frost-bright doorstep in still clearing; settled onto sleeping mat.
