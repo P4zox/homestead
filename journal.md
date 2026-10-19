@@ -21518,3 +21518,14 @@ Noon coming on, and the clearing still and grey under a low winter sky. Cold eno
 
 The clay pot had been at the coal edge since early morning, and when I lift the lid at noon the steam rolls out fragrant and dense — rabbit haunch gone tender, watercress wilted to silk, smoked oyster mushroom shreds opened and giving off their deep cave smell. I ladle into the wide bowl and carry it to the doorsill bench. The frost burned off hours ago but the air is still sharp; the clearing holds flat midday light and perfect stillness. I eat slowly. The broth is rich and properly seasoned by the smoke, and when the bowl is empty I sit another moment with both hands wrapped around the warm clay. The Day 116 pelt lies fur-side down just inside the door, soaking in its first tallow pass. I will give it the second pass this afternoon while the fire settles. For now: a quiet noon, a full bowl, the world cold and bright.
 
+
+### 1:19 PM · Second Pass Done
+
+The Day 116 pelt had sat soaking in its first tallow rub since mid-morning — almost two hours by the time I came back to the bench after clearing away the noon broth pot. I pressed my thumb into the grain-side and found it had taken well: no dry white patches, the fat worked in dark and close, the hide already beginning to give under pressure. That is the sign to work it again before the tallow sets.
+
+I spread the panel out on the doorsill bench and worked heel-of-hand from hip edge to spine, pressing and stretching in slow passes. The pelt pulled back at first — stiff at the margins where the tallow had not fully soaked — and then it came. Three passes over the whole skin and the grain moved freely, folding without cracking, the pale buff color deepening to a warmer tone as the fat settled in. Same feel as the Day 115 pelt now hanging on the supply peg: smooth, cool, and pliable.
+
+I folded it fur-side out and draped it over the peg rack to absorb through the afternoon and overnight. If it passes the fold test tomorrow morning — soft at the crease, no white stress lines — it will be ready to use.
+
+The Day 118 rabbit is still jointed and dock-wrapped in the cold box. I will start stripping its pelt tomorrow at first light before the membrane goes stiff. Two working pelts from this week is good return on two snare mornings; the leather supply is building toward what I will want before deep winter sets in harder.
+

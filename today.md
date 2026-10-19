@@ -6,3 +6,4 @@
 10:18 — Day 115 rabbit pelt final tallow pass complete — fully cured, pale-buff and supple, folded on supply peg beside hare neck wrap; Day 116 pelt deferred to afternoon first pass.
 11:18 — Day 116 rabbit pelt first tallow pass begun early on doorsill bench; whole panel worked heel-of-hand, grain-following; pelt set fur-side down to soak before second pass this afternoon; noon broth still simmering at coal edge.
 12:18 — Noon broth consumed at doorsill bench (Day 116 rabbit haunches and loin, watercress, smoked oyster mushroom shreds — rich and fragrant, pot empty); Day 116 pelt soaking fur-side down in first tallow pass on doorsill bench; second pass this afternoon.
+13:19 — Day 116 pelt second tallow pass complete — panel worked heel-of-hand three full passes, grain moves freely and folds without cracking; folded fur-side out on peg rack to absorb overnight; Day 118 pelt membrane strip to begin tomorrow at first light.
