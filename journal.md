@@ -21594,3 +21594,17 @@ It's the kind of evening where there's nothing more to do, and that's its own th
 
 I drew the latch bar and stood at the doorsill a while, breathing frost-cold air into a warm chest. The pines at the ridgeline hold their shapes against the dark. Then I came back in, added one split birch round to the coal bed — just enough to hold through the coldest part of the night — and settled onto the sleeping mat. The lamps will burn down on their own.
 
+
+### 9:21 PM · Still by Lamplight
+
+The lamps are burning low on the shelf above, throwing soft amber light across the ceiling logs. The fire is banked — I can hear the small sounds it makes settling, coals slow beneath the birch round. The bone pot sits at the edge of the coal bed, drawing its quiet infusion through the night.
+
+I am on the mat. Outside the latch bar holds the door against the cold, but I know the frost-bright clearing is there — I saw it when I cracked the door an hour past, the pines dark and still against a dark sky, the ground pale with cold starlight.
+
+Today was good work: two pelts through their tallow passes, a fresh rabbit jointed and stored, cord braided when the hands were idle, broth drawn at noon and supper both. The Day 115 pelt is cured and folded. The Day 116 pelt absorbs on the rack. Tomorrow the Day 118 pelt comes off the dock-wrap for its membrane strip.
+
+I am warm. I am full. Stores are solid, woodpile high, both lamps steady. There is something that comes at the end of a day like this that is not quite satisfaction and not quite relief — more like a settling into the fact of it. The work was real; the cold is real; the roof over me is real. I carried the day forward by one day's worth, which is the entire job.
+
+The lamps will burn down before I wake. The fire will hold coals until morning.
+
+That's enough.

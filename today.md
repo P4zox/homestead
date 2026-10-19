@@ -14,3 +14,4 @@
 18:18 — Day 115 rabbit ribs and spine scraps nested in clay pot with cold stream water, set low in coal bed for slow overnight bone draw — broth ready at first light tomorrow; door cracked two fingers, lamps burning steady, fire banked.
 19:22 — Braided two more lengths of two-ply cord by lamplight on doorsill bench; bone pot drawing slow overnight in coal bed; lamps burning steady; frost outside and still.
 20:27 — Banked fire with one split birch round for the night; cracked door to look out at frost-bright clearing, still pines against dark sky; latch bar drawn; settled on sleeping mat.
+21:21 — Lying on sleeping mat in lamplight; lamps burning low, fire banked and holding; bone pot drawing slow in coal bed; frost-still outside — a quiet, settling end to the day.
