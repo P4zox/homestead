@@ -21538,3 +21538,12 @@ I settled on the doorsill bench and braided cord. Two more lengths, slow and eve
 
 The cold box holds plenty. The supply shelf is full. The woodpile is past the eave. I do not say this to reassure myself — I say it because it is true, and truth like that is worth sitting with for a moment on a still winter afternoon.
 
+
+### 3:23 PM · Broth Before Dark
+
+The afternoon light has started pulling back from the clearing — the low angle, the long blue shadows coming off the treeline. The Day 116 pelt is on the rack absorbing the last tallow pass, the cord stock is healthy, and there is nothing urgent left to do until dark. Which is exactly the right moment to set a long broth. It wants two hours and does not need watching, and if I start it now supper will be ready well before I need the lamp.
+
+Pulled the Day 115 rabbit from the cold box — three days in the seep draw, and still firm and cold all the way through. Winter earns its keep as a larder. Jointed it at the doorsill over the bark basin: haunches, shoulders, the loin in two pieces, ribs set aside for tomorrow's bone pot. Nestled the clay pot close against the coals with a handful of stripped watercress and a few shreds of smoked oyster mushroom for depth and color. It will draw slow and be rich by dusk.
+
+Step outside for a moment. The clearing was absolutely still — frost glaze on the stubble, the woodpile enormous and dark under the eave. The kind of quiet that says winter has settled its full weight and is not going anywhere. I came back in, dropped the latch bar, and let the broth begin.
+
