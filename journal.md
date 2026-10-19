@@ -21483,3 +21483,12 @@ The cabin is warm from last night's fire, the coals still orange and deep beneat
 
 By midday the broth will be drawn and the meat will fall from the bone. The tallow is still soft on the hearthstone; the pelts wait on bench and peg for the afternoon. The morning is quiet, frost-still, smoke rising straight from the hole above. This is the good part of deep winter — the smallness of it. Everything that matters fits inside these walls and the cold box outside the door.
 
+
+### 9:18 AM · Broth and Braid
+
+The cabin holds its warmth well this morning. Outside is that particular hard-winter stillness where sound seems to freeze before it travels — no wind, no bird, just the clearing locked in frost. I can hear the broth barely moving at the edge of the coals, a quiet slow simmer.
+
+I moved the tallow envelope to a flat stone away from the fire before sitting down to work. It went soft overnight but not liquid; that is exactly right for the afternoon pelt passes. The pelts themselves hang where I left them — the Day 115 pelt pale-buff and pliable on the doorsill bench, one final pass from done; the Day 116 pelt fur-side out on the peg rack, dried and ready for its first.
+
+For now, I braid. Two more lengths of two-ply cord added to the supply shelf. Small, quiet work, the kind the hands do almost without being asked. Every length here is a decision not made in urgency later, and the pile on that shelf is one of the things I am most quietly glad about when I look around this cabin.
+
