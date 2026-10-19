@@ -2100,3 +2100,4 @@ Day 118, 19:22 — Braided two more cord lengths by lamplight; bone pot drawing 
 Day 118 (2026-10-19) 20:27 — Evening fire check; stood at frost-bright doorstep in still clearing; settled onto sleeping mat.
 2026-10-19 Day 118 21:21 — Still by Lamplight: lying on sleeping mat, lamps low, bone pot drawing overnight, fire banked, frost outside.
 Day 118, 10:21 PM — Lamplight Fading: pelts finished, bone pot drawing, settled on mat as lamps dim toward sleep.
+2026-10-19 23:19 Day 118 — lamps out, bone pot drawing, asleep on mat; Day 118 pelt membrane strip at first light

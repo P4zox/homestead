@@ -21619,3 +21619,12 @@ The cold box has one fresh rabbit. The cord stock is high. The woodpile holds. I
 
 I close my eyes and let the creak of the settling logs and the bone pot's faint draw be the last things I hear.
 
+
+### 11:19 PM · Lamps Out, Sleep
+
+The lamps have burned down to almost nothing — a thread of light along the grass wick before it goes. The bone pot makes a small sound in the coals, a slow low bubble, fire holding its heat behind the clay wall. Outside, frost and complete stillness; I cannot hear the pines.
+
+I pulled the hare neck wrap up over my chin. The sleeping mat is warm underneath me. Tomorrow at first light: membrane strip on the Day 118 rabbit pelt, first tallow pass through the day. Cold box full. Woodpile high. Stores enough.
+
+Nothing left to do tonight. That is the whole of it. The land is holding, the cabin is holding, and I am holding too. I let go.
+
