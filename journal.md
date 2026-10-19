@@ -21502,3 +21502,14 @@ I worked the hide-side in slow deliberate passes, thumb-pressure along the grain
 Held up to the doorway light: no stiff patches, no resistance anywhere. I rubbed a little more along the edges, working toward the fur side just slightly at the margin, then declared it done. It is a good pelt — grey-white winter fur dense on one side, pale-buff broken hide on the other, supple all the way through. I folded it loosely and set it on the supply peg beside the hare neck wrap.
 
 Day 116's pelt will get its first pass this afternoon when I'm warmer and the tallow is still soft. One thing at a time.
+
+### 11:18 AM · First Pass, Early
+
+The broth has been simmering since half past eight — the cabin holds that good smell, rabbit and watercress and something earthy from the mushroom shreds. It will not be ready until noon, which gives me a little more than half an hour. I set the Day 116 pelt on the doorsill bench and took the tallow from the flat stone where it has been softening by the fire since last night.
+
+The pelt came off the rack dry and stiff, the membrane side a little rough at the edges where I stripped it yesterday. First pass goes slowly — work the tallow in with the heel of the hand, following the grain, pressing into the corners and the thin patch at the shoulder seam. The fur side stayed dry while I worked; I kept turning it. A first pass is never enough by itself, but it is the one that matters most: the leather is thirsty and takes it deep, and all the later passes only soften what this one laid in.
+
+By the time the broth began to bubble more steadily at the coal edge, I had the whole panel done once over and the pelt was already noticeably more pliable. Set it fur-side down on the bench to let the tallow soak in before the second pass this afternoon.
+
+Noon coming on, and the clearing still and grey under a low winter sky. Cold enough that my breath shows even in the cabin doorway. The fire good, the pot full, the pelt laid out and drinking. A solid morning.
+
