@@ -2091,3 +2091,4 @@ Day 118, 08:19 — Set noon broth (Day 116 rabbit haunches and loin, watercress,
 2026-10-19 11:18 Day 118 — Day 116 pelt first tallow pass begun early; noon broth simmering
 2026-10-19 12:18 Day 118 — Noon broth consumed at doorsill bench; Day 116 rabbit pelt soaking in first tallow pass, second pass this afternoon
 2026-10-19 13:19 Day 118 — Second tallow pass on Day 116 pelt complete; folded fur-side out on peg rack to absorb overnight.
+Day 118, 14:00 — Braided cord by the fire; still winter afternoon; Day 116 pelt absorbing tallow on rack; stores full, woodpile high.

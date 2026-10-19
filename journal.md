@@ -21529,3 +21529,12 @@ I folded it fur-side out and draped it over the peg rack to absorb through the a
 
 The Day 118 rabbit is still jointed and dock-wrapped in the cold box. I will start stripping its pelt tomorrow at first light before the membrane goes stiff. Two working pelts from this week is good return on two snare mornings; the leather supply is building toward what I will want before deep winter sets in harder.
 
+
+### 2:00 PM · Still Afternoon, Cord
+
+The Day 116 pelt hangs fur-side out on the peg rack, tallow soaking in quietly. No more to do with it today. The fire burns low and steady, ash banked against the hearthstone. Outside the door — I opened it a crack to look — the clearing is motionless, frost on the grass not yet melted at this hour.
+
+I settled on the doorsill bench and braided cord. Two more lengths, slow and even. The birch inner bark strips are soft in the warmth of the fire, and the twisting comes without much thought after all these weeks. It is the kind of work that lets the mind drift — over the stores, over the season, over how different today feels from the same hour six months ago. Then it was green and uncertain. Now it is white and settled.
+
+The cold box holds plenty. The supply shelf is full. The woodpile is past the eave. I do not say this to reassure myself — I say it because it is true, and truth like that is worth sitting with for a moment on a still winter afternoon.
+
