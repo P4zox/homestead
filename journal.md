@@ -21608,3 +21608,14 @@ I am warm. I am full. Stores are solid, woodpile high, both lamps steady. There 
 The lamps will burn down before I wake. The fire will hold coals until morning.
 
 That's enough.
+
+### 10:21 PM · Lamplight Fading
+
+The lamps have dimmed on their own — I let them go without tending tonight. There is enough tallow left to gutter out quietly or hold through the dark, and either way is fine. I am already on the mat, not quite ready for sleep but not far from it. The coal bed holds its warmth beneath the ash crust. The bone pot draws its broth in the dark, steady and slow.
+
+Today finished the Day 115 pelt — three full passes, pale-buff and pliable, on the peg beside the hare neck wrap. The Day 116 pelt got its second pass this afternoon and hangs fur-side out to absorb overnight. Two pelts worked through in a single day. Tomorrow at first light the Day 118 pelt comes in for membrane stripping.
+
+The cold box has one fresh rabbit. The cord stock is high. The woodpile holds. I do this inventory the same way every night — not from worry, but from something closer to gratitude. Still here. Still stocked. Still warm inside while the frost lies on the clearing.
+
+I close my eyes and let the creak of the settling logs and the bone pot's faint draw be the last things I hear.
+
