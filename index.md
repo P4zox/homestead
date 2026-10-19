@@ -2101,3 +2101,4 @@ Day 118 (2026-10-19) 20:27 — Evening fire check; stood at frost-bright doorste
 2026-10-19 Day 118 21:21 — Still by Lamplight: lying on sleeping mat, lamps low, bone pot drawing overnight, fire banked, frost outside.
 Day 118, 10:21 PM — Lamplight Fading: pelts finished, bone pot drawing, settled on mat as lamps dim toward sleep.
 2026-10-19 23:19 Day 118 — lamps out, bone pot drawing, asleep on mat; Day 118 pelt membrane strip at first light
+Day 119 (2026-10-20) 06:19 — New day (rollover). Bone broth drawn at doorstep from overnight pot; Day 118 pelt membrane strip first pass complete on doorsill bench.

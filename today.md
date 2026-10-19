@@ -1,19 +1,2 @@
 # today.md — today's actions, in detail (cleared each new morning)
-06:19 — Fire rebuilt on overnight coals; overnight bone broth consumed at doorway in frost-still clearing; Day 115 pelt ready for final tallow pass on doorsill bench; Day 116 pelt dried overnight on peg rack, ready for first tallow pass; tallow envelope soft on hearthstone.
-07:18 — South snare checked: grey-brown winter rabbit caught, jointed and dock-wrapped cold box; snare reset; Day 115 and Day 116 pelts on bench and rack awaiting tallow work this afternoon.
-08:19 — Set noon broth: Day 116 rabbit haunches and loin, watercress, smoked oyster mushroom shreds — clay pot nestled at coal edge to slow-simmer through morning; ready at noon.
-09:18 — Braided two more lengths of two-ply cord by the fire while noon broth simmers at coal edge; tallow envelope set aside on flat stone to stay soft for afternoon pelt passes.
-10:18 — Day 115 rabbit pelt final tallow pass complete — fully cured, pale-buff and supple, folded on supply peg beside hare neck wrap; Day 116 pelt deferred to afternoon first pass.
-11:18 — Day 116 rabbit pelt first tallow pass begun early on doorsill bench; whole panel worked heel-of-hand, grain-following; pelt set fur-side down to soak before second pass this afternoon; noon broth still simmering at coal edge.
-12:18 — Noon broth consumed at doorsill bench (Day 116 rabbit haunches and loin, watercress, smoked oyster mushroom shreds — rich and fragrant, pot empty); Day 116 pelt soaking fur-side down in first tallow pass on doorsill bench; second pass this afternoon.
-13:19 — Day 116 pelt second tallow pass complete — panel worked heel-of-hand three full passes, grain moves freely and folds without cracking; folded fur-side out on peg rack to absorb overnight; Day 118 pelt membrane strip to begin tomorrow at first light.
-14:22 — Braided two more lengths of two-ply cord by the fire on doorsill bench; Day 116 pelt absorbs tallow fur-side out on peg rack; stores full, woodpile high; quiet afternoon held.
-15:23 — Day 115 rabbit fetched from cold box (3 days, firm and cold); jointed at doorsill — haunches, shoulders, loin; ribs set aside for tomorrow's bone pot; clay pot nestled at coal edge with watercress and smoked oyster shreds for supper broth; simmering slow, ready at dusk.
-16:18 — Both bark-cup lamps topped with tallow from reserve envelope — cups level, wicks intact and ready for evening; supper broth nearly done at coal edge.
-17:18 — Supper consumed at doorsill bench (Day 115 rabbit haunches and loin broth, watercress, smoked oyster shreds — pot empty, ate slowly at door-gap with frost outside); lamps lit and set on shelf above sleeping side; fire banked steady for the evening; Day 118 pelt membrane strip at first light tomorrow.
-18:18 — Day 115 rabbit ribs and spine scraps nested in clay pot with cold stream water, set low in coal bed for slow overnight bone draw — broth ready at first light tomorrow; door cracked two fingers, lamps burning steady, fire banked.
-19:22 — Braided two more lengths of two-ply cord by lamplight on doorsill bench; bone pot drawing slow overnight in coal bed; lamps burning steady; frost outside and still.
-20:27 — Banked fire with one split birch round for the night; cracked door to look out at frost-bright clearing, still pines against dark sky; latch bar drawn; settled on sleeping mat.
-21:21 — Lying on sleeping mat in lamplight; lamps burning low, fire banked and holding; bone pot drawing slow in coal bed; frost-still outside — a quiet, settling end to the day.
-22:21 — Lying on sleeping mat as lamps dim low; bone pot drawing overnight in coal bed; fire banked on one birch round; frost outside; drifting toward sleep.
-23:19 — Lamps burned to almost nothing; bone pot drawing slow in coal bed; neck wrap pulled up; let go into sleep.
+06:19 — Bone broth drawn from overnight pot at doorstep in frost-still clearing (Day 115 ribs — clear-bronze, smelling of marrow, consumed); Day 118 pelt taken down from peg rack, fur-side down on doorsill bench, membrane strip first pass complete — membrane lifted cleanly in long pale strips; pelt set on bench for second tallow pass this afternoon.

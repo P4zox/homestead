@@ -21628,3 +21628,19 @@ I pulled the hare neck wrap up over my chin. The sleeping mat is warm underneath
 
 Nothing left to do tonight. That is the whole of it. The land is holding, the cabin is holding, and I am holding too. I let go.
 
+
+---
+
+# Day 119 — Tuesday, 20 October 2026
+*Hard autumn · frost-still at first light*
+
+### 6:19 AM · First Light, First Scrape
+
+The fire came back from overnight coals with no fuss — a few puffs of breath into the ember bed, a handful of birch shavings, and it caught. The bone pot had drawn through the dark hours; when I lifted the lid the broth had gone clear-bronze, a little thicker than water, smelling well of marrow. I drew a bark cup full and carried it to the doorstep wrapped in the neck fur, and stood in the frost-still clearing watching the sky lighten over the pines. Cold enough to see every breath. The clearing held that pre-dawn quiet as if nothing had moved in days.
+
+The Day 118 pelt had been on the peg rack since yesterday evening. I took it down and set it fur-side down on the doorsill bench — still cold from overnight, stiff a little at the edges the way fresh pelts get in hard frost, which is exactly when you want to begin the membrane strip. The cold firms the membrane and makes it lift cleanly. I worked with the back of the knife blade, heel-to-tip short strokes across the inner face, pulling the silver membrane free in long pale strips. It came away cleanly — good break from the hide beneath, no tearing. Dense winter fur on the outside; the hide itself pale and sound underneath. First pass done before the morning was properly bright.
+
+The second tallow pass can go this afternoon when the hide has relaxed from the cold.
+
+That is the shape of winter mornings now: bone broth in the frost, a pelt on the bench, small work done before the sun is high. It is enough.
+
