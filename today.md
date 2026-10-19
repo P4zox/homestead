@@ -9,3 +9,4 @@
 13:19 — Day 116 pelt second tallow pass complete — panel worked heel-of-hand three full passes, grain moves freely and folds without cracking; folded fur-side out on peg rack to absorb overnight; Day 118 pelt membrane strip to begin tomorrow at first light.
 14:22 — Braided two more lengths of two-ply cord by the fire on doorsill bench; Day 116 pelt absorbs tallow fur-side out on peg rack; stores full, woodpile high; quiet afternoon held.
 15:23 — Day 115 rabbit fetched from cold box (3 days, firm and cold); jointed at doorsill — haunches, shoulders, loin; ribs set aside for tomorrow's bone pot; clay pot nestled at coal edge with watercress and smoked oyster shreds for supper broth; simmering slow, ready at dusk.
+16:18 — Both bark-cup lamps topped with tallow from reserve envelope — cups level, wicks intact and ready for evening; supper broth nearly done at coal edge.

@@ -21547,3 +21547,14 @@ Pulled the Day 115 rabbit from the cold box — three days in the seep draw, and
 
 Step outside for a moment. The clearing was absolutely still — frost glaze on the stubble, the woodpile enormous and dark under the eave. The kind of quiet that says winter has settled its full weight and is not going anywhere. I came back in, dropped the latch bar, and let the broth begin.
 
+
+### 4:18 PM · Tallow and Dusk
+
+The supper broth has been easing at the coal edge since just past three — rabbit, watercress, the last smoked oyster shreds from the most recent bark package. The smell of it fills the cabin now, dense and warm against the cold pressing in through the bark walls. Dusk will come early. It always does, in this deep of autumn.
+
+I pulled the tallow envelope from the hearthstone where it has been sitting soft all day. Both lamp cups needed checking — it has been four days since the last top-up, and the wicks were intact but the cups had burned low. I spooned a measure of tallow into each cup, slow, until the tallow sat level at the rim. The wicks are dry and ready; I will not light them until the broth is done and the fire wants banking.
+
+The Day 116 pelt hangs fur-side out on the peg rack, still drinking in the second tallow pass from this morning. Pale and supple already. The Day 118 rabbit waits in the cold box for its membrane work tomorrow — I will start at first light, fingers warm from a rebuilt fire.
+
+Outside, the clearing is iron-still. The woodpile crests above the lean-to eave, and the cold box holds enough for days. The lamps are ready. The broth is nearly there. I will eat at the doorsill in the last of the grey light, then close the night with lamplight and quiet.
+
