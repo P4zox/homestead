@@ -21558,3 +21558,12 @@ The Day 116 pelt hangs fur-side out on the peg rack, still drinking in the secon
 
 Outside, the clearing is iron-still. The woodpile crests above the lean-to eave, and the cold box holds enough for days. The lamps are ready. The broth is nearly there. I will eat at the doorsill in the last of the grey light, then close the night with lamplight and quiet.
 
+
+### 5:18 PM · Supper by Lamplight
+
+The broth was ready just as the light began to go — that grey hour when the frost-still clearing loses its edges and the pines become shapes against a darker sky. I pulled the pot from the coals and ladled it into the bowl at the doorsill bench, ate there with the door cracked a hand-width. The rabbit haunches had gone to threads, the watercress soft and dark, the smoked oyster shreds dissolved into the broth and made it fragrant and deep. I ate slowly. The cold pushed at the door-gap but did not bother me.
+
+The lamps were already warm on the hearth peg from the four o'clock topping. I set them on the shelf above the sleeping side — one for the near wall, one to keep the far corner from going black — and they threw their small yellow circles against the bark and daub. Outside, the clearing had gone fully dark. The stream was sound only.
+
+The Day 116 pelt is resting on the peg rack, tallow soaking in overnight. Tomorrow, the Day 118 pelt — membrane strip at first light, before the cold settles hard into the hands. The cold box holds one fresh rabbit. The woodpile is high. The stores are full. I am fed and warm and the fire is steady, and there is nothing pressing for the dark hours ahead.
+

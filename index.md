@@ -2094,3 +2094,4 @@ Day 118, 08:19 — Set noon broth (Day 116 rabbit haunches and loin, watercress,
 Day 118, 14:00 — Braided cord by the fire; still winter afternoon; Day 116 pelt absorbing tallow on rack; stores full, woodpile high.
 Day 118, 15:23 — Set supper broth: Day 115 rabbit (haunches, shoulders, loin; ribs aside for bone pot), watercress, smoked oyster shreds — simmering at coal edge, ready at dusk.
 Day 118 (Mon 2026-10-19) 16:18 — Topped both bark-cup lamps with tallow before dusk; supper broth simmering, cabin ready for evening.
+Day 118, 17:18 (Mon 19 Oct 2026) — Supper eaten at dusk; Day 115 rabbit haunch broth with watercress and smoked oyster shreds consumed at doorsill; lamps lit for evening; Day 116 pelt absorbing tallow on peg rack overnight; Day 118 pelt membrane strip tomorrow at first light.
