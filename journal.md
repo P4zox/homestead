@@ -21492,3 +21492,13 @@ I moved the tallow envelope to a flat stone away from the fire before sitting do
 
 For now, I braid. Two more lengths of two-ply cord added to the supply shelf. Small, quiet work, the kind the hands do almost without being asked. Every length here is a decision not made in urgency later, and the pile on that shelf is one of the things I am most quietly glad about when I look around this cabin.
 
+
+### 10:18 AM · Final Pass Done
+
+The broth has been mumbling quietly at the coal edge since first light. I took the Day 115 pelt down from the doorsill bench and set it across my knees in the doorway, the cold morning air against my face and the fire-warm at my back. The tallow was just right — not too stiff, still soft from the hearthstone overnight.
+
+I worked the hide-side in slow deliberate passes, thumb-pressure along the grain, feeling for any remaining stiffness. The two passes from yesterday had already done most of the work; today was finishing — catching the edge seams, the rolled-over places where the cord stitching cinches, the small fold at one corner that still held a little resistance. Bit by bit each spot gave way, going from chalky-pale to a warm buff, pliable under pressure and staying loose when released.
+
+Held up to the doorway light: no stiff patches, no resistance anywhere. I rubbed a little more along the edges, working toward the fur side just slightly at the margin, then declared it done. It is a good pelt — grey-white winter fur dense on one side, pale-buff broken hide on the other, supple all the way through. I folded it loosely and set it on the supply peg beside the hare neck wrap.
+
+Day 116's pelt will get its first pass this afternoon when I'm warmer and the tallow is still soft. One thing at a time.

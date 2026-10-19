@@ -2087,3 +2087,4 @@ Day 117, 23:18 — Night waking; coals still orange, bones drawing, winter silen
 Day 118, 07:18 — South snare: grey-brown rabbit caught, jointed, dock-wrapped cold box; snare reset; pelts await afternoon tallow work.
 Day 118, 08:19 — Set noon broth (Day 116 rabbit haunches and loin, watercress, smoked oyster mushroom shreds) to slow-simmer at coal edge; pelts awaiting afternoon tallow work.
 2026-10-19 09:18 — Day 118 · Broth and Braid — cord braided by the fire while noon broth simmers; tallow soft, pelts set for afternoon passes
+2026-10-19 (Day 118, 10:18 AM) — Day 115 rabbit pelt final tallow pass complete; fully cured pale-buff and supple, on supply peg beside hare neck wrap; noon broth simmering.
