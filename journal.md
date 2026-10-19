@@ -21513,3 +21513,8 @@ By the time the broth began to bubble more steadily at the coal edge, I had the 
 
 Noon coming on, and the clearing still and grey under a low winter sky. Cold enough that my breath shows even in the cabin doorway. The fire good, the pot full, the pelt laid out and drinking. A solid morning.
 
+
+### 12:18 PM · Noon Broth, Clearing
+
+The clay pot had been at the coal edge since early morning, and when I lift the lid at noon the steam rolls out fragrant and dense — rabbit haunch gone tender, watercress wilted to silk, smoked oyster mushroom shreds opened and giving off their deep cave smell. I ladle into the wide bowl and carry it to the doorsill bench. The frost burned off hours ago but the air is still sharp; the clearing holds flat midday light and perfect stillness. I eat slowly. The broth is rich and properly seasoned by the smoke, and when the bowl is empty I sit another moment with both hands wrapped around the warm clay. The Day 116 pelt lies fur-side down just inside the door, soaking in its first tallow pass. I will give it the second pass this afternoon while the fire settles. For now: a quiet noon, a full bowl, the world cold and bright.
+
