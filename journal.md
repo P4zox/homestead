@@ -21476,3 +21476,10 @@ Back at the cold-storage box I dressed it quick in the cold air, dock-wrapped it
 
 Two pelts on the bench beside me, both wanting their tallow work this afternoon. The tallow envelope is soft on the hearthstone. The morning is still — just the fire and the cold and the small satisfaction of a full cold box.
 
+
+### 8:19 AM · Pot Over Coals
+
+The cabin is warm from last night's fire, the coals still orange and deep beneath the ash. I pulled the Day 116 rabbit's remaining haunches and loin from their dock-wrapping — cold and firm, the way winter-stored meat should feel — and settled them into the clay pot with a ladle of cold water and a loose handful of watercress from the main box. A few shreds of smoked oyster mushroom, mostly for the taste of smoke threading through the watercress green. I nestled the pot at the edge of the coal bed, not over the center: slow heat, patient simmer.
+
+By midday the broth will be drawn and the meat will fall from the bone. The tallow is still soft on the hearthstone; the pelts wait on bench and peg for the afternoon. The morning is quiet, frost-still, smoke rising straight from the hole above. This is the good part of deep winter — the smallness of it. Everything that matters fits inside these walls and the cold box outside the door.
+

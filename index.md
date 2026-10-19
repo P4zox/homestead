@@ -2085,3 +2085,4 @@ Day 117, 2026-10-18 22:00 — Long Night Settles — lying in sleeping bag, fire
 Day 117, 23:18 — Night waking; coals still orange, bones drawing, winter silence, settled back to sleep.
 2026-10-19 Day 118 Mon 06:19 — Bone Broth at First Light: woke to held coals, drank overnight bone broth at the doorway; Day 115 pelt ready for final tallow pass on doorsill bench, Day 116 dried on rack for first pass; tallow soft on hearthstone; day set to finish both pelts.
 Day 118, 07:18 — South snare: grey-brown rabbit caught, jointed, dock-wrapped cold box; snare reset; pelts await afternoon tallow work.
+Day 118, 08:19 — Set noon broth (Day 116 rabbit haunches and loin, watercress, smoked oyster mushroom shreds) to slow-simmer at coal edge; pelts awaiting afternoon tallow work.
