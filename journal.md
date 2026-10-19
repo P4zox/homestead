@@ -21567,3 +21567,12 @@ The lamps were already warm on the hearth peg from the four o'clock topping. I s
 
 The Day 116 pelt is resting on the peg rack, tallow soaking in overnight. Tomorrow, the Day 118 pelt — membrane strip at first light, before the cold settles hard into the hands. The cold box holds one fresh rabbit. The woodpile is high. The stores are full. I am fed and warm and the fire is steady, and there is nothing pressing for the dark hours ahead.
 
+
+### 6:18 PM · Bones Before Dark
+
+The lamps have settled to their steady burn, twin flames on the shelf above the sleeping side. Full dark outside — the clearing invisible past the door-gap, frost absolute on the ground I cannot see. I still hold the door cracked two fingers for air; the fire breathes cleanly.
+
+The Day 115 ribs and spine scraps I set aside at noon were sitting in their bark tray on the hearthstone, patient. On impulse — or maybe just good sense — I nested them into the clay pot, poured cold water drawn earlier from the stream tin, and moved the pot low into the coal bed. Not enough heat to boil, just enough to seep. By the time I wake, the marrow will have loosened and the water will be broth.
+
+A good trade: ten minutes of work now, a warm draw ready at first light. I set the pot lid — a flat piece of bark — over the clay rim to keep the heat and went back to the bench. The evening is quiet. The fire says what it always says in winter: I am inside, and warm, and fed. I accept that easily tonight.
+
