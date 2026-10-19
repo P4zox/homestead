@@ -21644,3 +21644,14 @@ The second tallow pass can go this afternoon when the hide has relaxed from the 
 
 That is the shape of winter mornings now: bone broth in the frost, a pelt on the bench, small work done before the sun is high. It is enough.
 
+
+### 7:19 AM · Frost Walk, Empty Snare
+
+I pulled the cabin door open into a wall of cold — the frost had settled thick on the clearing overnight, every blade of stiff grass rimed white, the doorsill bench sparkling in the pale early light. I dressed quickly: neck wrap, wrist wraps, mittens, foot wraps, the jerkin over everything. The fire was alive behind me; I left it to hold itself.
+
+The walk south to the snare takes only a few minutes, but this morning each step was its own thing. Birch trunks bone-white against the dark of the pines. My breath visible and gone. The clearing felt sealed under cold, quiet in a way that mid-autumn goes before the season fully hardens.
+
+The snare was empty. Set well — the cord loop still taut at the right height, the run undisturbed — but nothing had passed through. I crouched and checked the trigger, re-bent the guide stick, re-looped the bark cord where frost had stiffened it a little. Reset takes hardly a minute when the set is already good. I stood and listened. Only wind high in the pine crowns.
+
+Walked back across the clearing slowly. An empty snare is not a failure; rabbits move on their own time, and this run has been generous. The cabin door opened into warmth. The fire had not moved.
+
