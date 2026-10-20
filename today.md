@@ -15,3 +15,4 @@
 19:19 — Brought half-armful of dry birch splits from eave woodpile indoors; stacked upright beside hearthstone for overnight fire; braided two more lengths of two-ply cord by lamplight; cabin warm and amber in hard-frost evening.
 20:21 — Stepped out the cabin door briefly into the frost-cleared night; stood three minutes in the clearing under a bright starry sky — Orion rising in the south-east, the Pleiades above; back inside, latch bar down, fire steady, settling toward sleep.
 21:21 — Fed fire one last birch split and banked it for the night with the damper drawn narrow; pinched out both lamps; settled into sleeping bag in warm cabin.
+22:19 — Lay in sleeping bag in warm dark cabin, fire banked behind narrow damper, both lamps out; quiet reflection on the day before sleep — snare set south, will check at first light.

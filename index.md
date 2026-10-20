@@ -2117,3 +2117,4 @@ Day 119, 18:18 — Fashioned birch-bark tinder pouch by lamplight; bone-needle-s
 Day 119 (2026-10-20) 19:19 — Brought in night-splits from eave; braided two more cord lengths by lamplight; quiet winter evening settling in.
 Day 119 (2026-10-20) 20:21 — Stepped outside into frost-hard clearing to see the night sky; Orion and Pleiades overhead, breath white in still air; back inside, cabin warm, settling toward sleep.
 Day 119 (2026-10-20) 21:21 — Banked fire for the night; both lamps pinched out; settled into sleeping bag in warm cabin.
+2026-10-20 Day 119 22:19 — Night Settling — fire banked, cabin warm, frost absolute outside; Orion rising; day of good plain work complete

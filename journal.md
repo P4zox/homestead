@@ -21757,3 +21757,13 @@ No noise from the treeline. No wind. Just the settling creak of the ridgepole co
 
 The last things before sleep: fed the fire one final birch split, watched the flame take and settle to a steady coal glow, then drew the damper to a narrow channel to hold the coals through the cold night. Both lamps had burned faithfully through supper and the evening work — I pinched them out now, one then the other, leaving only the fire's orange pulse moving slow on the log walls. The cabin smells of broth and pine smoke and fresh tallow — a good winter smell, the smell of a day well-used. The frost outside is absolute; I can hear nothing but the fire and the faint creak of cold settling into the roof timbers. Pulled the sleeping bag over my legs, neck wrap snug around my throat, and lay back. Full belly. Warm shelter. The snare is set on the run; tomorrow will answer. Tonight this is enough.
 
+
+### 10:19 PM · Night Settling
+
+The fire is a heartbeat behind the narrow damper — I can feel its warmth from where I lie, not see its face. The cabin is dark in the way a closed winter night can be: complete, warm at the center of it. Both lamps are out. The latch bar is down.
+
+Today had the quality of good plain work — broth drawn, firewood carried, pelt cured and set to absorb, cord braided by hearthside, a tinder pouch fashioned from birch bark by lamplight. The kind of day that asks only to keep moving steadily through the winter hours. When I stepped out at 20:21 the frost was absolute and Orion was rising in the southeast, the Pleiades bright above him. I stood three minutes, then came back inside and barred the door.
+
+The cold outside is real. That it does not reach me is the whole work of four months, expressed in one quiet night.
+
+The snare is set south. I will check it at first light.
