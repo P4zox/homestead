@@ -21691,3 +21691,12 @@ I worked from the neck stub down, slow overlapping circles with the thumb and he
 
 By the end the whole pelt had gone even and supple — buff-gold, no hard spots, folds clean across the grain without cracking. I folded it gently fur-side out and hung it on the supply peg to absorb through the rest of the afternoon. One more pelt complete. The cold does not change that small satisfaction.
 
+
+### 1:18 PM · Watercress at the Riffle
+
+After the noon broth and the pelt work this morning, the afternoon opened quiet and still. The pelt is folded fur-side out on the supply peg, soaking up the tallow at its own pace — nothing to do for it until evening. I pulled on the jerkin and neck wrap and walked down to the stream.
+
+The pool is solid now — I can see the ice pressed flat over dark water, no give when I pressed my boot to the edge. The eddy downstream is the same, sealed with a gray-white skin. But the riffle runs open, the water quick and cold between frost-silvered stones, and at the alder-root bend the watercress still holds: dark green rosettes caught in the current against the roots, as alive as anything in this cold. I knelt on the bank stone and pulled a double handful — stems and leaves clean and cold, smelling of the stream.
+
+Walked back with my fist of green and set it in the cold box, packed under bark to keep it damp. Supper broth will be better for it.
+

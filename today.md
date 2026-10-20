@@ -6,3 +6,4 @@
 10:18 — Braided two more lengths of two-ply cord by hearthside while noon broth simmered; hung on supply peg.
 11:18 — Noon broth pulled from coals after two-hour simmer; Day 118 rabbit haunch and shoulder — meat tender, fat in gold rings; ate at doorsill in midday sun, frost on the ground, bowl cleaned; pelt tallow pass still pending this afternoon.
 12:18 — Day 118 rabbit pelt second tallow pass complete; worked tallow in slow overlapping circles neck to tail, shoulder patches and belly twice; pelt folded fur-side out on supply peg to absorb through afternoon — fully cured, pale-buff and supple.
+13:18 — Walked to the stream; found watercress still green at the alder-root bend riffle; pulled a double handful and cold-boxed it for supper broth.
