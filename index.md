@@ -2116,3 +2116,4 @@ Day 119, 2026-10-20, 17:19 — Supper broth pulled from coals at dusk; rabbit lo
 Day 119, 18:18 — Fashioned birch-bark tinder pouch by lamplight; bone-needle-stitched side seam, bark-loop flap — complete and on supply shelf.
 Day 119 (2026-10-20) 19:19 — Brought in night-splits from eave; braided two more cord lengths by lamplight; quiet winter evening settling in.
 Day 119 (2026-10-20) 20:21 — Stepped outside into frost-hard clearing to see the night sky; Orion and Pleiades overhead, breath white in still air; back inside, cabin warm, settling toward sleep.
+Day 119 (2026-10-20) 21:21 — Banked fire for the night; both lamps pinched out; settled into sleeping bag in warm cabin.

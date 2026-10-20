@@ -21752,3 +21752,8 @@ I stood maybe three minutes. Long enough to feel the contrast — the warmth I'd
 
 No noise from the treeline. No wind. Just the settling creak of the ridgepole cooling and the small voice of the fire. Late enough that I should sleep before long. Enough done today.
 
+
+### 9:21 PM · Banked Fire, Still Night
+
+The last things before sleep: fed the fire one final birch split, watched the flame take and settle to a steady coal glow, then drew the damper to a narrow channel to hold the coals through the cold night. Both lamps had burned faithfully through supper and the evening work — I pinched them out now, one then the other, leaving only the fire's orange pulse moving slow on the log walls. The cabin smells of broth and pine smoke and fresh tallow — a good winter smell, the smell of a day well-used. The frost outside is absolute; I can hear nothing but the fire and the faint creak of cold settling into the roof timbers. Pulled the sleeping bag over my legs, neck wrap snug around my throat, and lay back. Full belly. Warm shelter. The snare is set on the run; tomorrow will answer. Tonight this is enough.
+
