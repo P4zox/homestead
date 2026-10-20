@@ -21772,3 +21772,17 @@ The snare is set south. I will check it at first light.
 
 The sleeping bag is warm around me now, holding the heat I gathered across the whole long day — the morning broth, the slow noon simmer, the supper at hearthside, the cord braiding by lamplight. The fire has gone to coals behind the narrow damper, a low breathing ember-glow behind the clay wall. I cannot see it but I can feel its warmth in the air. Outside, the frost has the clearing absolute — nothing moves out there, nothing makes a sound. The stars I stood under an hour ago are still up, Orion still climbing his slow arc, but I am past looking. The dark of the cabin is whole and close and right. I am thinking of the snare set south, the morning broth I will draw, the way the winter has settled into its full weight and I have settled into mine inside it. Both of us still. Then I am not thinking anything at all.
 
+
+---
+
+# Day 120 — Wednesday, 21 October 2026
+*mid-autumn · frost absolute; grey pre-dawn; fire stoked from overnight coals*
+
+### 6:18 AM · Snare Check at Dawn
+
+Woke in grey pre-dawn quiet, cold reaching me even through the sleeping bag. Lay a moment listening — only silence outside, the cabin holding still in the frost. Then I opened the damper and touched a split of dry birch to the overnight coals; a thread of orange, then a small steady flame. While the room gathered warmth I pulled on foot wraps and neck wrap and stood in the doorway, watching the clearing take shape in the pale light.
+
+The snare was on my mind. I had set it south last evening on a good run, and the morning would tell. I crossed the clearing in hard frost — that dry, grinding crunch under the foot wraps, the kind that means the cold has gone all the way down — and ducked into the south treeline. The loop sat undisturbed, the anchor stake firm, the cord dry. Nothing had come through in the night.
+
+I reset it carefully all the same: adjusted the loop height, checked the brace stick, pressed the stake another inch into the frozen ground with my boot heel. Then I walked back through the birch and pale sky, the cabin smoke beginning to rise from the ridgepole gap. Empty is not failure. Empty is the snare telling you: come again tomorrow. I have learned not to resent that.
+

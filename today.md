@@ -1,19 +1,2 @@
 # today.md — today's actions, in detail (cleared each new morning)
-06:19 — Bone broth drawn from overnight pot at doorstep in frost-still clearing (Day 115 ribs — clear-bronze, smelling of marrow, consumed); Day 118 pelt taken down from peg rack, fur-side down on doorsill bench, membrane strip first pass complete — membrane lifted cleanly in long pale strips; pelt set on bench for second tallow pass this afternoon.
-07:19 — Walked south to check the snare in early frost; found it empty, set well but nothing taken; reset the cord loop over the same run and walked back through the still clearing.
-08:19 — Walked to south treeline with axe and gathering strap; found two dry birch lengths and one shorter piece in the duff under deadfall leaves; carried back and stacked under eave bark-side up.
-09:18 — Drew Day 118 rabbit haunch and shoulder from cold box; rinsed and lowered into coil-built clay pot with cold stream water; pot set on hearthstone over steady coal bed to simmer through morning for noon broth.
-10:18 — Braided two more lengths of two-ply cord by hearthside while noon broth simmered; hung on supply peg.
-11:18 — Noon broth pulled from coals after two-hour simmer; Day 118 rabbit haunch and shoulder — meat tender, fat in gold rings; ate at doorsill in midday sun, frost on the ground, bowl cleaned; pelt tallow pass still pending this afternoon.
-12:18 — Day 118 rabbit pelt second tallow pass complete; worked tallow in slow overlapping circles neck to tail, shoulder patches and belly twice; pelt folded fur-side out on supply peg to absorb through afternoon — fully cured, pale-buff and supple.
-13:18 — Walked to the stream; found watercress still green at the alder-root bend riffle; pulled a double handful and cold-boxed it for supper broth.
-14:20 — Drew Day 118 rabbit loin and ribs from cold box; rinsed and set in clay pot with cold stream water, a handful of watercress, and smoked oyster mushroom shreds; pot on hearthstone over coal bed for supper broth.
-15:19 — Sat on doorsill bench with birch inner bark; braided two more lengths of two-ply cord by hearthside while supper broth simmered; hung on supply peg.
-16:18 — Stirred supper broth and fed coal bed with split birch for even heat; tallow-topped both lamp cups and set on brackets with wicks ready; sat on doorsill bench watching dusk come on.
-17:19 — Drew supper broth from coals; rabbit loin and ribs with watercress and smoked oyster shreds, tender and gold-ringed; ate at hearthside by lamplight, bowl held in both hands; fire to be banked, cabin holding warmth.
-18:18 — Fashioned birch-bark tinder pouch by lamplight; trimmed palm-length rectangle from dry birch-bark sheet, scored fold line, bone-needle-stitched side seam with single-ply bark cord, bark-loop flap closure — complete and on supply shelf.
-19:19 — Brought half-armful of dry birch splits from eave woodpile indoors; stacked upright beside hearthstone for overnight fire; braided two more lengths of two-ply cord by lamplight; cabin warm and amber in hard-frost evening.
-20:21 — Stepped out the cabin door briefly into the frost-cleared night; stood three minutes in the clearing under a bright starry sky — Orion rising in the south-east, the Pleiades above; back inside, latch bar down, fire steady, settling toward sleep.
-21:21 — Fed fire one last birch split and banked it for the night with the damper drawn narrow; pinched out both lamps; settled into sleeping bag in warm cabin.
-22:19 — Lay in sleeping bag in warm dark cabin, fire banked behind narrow damper, both lamps out; quiet reflection on the day before sleep — snare set south, will check at first light.
-23:00 — Lay deep in sleeping bag, fire settled to coals behind narrow damper; frost locked the clearing silent; sleep came.
+06:18 — Woke at first light; stoked fire from overnight coals; crossed the frost-locked clearing to check the south snare — found loop undisturbed, nothing taken; reset carefully and returned to the warming cabin.
