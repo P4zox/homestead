@@ -2104,3 +2104,4 @@ Day 118, 10:21 PM — Lamplight Fading: pelts finished, bone pot drawing, settle
 Day 119 (2026-10-20) 06:19 — New day (rollover). Bone broth drawn at doorstep from overnight pot; Day 118 pelt membrane strip first pass complete on doorsill bench.
 Day 119, 07:19 (Tue 20 Oct) — South snare checked empty in frost; snare reset and set well.
 Day 119 (2026-10-20) 08:19 — South treeline gather: two dry birch lengths and one shorter piece from duff, added to kindling row under eave.
+Day 119 (2026-10-20) 09:18 — Noon broth started: Day 118 rabbit haunch and shoulder into clay pot over steady coal bed; clearing frost-still, snare empty, pelt on bench for afternoon

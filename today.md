@@ -2,3 +2,4 @@
 06:19 — Bone broth drawn from overnight pot at doorstep in frost-still clearing (Day 115 ribs — clear-bronze, smelling of marrow, consumed); Day 118 pelt taken down from peg rack, fur-side down on doorsill bench, membrane strip first pass complete — membrane lifted cleanly in long pale strips; pelt set on bench for second tallow pass this afternoon.
 07:19 — Walked south to check the snare in early frost; found it empty, set well but nothing taken; reset the cord loop over the same run and walked back through the still clearing.
 08:19 — Walked to south treeline with axe and gathering strap; found two dry birch lengths and one shorter piece in the duff under deadfall leaves; carried back and stacked under eave bark-side up.
+09:18 — Drew Day 118 rabbit haunch and shoulder from cold box; rinsed and lowered into coil-built clay pot with cold stream water; pot set on hearthstone over steady coal bed to simmer through morning for noon broth.

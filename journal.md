@@ -21660,3 +21660,12 @@ Walked back across the clearing slowly. An empty snare is not a failure; rabbits
 
 The frost has locked the clearing solid again. After the snare run I came back in and let the fire settle before taking the axe and a bark strap down to the south treeline to see what the hard nights had brought down. Birch does this reliably — a branch that holds through summer lets go in the first real freeze, and the wood stays dry under the bark if you reach it before snow buries the duff. I found two good lengths already on the ground and a third shorter piece wedged under a skirt of deadfall leaves, half-hidden. Knocked the frost-stiff leaves aside, freed them, and carried everything back across the clearing stacked on my arm. Laid them under the eave bark-side up beside the row already there. Not urgent work — the pile is already high — but the kind that keeps urgency from arriving. The morning is still and cold and very quiet.
 
+
+### 9:18 AM · Broth for the Noon
+
+The fire had settled from its morning rebuild into a steady bed of coals — hot enough but not hungry, the kind of heat you can cook on slowly. I drew a haunch and shoulder from the Day 118 rabbit out of the cold box, still firm and cold from the night, and rinsed them with a splash of water in the tin. Lowered them into the coil-built pot, poured cold stream water over, and set the pot close against the hearthstone where it would barely tremble but not rush. Winter broth wants slowness. The marrow needs time to give itself over.
+
+I stood in the doorway for a moment while the pot found its heat. Frost still hard on the clearing, no wind moving. The snare came up empty this morning — that is all right. One fresh rabbit in the box is enough, and a slow noon simmering ahead is its own kind of wealth. Some mornings the land holds back; other mornings it offers. I try not to count either too carefully.
+
+Now it is only tending — a stir when the steam comes, the door left ajar so the warmth stays in but the smoke finds its way out.
+
