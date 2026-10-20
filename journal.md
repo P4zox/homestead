@@ -21673,3 +21673,12 @@ Now it is only tending — a stir when the steam comes, the door left ajar so th
 ### 10:18 AM · Cord by the Fire
 
 The broth has been going an hour now — I can smell the rabbit releasing into the water, a faint sweetness rising with the steam. The fire is holding at a steady coal bed, no need to feed it yet. I settled onto the doorsill bench with the bark-strip stock and braided two more lengths of two-ply cord in the warm stillness of the cabin. The work goes almost without thought now: fingers finding the rhythm, right over left, left over right, the cord tightening into itself with each pass. Outside, the clearing sits frost-white and perfectly quiet. No wind. The birch trunks stand like pale marks against the grey sky. I braided until both lengths were done and tied off, then hung them on the supply peg. The pot steams steadily on the hearthstone. The pelt waits on the bench for this afternoon. Everything, for this hour, is exactly in its place.
+
+### 11:18 AM · Noon Broth, Doorsill
+
+The broth came off the coals at two hours — haunch and shoulder from yesterday's rabbit, slow-simmered until the meat released at a touch. I lifted the pot with a folded bark strip and set it on the cooler edge of the hearthstone to settle, then ladled into the wide clay bowl and carried it out to the doorsill bench.
+
+The frost was still on the ground — white on the bracken, pale on the bare soil of the garden mounds — but the midday sun had come around to fall flat across the step. I sat there with the bowl cupped in both hands and ate slowly: the haunch meat torn into pieces, the shoulder already falling apart, small gold rings of fat drifting on the surface. After the bone draw at first light and a morning of moving through cold, it was exactly right. Not a lot, but solid — the kind of meal that holds you through the short afternoon.
+
+When I finished I set the bowl upside down on the bench and looked out at the clearing. Nothing different from this morning: same treeline, same frost-pale ground, the snare reset at its south end, the new birch lengths stacked under the eave. The pelt is still waiting on the bench for its second tallow pass. A few more hours of good light. There's time.
+

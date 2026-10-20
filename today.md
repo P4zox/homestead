@@ -4,3 +4,4 @@
 08:19 — Walked to south treeline with axe and gathering strap; found two dry birch lengths and one shorter piece in the duff under deadfall leaves; carried back and stacked under eave bark-side up.
 09:18 — Drew Day 118 rabbit haunch and shoulder from cold box; rinsed and lowered into coil-built clay pot with cold stream water; pot set on hearthstone over steady coal bed to simmer through morning for noon broth.
 10:18 — Braided two more lengths of two-ply cord by hearthside while noon broth simmered; hung on supply peg.
+11:18 — Noon broth pulled from coals after two-hour simmer; Day 118 rabbit haunch and shoulder — meat tender, fat in gold rings; ate at doorsill in midday sun, frost on the ground, bowl cleaned; pelt tallow pass still pending this afternoon.
