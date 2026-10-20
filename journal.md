@@ -21700,3 +21700,12 @@ The pool is solid now — I can see the ice pressed flat over dark water, no giv
 
 Walked back with my fist of green and set it in the cold box, packed under bark to keep it damp. Supper broth will be better for it.
 
+
+### 2:20 PM · Loin to the Coals
+
+The afternoon has settled into its own quiet. The pelt hangs full of tallow on the supply peg, slow and patient. I reached into the cold box at the east seep and pulled the last of the Day 118 rabbit — loin and ribs, pale and firm — rinsed them in a cup of stream water, and lowered them into the coil-built clay pot. Cold water over the meat, a handful of the watercress I pulled this morning at the alder bend, a few shreds of smoked oyster mushroom from the bark packet. Pot set on the hearthstone over a steady coal bed.
+
+It will take two hours or more to come right. That is fine. Afternoons in deep autumn are made for this kind of patience — the long simmer, the light going amber and low, the fire ticking. I braided cord in the mornings; now I can simply sit, or think, or not think. The clearing is still. Frost never fully left today, just softened slightly toward noon and then crept back.
+
+The broth will be ready by lamplight. That is enough to look forward to.
+
