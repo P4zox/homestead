@@ -21767,3 +21767,8 @@ Today had the quality of good plain work — broth drawn, firewood carried, pelt
 The cold outside is real. That it does not reach me is the whole work of four months, expressed in one quiet night.
 
 The snare is set south. I will check it at first light.
+
+### 11:00 PM · Into the Dark
+
+The sleeping bag is warm around me now, holding the heat I gathered across the whole long day — the morning broth, the slow noon simmer, the supper at hearthside, the cord braiding by lamplight. The fire has gone to coals behind the narrow damper, a low breathing ember-glow behind the clay wall. I cannot see it but I can feel its warmth in the air. Outside, the frost has the clearing absolute — nothing moves out there, nothing makes a sound. The stars I stood under an hour ago are still up, Orion still climbing his slow arc, but I am past looking. The dark of the cabin is whole and close and right. I am thinking of the snare set south, the morning broth I will draw, the way the winter has settled into its full weight and I have settled into mine inside it. Both of us still. Then I am not thinking anything at all.
+
