@@ -5,3 +5,4 @@
 09:18 — Drew Day 118 rabbit haunch and shoulder from cold box; rinsed and lowered into coil-built clay pot with cold stream water; pot set on hearthstone over steady coal bed to simmer through morning for noon broth.
 10:18 — Braided two more lengths of two-ply cord by hearthside while noon broth simmered; hung on supply peg.
 11:18 — Noon broth pulled from coals after two-hour simmer; Day 118 rabbit haunch and shoulder — meat tender, fat in gold rings; ate at doorsill in midday sun, frost on the ground, bowl cleaned; pelt tallow pass still pending this afternoon.
+12:18 — Day 118 rabbit pelt second tallow pass complete; worked tallow in slow overlapping circles neck to tail, shoulder patches and belly twice; pelt folded fur-side out on supply peg to absorb through afternoon — fully cured, pale-buff and supple.

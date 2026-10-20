@@ -2107,3 +2107,4 @@ Day 119 (2026-10-20) 08:19 — South treeline gather: two dry birch lengths and 
 Day 119 (2026-10-20) 09:18 — Noon broth started: Day 118 rabbit haunch and shoulder into clay pot over steady coal bed; clearing frost-still, snare empty, pelt on bench for afternoon
 2026-10-20 Day 119 10:18 — Braided two more cord lengths by hearthside while noon broth simmered.
 Day 119, 11:18 — Noon broth (Day 118 rabbit haunch and shoulder) pulled from coals and eaten at doorsill in midday sun; frost still on the ground; pelt second tallow pass pending afternoon.
+Day 119, 12:18 — Second tallow pass on Day 118 rabbit pelt; fully cured and hung on supply peg to absorb.

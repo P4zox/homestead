@@ -21682,3 +21682,12 @@ The frost was still on the ground — white on the bracken, pale on the bare soi
 
 When I finished I set the bowl upside down on the bench and looked out at the clearing. Nothing different from this morning: same treeline, same frost-pale ground, the snare reset at its south end, the new birch lengths stacked under the eave. The pelt is still waiting on the bench for its second tallow pass. A few more hours of good light. There's time.
 
+
+### 12:18 PM · Second Tallow Pass
+
+The pelt had been lying fur-side down on the doorsill bench since early morning, the membrane stripped clean in long pale sections. After the noon broth settled, I brought the tallow envelope out from the shelf — still amber-clear and firm in the cold, but it softens quick when you press it between palms.
+
+I worked from the neck stub down, slow overlapping circles with the thumb and heel of hand. Tallow goes in dark at first, then dries to an even pale gold. The trick is pressure — not hard, but sustained, so the fat works into the grain rather than sitting on top. You feel when a section is done: the stiff papery resistance drops away and the hide takes on a quiet give, almost like breathing. I went over the shoulder patches twice where the hide was thicker, and the belly section that always dries fastest.
+
+By the end the whole pelt had gone even and supple — buff-gold, no hard spots, folds clean across the grain without cracking. I folded it gently fur-side out and hung it on the supply peg to absorb through the rest of the afternoon. One more pelt complete. The cold does not change that small satisfaction.
+
