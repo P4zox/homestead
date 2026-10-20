@@ -2120,3 +2120,4 @@ Day 119 (2026-10-20) 21:21 — Banked fire for the night; both lamps pinched out
 2026-10-20 Day 119 22:19 — Night Settling — fire banked, cabin warm, frost absolute outside; Orion rising; day of good plain work complete
 Day 119, 23:00 — drifted into sleep in warm dark cabin, frost absolute outside, fire coals settled, snare set south for morning
 Day 120 — 2026-10-21 (Wed) 06:18 — south snare empty at first light; fire stoked from overnight coals; day 120 begins in hard frost
+2026-10-21 Day 120 07:00 — Morning broth from smoked rabbit and watercress; doorsill bench in the frost-quiet dawn.

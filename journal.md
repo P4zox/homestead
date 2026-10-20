@@ -21786,3 +21786,12 @@ The snare was on my mind. I had set it south last evening on a good run, and the
 
 I reset it carefully all the same: adjusted the loop height, checked the brace stick, pressed the stake another inch into the frozen ground with my boot heel. Then I walked back through the birch and pale sky, the cabin smoke beginning to rise from the ridgepole gap. Empty is not failure. Empty is the snare telling you: come again tomorrow. I have learned not to resent that.
 
+
+### 7:00 AM · Smoke and Marrow
+
+The fire had caught well by the time I came back inside from the snare — coals were bright orange under their ash crust, and the kindling I laid on caught fast. I pulled one of the smoked rabbit quarters from the cold box, unwrapped the bark fold, and set it directly in the clay pot with cold water from the bark bucket. Added a small handful of the dried smoked oyster shreds and a few stems of watercress from last night's cold-box portion. The pot went onto the hearthstone over the low flame.
+
+Those first minutes while broth begins to heat are some of the most peaceful I know. The frost outside muffles everything — no birdsong yet, the pines holding still, the whole world paused inside its cold. I sat on the doorsill bench in the foot wraps and neck wrap and just watched the pot. Thin spirals of steam rose first, then a steady seam of bubbles along the bottom edge.
+
+By the time the broth was rolling, the cabin smelled of smoke and marrow and the faint sweetness of watercress. I ladled it into the bowl and ate slowly, both hands on the clay, the warmth traveling all the way down. Hard winter at Day 120 — but a fire, a roof, and a full pot. That's a day that can hold.
+
