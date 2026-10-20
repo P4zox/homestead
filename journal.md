@@ -21714,3 +21714,12 @@ The broth will be ready by lamplight. That is enough to look forward to.
 
 The broth has been going nearly an hour now — the cabin holds the smell of rabbit and smoked oyster, a winter smell I have come to know well. I sat on the doorsill bench with a length of stripped birch inner bark and worked two more lengths of two-ply cord, hands busy while the pot ticked softly on the hearthstone. The afternoon light through the gable is already going amber; by five it will be gone. The pelt hangs on the supply peg, pale-buff and absorbing, nearly finished with its work. Everything is where it should be. Some hours are like this — nothing dramatic, just the homestead running quietly, and your hands finding something useful to do inside it.
 
+
+### 4:18 PM · Dusk Coming On
+
+The afternoon is long and low. I pulled the door back to check the sky — clouds thinned out, paler where the sun is dropping, and the cold coming up off the clearing in earnest. Supper broth has been on the hearthstone for nearly two hours; I lifted the lid and stirred with the paddle, found the loin yielding and the rib meat falling loose from the bone. The watercress had gone dark and soft, worked all the way through the fat. I added a small split birch to the coal bed to keep the heat even and set the lid back.
+
+The lamps wanted tending before the light goes entirely. I touched tallow from the reserve into both cups and carried them to their brackets — one beside the hearth shelf, one at the doorpost — dry-grass wicks standing ready. When the first real dark comes, I will light them from the coals.
+
+Sitting on the doorsill bench now in the last of the amber light, listening to the stream somewhere under its ice and the pines perfectly still in the frost. Supper nearly ready. Everything where it should be.
+

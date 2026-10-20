@@ -9,3 +9,4 @@
 13:18 — Walked to the stream; found watercress still green at the alder-root bend riffle; pulled a double handful and cold-boxed it for supper broth.
 14:20 — Drew Day 118 rabbit loin and ribs from cold box; rinsed and set in clay pot with cold stream water, a handful of watercress, and smoked oyster mushroom shreds; pot on hearthstone over coal bed for supper broth.
 15:19 — Sat on doorsill bench with birch inner bark; braided two more lengths of two-ply cord by hearthside while supper broth simmered; hung on supply peg.
+16:18 — Stirred supper broth and fed coal bed with split birch for even heat; tallow-topped both lamp cups and set on brackets with wicks ready; sat on doorsill bench watching dusk come on.

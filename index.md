@@ -2111,3 +2111,4 @@ Day 119, 12:18 — Second tallow pass on Day 118 rabbit pelt; fully cured and hu
 Day 119, 13:18 — Walked to the alder-root bend; gathered a double handful of watercress from the open riffle; cold-boxed for supper broth.
 Day 119, 14:20 — Drew Day 118 rabbit loin and ribs from cold box; set supper broth to simmer with watercress and smoked oyster mushroom shreds.
 2026-10-20 15:19 Day 119 — Braided two more cord lengths by hearthside while supper broth simmered; amber afternoon light through gable, pelt absorbing on peg.
+Day 119, 2026-10-20, 16:18 — Stirred supper broth; fed hearthfire with split birch; tallow-topped both lamp cups and set on brackets for dusk.
