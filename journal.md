@@ -21743,3 +21743,12 @@ Stepped outside once more before the evening settled in fully — the frost hit 
 
 Then I sat on the doorsill bench with the lamplight at my shoulder and braided two more lengths of cord. There is something easy about cord work in the evening — hands remember the pattern, mind goes quiet. The fire held steady, the new tinder pouch sitting on the supply shelf beside the lamp, and I felt settled in a way that is hard to name exactly. Winter presses close from outside; inside everything is small and known and sufficient. That is enough for tonight.
 
+
+### 8:21 PM · Cold Sky Watch
+
+I stepped out the cabin door into the clearing for a moment — just to see it. The frost was absolute underfoot, each grass stem coated in a fine white bristle that caught the starlight. The sky had cleared completely from this afternoon's thin overcast, and there it was: the whole arch of it, bright and deep and still, Orion beginning to tip up in the south-east, the Pleiades already past their autumn meridian. My breath went up in a white plume and dissolved. The cold pressed in at once, clean and thorough, the kind that finds the edges of a coat in seconds.
+
+I stood maybe three minutes. Long enough to feel the contrast — the warmth I'd walked out of, still radiating at my back through the door, and the immense cold dark overhead. Both felt real. I looked once at the ridge-line of pines to the north, their shapes black and absolute against the stars, then turned and went back inside. The latch bar dropped, the fire threw its amber across the walls, and the cabin held its heat around me like something earned.
+
+No noise from the treeline. No wind. Just the settling creak of the ridgepole cooling and the small voice of the fire. Late enough that I should sleep before long. Enough done today.
+

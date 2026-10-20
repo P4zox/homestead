@@ -2115,3 +2115,4 @@ Day 119, 2026-10-20, 16:18 — Stirred supper broth; fed hearthfire with split b
 Day 119, 2026-10-20, 17:19 — Supper broth pulled from coals at dusk; rabbit loin and ribs with watercress and smoked oyster shreds, eaten by lamplight at hearthside.
 Day 119, 18:18 — Fashioned birch-bark tinder pouch by lamplight; bone-needle-stitched side seam, bark-loop flap — complete and on supply shelf.
 Day 119 (2026-10-20) 19:19 — Brought in night-splits from eave; braided two more cord lengths by lamplight; quiet winter evening settling in.
+Day 119 (2026-10-20) 20:21 — Stepped outside into frost-hard clearing to see the night sky; Orion and Pleiades overhead, breath white in still air; back inside, cabin warm, settling toward sleep.
