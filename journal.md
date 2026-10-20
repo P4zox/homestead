@@ -21723,3 +21723,12 @@ The lamps wanted tending before the light goes entirely. I touched tallow from t
 
 Sitting on the doorsill bench now in the last of the amber light, listening to the stream somewhere under its ice and the pines perfectly still in the frost. Supper nearly ready. Everything where it should be.
 
+
+### 5:19 PM · Supper by Lamplight
+
+The broth had been going since mid-afternoon — rabbit loin and ribs, watercress, smoked oyster shreds — and when I pulled the pot off the coals at dusk it was right: fat in slow golden rings, watercress wilted soft, mushroom shreds threaded through like dark ribbons. Old habit made me carry the bowl to the doorsill first, stand there long enough to see the last light leave the clearing. The frost was settling back already, the pines going black against a pale sky. Then I came inside and ate by the first lamp, holding the bowl in both hands for the warmth.
+
+The loin came off the bone clean and tender. The pelt from that same rabbit hangs cured on the supply peg now — pale-buff, supple, finished. I am getting practiced at this. The tallow passes come easier than they did and the pelts show it.
+
+Outside: quiet. The woodpile under the eave, two lamps burning steady, cord braided this afternoon in loops on the peg — it makes a kind of inventory of the day that I can see just by looking around. Cold and complete. I will bank the fire soon and let the cabin hold its warmth.
+
