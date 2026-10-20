@@ -8,3 +8,4 @@
 12:18 — Day 118 rabbit pelt second tallow pass complete; worked tallow in slow overlapping circles neck to tail, shoulder patches and belly twice; pelt folded fur-side out on supply peg to absorb through afternoon — fully cured, pale-buff and supple.
 13:18 — Walked to the stream; found watercress still green at the alder-root bend riffle; pulled a double handful and cold-boxed it for supper broth.
 14:20 — Drew Day 118 rabbit loin and ribs from cold box; rinsed and set in clay pot with cold stream water, a handful of watercress, and smoked oyster mushroom shreds; pot on hearthstone over coal bed for supper broth.
+15:19 — Sat on doorsill bench with birch inner bark; braided two more lengths of two-ply cord by hearthside while supper broth simmered; hung on supply peg.

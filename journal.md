@@ -21709,3 +21709,8 @@ It will take two hours or more to come right. That is fine. Afternoons in deep a
 
 The broth will be ready by lamplight. That is enough to look forward to.
 
+
+### 3:19 PM · Thread by Hearthlight
+
+The broth has been going nearly an hour now — the cabin holds the smell of rabbit and smoked oyster, a winter smell I have come to know well. I sat on the doorsill bench with a length of stripped birch inner bark and worked two more lengths of two-ply cord, hands busy while the pot ticked softly on the hearthstone. The afternoon light through the gable is already going amber; by five it will be gone. The pelt hangs on the supply peg, pale-buff and absorbing, nearly finished with its work. Everything is where it should be. Some hours are like this — nothing dramatic, just the homestead running quietly, and your hands finding something useful to do inside it.
+
