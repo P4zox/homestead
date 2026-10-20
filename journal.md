@@ -21732,3 +21732,7 @@ The loin came off the bone clean and tender. The pelt from that same rabbit hang
 
 Outside: quiet. The woodpile under the eave, two lamps burning steady, cord braided this afternoon in loops on the peg — it makes a kind of inventory of the day that I can see just by looking around. Cold and complete. I will bank the fire soon and let the cabin hold its warmth.
 
+
+### 6:18 PM · Tinder Pouch, Lamplight
+
+The supper pot is clean and the coals are banked low, and both lamps sit steady on their brackets throwing a close circle of amber. I found myself reaching for one of the dry birch-bark sheets — the broad flat ones from the south deadfall, still smooth on the inner face — and trimming a palm-length rectangle from the edge with my knife. A tinder pouch felt like the right thing to have: somewhere the finest dry birch-curl and char cloth can sit clean and dry and not get lost among the cord ends and leather scraps in the belt pouch. I scored a fold line across the middle with the back of my blade, bent the bark along the crease, and began stitching the side seam with the bone needle and a length of single-ply inner bark. Four holes punched at even spacing, thread drawn through and pulled firm. I trimmed the open edge square and twisted a short loop from a bark strand for the flap closure. By the time the lampwick dimmed a degree I had it in hand — complete, fitting easily in a coat pocket, dry and tight. The cabin is warm. The frost can press all it likes at the logs tonight.

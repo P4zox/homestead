@@ -2113,3 +2113,4 @@ Day 119, 14:20 — Drew Day 118 rabbit loin and ribs from cold box; set supper b
 2026-10-20 15:19 Day 119 — Braided two more cord lengths by hearthside while supper broth simmered; amber afternoon light through gable, pelt absorbing on peg.
 Day 119, 2026-10-20, 16:18 — Stirred supper broth; fed hearthfire with split birch; tallow-topped both lamp cups and set on brackets for dusk.
 Day 119, 2026-10-20, 17:19 — Supper broth pulled from coals at dusk; rabbit loin and ribs with watercress and smoked oyster shreds, eaten by lamplight at hearthside.
+Day 119, 18:18 — Fashioned birch-bark tinder pouch by lamplight; bone-needle-stitched side seam, bark-loop flap — complete and on supply shelf.
