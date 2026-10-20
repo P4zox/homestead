@@ -2103,3 +2103,4 @@ Day 118, 10:21 PM — Lamplight Fading: pelts finished, bone pot drawing, settle
 2026-10-19 23:19 Day 118 — lamps out, bone pot drawing, asleep on mat; Day 118 pelt membrane strip at first light
 Day 119 (2026-10-20) 06:19 — New day (rollover). Bone broth drawn at doorstep from overnight pot; Day 118 pelt membrane strip first pass complete on doorsill bench.
 Day 119, 07:19 (Tue 20 Oct) — South snare checked empty in frost; snare reset and set well.
+Day 119 (2026-10-20) 08:19 — South treeline gather: two dry birch lengths and one shorter piece from duff, added to kindling row under eave.

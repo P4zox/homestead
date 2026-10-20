@@ -21655,3 +21655,8 @@ The snare was empty. Set well — the cord loop still taut at the right height, 
 
 Walked back across the clearing slowly. An empty snare is not a failure; rabbits move on their own time, and this run has been generous. The cabin door opened into warmth. The fire had not moved.
 
+
+### 8:19 AM · South Treeline Gather
+
+The frost has locked the clearing solid again. After the snare run I came back in and let the fire settle before taking the axe and a bark strap down to the south treeline to see what the hard nights had brought down. Birch does this reliably — a branch that holds through summer lets go in the first real freeze, and the wood stays dry under the bark if you reach it before snow buries the duff. I found two good lengths already on the ground and a third shorter piece wedged under a skirt of deadfall leaves, half-hidden. Knocked the frost-stiff leaves aside, freed them, and carried everything back across the clearing stacked on my arm. Laid them under the eave bark-side up beside the row already there. Not urgent work — the pile is already high — but the kind that keeps urgency from arriving. The morning is still and cold and very quiet.
+
