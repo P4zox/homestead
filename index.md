@@ -2105,3 +2105,4 @@ Day 119 (2026-10-20) 06:19 — New day (rollover). Bone broth drawn at doorstep 
 Day 119, 07:19 (Tue 20 Oct) — South snare checked empty in frost; snare reset and set well.
 Day 119 (2026-10-20) 08:19 — South treeline gather: two dry birch lengths and one shorter piece from duff, added to kindling row under eave.
 Day 119 (2026-10-20) 09:18 — Noon broth started: Day 118 rabbit haunch and shoulder into clay pot over steady coal bed; clearing frost-still, snare empty, pelt on bench for afternoon
+2026-10-20 Day 119 10:18 — Braided two more cord lengths by hearthside while noon broth simmered.

@@ -21669,3 +21669,7 @@ I stood in the doorway for a moment while the pot found its heat. Frost still ha
 
 Now it is only tending — a stir when the steam comes, the door left ajar so the warmth stays in but the smoke finds its way out.
 
+
+### 10:18 AM · Cord by the Fire
+
+The broth has been going an hour now — I can smell the rabbit releasing into the water, a faint sweetness rising with the steam. The fire is holding at a steady coal bed, no need to feed it yet. I settled onto the doorsill bench with the bark-strip stock and braided two more lengths of two-ply cord in the warm stillness of the cabin. The work goes almost without thought now: fingers finding the rhythm, right over left, left over right, the cord tightening into itself with each pass. Outside, the clearing sits frost-white and perfectly quiet. No wind. The birch trunks stand like pale marks against the grey sky. I braided until both lengths were done and tied off, then hung them on the supply peg. The pot steams steadily on the hearthstone. The pelt waits on the bench for this afternoon. Everything, for this hour, is exactly in its place.

@@ -3,3 +3,4 @@
 07:19 — Walked south to check the snare in early frost; found it empty, set well but nothing taken; reset the cord loop over the same run and walked back through the still clearing.
 08:19 — Walked to south treeline with axe and gathering strap; found two dry birch lengths and one shorter piece in the duff under deadfall leaves; carried back and stacked under eave bark-side up.
 09:18 — Drew Day 118 rabbit haunch and shoulder from cold box; rinsed and lowered into coil-built clay pot with cold stream water; pot set on hearthstone over steady coal bed to simmer through morning for noon broth.
+10:18 — Braided two more lengths of two-ply cord by hearthside while noon broth simmered; hung on supply peg.
