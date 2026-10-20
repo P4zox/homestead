@@ -12,3 +12,4 @@
 16:18 — Stirred supper broth and fed coal bed with split birch for even heat; tallow-topped both lamp cups and set on brackets with wicks ready; sat on doorsill bench watching dusk come on.
 17:19 — Drew supper broth from coals; rabbit loin and ribs with watercress and smoked oyster shreds, tender and gold-ringed; ate at hearthside by lamplight, bowl held in both hands; fire to be banked, cabin holding warmth.
 18:18 — Fashioned birch-bark tinder pouch by lamplight; trimmed palm-length rectangle from dry birch-bark sheet, scored fold line, bone-needle-stitched side seam with single-ply bark cord, bark-loop flap closure — complete and on supply shelf.
+19:19 — Brought half-armful of dry birch splits from eave woodpile indoors; stacked upright beside hearthstone for overnight fire; braided two more lengths of two-ply cord by lamplight; cabin warm and amber in hard-frost evening.

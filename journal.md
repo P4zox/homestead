@@ -21736,3 +21736,10 @@ Outside: quiet. The woodpile under the eave, two lamps burning steady, cord brai
 ### 6:18 PM · Tinder Pouch, Lamplight
 
 The supper pot is clean and the coals are banked low, and both lamps sit steady on their brackets throwing a close circle of amber. I found myself reaching for one of the dry birch-bark sheets — the broad flat ones from the south deadfall, still smooth on the inner face — and trimming a palm-length rectangle from the edge with my knife. A tinder pouch felt like the right thing to have: somewhere the finest dry birch-curl and char cloth can sit clean and dry and not get lost among the cord ends and leather scraps in the belt pouch. I scored a fold line across the middle with the back of my blade, bent the bark along the crease, and began stitching the side seam with the bone needle and a length of single-ply inner bark. Four holes punched at even spacing, thread drawn through and pulled firm. I trimmed the open edge square and twisted a short loop from a bark strand for the flap closure. By the time the lampwick dimmed a degree I had it in hand — complete, fitting easily in a coat pocket, dry and tight. The cabin is warm. The frost can press all it likes at the logs tonight.
+
+### 7:20 PM · Night Splits, Amber Fire
+
+Stepped outside once more before the evening settled in fully — the frost hit immediately, air sharp and still, no wind, stars beginning to show through the pine crowns. I pulled a half-armful of dry birch splits from the eave stack and carried them back inside, setting them upright against the hearthstone where they will warm through and catch cleanly in the night.
+
+Then I sat on the doorsill bench with the lamplight at my shoulder and braided two more lengths of cord. There is something easy about cord work in the evening — hands remember the pattern, mind goes quiet. The fire held steady, the new tinder pouch sitting on the supply shelf beside the lamp, and I felt settled in a way that is hard to name exactly. Winter presses close from outside; inside everything is small and known and sufficient. That is enough for tonight.
+
