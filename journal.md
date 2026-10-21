@@ -21869,3 +21869,12 @@ I sat with birch bark cord through the bulk of the hour, drawing out lengths by 
 
 There is a kind of contentment in the middle of a winter afternoon when everything is already done that needs doing: the wood is in, the pot is on, the snares are out. The cabin is warm. I let the hour pass slowly, the way it deserves.
 
+
+### 4:18 PM · Dusk Snare Walk
+
+Pulled on the hare-neck wrap and mittens at the door just as the light began to thin — that flat grey-gold dusk that arrives in October before you are quite ready for it. The clearing was still and cold underfoot, the frost crust not yielding at all now, hardened through the afternoon into something close to early ice. I walked to the south snare first: loop undisturbed, trigger taut, no fresh tracks in the old crust. Still nothing. The south snare has been patient for days; it may need a new site, or only patience.
+
+The hawthorn thicket north was quieter than this morning. The passage-tracks I had read at dawn were there still, but a little smoothed by a midday breath of wind, their crispness gone. North snare empty too — the rabbit that had used that crossing this morning may have shifted routes after the disturbance of the catch, or learned the smell of the cord. These things are hard to know. I repositioned the south loop one thumb lower, where the compressed snow suggested hind-foot height better, and re-set the trigger post on the north loop with a firmer wedge. Both snares now set with care for the night hours, which are the productive ones.
+
+By the time I turned back the treeline had gone from grey to dark grey. The cabin light — one lamp through the bark chink over the door — was a small warm mark in the clearing. I came in to the smell of the hawthorn broth, amber and low, and sat close to the fire. Two snares working through the night. The evening has that settled feeling when the day's outdoor work is done and the warmth is earned.
+

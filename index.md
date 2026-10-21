@@ -2129,3 +2129,4 @@ Day 120 (2026-10-21, 12:18) -- Afternoon snare check: north hawthorn thicket sna
 2026-10-21 Day 120 13:00 — Scraped Day 120 rabbit pelt and completed first tallow pass; pelt folded fur-side out on supply shelf to set.
 2026-10-21 14:19 Day 120 — Set Day 120 rabbit broth on low coals mid-afternoon; watercress and hawthorn haws; slow simmer planned through to evening; two snares active.
 Day 120, 15:19 — Tended fire with birch log; broth deepening to amber; braided cord through the quiet afternoon hour.
+Day 120, 16:18 — Dusk snare walk: south snare undisturbed, north snare empty; both reset with care; returned to cabin and hawthorn rabbit broth.
