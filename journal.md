@@ -21832,3 +21832,8 @@ I reset the lid and weighted the stone carefully. Standing there a moment before
 
 Back inside, the fire felt generous. I laid the mushrooms near the hearth to finish thawing. Mid-morning quiet resettled around me.
 
+
+### 11:19 AM · Noon Broth, Oyster Steam
+
+By mid-morning the oyster mushroom fans had loosened from the frost — amber and yielding where the heat had found them. I peeled back the bark wrapping and laid them into the second clay pot with a small cup of water and the watercress stems from the morning retrieval. The fire was low and steady. The broth came up earthy and faintly smoky, the cress going bright green at the edge of the simmer. I ate from the doorsill bench, bowl warm in both hands, watching the clearing hold its flat grey light. The north snare waits for afternoon. This hour belonged to warmth and stillness.
+
