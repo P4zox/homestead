@@ -21859,3 +21859,13 @@ There is something reassuring about broth starting in the early afternoon. It me
 
 Two snares still active. The north snare earned its cord this morning; I reset it carefully and it is set again now at the hawthorn thicket. The south snare came up empty all day but it is in good position — I'll check them both at dusk before I sit down to the pot.
 
+### 3:19 PM · Slow Afternoon Watch
+
+The broth has been going for an hour and the cabin smells of rabbit and hawthorn. The low coals needed tending — not urgently, but wood ash builds up through the afternoon and the heat flattens if you let it. I fed a dry birch length from the eave row into the hearth, settling it across the coals just so, and watched the smoke thin and flatten to a clean amber burn.
+
+The pot is making a patient sound now, a low burble rather than a rapid boil. I lifted the bark-scraper lid once to check the color — the broth has gone deep amber from the three crumbled hawthorn haws. The watercress has collapsed into dark tender threads. It will be ready by lamplight, maybe before.
+
+I sat with birch bark cord through the bulk of the hour, drawing out lengths by habit while the brain idled. Outside there is nothing — just the pressed quiet of frost and grey sky, both snares set and waiting. The dusk check will come in its own time.
+
+There is a kind of contentment in the middle of a winter afternoon when everything is already done that needs doing: the wood is in, the pot is on, the snares are out. The cabin is warm. I let the hour pass slowly, the way it deserves.
+
