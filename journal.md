@@ -21916,3 +21916,10 @@ The fire has settled to a patient glow. I pulled the leather jerkin from its sup
 ### 9:22 PM · Night Draws Close
 
 The cabin is dim and warm, both lamps burning low. I lay the second lamp wick flat with a twig where it had begun to gutter, then spilled a last thin spoon of tallow into the cup — it should last till morning without tending. The fire on the hearth is banked to a small orange hold, enough to keep the cold from settling overnight. I sat a moment on the sleeping mat and listened: nothing from outside but the absolute stillness of deep frost, no wind, no branch-crack. Both snares are out there in the dark, set and waiting. The jerkin hangs supple on its peg; the cord stock is healthy; the supply shelf holds what it needs to. I pulled the sleeping bag around my shoulders and felt the full weight of the day settle — a good catch at the north snare in the morning, the hawthorn broth at lamplight, the pelt begun, the leather worked through. There is nothing left to do tonight. I banked the fire a final time, pressed the latch bar into its keeper, and let the dark and the warmth have the rest of it.
+
+### 10:20 PM · Frost Dark
+
+The fire holds a deep orange glow behind my closed eyelids. Both lamps are out; only the faint warmth of the hearthstone fills the air. Outside: absolute frost quiet, the kind that presses in on the walls and makes the log corners tick. Somewhere north in the hawthorn thicket a loop of bark cord waits in the dark, and the south loop sits undisturbed in the clearing frost. I thought I heard something — a shift, a brush of wind through the pines — but nothing follows it. Just the night settling.
+
+Day 120, and I am warm inside my own shelter, fed on rabbit and hawthorn, leather jerkin on the peg still supple from the tallow pass. The cord stock is healthy. Both snares are working. That is a good accounting for a night in hard winter, and I let it rest there. Sleep is already close at the edges.
+
