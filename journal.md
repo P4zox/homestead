@@ -21878,3 +21878,12 @@ The hawthorn thicket north was quieter than this morning. The passage-tracks I h
 
 By the time I turned back the treeline had gone from grey to dark grey. The cabin light — one lamp through the bark chink over the door — was a small warm mark in the clearing. I came in to the smell of the hawthorn broth, amber and low, and sat close to the fire. Two snares working through the night. The evening has that settled feeling when the day's outdoor work is done and the warmth is earned.
 
+
+### 5:18 PM · Lamplight, Supper
+
+The hawthorn broth has been at a low simmer since mid-afternoon, and by now the cabin smells entirely of it — something dark and faintly sweet, the haws giving the rabbit meat a fruitwood warmth I did not expect. I lit both lamps before the last light fell from the window gap, and the two small flames held the space steady.
+
+I ladled the broth into the wide bowl and carried it to the doorsill bench. The door was shut; the cold was at the latch. The bowl warmed my palms through the clay. Rabbit, watercress, three crumbled hawthorn haws — the pot gave generously tonight.
+
+There is something simple about eating by lamplight when everything outside has gone grey and still. The snares are set, the fire is caught, the door holds. The broth was good. That is the whole of this evening, and it is enough.
+
