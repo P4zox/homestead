@@ -13,3 +13,4 @@ Day 120, 08:18 — Set a second snare at north treeline hawthorn thicket (~60 pa
 17:18 — Lit both lamps at dusk; ladled the hawthorn rabbit broth (rabbit, watercress, three hawthorn haws, three hours simmering) into the wide bowl; supper at the doorsill bench by lamplight — pot emptied cleanly, broth deep and good; Day 120 rabbit fully consumed.
 18:19 — Tended fire and checked both lamp wicks by lamplight after supper (wicks dry and firm, tallow level); braided two more cord lengths through the quiet evening hour; banked the hearthstone for the night; both snares active.
 19:19 — Two more cord lengths braided by lamplight; pressed a guttering lamp wick straight with a twig; cord stock generous; both snares active for the night.
+20:22 — Pulled leather jerkin from supply peg; worked a fresh tallow pass across all panels and seams by lamplight — grain supple and sheen renewed; jerkin returned to peg; both snares active in the frost outside.

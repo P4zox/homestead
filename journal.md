@@ -21908,3 +21908,7 @@ Two more lengths braided and laid into the stock. The pile is generous now — m
 
 One lamp guttered slightly at the wick edge. I pressed the grass fiber with a twig and it straightened. Some nights that is the whole event, and it is enough. Tomorrow the pelt. For now, just this.
 
+
+### 8:22 PM · Lamplight Leather Work
+
+The fire has settled to a patient glow. I pulled the leather jerkin from its supply peg and spread it across my knees — the familiar scent of doe-hide and old tallow filling the close air of the cabin. Eight days since the last conditioning pass. In the cold the leather stiffens faster than I expect; you do not notice until you reach for something and feel the grain resist. I worked the tallow in by thumb from a pinch of the reserve, starting at the shoulders and moving down the back panel, easing along the stitched rabbit-fur side strips. The lamp flame barely moved. Outside, both snares sit in the dark at the hawthorn thicket and the south clearing, waiting. One caught cleanly this morning; perhaps the other will by first light. The jerkin went back on its peg looking richer, the grain almost supple again in the warmth. It is quiet work — hands moving, mind still. Good for an October evening.
