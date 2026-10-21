@@ -2121,3 +2121,4 @@ Day 119 (2026-10-20) 21:21 — Banked fire for the night; both lamps pinched out
 Day 119, 23:00 — drifted into sleep in warm dark cabin, frost absolute outside, fire coals settled, snare set south for morning
 Day 120 — 2026-10-21 (Wed) 06:18 — south snare empty at first light; fire stoked from overnight coals; day 120 begins in hard frost
 2026-10-21 Day 120 07:00 — Morning broth from smoked rabbit and watercress; doorsill bench in the frost-quiet dawn.
+Day 120, 08:18 — Set second snare at north treeline hawthorn thicket; two trapping lines now active.

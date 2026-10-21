@@ -21795,3 +21795,16 @@ Those first minutes while broth begins to heat are some of the most peaceful I k
 
 By the time the broth was rolling, the cabin smelled of smoke and marrow and the faint sweetness of watercress. I ladled it into the bowl and ate slowly, both hands on the clay, the warmth traveling all the way down. Hard winter at Day 120 — but a fire, a roof, and a full pot. That's a day that can hold.
 
+
+### 8:18 AM · Second Snare, North Edge
+
+The morning broth settled warmth into my chest and cleared my thinking. Outside the frost is absolute and still — the clearing holds a grey-white hush that feels almost ceremonial. I pulled on the leather jerkin and mittens, cinched the neck wrap, and walked the north treeline with a length of two-ply cord and a sharp eye.
+
+The south snare has been coming up empty for several days running. That might simply be the season — rabbits moving deeper into the forest as winter locks in, runs shifting under the frozen duff — but it might also mean I have exhausted the easy approaches near that lodge. A second line on a different corridor broadens the odds without much cost.
+
+I found a promising spot: a low-angled tunnel through a hawthorn thicket about sixty paces north of the cabin, where something has been passing regularly. The snow beneath was faintly compressed, and the twig ends on either side scraped clean at the height of a rabbit's shoulder. I bent a whippy young birch stem for a trigger post, measured and looped the cord at nose height, pegged the anchor stake deep into the frozen duff. It set firm.
+
+Two snares now — north and south. Coming back I stood at the cabin door a moment before stepping inside, looking at the clearing and the woodpile under its heavy frost cap. The cold feels less like a threat now and more like a condition. I have food, fire, shelter. I have cord enough to set ten more traps if I wanted to.
+
+Winter is long. But so is the supply shelf.
+
