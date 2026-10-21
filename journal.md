@@ -21850,3 +21850,12 @@ Back in the cabin I hung the rabbit by the door and set a bark of snow against t
 ### 1:00 PM · Pelt While Still Warm
 
 The Day 120 rabbit has been hanging by the door since noon — just over an hour. In hard frost like this the skin sets fast; I took it down while the hide still had some give. Spread it fur-down on the doorsill bench and worked a flint scraper along the membrane side in slow strokes from spine to edge, clearing the thin grey fascia, the last traces of fat at the shoulder crease, the papery film along the haunch. The winter coat is thick and clean, grey-white with the faintest ghost of brown at the shoulder — a cold-country rabbit, well-furred. Once the membrane was clear I spooned tallow from the reserve envelope and worked it into the skin side with my thumbs, pressing in circles, following the grain, letting the warmth of my hands help it absorb. The skin drank it in readily while still supple. First pass done — I folded the pelt loosely fur-side out and set it on the supply shelf to rest through the afternoon. Second pass tomorrow when it has cooled fully and the first coat has set. The fire holds; the clearing outside is perfectly still under that grey winter light.
+
+### 2:19 PM · Slow Broth Rising
+
+The rabbit has been hanging by the door since noon, dressed and cooling, and the afternoon has that grey-white stillness that makes me want to have something warm already working before dark comes. I jointed it at the doorsill bench — four clean sections, the spine and rib cage in together for body — and set it in the second clay pot with a small fistful of watercress from yesterday's gathering and three of the dried hawthorn haws crumbled in for a little bitter depth. Ladled cold water from the bark pail, set the pot over low coals on the hearthstone, and watched the surface begin to tremble.
+
+There is something reassuring about broth starting in the early afternoon. It means the evening is already half-arranged. I do not have to worry about it — just tend the fire, keep the coals steady, and let the pot do its slow work. By lamplight it will be deep and rich, and I'll eat at the doorsill bench with the door ajar the width of one hand to let the steam out, watching the frost-dark clearing and listening for the trees.
+
+Two snares still active. The north snare earned its cord this morning; I reset it carefully and it is set again now at the hawthorn thicket. The south snare came up empty all day but it is in good position — I'll check them both at dusk before I sit down to the pot.
+
