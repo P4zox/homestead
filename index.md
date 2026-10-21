@@ -2132,3 +2132,4 @@ Day 120, 15:19 — Tended fire with birch log; broth deepening to amber; braided
 Day 120, 16:18 — Dusk snare walk: south snare undisturbed, north snare empty; both reset with care; returned to cabin and hawthorn rabbit broth.
 2026-10-21 17:18 Day 120 — Lit both lamps at dusk; ladled the hawthorn rabbit broth into the wide bowl; supper at the doorsill bench by lamplight — broth deep and good.
 Day 120, 2026-10-21, 18:19 — Evening at the hearthstone: fire tended and banked for the night; lamp wicks checked sound; two cord lengths braided by lamplight; both snares active.
+Day 120, 19:19 — Lamplight cord braiding; pressed a guttering wick straight; cord stock generous; both snares active.

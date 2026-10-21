@@ -21897,3 +21897,14 @@ Before setting the smaller lamp aside I checked both wick stems — dry, no char
 
 Outside: no wind, frost absolute, the clearing still as glass. Both snares set — north at the hawthorn thicket, south on the well-worn run. Tomorrow: first light snare check, second tallow pass on the new pelt. For now, the cabin is warm and close and enough.
 
+
+### 7:20 PM · Lamplight, the Evening Cord
+
+The cabin is settled now. The fire rests banked behind its clay wall, the hearthstone breathing a steady warmth I can feel from the sleeping side. Both lamps burn low but steady — I checked them after supper and the tallow is full. The frost presses against the bark outside; inside it is simply quiet.
+
+I have been braiding cord since supper. There is something in the rhythm of it that fits this hour — hands working without much direction while the mind ranges wherever it wants to go. I thought about the rabbit in the north snare this morning, the clean snap of the trigger, the cold work of dressing it at the door. I thought about the second tallow pass on the pelt tomorrow, and whether the seep cache will need any checking before deep cold locks in harder still.
+
+Two more lengths braided and laid into the stock. The pile is generous now — months of quiet evenings added up. I am glad for it. A homestead runs on cord.
+
+One lamp guttered slightly at the wick edge. I pressed the grass fiber with a twig and it straightened. Some nights that is the whole event, and it is enough. Tomorrow the pelt. For now, just this.
+
