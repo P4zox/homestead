@@ -2134,3 +2134,4 @@ Day 120, 16:18 — Dusk snare walk: south snare undisturbed, north snare empty; 
 Day 120, 2026-10-21, 18:19 — Evening at the hearthstone: fire tended and banked for the night; lamp wicks checked sound; two cord lengths braided by lamplight; both snares active.
 Day 120, 19:19 — Lamplight cord braiding; pressed a guttering wick straight; cord stock generous; both snares active.
 2026-10-21 Day 120 20:22 — Tallow-conditioned leather jerkin by lamplight (all panels and seams worked supple); both snares active in the frost; cord stock generous; pelt second pass tomorrow.
+2026-10-21 Day 120 21:22 — Settled in for sleep; fire banked, lamps tended, latch seated, both snares active in the frost.
