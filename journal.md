@@ -21837,3 +21837,12 @@ Back inside, the fire felt generous. I laid the mushrooms near the hearth to fin
 
 By mid-morning the oyster mushroom fans had loosened from the frost — amber and yielding where the heat had found them. I peeled back the bark wrapping and laid them into the second clay pot with a small cup of water and the watercress stems from the morning retrieval. The fire was low and steady. The broth came up earthy and faintly smoky, the cress going bright green at the edge of the simmer. I ate from the doorsill bench, bowl warm in both hands, watching the clearing hold its flat grey light. The north snare waits for afternoon. This hour belonged to warmth and stillness.
 
+
+### 12:18 PM · North Snare Pays
+
+Pulled on mittens and stepped out into the grey-white afternoon. The frost never lifted today — the clearing stayed pale and still, the sky the color of old ash. I went to the north snare first, cutting through the hawthorn thicket where this morning I had read the snow-scrapes and compressed runs. Twenty paces from the anchor stake I could already see the cord taut. A rabbit, winter-grey, clean and fast, taken at the loop. I stood a moment in the cold and quiet, grateful in the way that does not need words.
+
+I reset the trigger, bent the birch post back into position, and came around to the south snare. Empty still — the approach snow unmarked, everything undisturbed. I left it as it was.
+
+Back in the cabin I hung the rabbit by the door and set a bark of snow against the latch post to cool. It will go to supper broth tonight — haunches and ribs with the last of the watercress, and maybe a few shreds of smoked oyster mushroom for depth. The fire has been burning low and even all day; I fed it another birch length now that I am back inside, and the smoke rose clean and straight in the still air.
+
