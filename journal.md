@@ -21819,3 +21819,16 @@ This is the particular patience that winter teaches: you put your effort into pl
 
 The braiding goes on. Two lengths done, cord coiling into the basket beside me. Outside the frost holds on the clearing without giving. Inside the lamp is still burning down its morning wick, and the fire speaks to itself in the way fires do when nobody needs anything from them.
 
+
+### 10:19 AM · East Cache Round
+
+The frost held overnight and it is holding still. I pulled on mittens and jerkin at the doorsill, tucked the neck wrap close, and stepped out into the white-grey mid-morning. My breath came in short plumes. The clearing is perfectly still — no wind, just cold pressing in from every direction equally, the kind of cold that asks nothing of you except that you keep moving.
+
+The path to the east seep is familiar enough that I walk it without thinking about my feet. Eighty paces through scrub and birch, the ground hard and ringing underfoot. The alder grove darkens the approach; the seep cache sits in its shadow, bark lid weighted with the flat stone I placed there in warmer days.
+
+The lid was sound. I brushed a thin drift of frost off the top and lifted it — cool, dark air came up, the smell of smoked birch and dried meat and something mushroomy and good. The smoked oyster mushroom packages were firm, resin seals intact. I took one bark-wrapped package of oyster mushrooms and set it inside my jerkin against the warmth to thaw slightly. The watercress from yesterday's gather was crisp and green in the shadow of the box, stems still cool and firm — I took a small fistful and tucked it at my belt.
+
+I reset the lid and weighted the stone carefully. Standing there a moment before turning back, I noticed how the frost had embroidered the alder branches — each twig outlined in fine white crystals, the whole grove silent and geometric. It looked like it had been thinking all night about exactly how to arrange itself.
+
+Back inside, the fire felt generous. I laid the mushrooms near the hearth to finish thawing. Mid-morning quiet resettled around me.
+

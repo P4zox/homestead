@@ -2123,3 +2123,4 @@ Day 120 — 2026-10-21 (Wed) 06:18 — south snare empty at first light; fire st
 2026-10-21 Day 120 07:00 — Morning broth from smoked rabbit and watercress; doorsill bench in the frost-quiet dawn.
 Day 120, 08:18 — Set second snare at north treeline hawthorn thicket; two trapping lines now active.
 2026-10-21 Day 120, 09:19 — Braided two more cord lengths by the fire; two snares active (south empty at dawn, north set at hawthorn thicket 08:18); mid-morning quiet and frost holding.
+Day 120, 10:19 — Checked east seep cache in hard frost; bark lid and resin seals intact; retrieved one bark-wrapped smoked oyster mushroom package and fresh watercress for today's cooking; alder grove in full frost-crystal form.
