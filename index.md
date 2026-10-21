@@ -2126,3 +2126,4 @@ Day 120, 08:18 — Set second snare at north treeline hawthorn thicket; two trap
 Day 120, 10:19 — Checked east seep cache in hard frost; bark lid and resin seals intact; retrieved one bark-wrapped smoked oyster mushroom package and fresh watercress for today's cooking; alder grove in full frost-crystal form.
 Day 120, 2026-10-21, 11:19 — Noon broth of thawed smoked oyster mushrooms and watercress; ate at doorsill bench; afternoon snare check pending.
 Day 120 (2026-10-21, 12:18) -- Afternoon snare check: north hawthorn thicket snare yielded one winter rabbit (cord taut, clean catch); south snare still empty; rabbit dressed and hung by door for tonight's supper broth.
+2026-10-21 Day 120 13:00 — Scraped Day 120 rabbit pelt and completed first tallow pass; pelt folded fur-side out on supply shelf to set.
