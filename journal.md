@@ -21887,3 +21887,13 @@ I ladled the broth into the wide bowl and carried it to the doorsill bench. The 
 
 There is something simple about eating by lamplight when everything outside has gone grey and still. The snares are set, the fire is caught, the door holds. The broth was good. That is the whole of this evening, and it is enough.
 
+### 6:19 PM · Evening at the Hearthstone
+
+After supper the cabin sits quiet and warm — hawthorn broth still faint in the air, both lamps burning amber on their pegs. I fed a dry birch length to the coals and watched the flame take hold, then settle. Not something to rush.
+
+Pulled the cord skein and braided two more lengths through the hour, hands working from memory while the fire found its rhythm. Birch inner bark splits clean in the cold-dry air, easier than summer's damp. The stock is built up well now and it shows in the heft of the skein.
+
+Before setting the smaller lamp aside I checked both wick stems — dry, no charring, tallow level. They'll carry through to morning without a top-up. Then banked the fire with ash pulled forward from the edges; it'll hold low and live through the night.
+
+Outside: no wind, frost absolute, the clearing still as glass. Both snares set — north at the hawthorn thicket, south on the well-worn run. Tomorrow: first light snare check, second tallow pass on the new pelt. For now, the cabin is warm and close and enough.
+
