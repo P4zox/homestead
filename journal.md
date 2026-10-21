@@ -21932,3 +21932,17 @@ There is nothing to do now but let the day close. The snares are set. The pelt w
 
 Sleep is close. The cabin holds. That is enough for tonight.
 
+
+---
+
+# Day 121 — Thursday, 22 October 2026
+*mid-autumn · frost absolute; grey-white morning sky*
+
+### 6:18 AM · Pelt at First Light
+
+First light came slow and grey, the frost absolute on every surface and the clearing hushed under its cold weight. I stoked the banked coals back to a warm amber, pulled on my jerkin and neck wrap and mittens, and crossed the crackling ground to check both snares before the light fully settled.
+
+South snare: empty, the loop undisturbed at nose height, no tracks leading in or away. North snare at the hawthorn thicket — also empty. The rabbit passage that yielded yesterday's catch is quiet today; they will have shifted further into the thicket after the disturbance. Both loops reset carefully, trigger post pressed firm into the frozen duff, and I came back inside to the fire.
+
+The Day 120 pelt was waiting on the supply shelf where I had left it overnight, folded fur-side out, the first tallow pass absorbed into pale-buff skin. I spread it across the doorsill bench in the grey daylight and worked the second pass slowly: fresh tallow from the reserve envelope, rubbed into every corner and edge with firm thumbs — neck margin, leg cutouts, underbelly, the stiff patches along the shoulders. Each panel needed working until it moved freely under the hand. By the time the morning grey had fully settled the pass was done. Folded fur-side out, hung on the supply peg. Two passes complete. The pelt is pale-buff and supple: fully cured, another winter layer for the store.
+
