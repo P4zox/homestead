@@ -21808,3 +21808,14 @@ Two snares now — north and south. Coming back I stood at the cabin door a mome
 
 Winter is long. But so is the supply shelf.
 
+
+### 9:19 AM · Two Snares Working
+
+The fire has been holding since I banked it at dawn, and the cabin has come up to something close to warm. I am sitting on the doorsill bench now with a coil of birch inner bark in my lap, working cord in the mid-morning quiet. The motions have gone into my hands — twist, pull, lay down the strand — and I barely have to think about them anymore.
+
+Two snares out there. The south loop was empty this morning, undisturbed, the cord still cold and exact where I set it. The north snare is new — set at the hawthorn thicket at first light, where the snow showed compressed runs and browse signs I liked. I will check it this afternoon. For now there is nothing to do but let it work.
+
+This is the particular patience that winter teaches: you put your effort into place, stake it, set it, walk away. The snare is patient whether you are or not. You come back when the time is right and either something has happened or it has not, and either way you reset and try again. That is the whole practice of it.
+
+The braiding goes on. Two lengths done, cord coiling into the basket beside me. Outside the frost holds on the clearing without giving. Inside the lamp is still burning down its morning wick, and the fire speaks to itself in the way fires do when nobody needs anything from them.
+
