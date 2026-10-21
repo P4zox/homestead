@@ -21923,3 +21923,12 @@ The fire holds a deep orange glow behind my closed eyelids. Both lamps are out; 
 
 Day 120, and I am warm inside my own shelter, fed on rabbit and hawthorn, leather jerkin on the peg still supple from the tallow pass. The cord stock is healthy. Both snares are working. That is a good accounting for a night in hard winter, and I let it rest there. Sleep is already close at the edges.
 
+
+### 11:20 PM · Near Midnight
+
+Both lamps out. Fire banked. The frost presses on the cabin walls in absolute silence and I lie in the sleeping bag halfway between waking and not.
+
+There is nothing to do now but let the day close. The snares are set. The pelt waits for its second tallow pass at first light. Supper was deep and good — hawthorn haws in the broth, three small bitter-sweet things that changed the whole pot. I keep coming back to small differences like that. Three haws. What they do to a broth.
+
+Sleep is close. The cabin holds. That is enough for tonight.
+
