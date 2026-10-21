@@ -21946,3 +21946,12 @@ South snare: empty, the loop undisturbed at nose height, no tracks leading in or
 
 The Day 120 pelt was waiting on the supply shelf where I had left it overnight, folded fur-side out, the first tallow pass absorbed into pale-buff skin. I spread it across the doorsill bench in the grey daylight and worked the second pass slowly: fresh tallow from the reserve envelope, rubbed into every corner and edge with firm thumbs — neck margin, leg cutouts, underbelly, the stiff patches along the shoulders. Each panel needed working until it moved freely under the hand. By the time the morning grey had fully settled the pass was done. Folded fur-side out, hung on the supply peg. Two passes complete. The pelt is pale-buff and supple: fully cured, another winter layer for the store.
 
+
+### 7:18 AM · Morning Broth, Last Cress
+
+The cold box gave up a section of smoked rabbit — dense and dark, still fragrant with birch smoke laid down over a month ago. I set the clay pot at the hearthstone with a cup of water and the last of the watercress, just a few limp stems with barely enough green left in them. The rabbit portion went in whole. The smoke deepened into the broth almost immediately.
+
+I sat on the doorsill bench while it simmered, the door cracked to let in the cold air and the view. Frost absolute on every surface, the clearing pale blue-white in the early light. No wind at all. The north snare was checked empty at first light and reset; I will check again around midday. Three smoked rabbits from September have kept through the cold season without spoiling — that is the cold box doing its work, and hard frost doing the rest.
+
+The broth came off the coals dark and hot. I ate the full bowl with both hands wrapped around the clay, sitting at the doorsill. Watercress is gone now — the last of the summer green used up. Winter is full and settled. Enough smoked meat still to carry the week comfortably without a snare catch, but the snares are out, and each morning could change the count.
+
