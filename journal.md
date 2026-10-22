@@ -22077,3 +22077,12 @@ I sat with the empty bowl for a while. The fire is banked low and even, the pelt
 
 Nine hours until morning. The lamps will last.
 
+
+### 10:19 PM · Last embers
+
+The rose hip warmth is still in my chest. One lamp wick had burned down to a stub so I untied the bark cup, trimmed the char end, and relit it from the coals — it caught cleaner, and the room looked the same as before, only a little steadier. Outside the frost is past absolute. I can hear nothing through the gable: no wind, no movement, only the kind of deep-cold silence that settles after midnight presses in from all sides.
+
+I raked the hearth coals into a close mound and laid two thick birch splits across the back of the firebox, bark-side down so they catch slowly and hold long. By morning there will be a solid bed of coals still glowing under the ash, enough to rebuild without trouble. The pelt is folded fur-side in on the supply bench, soaking overnight. Second tallow pass at first light, then check both snares.
+
+A long day. Rabbit caught, broth made, mittens finished. Everything sealed, every wick trimmed, every snare set. I sat a while longer just watching the coals breathe orange and go dim. That was enough for one night.
+

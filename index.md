@@ -2153,3 +2153,4 @@ Day 121, 18:00 — Cord braiding by lamplight after supper; two lengths added to
 2026-10-22 | Day 121, 19:19 — Lamps Before Sleep — Both lamp cups tallow-topped from reserve; evening quiet, cabin warm and amber-dim.
 2026-10-22 20:18 Day 121 — Evening supply review by lamplight; assessed winter stores: one haw envelope, four rose hip envelopes, starch cakes and flatcakes counted, pelt soaking, firewood sound, tallow reserve holding. Enough for tonight.
 Day 121, 2026-10-22, 21:19 — Rose hip infusion by lamplight; saved last hawthorn haw envelope; three rose hip envelopes remaining; fire banked, lamps steady, pelt soaking overnight.
+Day 121, 22:19 — Last embers: trimmed lamp wick, banked fire with two birch splits for overnight, pelt set for morning tallow pass, fire coals mounded, ready for sleep.
