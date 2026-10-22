@@ -22031,3 +22031,10 @@ Came back to the cabin with my mittened hands loose at my sides and the pines st
 
 Supper will be good tonight.
 
+
+### 4:18 PM · Last Light, South Edge
+
+The grey-white afternoon was narrowing down fast — I could feel it in the way the shadows went flat and the cold sharpened a degree on the air. Went out once more while the light held, south along the treeline, and pulled two dry birch lengths from the duff where yesterday's wind had brought them down. My breath came in short steady clouds. The fur-lined mittens held the cold off my knuckles completely, and I noticed how different it was to reach and lift without that bite through the leather. Small things matter when they're cold things.
+
+Back under the eave, stacked both lengths on the kindling row and came inside to the smell of the broth — rabbit and smoked oyster mushrooms, low and dark and thick after two hours on the hearthstone. I lifted the bark square and stirred once with the paddle; the oyster shreds had dissolved to silky threads. Fed two birch splits to the fire, settled at the bench with a length of bark strip, and started braiding by the diminishing window light before I'll need the lamp. The pot will be ready at lamplight. There is a particular satisfaction in doing the last outdoor errand of the day before it forces you, rather than after.
+
