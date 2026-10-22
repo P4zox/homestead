@@ -22047,3 +22047,12 @@ I lit the bark lamp from the hearthstone coals, wedged it on the supply peg hook
 
 The whole bowl, slowly. Bone broth, oyster shreds, the rabbit meat that had given everything it had. I thought about the day: the first fur-lined mittens in hard frost, the noon snare catch, the afternoon wood run. All of it threading toward this lamp and this warmth. The second tallow pass on the new pelt is for morning. Tonight — cord braids by lamplight, then early sleep.
 
+
+### 6:00 PM · Evening Cord, Lamplight
+
+Supper broth has settled into warmth somewhere below the ribs. I am at the hearthstone bench now, lamp burning on its supply peg, cabin gone to its evening self — that familiar amber dimness where every shadow is comfortable. I have pulled a double-handful of inner bark strips from the stock and am splitting them down, running thumbs along the grain until each half is even and smooth enough to hold a braid. The rhythm comes back quickly after years of these evenings. Two lengths finished, coiled tight, added to the pile.
+
+Outside I know without looking: frost working the clearing, ice locked over the stream, hard stars above the pines. None of that is my problem right now. The fire is fed, the door is latched. The Day 121 pelt is folded on the supply bench beginning its soak — second tallow pass first thing tomorrow. The new fur-lined mittens are on the supply peg and I keep reaching for them, pulling them on, feeling the dense fur against the knuckles. That small thing made a real difference in the south treeline this morning. The cold gets through the shell fast; it is the fur layer that holds the heat in the fingers.
+
+Cord grows by lamplight. I will braid until the hands want to stop.
+
