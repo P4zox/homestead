@@ -2148,3 +2148,4 @@ Day 121, 13:19 — First tallow pass on noon rabbit pelt; folded fur-side in on 
 Day 121, 2026-10-22, 14:19 — Supper broth set to simmer; Day 121 rabbit haunches and shoulders with smoked oyster mushroom shreds in clay pot on hearthstone.
 2026-10-22 Day 121 15:18 — Afternoon snare walk; both snares intact, no new catch; broth simmering steady; fire fed for evening.
 2026-10-22 Day 121 16:18 — Last light south treeline: gathered two dry birch lengths, stacked under eave; supper broth stirred and holding, oyster shreds dissolved to threads; cord braiding by window light before lamp.
+Day 121 · 2026-10-22 · 17:19 · Supper broth ladled by lamplight — rabbit and oyster mushroom, three hours simmered; bark lamp lit from hearthstone coals; bowl eaten at doorsill bench; fire banked for evening.

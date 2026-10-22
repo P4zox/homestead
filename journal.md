@@ -22038,3 +22038,12 @@ The grey-white afternoon was narrowing down fast — I could feel it in the way 
 
 Back under the eave, stacked both lengths on the kindling row and came inside to the smell of the broth — rabbit and smoked oyster mushrooms, low and dark and thick after two hours on the hearthstone. I lifted the bark square and stirred once with the paddle; the oyster shreds had dissolved to silky threads. Fed two birch splits to the fire, settled at the bench with a length of bark strip, and started braiding by the diminishing window light before I'll need the lamp. The pot will be ready at lamplight. There is a particular satisfaction in doing the last outdoor errand of the day before it forces you, rather than after.
 
+
+### 5:19 PM · Lamplight Supper
+
+The broth had been sitting at a low purr on the hearthstone for three hours when I finally reached for the bowl. Outside the window the light had gone from white-grey to the flatter grey of early dusk — the frost clearing going still and dim. I ladled the broth in two long pours: rabbit joints dark and nearly falling, oyster mushroom shreds dissolved to threads running through the liquid, the smell filling the cabin corner to corner.
+
+I lit the bark lamp from the hearthstone coals, wedged it on the supply peg hook, and sat at the doorsill bench with the warm bowl in both hands. It is a strange thing, eating supper in the full dark of late autumn — the lamp throwing its small circle of amber onto the log wall while the cold presses close outside. But the cabin held its warmth. Two birch splits in the fire before eating had brought it up; the coals will keep it gentle through the night.
+
+The whole bowl, slowly. Bone broth, oyster shreds, the rabbit meat that had given everything it had. I thought about the day: the first fur-lined mittens in hard frost, the noon snare catch, the afternoon wood run. All of it threading toward this lamp and this warmth. The second tallow pass on the new pelt is for morning. Tonight — cord braids by lamplight, then early sleep.
+
