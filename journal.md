@@ -22056,3 +22056,10 @@ Outside I know without looking: frost working the clearing, ice locked over the 
 
 Cord grows by lamplight. I will braid until the hands want to stop.
 
+
+### 7:19 PM · Lamps Before Sleep
+
+Lifted both bark cups from their perches and checked the tallow levels by touch and tilt — both running low after three evenings burning, the wicks nearly at the fat. Spooned tallow from the reserve envelope until each cup was full, the wick floating just below the brim; sealed the envelope with the pine pin and pressed the resin flap back into place. Set both lamps on their hooks and watched the flames steady and settle.
+
+The cabin held quiet: fire low and banking, cord coiled in its lengths on the bench, Day 121 pelt folded fur-side in on the supply shelf taking its first tallow soak. The night outside is all frost and still — no wind against the bark gable, just hard cold pressing at the walls. Inside is amber and warm. I sat a while longer at the hearthstone bench doing nothing in particular, hands loose in my lap, letting the evening lengthen on its own.
+
