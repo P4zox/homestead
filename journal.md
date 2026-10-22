@@ -22063,3 +22063,7 @@ Lifted both bark cups from their perches and checked the tallow levels by touch 
 
 The cabin held quiet: fire low and banking, cord coiled in its lengths on the bench, Day 121 pelt folded fur-side in on the supply shelf taking its first tallow soak. The night outside is all frost and still — no wind against the bark gable, just hard cold pressing at the walls. Inside is amber and warm. I sat a while longer at the hearthstone bench doing nothing in particular, hands loose in my lap, letting the evening lengthen on its own.
 
+
+### 8:18 PM · Counting What Remains
+
+The lamps are burning well — both cups full from this evenings

@@ -2151,3 +2151,4 @@ Day 121, 2026-10-22, 14:19 — Supper broth set to simmer; Day 121 rabbit haunch
 Day 121 · 2026-10-22 · 17:19 · Supper broth ladled by lamplight — rabbit and oyster mushroom, three hours simmered; bark lamp lit from hearthstone coals; bowl eaten at doorsill bench; fire banked for evening.
 Day 121, 18:00 — Cord braiding by lamplight after supper; two lengths added to stock; frost settled hard outside, cabin warm and dim.
 2026-10-22 | Day 121, 19:19 — Lamps Before Sleep — Both lamp cups tallow-topped from reserve; evening quiet, cabin warm and amber-dim.
+2026-10-22 20:18 Day 121 — Evening supply review by lamplight; assessed winter stores: one haw envelope, four rose hip envelopes, starch cakes and flatcakes counted, pelt soaking, firewood sound, tallow reserve holding. Enough for tonight.
