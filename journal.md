@@ -21968,3 +21968,16 @@ Hung both mittens on the doorsill bench to let the cord settle. The Day 120 pelt
 
 North snare check due at midday.
 
+
+### 9:00 AM · Haw Tea, First of Winter
+
+The watercress is gone. I used the last few stems in this morning's broth, and the stream under its ice is not giving them back until spring. That is the kind of small ending that takes a moment to sit with — not a loss exactly, but a closing. The broth was good, the bowl warm in both hands, but the green was the last of it.
+
+So at nine I opened one of the hawthorn haw envelopes from the supply shelf. Three envelopes remain; they have been sitting since autumn. The dried haws are deep red, slightly shriveled, still faintly fragrant — a smell like cold fruit and tannin. I crushed a small handful against the grinding stone with the hand cobble, just enough to split the skin and let the flesh go into the water. Set the small clay pot at the edge of the hearth coals and let it come up slowly — no hurry in winter.
+
+The liquid deepened from pale to rust-red while I sat by the door watching frost on the clearing. The sky is white-grey and still. No movement at the snare lines as far as I can see. Both snares are set; midday I'll walk out and check.
+
+I poured the infusion off through a folded piece of bark, let it cool enough to hold, and drank it standing in the half-open doorway. Slightly sweet, slightly sharp, a faint earthiness underneath. Not like watercress — nothing will be — but real, stored from autumn, still alive in its way. With fresh greens months off, this is what keeps the body honest through the cold months: rose hips, haws, elderberry reduction, the dried herbs on the shelf.
+
+Winter is a long patience. I know how to wait.
+
