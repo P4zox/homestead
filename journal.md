@@ -21997,3 +21997,12 @@ The watercress being gone settles something in me. All through autumn there was 
 
 North snare needs checking at noon. I will take the basket and go then.
 
+
+### 12:18 PM · North Snare, Noon Catch
+
+Walked north at noon to the hawthorn thicket — sixty paces into the frost. The loop was sprung: a rabbit, grey-white in its winter coat, taken clean at the throat. I reset the snare and walked it back, its hind feet swinging against my knee in the still midday air.
+
+Jointed it at the doorsill bench while my hands warmed on the work. The meat is pale and firm. Belly fat skimmed into the tallow reserve; joints dock-wrapped into the cold box; pelt on the supply bench for a first tallow pass this afternoon.
+
+Two catches in two days from that north hawthorn trail. The loop is speaking well there.
+
