@@ -22020,3 +22020,14 @@ The afternoon light is grey-white and very still — no wind, frost smoke standi
 
 This is the quiet work of hard winter: keeping the heat going, keeping the food moving through the cold box before it can spoil. The cabin is warm enough. The pelt is folded fur-side in on the bench, absorbing its tallow. Both snares are set and waiting in the frost. There is nothing urgent right now — only this fire, this pot, and this grey afternoon going slowly toward dark.
 
+
+### 3:18 PM · Afternoon Snare Walk
+
+The broth has been on the hearthstone for just over an hour. The cabin fills with smoke and a low mushroom-and-meat smell that I have learned to read the way I read the sky: amber and steady means it needs nothing yet.
+
+I laced my boots at the doorsill and went out for the afternoon snare check. The cold at three in the afternoon is different from the cold at first light — drier, heavier, the sky a flat pewter-white that seems to press down rather than open. South snare first: loop intact, passage undisturbed, a few grouse prints in the frost but nothing in the set. Good enough. Then the longer walk north to the hawthorn thicket — sixty paces through ground that has stopped giving underfoot. The north snare holds well, reset clean at noon, loop hanging taut and square just as I left it. This morning already gave me a rabbit from that spot; I do not expect another so soon, but I check anyway because checking is the habit that keeps me fed.
+
+Came back to the cabin with my mittened hands loose at my sides and the pines standing still in all directions. No wind today. The cold sits in the clearing like something settled. I fed the fire two short birch lengths, nudged the bark square back over the broth pot, and sat down at the bench. A hundred and twenty-one days here. The clearing is mine now — not in any complicated way, just in the plain way that a place becomes yours when you have slept in it through every kind of weather and woken up grateful each time.
+
+Supper will be good tonight.
+
