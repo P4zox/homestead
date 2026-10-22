@@ -22067,3 +22067,13 @@ The cabin held quiet: fire low and banking, cord coiled in its lengths on the be
 ### 8:18 PM · Counting What Remains
 
 The lamps are burning well — both cups full from this evenings
+### 9:19 PM · Rose Hip by Lamplight
+
+The cabin is warm and the lamps are burning steady — both cups full from tonight's top-up, wicks drawing clean. The supply count is done; everything is where it should be. Outside, frost absolute, the clearing gone grey-white and still.
+
+I opened one of the rose hip envelopes. The haws are running low — only one envelope left — and the rose hips are sound, four of them sitting on the supply shelf. It made sense to start working through them now. Crushed a small double-handful against the grinding stone into a rough, seedy powder, then simmered it in the clay pot with a cup of water until the water turned copper-red. Poured it through folded bark and drank it sitting at the hearthstone bench — sharp and warm, the kind of warmth that settles into the chest rather than just the hands.
+
+I sat with the empty bowl for a while. The fire is banked low and even, the pelt folded on the supply bench soaking fur-side in overnight, ready for tomorrow's second tallow pass at first light. Three rose hip envelopes remaining. I noticed that, and was glad for the count.
+
+Nine hours until morning. The lamps will last.
+
