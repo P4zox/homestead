@@ -2139,3 +2139,4 @@ Day 120, 19:19 — Lamplight cord braiding; pressed a guttering wick straight; c
 Day 120, 23:20 (2026-10-21) — Near Midnight: lying still in sleeping bag, frost-quiet cabin, fire banked, both snares active; last waking moment before sleep.
 2026-10-22 Day 121 06:18 — Second tallow pass complete on Day 120 rabbit pelt (fully cured, pale-buff, supply peg); both snares checked at first light and reset (both empty).
 2026-10-22 07:18 — Day 121 — Morning broth from smoked rabbit and last watercress; watercress exhausted; two smoked rabbits remain; snares out, frost holds.
+Day 121 08:18 — Cut rabbit-fur mitten liners from Day 120 pelt; two palm-and-finger panels laced fur-side in inside doe-hide mittens; mittens now fully lined against winter cold.

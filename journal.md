@@ -21955,3 +21955,16 @@ I sat on the doorsill bench while it simmered, the door cracked to let in the co
 
 The broth came off the coals dark and hot. I ate the full bowl with both hands wrapped around the clay, sitting at the doorsill. Watercress is gone now — the last of the summer green used up. Winter is full and settled. Enough smoked meat still to carry the week comfortably without a snare catch, but the snares are out, and each morning could change the count.
 
+
+### 8:18 AM · Mitten Liners Cut
+
+The morning was quiet after the broth — fire settled to amber, frost still thick on the clearing, nowhere pressing to be until the midday snare check. I took the Day 120 pelt from its peg. Pale-buff and supple from the second tallow pass this morning, smelling faintly of rendered fat and dry fur. Laid it flat on the doorsill bench and traced the shape of both mittens against the inside of the hide with a wet fingertip: palm-and-finger panels, each just wide enough to overlap the wrist hem.
+
+The cuts came easily — the knife running along the marks, the rabbit hide parting clean. Two liner pieces, rough-edged but full-coverage, and two long offcut strips for the scrap pile. I slipped a panel inside each mitten fur-side in, feeding it toward the finger seams, then laced both wrist openings closed with a short length of bark cord so the liners could not slide back.
+
+Tried them on at the doorway, where the cold came in freely under the latch. The difference was immediate. Doe-hide alone handles wind well enough, but a layer of dense winter rabbit fur against the knuckles and palm changes the whole character of the cold. Hands stayed warm longer than I expected standing in the open threshold.
+
+Hung both mittens on the doorsill bench to let the cord settle. The Day 120 pelt is fully used now — nothing left but the offcuts. This kind of work earns its keep hour by hour through every cold morning that follows.
+
+North snare check due at midday.
+
