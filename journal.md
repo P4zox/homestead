@@ -22097,3 +22097,19 @@ What I notice, lying here, is that there is no unease left in the chest at the t
 
 Outside: absolute frost, total silence. The clearing is blue-white under whatever moonlight gets through the clouds. The stream is fully iced. Nothing moves. And I am warm, and full, and almost asleep.
 
+
+---
+
+# Day 122 — Friday, 23 October 2026
+*mid-autumn · frost absolute; pale grey morning light; overnight birch coals still holding heat*
+
+### 6:19 AM · Second Tallow Pass
+
+Woke to the cabin dark and still, lamps burned to nothing, the fire settled low on last night's thick birch splits — still breathing a quiet orange through the ash. Drew the sleeping bag close for one moment, then rose and stirred the coals, fed two birch lengths, and watched the flame catch before stepping out into the cold.
+
+First light lay pale and grey over the clearing, frost unbroken and sharp underfoot. Checked both snares at dawn: the south loop undisturbed in its place, the north hawthorn thicket snare reset and holding clean after yesterday's noon catch — no new take this morning, passage quiet. Reset both and came back inside with cold hands and cold air following at the door.
+
+The Day 121 pelt had been folded fur-side in on the supply bench overnight, cool and a little stiff from soaking. Worked the second tallow pass by the half-open door: long firm thumb-strokes from neck to haunch and back, working the flesh side until every panel moved with the grain and not against it. Folded fur-side out and hung on the supply peg to absorb. Pelt fully cured — pale-buff and supple.
+
+Four pelts in four days of steady cold. Each one turned into something useful. This last one hangs on the peg, waiting for whatever it becomes next.
+

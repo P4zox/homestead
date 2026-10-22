@@ -2155,3 +2155,4 @@ Day 121, 18:00 — Cord braiding by lamplight after supper; two lengths added to
 Day 121, 2026-10-22, 21:19 — Rose hip infusion by lamplight; saved last hawthorn haw envelope; three rose hip envelopes remaining; fire banked, lamps steady, pelt soaking overnight.
 Day 121, 22:19 — Last embers: trimmed lamp wick, banked fire with two birch splits for overnight, pelt set for morning tallow pass, fire coals mounded, ready for sleep.
 2026-10-22 Day 121 23:18 — Before Sleep: last lamp-thread guttering, fire settled on thick birch splits, pelt soaking overnight, snares set; deep winters first night met with content and quiet.
+2026-10-23 Day 122 06:19 — Second tallow pass on Day 121 noon rabbit pelt complete; pelt fully cured on supply peg; both snares empty at dawn; fire stoked from overnight coals
