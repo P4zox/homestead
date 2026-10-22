@@ -22006,3 +22006,8 @@ Jointed it at the doorsill bench while my hands warmed on the work. The meat is 
 
 Two catches in two days from that north hawthorn trail. The loop is speaking well there.
 
+
+### 1:19 PM · Grey-Afternoon Tallow
+
+The noon catch has been sitting on the supply bench since jointing — grey-white winter coat, stiff along the spine and supple at the flanks. I pulled the tallow envelope down and worked the first pass at the doorsill in the pale afternoon light: thumbs running slow firm strokes from neck to haunch, pressing tallow into the flesh side until it warmed under my hands and the pale amber darkened a little into the hide. Cold air sat at the door frame — that frost-and-pine smell the clearing holds all winter now — while the fire kept steady behind me. The pelt moved well by the time I finished: shoulders easy, flanks without stiffness, no dry spots resisting. Folded it fur-side in and set it back on the supply bench. It will sit through the night and take the second pass in the morning when the tallow has drawn fully through. Two rabbit pelts curing at once now — the Day 120 coat already pale-buff and supple on its peg. A small warmth in the grey mid-afternoon, that: more than enough for what the winter asks.
+

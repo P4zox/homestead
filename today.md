@@ -6,3 +6,4 @@
 10:18 — Stepped outside in the new fur-lined mittens for the first time; gathered two dry birch lengths and one dry pine bough from the south treeline duff; stacked under eave. Mittens moved with the hands rather than against them — fur lining made a real difference in the hard frost.
 11:18 — Braided two lengths of two-ply cord by the fire at the doorsill bench; sat with mid-morning quiet; north snare check due at noon.
 12:18 — Checked north snare at noon; hawthorn thicket loop sprung — winter rabbit, grey-white coat, taken clean at the throat. Reset snare loop. Jointed rabbit at doorsill bench: belly fat skimmed to tallow reserve; joints dock-wrapped cold box; pelt on supply bench for first tallow pass this afternoon.
+13:19 — First tallow pass on Day 121 noon rabbit pelt at doorsill bench; tallow worked into flesh side in long firm thumb-strokes from neck to haunch; pelt folded fur-side in and set on supply bench to absorb overnight; second pass tomorrow morning.
