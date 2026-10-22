@@ -21988,3 +21988,12 @@ Put on the mittens at the doorway — the rabbit fur against my knuckles changes
 
 The clearing from the treeline looks small in winter — the cabin low and dark against frost-pale ground, smoke rising thin and straight from the chimney slot. A good sight. Back inside, stacked the wood under the eave: another row against a long freeze. The mittens worked. I can feel where they move with my hands instead of against them.
 
+
+### 11:18 AM · Between Snares
+
+The clearing has a grey-white stillness this mid-morning — absolute frost, the sky low and pale, no wind. Nothing moves out there. I sat on the doorsill bench after the hawthorn infusion cooled and worked two lengths of two-ply cord by the warmth of the fire. My hands do it almost without thought now; fingers pull and twist while the mind empties out a little.
+
+The watercress being gone settles something in me. All through autumn there was a reason to walk to the stream — cress to pull, lines to tend, the riffle to read. Now the pool is flat-sealed white and the willows stand bare over it. The haws this morning were the first taste of the new winter logic: store and simmer instead of gather and fresh. I turned that over while I braided.
+
+North snare needs checking at noon. I will take the basket and go then.
+
