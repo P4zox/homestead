@@ -22113,3 +22113,10 @@ The Day 121 pelt had been folded fur-side in on the supply bench overnight, cool
 
 Four pelts in four days of steady cold. Each one turned into something useful. This last one hangs on the peg, waiting for whatever it becomes next.
 
+
+### 7:18 AM · Broth Without Greens
+
+The hearthstone was warm enough by now to set the clay pot directly. I ladled water from the bark bucket — a thin skin of ice had formed near the door overnight; I skimmed it off with the spoon before filling — and fed in smoked rabbit shreds from the cold box and a pinch of dried oyster mushroom. No watercress. That is a first in a long while; the last stems went into yesterday morning's broth and the stream has been sealed under ice since Day 112. Without them the broth tasted different: deeper and smokier, nothing bright to cut through the fat. I sat with it beside the fire and tried to place that quality. It is, I think, the full taste of winter — dense, stored, no light coming in from the garden or the stream.
+
+An acorn flatcake on the side, eaten slowly. I am not short of food; the stores are solid. But the absence of green things has its own weight, not hunger exactly, more a narrowing of the palette. Everything now is smoked, dried, preserved. The garden under its mulch, the stream under its ice. Spring is a long way off.
+
