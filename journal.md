@@ -22086,3 +22086,14 @@ I raked the hearth coals into a close mound and laid two thick birch splits acro
 
 A long day. Rabbit caught, broth made, mittens finished. Everything sealed, every wick trimmed, every snare set. I sat a while longer just watching the coals breathe orange and go dim. That was enough for one night.
 
+
+### 11:18 PM · Before Sleep
+
+The lamps have burned down to near-nothing — I let them go tonight, just a thread of flame above each wick in the dark. The fire in the firebox is doing its slow work on the two thick birch splits, and I can hear the occasional soft collapse of wood settling, the quiet language of a fire that does not need tending.
+
+I am in the sleeping bag now. Fur-lined mittens on the doorsill bench beside me, sleeping cap on, neck wrap pulled snug. Pelt soaking tallow on the supply bench for tomorrow's second pass. Both snares set in the frost. Everything that could be done today was done.
+
+What I notice, lying here, is that there is no unease left in the chest at the thought of deep winter. It came on gradually — something about having enough stored, about having learned how to keep earning more of it, about knowing that the morning will bring its small clear tasks: second tallow pass, snare check, fire up, broth on. The day turns and I know how to turn with it now.
+
+Outside: absolute frost, total silence. The clearing is blue-white under whatever moonlight gets through the clouds. The stream is fully iced. Nothing moves. And I am warm, and full, and almost asleep.
+
