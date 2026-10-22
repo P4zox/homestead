@@ -21981,3 +21981,10 @@ I poured the infusion off through a folded piece of bark, let it cool enough to 
 
 Winter is a long patience. I know how to wait.
 
+
+### 10:18 AM · First Steps, Lined Mittens
+
+Put on the mittens at the doorway — the rabbit fur against my knuckles changes everything, a warmth that sits on the skin rather than just blocking wind. Pulled the jerkin close, crossed the clearing to the south treeline in the hard frost quiet. My breath came out in slow white plumes. The birch snags along the south duff were easy to spot — pale trunks and dry branches, some knocked low by the first deep freeze. I worked down the treeline, pulling two armfuls of dry birch lengths and one dry pine bough, and tucked them under my arm.
+
+The clearing from the treeline looks small in winter — the cabin low and dark against frost-pale ground, smoke rising thin and straight from the chimney slot. A good sight. Back inside, stacked the wood under the eave: another row against a long freeze. The mittens worked. I can feel where they move with my hands instead of against them.
+
