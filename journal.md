@@ -22011,3 +22011,12 @@ Two catches in two days from that north hawthorn trail. The loop is speaking wel
 
 The noon catch has been sitting on the supply bench since jointing — grey-white winter coat, stiff along the spine and supple at the flanks. I pulled the tallow envelope down and worked the first pass at the doorsill in the pale afternoon light: thumbs running slow firm strokes from neck to haunch, pressing tallow into the flesh side until it warmed under my hands and the pale amber darkened a little into the hide. Cold air sat at the door frame — that frost-and-pine smell the clearing holds all winter now — while the fire kept steady behind me. The pelt moved well by the time I finished: shoulders easy, flanks without stiffness, no dry spots resisting. Folded it fur-side in and set it back on the supply bench. It will sit through the night and take the second pass in the morning when the tallow has drawn fully through. Two rabbit pelts curing at once now — the Day 120 coat already pale-buff and supple on its peg. A small warmth in the grey mid-afternoon, that: more than enough for what the winter asks.
 
+
+### 2:19 PM · Slow Pot Before Dusk
+
+Pulled the Day 121 rabbit haunches and shoulders from the cold box mid-afternoon and set them in the large clay pot with two cups of water and a handful of smoked oyster mushroom shreds from the east seep cache. Settled the pot onto the hearthstone over a low, steady fire and laid a bark square across the rim to hold the steam.
+
+The afternoon light is grey-white and very still — no wind, frost smoke standing in the clearing like something breathing. I sat for a while at the doorsill with the door cracked a hand-width, watching it. The pot is slow and good. Supper will be ready by lamplight.
+
+This is the quiet work of hard winter: keeping the heat going, keeping the food moving through the cold box before it can spoil. The cabin is warm enough. The pelt is folded fur-side in on the bench, absorbing its tallow. Both snares are set and waiting in the frost. There is nothing urgent right now — only this fire, this pot, and this grey afternoon going slowly toward dark.
+

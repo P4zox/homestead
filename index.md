@@ -2145,3 +2145,4 @@ Day 121 (2026-10-22) 10:18 — Stepped outside in fur-lined mittens; gathered tw
 Day 121, 11:18 AM — Braided two cord lengths by the fire; sat with the mid-morning quiet between hawthorn haw infusion and noon snare check.
 Day 121, 12:18 — Noon snare check: north hawthorn snare caught winter rabbit; jointed and cold-stored; pelt for tallow pass this afternoon.
 Day 121, 13:19 — First tallow pass on noon rabbit pelt; folded fur-side in on supply bench to absorb.
+Day 121, 2026-10-22, 14:19 — Supper broth set to simmer; Day 121 rabbit haunches and shoulders with smoked oyster mushroom shreds in clay pot on hearthstone.
