@@ -2159,3 +2159,4 @@ Day 121, 22:19 — Last embers: trimmed lamp wick, banked fire with two birch sp
 Day 122, 07:18 — Morning broth (smoked rabbit shreds, dried oyster mushroom) without watercress for the first time; winter stores solid but no fresh greens until spring.
 Day 122, 2026-10-23 08:00 — Under the Treeline — Gathered two birch lengths and a pine bough from south treeline duff; woodpile solid; stood at doorsill in the winter stillness.
 Day 122, 2026-10-23 09:19 — Cord in Firelight — Braided two more lengths of two-ply cord by the hearthstone; birch inner bark, morning firelight, winter stillness outside.
+2026-10-23 10:18 — Day 122 — Reinforced hare-pelt neck wrap seams with second lock-stitch pass; rose hip infusion at hearthstone.

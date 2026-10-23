@@ -22136,3 +22136,8 @@ The morning has settled by the hearthstone now — the early bite has given way 
 
 Two more lengths to the stock, and a full morning still ahead.
 
+
+### 10:18 AM · Tightening the Seams
+
+The grey winter light has not shifted much since morning. I set a bark cup on the hearthstone with a handful of dried rose hips and a ladle of water — steam came up almost immediately, and the whole cabin smelled briefly of something bright and tart cutting across the woodsmoke. While it steeped I took down the hare-pelt neck wrap from the supply peg and looked at it properly for the first time in a while. The running-stitch edges along both long sides were holding, but I could feel where the bark cord had softened and shifted in places from wear — small gaps where the loops had drawn loose. Nothing failing yet, just the kind of thing you only catch when you stop and look. I threaded the bone needle with a fresh length of two-ply cord and ran a second lock-stitch pass along both seams, following the original line and catching every skip I found. The fur side stayed warm against my wrist the whole time. By the time I finished the second seam the infusion was cool enough to drink. I sat a few minutes at the doorsill bench with the cup in both hands, looking out at the frost-white clearing. The pines at the treeline are dark and sharp against a sky that looks almost white. Nothing moving out there. The neck wrap is back on the supply peg, seams sound and tight. It will hold through whatever comes.
+
