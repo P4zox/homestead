@@ -22179,3 +22179,12 @@ The seep itself was frozen over — a pale skin of ice the width of my palm at t
 
 Back inside, added one birch split to keep the fire honest, latched the door. Lamps steady. Everything where it should be for the long night ahead.
 
+
+### 4:18 PM · Evening Pot
+
+The pale afternoon light was already gone from the clearing by the time I got back from the seep cache and settled in. At quarter past four I brought the second clay pot to the hearthstone and spooned in a measure of smoked hare shreds — bark-wrapped since Day 91, still holding their smoke and fat, fragrant when the wrapping opens. A small pinch of dried oyster mushroom shreds. Cold melt-water from the pail. I added one more birch split to steady the fire for the long simmer and set the pot on the flat hearthstone where the heat is even.
+
+There is something in starting supper before the last light goes. I can braid cord, I can sit, I can watch the frost on the windowless east wall darken as the afternoon closes — and the pot will do its own work. The doe-hide ear pieces I cut this morning are on the peg; I tried them under the sleeping cap before I started the fire. Warm immediately. With neck wrap and cap and mittens and ear pieces, I think I have covered everything that can be covered.
+
+Outside nothing moves. The jay came at first light and left. Now it is just frost and pines and smoke climbing straight and pale from the roof into a clear cold sky.
+
