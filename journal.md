@@ -22129,3 +22129,10 @@ The south treeline duff is dry under the overhang of the pines even in hard fros
 
 Added them under the eave beside the kindling row. The woodpile stands firm. I stood at the doorsill after, looking out at the clearing — pale grey sky, the birch trunks white against the dark of the pines, everything still. Deep winter has a kind of clarity to it. The land stripped back to its bones. I found I did not mind standing there a while.
 
+
+### 9:19 AM · Cord in Firelight
+
+The morning has settled by the hearthstone now — the early bite has given way to steady warmth, fire built up from its own coals. I pulled birch inner bark from the stock, split it into working strips, and braided two more lengths of cord in the lamp-lit cabin. Hands moving without thought, the motion quiet and repetitive. The cord pile grows slowly through winter; I do not begrudge it the time. Outside, pale grey sky and absolute frost. The clearing holds its stillness.
+
+Two more lengths to the stock, and a full morning still ahead.
+
