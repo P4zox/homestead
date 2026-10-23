@@ -2167,3 +2167,4 @@ Day 122, 14:19 — Sharpened knife and axe on flat gneiss grinding stone at door
 2026-10-23 15:19 Day 122 — East cache checked: all seals sound, stores cold and dry, seep ice-skinned; back inside, fire tended.
 Day 122, 2026-10-23 16:18 — Set evening supper broth on hearthstone: smoked hare shreds, dried oyster mushroom, cold melt-water; long simmer begun into dusk.
 Day 122 (2026-10-23) 17:18 — Evening supper by lamplight: smoked hare and oyster mushroom broth, one flatcake, door cracked to frost-black clearing.
+Day 122, 18:19 — Banked fire for the night with two birch splits and one pine bough, ash-capped; stood at doorsill in hard frost dark listening to the clearing; a branch fell once in the south pines; door latched, lamps steady, shelter sealed for the night.

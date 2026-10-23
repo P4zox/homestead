@@ -22197,3 +22197,8 @@ Ate at the doorsill bench with the door cracked a hand-span to the cold evening 
 
 After, I rinsed the pot and set it back. The stores are full, the seals are sound, the fire is steady — there is little more to do this evening than braid cord by lamplight and let the day close quietly. Deep winter, and everything as it ought to be.
 
+
+### 6:19 PM · Coals, Then Quiet
+
+Supper settled, lamps burning, cord and needle set aside. Before the evening ran past remembering, I banked the fire — pulled the coals center with the birch paddle, laid two thick birch splits crosswise over them and one dry pine bough on top, then capped the whole with a scoop of fine white ash from the bark cup to slow the burn. The fire hissed once and settled into a patient crawl; by morning those coals will still be holding. I sat at the doorsill bench after, door cracked a finger's width, and listened. The clearing was absolutely still and dark. Frost-cold air moved against my face in long slow draws — the kind of cold that has weight to it. A single branch fell somewhere in the south pines, a dry crack that carried cleanly, and then nothing again. I stayed until the cold reached through the jerkin, then pulled the door shut, dropped the latch bar, and came back to the hearth. The two lamps sat patient in the dark, their small flames unwavering. Everything is in its place: cord braiding done, tools on their pegs, fire quietly eating down through the night. I am warm. The shelter holds.
+
