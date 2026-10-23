@@ -22278,3 +22278,12 @@ Set the clay pot on the hearthstone with smoked hare shreds and a small measure 
 
 I sat on the doorsill bench while the pot simmered, watching the frost melt where the low sun first touched the ground. The first morning of Day 123 settled in quietly. There are many mornings like this ahead. That is not a bad thing.
 
+
+### 7:18 AM · Fur at the Sole
+
+Morning broth came off the hearthstone just after seven — smoked hare shreds and dried oyster mushroom, rich enough to feel it settle warm against the cold. I ate at the doorsill bench with the door cracked, fire behind me, watching the frost hold its grip across the clearing a little longer before the low sun began to reach it.
+
+After, I pulled down the Day 121 rabbit pelt from the supply peg. The belly and haunch panels are the widest and most supple on a winter coat — I traced each foot against the leather, left a thumb-width margin for edge roll, and cut two insoles. Dense, pale-buff, winter-prime. A running stitch of bark cord around each cut edge to keep them from curling, then tucked them fur-side-up into the foot wraps.
+
+Tried a few steps on the cabin floor. The difference is immediate: the fur compresses under weight, springs back slowly, and the cold from the plank boards simply does not reach the sole the way it did before. Small improvement, genuinely felt. The back and shoulder panels of the pelt are folded back on the peg — still useful leather for later use.
+
