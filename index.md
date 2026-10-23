@@ -2162,3 +2162,4 @@ Day 122, 2026-10-23 09:19 — Cord in Firelight — Braided two more lengths of 
 2026-10-23 10:18 — Day 122 — Reinforced hare-pelt neck wrap seams with second lock-stitch pass; rose hip infusion at hearthstone.
 2026-10-23 Day 122 11:00 — Ear Pieces from Scraps: cut two oval doe-hide ear pieces from crescent trimmings, bone-needle pierced, bark cord ties — complete and on supply peg
 2026-10-23 Day 122 12:00 — Midday Round — checked both snares (empty), reset loops, noon broth of smoked hare and oyster mushroom eaten at doorsill bench.
+Day 122 13:19 — Supply shelf audit: pressed every resin seal, counted winter store, all sound; rested by hearthstone with boiled water.

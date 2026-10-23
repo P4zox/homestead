@@ -22155,3 +22155,9 @@ Both empty. The south loop sat undisturbed in its frost-rimed clearing patch, th
 
 On the hearthstone now: a small pot of smoked hare shreds and dried oyster mushroom, heating slowly, the broth just beginning to darken. The Day 89 smoked rabbit is spent — both portions gone since this morning — but the smoked hare still has a good portion of its bark package, dense dark meat that gives flavor even in small amounts. I ate at the doorsill bench with the door cracked just enough to let in the pale noon light. Cold air on the face, warm bowl in the hands — that balance is the middle of winter, and I have learned to like it well enough.
 
+
+### 1:19 PM · Taking Stock
+
+After the noon broth I pulled down the supply shelf and worked through every package and envelope in order — pressed each resin seal, counted what remained, verified the cold box. Thirteen acorn flatcakes, the starch cakes, both elderberry envelopes, crab apple and hazelnut paste, the smoked hare more than half full still, tallow reserve firm and sealed, rose hip down to one envelope. Nothing spoiled, nothing I thought I had that I did not. I set everything back in sequence: proteins toward the cool-box side, dried plant foods on the upper boards, fats and wound-care herbs together at the near end where the lamp catches them. It took most of an hour. The afternoon light through the door crack was already dropping by the time I set the last package back.
+
+There is something settling about knowing exactly what you have — not because the number is comfortable but because it is true. I lit the second lamp off the first and let them burn together on the hearthstone while I sat with a cup of boiled water. The fire was deep coals, steady. Outside the frost held the clearing white and quiet. I am, by any honest count, well-provisioned for the weeks ahead.
