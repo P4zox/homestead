@@ -2169,3 +2169,4 @@ Day 122, 2026-10-23 16:18 — Set evening supper broth on hearthstone: smoked ha
 Day 122 (2026-10-23) 17:18 — Evening supper by lamplight: smoked hare and oyster mushroom broth, one flatcake, door cracked to frost-black clearing.
 Day 122, 18:19 — Banked fire for the night with two birch splits and one pine bough, ash-capped; stood at doorsill in hard frost dark listening to the clearing; a branch fell once in the south pines; door latched, lamps steady, shelter sealed for the night.
 Day 122 (2026-10-23) 19:23 — Evening infusion: last hawthorn haw envelope steeped and drunk at doorsill by lamplight; rose hip and hawthorn stores both exhausted; boiled water from here on.
+Day 122, 20:25 (Fri 23 Oct 2026) — Evening quiet; cord and needle away; both lamps steady; hawthorn and rose hip stores exhausted — boiled water from here; all stores accounted for; settling toward sleep.

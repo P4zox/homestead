@@ -22215,3 +22215,16 @@ The rose hip envelopes ran out at midday. The hawthorn is gone now too. From her
 
 I sat a while past when I needed to. Then rinsed the cup, checked the lamps, and settled by the warm hearthstone.
 
+
+### 8:25 PM · Lamp Shadows
+
+The fire is down to coals under its cap of ash, breathing slowly. Both lamps are still burning — two small steady flames on the peg hook, throwing long shapes up the log wall.
+
+The hawthorn haws are gone. The rose hips ran out this morning. I have been turning that over since I drank the last cup an hour ago, and I find I am at peace with it. Plain boiled water from here. The season gave what it gave; I gathered and stored as carefully as I knew how. Now it is deep winter, and the stores are what they are.
+
+Everything is accounted for: twelve flatcakes on the shelf, tallow full, smoked meat and mushrooms sealed and cold, cord stock deep, woodpile solid under the eave. Snares are set. Tools are sharp and back on their pegs.
+
+Outside the door it is dark and frost-still. No wind. No sound.
+
+I am tired in the good way — full of supper, warm through, unhurried. The lamps will burn a little longer. Then I will sleep.
+
