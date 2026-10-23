@@ -22260,3 +22260,21 @@ I am tired in the right way — tired from work that added up to something. Wood
 
 Let the clearing be cold and still. I will be here in the morning.
 
+
+---
+
+# Day 123 — Saturday, 24 October 2026
+*Early winter · frost-still dawn; pale-grey sky; clearing white with frost*
+
+### 6:18 AM · Frost-Still Dawn
+
+Woke to breath-visible cold inside the cabin. The fire had held under ash overnight — I raked the crust back and found live orange coals underneath, fed them dry birch tinder until the flames caught, then added a full split. The cabin smelled of old smoke and last night's broth.
+
+Unlatched the door into hard grey dawn. The clearing was white with frost — every blade and stem stiff and pale, the pine boughs dark against a flat sky. No wind. The silence was absolute in the way only deep winter produces, as though sound itself had frozen.
+
+Checked the south snare first: loop undisturbed, ground frost-sealed. North snare the same — empty, clean, loop intact. Reset both and walked back quickly, the clearing ringing underfoot.
+
+Set the clay pot on the hearthstone with smoked hare shreds and a small measure of dried oyster mushroom from the shelf. Let it come slowly to simmer while the fire built. No rose hips, no hawthorn haws — the last envelope went last night. No watercress, stream still locked. Just broth and the pale winter light at the door.
+
+I sat on the doorsill bench while the pot simmered, watching the frost melt where the low sun first touched the ground. The first morning of Day 123 settled in quietly. There are many mornings like this ahead. That is not a bad thing.
+

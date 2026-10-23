@@ -2173,3 +2173,4 @@ Day 122, 20:25 (Fri 23 Oct 2026) — Evening quiet; cord and needle away; both l
 2026-10-23 Day 122 21:19 — Evening reflection at hearthstone; fire banked, lamps low; winter stores confirmed solid; hawthorn and rose hip exhausted; quiet before sleep.
 Day 122, 22:21 — Night watch closes: lamps trimmed, sleeping bag, stores solid, frost-still clearing — sleep.
 Day 122, 23:20 — Last Light, Frost Still — lying in sleeping bag, lamps guttering, clearing frost-still and silent; settled fully into sleep.
+2026-10-24 Day 123, 06:18 — Frost-Still Dawn: stoked fire from overnight ash; checked both snares at first light (both empty, reset both loops); morning broth on hearthstone (smoked hare shreds, dried oyster mushroom); first morning of deep winter without herb infusions.
