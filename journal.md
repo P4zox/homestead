@@ -22188,3 +22188,12 @@ There is something in starting supper before the last light goes. I can braid co
 
 Outside nothing moves. The jay came at first light and left. Now it is just frost and pines and smoke climbing straight and pale from the roof into a clear cold sky.
 
+
+### 5:18 PM · Supper by Lamplight
+
+The pot had been going an hour — smoked hare shreds gone soft in the broth, oyster mushroom opened and swelling, the cabin holding its warmth against the dark beyond the door. I stirred once with the paddle and lifted the bowl from the shelf.
+
+Ate at the doorsill bench with the door cracked a hand-span to the cold evening air. Hare shreds had gone supple and rich; mushroom thickened the broth enough to coat the bowl. One flatcake broken along the edge. The lamps held steady through the whole meal, smoke rising straight from the chimney into a black and clear sky.
+
+After, I rinsed the pot and set it back. The stores are full, the seals are sound, the fire is steady — there is little more to do this evening than braid cord by lamplight and let the day close quietly. Deep winter, and everything as it ought to be.
+

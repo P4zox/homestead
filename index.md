@@ -2166,3 +2166,4 @@ Day 122 13:19 — Supply shelf audit: pressed every resin seal, counted winter s
 Day 122, 14:19 — Sharpened knife and axe on flat gneiss grinding stone at doorsill bench; both edges honed clean; afternoon still; jay called once from south pines.
 2026-10-23 15:19 Day 122 — East cache checked: all seals sound, stores cold and dry, seep ice-skinned; back inside, fire tended.
 Day 122, 2026-10-23 16:18 — Set evening supper broth on hearthstone: smoked hare shreds, dried oyster mushroom, cold melt-water; long simmer begun into dusk.
+Day 122 (2026-10-23) 17:18 — Evening supper by lamplight: smoked hare and oyster mushroom broth, one flatcake, door cracked to frost-black clearing.
