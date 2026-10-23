@@ -2161,3 +2161,4 @@ Day 122, 2026-10-23 08:00 — Under the Treeline — Gathered two birch lengths 
 Day 122, 2026-10-23 09:19 — Cord in Firelight — Braided two more lengths of two-ply cord by the hearthstone; birch inner bark, morning firelight, winter stillness outside.
 2026-10-23 10:18 — Day 122 — Reinforced hare-pelt neck wrap seams with second lock-stitch pass; rose hip infusion at hearthstone.
 2026-10-23 Day 122 11:00 — Ear Pieces from Scraps: cut two oval doe-hide ear pieces from crescent trimmings, bone-needle pierced, bark cord ties — complete and on supply peg
+2026-10-23 Day 122 12:00 — Midday Round — checked both snares (empty), reset loops, noon broth of smoked hare and oyster mushroom eaten at doorsill bench.

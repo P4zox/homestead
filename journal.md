@@ -22146,3 +22146,12 @@ The grey winter light has not shifted much since morning. I set a bark cup on th
 
 The doe-hide crescent trimmings have been sitting in the scrap pile since autumn — cut away when I patched the foot wraps, too small for anything obvious, too good to waste. At eleven this morning I sorted through them by the hearthstone. Two of the larger crescents were nearly oval, two finger-widths at the wide end: just the shape of an ear if you squint a little. I traced them against my palm and trimmed each to match, then pierced four small holes near the edges with the bone needle — two holes on each piece, spaced for a cord to loop over the top of the ear and another to pass beneath. A length of bark cord through each set of holes, tied and knotted. Took a minute to try them on at the doorsill with the sleeping cap over them. My ears, which have been the coldest part of me on every dawn snare check this week, settled into something close to warm. The pieces are small and plain, but that is fine — the cold does not care what anything looks like. They are on the supply peg now beside the mittens, ready for morning.
 
+
+### 12:00 PM · Midday Round
+
+The noon light in October is a thin thing — barely clears the southern treeline before it starts back down again, more angle than heat, the whole clearing washed in a kind of grey-gold. I went out to check the snares.
+
+Both empty. The south loop sat undisturbed in its frost-rimed clearing patch, the grass around it untouched since dawn. The north hawthorn snare was clean and settled, same as this morning. Yesterday's rabbit is already three meals and a cured pelt — it went quickly and well. I crouched at each snare a moment before resetting, running the cord loop through my fingers to check for frost damage. Both sound. I walked back to the cabin through the stiff frozen grass, boot wraps crunching at each step.
+
+On the hearthstone now: a small pot of smoked hare shreds and dried oyster mushroom, heating slowly, the broth just beginning to darken. The Day 89 smoked rabbit is spent — both portions gone since this morning — but the smoked hare still has a good portion of its bark package, dense dark meat that gives flavor even in small amounts. I ate at the doorsill bench with the door cracked just enough to let in the pale noon light. Cold air on the face, warm bowl in the hands — that balance is the middle of winter, and I have learned to like it well enough.
+
