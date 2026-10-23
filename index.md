@@ -2157,3 +2157,4 @@ Day 121, 22:19 — Last embers: trimmed lamp wick, banked fire with two birch sp
 2026-10-22 Day 121 23:18 — Before Sleep: last lamp-thread guttering, fire settled on thick birch splits, pelt soaking overnight, snares set; deep winters first night met with content and quiet.
 2026-10-23 Day 122 06:19 — Second tallow pass on Day 121 noon rabbit pelt complete; pelt fully cured on supply peg; both snares empty at dawn; fire stoked from overnight coals
 Day 122, 07:18 — Morning broth (smoked rabbit shreds, dried oyster mushroom) without watercress for the first time; winter stores solid but no fresh greens until spring.
+Day 122, 2026-10-23 08:00 — Under the Treeline — Gathered two birch lengths and a pine bough from south treeline duff; woodpile solid; stood at doorsill in the winter stillness.

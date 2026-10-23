@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:19 — Stoked fire from overnight banked coals; checked both snares at first light (south undisturbed, north empty and clean after Day 121 noon catch); reset both loops; worked second tallow pass on Day 121 noon rabbit pelt at doorsill bench — long firm thumb-strokes, flesh side until all panels moved freely; folded fur-side out, hung on supply peg; pelt fully cured, pale-buff and supple.
 07:18 — Cooked morning broth from smoked rabbit shreds and dried oyster mushroom, no watercress (stream sealed, last stems used yesterday); ate by fire with one acorn flatcake — first morning broth of deep winter without fresh greens.
+08:19 — Walked south treeline duff in hard frost; gathered two dry birch lengths and one dry pine bough from under pine overhang; carried back across clearing; added under eave beside kindling row; woodpile stands solid.

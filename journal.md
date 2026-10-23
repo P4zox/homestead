@@ -22120,3 +22120,12 @@ The hearthstone was warm enough by now to set the clay pot directly. I ladled wa
 
 An acorn flatcake on the side, eaten slowly. I am not short of food; the stores are solid. But the absence of green things has its own weight, not hunger exactly, more a narrowing of the palette. Everything now is smoked, dried, preserved. The garden under its mulch, the stream under its ice. Spring is a long way off.
 
+
+### 8:19 AM · Under the Treeline
+
+The morning broth had settled warm in my chest when I pulled on the jerkin and mittens and went out. Frost absolute — every pale stem in the clearing a white sliver, each footfall crisp and clear in the silence. I walked south along the edge of the open ground toward the pines, moving slowly, feeling the cold air find every gap in the layers.
+
+The south treeline duff is dry under the overhang of the pines even in hard frost. Found two good birch lengths and a dry pine bough lying half-sunk in the frozen duff — not buried, just cold-held. Lifted each one easily; the birch heartwood dry and light, the pine bough still holding its shape. Carried them back across the clearing, the cold quiet except for the crunch of frost underfoot.
+
+Added them under the eave beside the kindling row. The woodpile stands firm. I stood at the doorsill after, looking out at the clearing — pale grey sky, the birch trunks white against the dark of the pines, everything still. Deep winter has a kind of clarity to it. The land stripped back to its bones. I found I did not mind standing there a while.
+
