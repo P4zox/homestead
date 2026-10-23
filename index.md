@@ -2172,3 +2172,4 @@ Day 122 (2026-10-23) 19:23 — Evening infusion: last hawthorn haw envelope stee
 Day 122, 20:25 (Fri 23 Oct 2026) — Evening quiet; cord and needle away; both lamps steady; hawthorn and rose hip stores exhausted — boiled water from here; all stores accounted for; settling toward sleep.
 2026-10-23 Day 122 21:19 — Evening reflection at hearthstone; fire banked, lamps low; winter stores confirmed solid; hawthorn and rose hip exhausted; quiet before sleep.
 Day 122, 22:21 — Night watch closes: lamps trimmed, sleeping bag, stores solid, frost-still clearing — sleep.
+Day 122, 23:20 — Last Light, Frost Still — lying in sleeping bag, lamps guttering, clearing frost-still and silent; settled fully into sleep.

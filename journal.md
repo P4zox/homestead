@@ -22247,3 +22247,16 @@ I climb into the sleeping bag and pull the cattail mat edge over my shoulder. Th
 
 Today was full in a quiet way: tools sharpened, stores audited and found sound, the seep cache confirmed cold and sealed, the last hawthorn infusion drunk by lamplight. No snare catch, but the loops are set. What I notice most, lying here, is that nothing is wanting tonight. The woodpile stands, the cabin holds, the tallow will last. That is enough. Let that be the last thought before sleep.
 
+
+### 11:20 PM · Last Light, Frost Still
+
+The lamps are low, wicks barely alive. Through the sleeping bag the cabin holds its warmth — birch smoke, ash, the faint mineral smell of the clay pots. Outside is silence so complete it has texture to it, a cold thick nothing pressing against the bark walls.
+
+I turned once and listened. No wind. No branch-fall. Nothing at all.
+
+The day was full and settled: tallow pass done, stores audited, blade honed, east seep checked. Supper warm in the belly. The rose hip and hawthorn are gone, which is a kind of ending, but boiled water will do. The body knows what it needs now. The fire is down to coals under ash, slow and faithful.
+
+I am tired in the right way — tired from work that added up to something. Woodpile solid. Door latched. Both lamps will gutter and go out before long.
+
+Let the clearing be cold and still. I will be here in the morning.
+

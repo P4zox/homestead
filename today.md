@@ -16,3 +16,4 @@
 20:25 — Cord and needle put away; settled by hearthstone with both lamps burning steady; reflected on the end of hawthorn and rose hip stores — boiled water from here, found calm in it; all supplies accounted for from the 13:19 audit; fire banked under ash; clearing frost-still and dark; settling toward sleep.
 21:19 — Sat quietly at hearthstone in late evening; no task taken up; reflected on the end of hawthorn and rose hip stores and the winter ahead; fire breathing under ash; lamps low and steady; door shut and latched.
 22:21 — Trimmed both lamp wicks to low glow; settled into sleeping bag; fire banked under ash; cabin warm, smelling of birch smoke; clearing frost-still and dark — sleep.
+23:20 — Lay in sleeping bag in deep winter dark; lamps guttering low; fire banked under ash; frost-still clearing; no wind, no sound; settled fully toward sleep.
