@@ -22228,3 +22228,13 @@ Outside the door it is dark and frost-still. No wind. No sound.
 
 I am tired in the good way — full of supper, warm through, unhurried. The lamps will burn a little longer. Then I will sleep.
 
+
+### 9:19 PM · Ash-Capped Night
+
+The lamps are low and even. I've been here at the hearthstone for a while now — not doing anything in particular, just sitting with the fire's ash-capped breathing and the dark. Outside is frost-still. The door is shut and latched; I'm not going back out.
+
+I keep returning to the thought of the hawthorn and rose hip stores being finished. Not with worry — everything else is solid and I counted it this afternoon — but with a kind of quiet acknowledgment. All summer's careful picking carried into this evening, cup by cup. And now it's done. Boiled water from here. Which is fine. The winter asks for plainness and I find I'm ready for it.
+
+One hundred and twenty-two days. The cabin stands sound around me, every wall course and rafter and bark course earned by hand. The woodpile is past the eave. The cold stores are sealed. I have meat and mushroom enough to see deep into winter, and the snares are set for tomorrow.
+
+I'll sleep soundly tonight. The fire will tick down through the ash all by itself. In the morning the coals will be there.
