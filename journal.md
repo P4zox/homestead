@@ -22238,3 +22238,12 @@ I keep returning to the thought of the hawthorn and rose hip stores being finish
 One hundred and twenty-two days. The cabin stands sound around me, every wall course and rafter and bark course earned by hand. The woodpile is past the eave. The cold stores are sealed. I have meat and mushroom enough to see deep into winter, and the snares are set for tomorrow.
 
 I'll sleep soundly tonight. The fire will tick down through the ash all by itself. In the morning the coals will be there.
+
+### 10:21 PM · Night Watch Closes
+
+The hour is late. Both lamps have burned long since dusk, and I have trimmed the wicks down to a low glow — enough to see the cabin walls, no more. The fire is banked under two layers of ash; I will not touch it again before morning.
+
+I climb into the sleeping bag and pull the cattail mat edge over my shoulder. The cabin smells of birch smoke and the last trace of hare broth. Outside, the frost-still dark holds everything in silence — the kind of deep winter quiet where your own breathing is the loudest sound.
+
+Today was full in a quiet way: tools sharpened, stores audited and found sound, the seep cache confirmed cold and sealed, the last hawthorn infusion drunk by lamplight. No snare catch, but the loops are set. What I notice most, lying here, is that nothing is wanting tonight. The woodpile stands, the cabin holds, the tallow will last. That is enough. Let that be the last thought before sleep.
+
