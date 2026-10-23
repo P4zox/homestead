@@ -22168,3 +22168,14 @@ The afternoon light flattens early now — pale through the door crack, no warmt
 
 The grinding is meditative at this hour. The sound low, steady, a little hollow. Sharpness matters in winter more than most seasons — if the axe drags through kindling at first light, the whole morning goes harder. I kept at it until the bevel caught the lamp-light cleanly all the way from cheek to edge. When both tools were dry and put back on their pegs, I sat a while on the bench with nothing in my hands. The lamps burned even. The clearing outside was absolutely still — hard frost and pale sky and silence. A jay called once from the south pines and didn't call again.
 
+
+### 3:19 PM · East Cache Check
+
+The knife was freshly sharp on its peg and the afternoon light still pale but present — two things that told me to move before I talked myself out of it. All the indoor work was done. I pulled on the mittens, dropped the latch bar, and walked east.
+
+Eighty paces across the frost-hard clearing: dead nettle stalks standing stiff and silver, breath white on the still air, no wind at all. The alder-round cache box sat undisturbed under its flat stone weight. I lifted the stone, peeled back the bark lid, and checked everything by feel and nose — all resin seals pressed firm, packages cold and dry, the smoked oyster mushroom still fragrant through the bark wrap, the smoked hare quarter unmoved beside it. Pressed the lid back down and seated the weight.
+
+The seep itself was frozen over — a pale skin of ice the width of my palm at the near edge. Cold enough to hold everything well. I walked back at a pace to stay warm, the clearing stretched wide and grey around me, south treeline a dark band against a pewter sky.
+
+Back inside, added one birch split to keep the fire honest, latched the door. Lamps steady. Everything where it should be for the long night ahead.
+
