@@ -22202,3 +22202,16 @@ After, I rinsed the pot and set it back. The stores are full, the seals are soun
 
 Supper settled, lamps burning, cord and needle set aside. Before the evening ran past remembering, I banked the fire — pulled the coals center with the birch paddle, laid two thick birch splits crosswise over them and one dry pine bough on top, then capped the whole with a scoop of fine white ash from the bark cup to slow the burn. The fire hissed once and settled into a patient crawl; by morning those coals will still be holding. I sat at the doorsill bench after, door cracked a finger's width, and listened. The clearing was absolutely still and dark. Frost-cold air moved against my face in long slow draws — the kind of cold that has weight to it. A single branch fell somewhere in the south pines, a dry crack that carried cleanly, and then nothing again. I stayed until the cold reached through the jerkin, then pulled the door shut, dropped the latch bar, and came back to the hearth. The two lamps sat patient in the dark, their small flames unwavering. Everything is in its place: cord braiding done, tools on their pegs, fire quietly eating down through the night. I am warm. The shelter holds.
 
+
+### 7:23 PM · Last Hawthorn Cup
+
+The fire holds under ash, both lamps steady on their hooks. I had finished the cord braiding, sharpened the tools, checked everything that could be checked — and the evening still had room in it. I found myself at the supply shelf without a task.
+
+I took down the last hawthorn haw envelope. Resin seal still tight, bark crisp. Inside, the haws press together in a dark brick-red cluster, dry and carrying something of the afternoon I picked them — goldenrod going brown at the field edge, the hawthorns heavy with fruit before the hard freeze came. I tipped them into the clay pot with water still warm from supper and let it steep on the flat hearthstone.
+
+Drank it at the doorsill bench, door shut against the cold. The infusion is thin and slightly sour now that the haws are so dry, but there is still something in it — tart and a little woody, the taste of October before October fully closed. Both lamps burned quietly behind me. Outside the clearing was silent: hard frost, dark pines, no wind at all, the sky between the east trees cold and vast.
+
+The rose hip envelopes ran out at midday. The hawthorn is gone now too. From here it will be boiled water for warming and bone broth when the snares give, nothing bright or sweet until spring. That is a small thing against the fullness of the stores — the tallow, the smoked meat, the flatcakes, the mushrooms all sealed and sound. But I noticed it.
+
+I sat a while past when I needed to. Then rinsed the cup, checked the lamps, and settled by the warm hearthstone.
+
