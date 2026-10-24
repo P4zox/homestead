@@ -22365,3 +22365,14 @@ North snare first: empty, loop undisturbed, the duff around it unmarked. Then ea
 The velvet shanks had taken a full hour of low smoke. Caps firmer now, edges slightly crisped, color amber-gold — a proper light cure. I will let the smoke bed run another half-hour, then move them to the cold box. Small store, but honest.
 
 A rabbit at Day 123 is a good thing.
+
+### 5:18 PM · Amber into the Cold Box
+
+Two hours on the rack and the velvet shanks are done — five caps split lengthwise, amber-gold through to the edges, skins just crisping. I lifted them off the lower crossbar one by one, laid them on a flat piece of bark, folded the sides over and sealed the package with a pine pin and a stripe of resin. The smoke bed had burned down to pale ash by then; I scattered it and swept the hearthstone clean.
+
+The fire is good — I fed it two birch lengths from the eave pile and set the grate back in place. The new rabbit is dock-wrapped in the cold box, sitting firm and cold. Tomorrow I will joint it and have the first pot of the week going by morning.
+
+Four kinds of food in the cold box now: the fresh rabbit, the last small measure of smoked hare, the velvet shanks sealed today, and the mushroom stores laid in across the autumn. The oyster supply is spent, but that new bark package of velvet shanks fills the gap.
+
+The clearing has gone dark blue already — short days, hard frost. I latched the door and sat a moment at the hearthstone with the lamps both burning. Still warm in here, still dry, still enough.
+
