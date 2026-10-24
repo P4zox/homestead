@@ -22436,3 +22436,19 @@ I turn once on the cattail mat, pull the sleeping cap down over my ears. The fur
 
 The cabin is deep into dark. One lamp guttered out sometime after I lay down — I did not notice the moment it went; the other still holds a single thread of orange flame at the lip of its cup. The fire is a low bed of coals under white ash, and the warmth from it still carries all the way to the mat. I am not quite asleep and not quite awake, somewhere in between — aware only of the birch-smoke smell, the weight of the sleeping cap, the fur chest panel steady against my sternum. Outside is absolute stillness. No wind, no creature sound. The frost must be total. Tomorrow is the rabbit in the cold box, morning broth, fire stoked from live coals. For now the embers are holding and the night asks nothing of me.
 
+
+---
+
+# Day 124 — Sunday, 25 October 2026
+*early winter · frost absolute; frost-still dawn*
+
+### 6:18 AM · Grey Dawn, Rabbit Broth
+
+Woke into absolute cold and silence, the cabin dark at the edges and my breath visible even in that first grey half-light. Both lamps had burned through the night. The fire was a close-held bed of coals under thick white ash — I could feel it before I could see it.
+
+Blew gently at the hearthstone center until the ash parted on a red glow. Birch bark shreds first, then the smallest dry twigs, then when the flames caught — a split birch length laid carefully alongside. The light came up with the fire and the cabin smelled like morning again.
+
+Retrieved the rabbit from the cold box — the small grey doe from yesterday's south snare, firm and cold from the night. Jointed her at the hearthstone: forelegs clean, hindlegs, loin, and ribs. Everything into the clay pot with water from the bark day-kettle. Set the pot on the hearthstone coals to start the long simmer.
+
+Day 124. Hard winter Sunday. The broth will be ready by full light, and the clearing is quiet and white beyond the door.
+
