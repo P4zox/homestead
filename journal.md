@@ -22355,3 +22355,13 @@ The velvet shanks came off the hearthstone thawed through — caps still amber a
 
 I came back to the doorsill bench and sat with my fur chest panel pulled snug. The afternoon is frost-still, no wind, the kind of cold that sets clean and does not move. Good conditions for a slow smoke — the air will not rush through and steal the heat. An hour, maybe two, and the caps will be amber-dry enough for the cold box. Dusk will tell me when to pull them and check the snares.
 
+
+### 4:18 PM · Dusk Snare Check
+
+The smoke rack had been holding steady for an hour — pale birch-chip smoke, amber-sweet, the velvet shank caps darkening slowly at their split faces. Light was going amber-grey over the western treeline, the kind of winter dusk that closes fast. I pulled on mittens and the fur chest panel and went out.
+
+North snare first: empty, loop undisturbed, the duff around it unmarked. Then east along the treeline to the relocated south snare — the funnel between the two fallen birch trunks. Fifty paces out I saw the loop had pulled taut. A small rabbit, grey-brown, limp and still. The morning move had found the corridor. I reset the loop for tomorrow, dressed the rabbit quickly at the forest edge in the last good light, wrapped the carcass in dock leaves, and came back through the clearing with the cold already close to my face.
+
+The velvet shanks had taken a full hour of low smoke. Caps firmer now, edges slightly crisped, color amber-gold — a proper light cure. I will let the smoke bed run another half-hour, then move them to the cold box. Small store, but honest.
+
+A rabbit at Day 123 is a good thing.

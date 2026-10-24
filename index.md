@@ -2183,3 +2183,4 @@ Day 123 12:18 — Last smoked oyster mushroom package opened; noon broth of hare
 Day 123, 2026-10-24, 13:18 — South treeline firewood run; two birch lengths and pine bough added under eave; dusk snare check ahead.
 Day 123, 14:18 — velvet shank walk along south treeline; found cluster of 8-9 amber caps on half-fallen birch snag, thawing at hearthstone
 Day 123 (2026-10-24) 15:18 — Cleaned velvet shanks, split and set to smoke on rack; small stems simmered with last hare shreds into afternoon broth.
+2026-10-24 16:18 | Day 123 | Dusk snare check — south snare funnel relocation paid off; one rabbit dressed and cold-boxed; velvet shanks amber-gold after one hour birch-chip smoke.
