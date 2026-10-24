@@ -7,3 +7,4 @@
 11:18 — Sat at hearthstone; braided two more lengths of two-ply bark cord by fire in frost-still midday; chest panel warmth steady at sternum; stock healthy; snares waiting for dusk check.
 12:18 — Opened last bark package of smoked oyster mushrooms; simmered with smoked hare shreds in clay pot over hearthstone coals; ate at doorsill bench in frost-still midday — oyster mushroom stores now spent, small amount of smoked hare remains in cold box.
 13:18 — Went to south treeline; pulled two dry birch lengths and one dry pine bough from the duff; stacked under eave bark-side up; pile shoulder-high on lean-to face; dusk snare check ahead.
+14:18 — Walked south treeline looking for winter mushrooms; found cluster of 8-9 velvet shank caps on half-fallen birch snag ~100 paces east near relocated south snare; pulled clean at roots; spread on flat hearthstone to thaw slowly; south snare undisturbed; dusk check ahead.

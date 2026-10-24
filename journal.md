@@ -22337,3 +22337,14 @@ The mushroom cold-store is largely spent now — no more oyster packages after t
 
 The sun is low in the south now, white and without warmth. After the noon broth I sat a while at the hearthstone, then thought of the eave and went out. The south treeline duff yields reliably — birch branches lying where they fell in the autumn gales, bone-dry now under the frost. I pulled two long lengths and a dry pine bough, snapped off the side twigs as I walked back, and laid them bark-side up under the eave. The pile is shoulder-high along the lean-to face now. Two trips, maybe twenty minutes. The clearing was absolutely still throughout — no wind, no sound from the canopy, not even a crow. Just the crunch of boots on frost crust and the cold pressing in at my collar. The fur chest panel held warmth at the sternum the whole while. Back at the hearthstone now with the fire built up. Dusk is a few hours off and the snares are waiting.
 
+
+### 2:18 PM · Velvet Shank Walk
+
+The frost-still afternoon has gone flat and pale, the light thin and sidelong through the pines. I had nothing urgent pressing — firewood stacked, snares set, cord coiled — so I pulled my jerkin tight, fitted the fur chest piece inside against the cold, and walked the south treeline in the last strong early-winter light.
+
+I was looking for velvet shanks. They are winter mushrooms — amber-honey caps on long dark velvety stems — and they push through frost and even a little snow when everything else has quit. They want dead hardwood, damp and cold, and there is plenty of that along the treeline duff. I had found stored ones before, but the last package went into the morning broth weeks ago, and the thought of them had been sitting quiet in the back of my mind ever since.
+
+I walked maybe a hundred paces east along the duff-line, turning over bark shelves, peering under collapsed birch trunks. Old bracket fungi gone leathery, bare grey wood, nothing. Then: a cluster on a half-fallen birch snag near the eastern corridor where I reset the south snare this morning. Eight or nine small amber caps, crowded around the base of the trunk, stems dark and slender and cold. I pulled each one gently, clean at the root, and carried them back in my palm with ice crystals still on the caps.
+
+I spread them on the flat stone beside the hearth to thaw slowly in the fire-warmth. The south snare loop was clean and undisturbed as I passed it. The dusk check will come soon enough. For now I sit at the hearthstone and watch the ice melt from the caps, one small thing found in a grey afternoon, and it is enough.
+
