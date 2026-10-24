@@ -22287,3 +22287,16 @@ After, I pulled down the Day 121 rabbit pelt from the supply peg. The belly and 
 
 Tried a few steps on the cabin floor. The difference is immediate: the fur compresses under weight, springs back slowly, and the cold from the plank boards simply does not reach the sole the way it did before. Small improvement, genuinely felt. The back and shoulder panels of the pelt are folded back on the peg — still useful leather for later use.
 
+
+### 8:18 AM · Reading the Frost
+
+The fur insoles made the first difference from the doorstep — a quiet warmth underfoot that I felt with every step. I pulled the latch bar and walked out into the hard white morning with that small comfort and nothing much else.
+
+I went south along the treeline, moving slowly. The frost near the cabin was smooth and unmarked, but twenty paces into the birch shadow the ground changed. Two sets of prints ran parallel — small, close-spaced, then a long pause-gap, then running again. Rabbit, moving before first light, heading from the dense birch stand toward the seep hollow on the eastern edge. The trail was several hours old and perfectly preserved in the cold.
+
+I followed it east along the base of the slope until it disappeared into alder brush near the bent-alder bank. The direction was clear: there is movement through the eastern corridor. The south runs have gone quiet.
+
+I reset the north snare first — loop dropped two hand-spans lower, over a shallow hollow in the deadfall where the prints briefly concentrated, as if the animal paused there. Then I moved the south snare entirely: fifty paces east along the treeline, at the mouth of a natural funnel between two fallen birch trunks where several sets of prints came together. That is where they are moving.
+
+An hour in the cold. The cabin smoke was visible through the birch, thin and dead-straight in the still air. I came back with cold hands and a clearer sense of where the winter rabbits walk.
+
