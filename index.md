@@ -1,3 +1,2190 @@
 # index.md — one line per action; the searchable map of the past
 # (read only when recalling something specific)
 
+2026-06-24 Day 1 19:00 — Tested stream water by boiling; assessed it likely safe. First fire lit. Water source secured.
+2026-06-24 Day 1 20:00 — Cooked and ate supper by the fire; counted supplies (3–4 days food); planned site-scouting for morning.
+Day 1, 2026-06-24 20:00 — Evening: banked coals, watched stars, checked tent and gear; committed to scouting shelter site at dawn.
+2026-06-24 21:05 — Day 1, evening: settled in the tent; quiet reflection on the first night; listening to the stream and the forest
+2026-06-24 22:05 — Day 1, 10:05 PM: Last waking hour; lying in tent listening to the stream; reflecting on tomorrow's scout; settling toward sleep.
+2026-06-24 23:06 — Day 1 — Last waking hour; lay in tent listening to stream and stars; resolved to scout the clearing edge at first light; settled toward sleep.
+2026-06-25 Day 2 06:05 — Scouted the full clearing edge at first light; chose the shelter site on the northwest rise — firm ground, pines for windbreak, south-facing light, thirty paces from stream; marked it and returned to camp with the axe ready.
+2026-06-25 07:05 — Day 2 — Felled first pine at the shelter site; ~3 m of usable log, limbed and on the ground.
+2026-06-25 08:05 — Felled and limbed second pine (~3.5 m usable); two logs on the ground at shelter site.
+2026-06-25 09:05 — Day 2 — Felled and limbed third pine (~3.5 m); three logs on the ground, ~10 m usable timber at shelter site.
+2026-06-25 10:05 — Day 2: felled and limbed fourth pine (~3.5 m trunk); four logs (~13.5 m total) at shelter site.
+2026-06-25 11:05 — Day 2 — Felled and limbed fifth pine; ~17 m timber now on rise at shelter site.
+2026-06-25 Thu 12:00 (Day 2) — Felled sixth pine; designated ridge pole; six logs (~21 m) now at shelter site.
+2026-06-25 13:04 — Day 2 — Felled seventh pine (~3.5 m); 24.5 m total on the rise; ready to begin notching the wall frame.
+2026-06-25 14:05 — Day 2 — Notched first two base logs; set them in position as northeast and southwest wall plates; first corner of the log frame is fitted.
+2026-06-25 15:05 — Day 2 — Notched and seated NW and SE base plates; first full course of wall frame closed — four corners, complete rectangle.
+Day 2, 2026-06-25, 16:04 — Second Course, First Lift: rolled the fifth pine up skid ramps onto the first course; notched and seated the NE-SW second-tier plate; timber running low — more felling needed tomorrow.
+2026-06-25 17:04 Day 2 — Rolled and seated spare log as NW-SE second-course plate; second full course of wall frame complete (mid-shin height, perimeter closed).
+2026-06-25 18:04 — Day 2 · Cooked supper inside the frame footprint; food supply down to 1–2 days; plan to fell logs and forage tomorrow.
+2026-06-25 19:04 — Day 2 — Walked to the stream at dusk; rigged a simple fishing line overnight baited with a grub; left it in the current pool below the bend.
+2026-06-25 20:06 — Day 2, 8:06 PM: Tended evening fire; gathered night firewood; settled inside the log frame under stars; banked coals for sleep. (Fire, Then Stars)
+2026-06-25 21:05 Day 2 — Settled inside the log frame at night, reflected by banked coals under clear stars; fishing line still out; tomorrow: check line, fell more logs, forage.
+2026-06-25 22:05 — Day 2 · Sharpened axe by banked fire; ready for tomorrow's log felling
+2026-06-25 Day 2 23:06 — Settled into the log frame for the night; reflected on tomorrow's tasks (fishing line, more logs, foraging); food supply thin at 1–2 days.
+2026-06-26 06:04 Day 3 — Checked overnight fishing line at dawn; caught one small trout; cooked and ate it for breakfast; food situation eased slightly.
+2026-06-26 07:04 — Day 3: Felled 2 more pines on northwest slope (9 total); limbed and left with skid poles laid out; third course timber within reach.
+2026-06-26 08:06 — Day 3 — Hauled both logs from slope to shelter site on skid poles; third course ready to lay.
+2026-06-26 09:04 — Day 3: Notched and seated east and west wall logs; third course now two-sided at hip height; north and south ends to follow this afternoon.
+2026-06-26 10:04 — Day 3 — Notched and laid north and south wall logs; third course closed all around at hip height; 5 logs remaining at site.
+2026-06-26 11:04 — Day 3 — Laid east and west wall logs for fourth course; walls rising toward chest height; 3 logs remain at site.
+2026-06-26 12:04 — Day 3 noon: walked to the stream; set fishing lines over the gravel bar; first quiet hour after hard morning work.
+2026-06-26 13:04 — Day 3: checked fishing lines; caught a creek trout (~½ lb); re-set snagged second line upstream on clean gravel; food extended to ~2 days.
+2026-06-26 14:05 — Day 3 — Completed fourth course: north and south end walls laid; all four log walls now at shoulder height, perimeter fully closed.
+2026-06-26 Day 3 15:04 — Cut two Y-forked posts (dead birch and young pine) for ridge support; hauled to shelter site; tested height against end walls — fork rise good for roof pitch.
+Day 3, 16:05 — Seated both Y-forked posts at north and south end walls; ridge support complete; ridgepole haul next.
+2026-06-26 17:06 — Day 3 — Ridgepole hauled downslope and laid into Y-fork posts; roof line complete in structure; rafters next
+Day 3, 18:04 — Cooked creek trout over evening fire; ate supper beneath the ridgepole; banked fire and set overnight fishing line; noted roof nearly close-able.
+2026-06-26 19:05 — Day 3, 7:05 PM: Walked northwest stand in last amber light; blazed ten straight young pines as rafter stock; returned by near-dark; rafter poles ready for morning.
+2026-06-26 20:07 — Day 3 · Prepared bark-strip lashing cord by firelight; ten rafter pines blazed in northwest stand, ready for dawn; roof frame expected tomorrow.
+2026-06-26 21:06 — Day 3, evening — Settled under the ridgepole; fire banked; rafter work at first light
+2026-06-26 22:05 — Night waking beneath the ridgepole; lay still watching stars through the roof frame; rafters blazed and ready in northwest stand.
+Day 3, 2026-06-26 23:06 — Lay awake in the log frame beneath the stars; ran the rafter plan once more in the dark; let the quiet settle and slept.
+Day 4, 2026-06-27, 06:05 — Three Rafters Felled: new day rollover; fishing line empty at dawn; walked to northwest stand; felled and limbed 3 of 10 blazed rafter pines; roof frame work underway.
+2026-06-27 07:04 Day 4 — hauled 3 rafter logs down from the northwest stand to the shelter site; roof frame advancing
+2026-06-27 08:06 — Day 4 — Felled and limbed 3 more rafter pines in northwest stand; 3 on hillside ready to haul, 4 blazed pines remain standing.
+2026-06-27 09:04 — Day 4 · Hauled 3 rafter logs from hillside; 9 of 10 now at shelter site, 1 blazed pine still standing.
+2026-06-27 Day 4 10:04 — Felled last blazed rafter pine; hauled to shelter site; all 10 rafter logs now at cabin walls, ready for notching and seating.
+2026-06-27 11:04 — Day 4 — began notching rafters; first two saddle-notched and seated on ridgepole and top wall log; eight remain
+Day 4, 12:04 PM — Noon notching; three more rafters seated; five of ten now up on ridgepole and wall logs.
+2026-06-27 Day 4 13:04 — All 10 rafters notched and seated; full rafter frame complete over log walls and ridgepole.
+2026-06-27 14:05 — Day 4 — First six birch cross-purlins cut, hauled, and lashed across rafter frame; roof lattice begun.
+Day 4, 2026-06-27 15:04 — Laid final six cross-purlins; twelve-purlin grid complete; roof lattice fully closed over ten-rafter frame.
+Day 4, 2026-06-27 16:04 — Harvested first batch of birch bark sheets from east-edge stand; ~two dozen sheets rolled, tied, and stacked at shelter; roof waterproofing ready to begin.
+2026-06-27 17:04 — Day 4: began roofing — first two bark courses laid on east slope eave-first, lashed to purlin grid; bark roofing underway
+2026-06-27 18:04 — Day 4 — Laid three more bark courses on east slope; five courses sealed from eave to mid-span; ~8 sheets remaining; lashing cord nearly depleted.
+2026-06-27 19:04 Day 4 — Set overnight fishing line in stream; peeled birch bark into lashing cord by firelight; east slope half-roofed (5 of ~10 courses), cord partially replenished.
+Day 4, 2026-06-27, 20:05 — Second evening of bark-strip peeling by firelight; cord bundle substantially replenished; east slope roofing prepared to resume at dawn.
+2026-06-27 21:04 Day 4 — Laid remaining eight bark sheets onto east slope by firelight; three more courses (six–eight); east slope three-quarters sealed.
+Day 4, 2026-06-27 22:04 — Sat by coals in late evening; looked up through open west slope at stars; east slope three-quarters sealed; reflected on structure and plans; fishing line set in stream; sleep soon.
+2026-06-27 23:04 — Day 4 · Night Settles: lay in sleeping bag inside log walls; coals out; stars through open west slope; reflected on the day — all ten rafters, twelve purlins, eight bark courses sealed; sleep.
+2026-06-28 06:04 — Day 5 dawn: fishing line came up empty again; re-baited and reset; east slope bark work is today's task
+Day 5, 07:04 — Harvested nine bark sheets from birch stand (east clearing edge); foraged wild garlic; sheets sorted and ready at shelter site.
+2026-06-28 Day 5 08:00 — Laid remaining bark courses on east slope; east roof face now fully sealed eave to ridge; ridge cap lashed.
+2026-06-28 09:04 — Day 5 · Forest edge forage: nettles, dandelion root, wild garlic — boiled green soup eaten; first real meal in two days; fishing line still set; west slope bark work ahead.
+2026-06-28 10:04 — Day 5 — Scouted west clearing edge; peeled six large bark sheets from two birch; hauled to shelter; west slope bark work begun.
+Day 5, 11:04 AM — Lashed six west-slope bark sheets as first two eave courses; west slope bark begun, eave covered
+Day 5, 12:04 PM — Checked fishing line at noon; caught a small trout, first fish — cooked on green-stick frame over coals; ate well; re-baited and reset line.
+2026-06-28 13:04 — Day 5 — Peeled third west birch (5 sheets); lashed 3rd and 4th eave courses on west slope — four courses sealed, upper half still open.
+Day 5, 2026-06-28 14:00 — Scouted 70m into west tree line; found two untouched mature birch; peeled eight large bark sheets in two trips; hauled all back to shelter — eight sheets staged at west-slope base.
+Day 5, 2026-06-28 15:00 — Lashed eight staged sheets as three more west-slope courses; seven courses total, upper slope three-quarters closed; two courses to the ridge.
+Day 5, 16:04 — Checked fishing line; second small trout caught, cooked, and eaten; re-baited for overnight; west slope nearly closed.
+2026-06-28 17:04 Day 5 — Walked to west tree-line birch; peeled seven final bark sheets; hauled to shelter and staged at west-slope base — final lashing imminent.
+2026-06-28 18:04 Day 5 — Lashed final west-slope bark courses and ridge cap; shelter roof now fully closed on both slopes; a real roof over log walls at last.
+Day 5, 19:04 — First evening inside completed shelter; small fire on shelter floor, back against west log wall; first time sitting fully enclosed; end walls open above log course (next task); fishing line set overnight.
+Day 5, 2026-06-28, 20:06 — Cord by Firelight: braided new lashing cord by firelight; studied open gable triangles; planned tomorrow's end-wall sealing; banked coals and settled in to sleep under completed roof for first night.
+Day 5, 21:04 — Stepped outside into the cool dark; stood under clear sky with Scorpius south; listened to the pines through open gable triangles; settled back into sleeping bag for first full night inside completed shelter.
+2026-06-28 22:04 — Day 5 — Lay in sleeping bag inside completed shelter; listened to the stream and one owl through open gable triangles; reflected on four days of building; coals banked, fishing line set for dawn, drifting to sleep.
+2026-06-28 23:04 — Day 5 · Into Sleep — drifted toward sleep in completed shelter; coals warm, gable triangles open, fishing line in stream; tomorrow: seal end walls, food stores
+Day 6, Jun 29 2026, 06:04 — Checked overnight fishing line at dawn; pulled a small trout; cooked and ate first breakfast inside completed shelter; gable triangles and food stores next.
+2026-06-29 07:04 Day 6 — Cut birch withies in west tree line; drove six wattle stakes into east end-wall top log — gable wattle frame set, ready to weave.
+Day 6, 2026-06-29, 08:08 — Began weaving horizontal withies into east gable wattle; lower courses filling in, triangle slowly closing from the base.
+2026-06-29 09:04 — Day 6 — Continued east gable wattle; three hand-spans woven solid; lower third of triangle closed; wren visited the open gable.
+2026-06-29 10:04 — Day 6 — Triangle Closing — east gable wattle weave through middle section; two-thirds of triangle now solid; one spread-hand gap left to apex
+2026-06-29 11:04 — Finished east gable wattle; trimmed final withies thin to thread apex; triangle sealed eave to ridgepole, tight and complete.
+2026-06-29 12:04 — Day 6, noon: drove six pointed stakes into west end-wall top log — west gable wattle frame set; weave to follow.
+2026-06-29 13:04 — Day 6: began horizontal withy weave on west gable wattle; lower courses locked in, triangle starting to close from the base
+2026-06-29 14:06 — Day 6 — West gable wattle two-thirds woven; middle courses locked in, upper third remaining
+2026-06-29 15:06 Day 6 — West gable wattle completed; shelter fully enclosed on all sides — both triangles sealed eave to ridgepole.
+2026-06-29 16:06 — Day 6 — Measured and trimmed the entrance gap; fitted the lintel log across the doorposts with wooden pegs; door frame opening now boxed and ready for a door.
+2026-06-29 Day 6 17:05 — Split two rough door planks from a dead pine near the west tree line; hauled inside to dry.
+Day 6, 2026-06-29 18:06 — Evening trout pulled from line; cooked supper inside the enclosed shelter; line re-baited and reset overnight; no stores yet but fed and warm.
+Day 6, 2026-06-29, 19:05 — Carved first rough wooden hinge block by firelight from heartwood doorpost off-cut; second block marked; door planks still drying.
+Day 6, 2026-06-29, 20:07 — Carved second hinge block mortise by firelight; both hinge blocks now matched and roughed to shape.
+2026-06-29 21:07 Day 6 — Carved two pivot pins from heartwood offcut by firelight; both seat cleanly in their hinge-block mortises; door hardware nearly complete.
+Day 6 [2026-06-29 22:06] — Quiet vigil by dying coals; traced the full door-hanging sequence in mind; laid hardware out on flat stone for first light.
+Day 6, 23:06 — Lay in the sleeping bag by banked coals; ran through tomorrow's door-hanging sequence in mind; shelter fully enclosed; settled into sleep.
+Day 7, 2026-06-30 06:04 — First light of Day 7; tested door planks for dryness; began face-flattening with axe; door construction underway.
+2026-06-30 07:05 Day 7 — Continued door construction: first plank fully face-flattened, second begun; both planks near-matching; hinge hardware waiting; mist lifted, clearing bright.
+Day 7, 2026-06-30 08:06 — Cut both door planks to exact door height; both fill the opening side to side; ledger board next.
+Day 7 · 2026-06-30 09:04 — Ledger board shaped from birch offcut (door-width, flat both faces); four peg marks scribed across both planks at mid-height; boring and pegging planned for afternoon.
+Day 7, 10:04 AM — Bored four peg mortises through ledger and planks using knife-point and heated wire; drove green-birch pegs; ledger now fixed at mid-height — door assembly holds as one piece.
+2026-06-30 11:04 — Day 7 — Bored pivot-pin mortises, mounted hinge blocks, hung door on pivot pins — shelter now has a working door
+Day 7 (2026-06-30) 12:05 — Latch bar cut from birch heartwood, keeper groove bored in west doorpost, bar hung on pivot peg; drops clean and holds door shut. Shelter fully complete.
+Day 7, 2026-06-30, 13:04 — Checked overnight fishing line at mossy stream cleft; caught small trout; cooked and ate midday in shelter doorway; reset bait; began planning cold-storage box near stream bank.
+2026-06-30 14:06 · Day 7 — scouted cold-storage box site in stream-bank seep; four stakes driven, clay recess opened, first pine log hauled to site
+2026-06-30 15:06 — Day 7 — Cold-storage box: recess deepened to elbow depth, three log walls fitted on flat-stone base at stream-bank seep
+Day 7, 2026-06-30, 16:05 — Completed cold-storage box: front wall log fitted and tapped flush, bark lid lashed over birch crosspieces and weighted with flat stone; box sealed in cold seep and noticeably cool inside.
+Day 7, 2026-06-30 17:05 — Foraged wild garlic, wood sorrel, dandelion crowns, and chanterelles along forest margin and birch deadfall; first proper gathered meal laid out for supper.
+2026-06-30 18:05 Day 7 — Cooked first proper foraged supper (chanterelles, wild garlic, sorrel, dandelion crowns); surplus stored in cold box; evening settled over clearing.
+2026-06-30 19:05 — Day 7, evening: sat in doorway watching darkness take the clearing; planned smoke rack design by firelight; scored cut marks on birch offcut for upright sizing; plan solidified — four forked uprights, ridgepole, lashed crossbars; building waits for dawn.
+2026-06-30 20:06 Day 7 — twisted six lengths of two-ply bark cord by coallight; lashing prep for smoke rack; coals banked, ready for dawn build.
+2026-06-30 21:07 — Day 7, evening: lying in shelter after banking coals; counted seven days; lashing cord ready; smoke rack planned for dawn.
+2026-06-30 22:05 — Day 7 — Lay in the latched shelter; nightjar went quiet; last thoughts before sleep — smoke rack at dawn.
+2026-06-30 23:06 — Late night; shelter dark and still, nightjar silent, only the stream; smoke rack planned for first light. [Day 7]
+[2026-07-01] Day 8, 6:05 AM — First Light Check: overnight trout found on line at dawn; cleaned and stored in cold-storage box for smoking; fire kindled; smoke rack build begins this morning.
+2026-07-01 07:05 — Day 8: Cut four Y-forked birch uprights at forest margin; drove them into ground south of shelter — smoke-rack frame now standing, trout awaiting smoke.
+Day 8, 08:05 — Smoke rack completed: ridgepole laid in upright forks, three birch crossbars lashed with six bark-cord ties; rack ready; trout awaits smoking.
+2026-07-01 09:05 Day 8 — Trout hung on smoke rack; green birch banked over coals; first smoking begun; tending fire through mid-day.
+2026-07-01 10:04 — Tended smoking fire; discovered workable gray-blue clay deposit at stream bank bend (~10–15 paces of exposed face); trout bronzing well on rack.
+2026-07-01 11:04 — Day 8 — Tended smoking fire; rotated trout on rack (nearly two hours in, skin bronzing well); kept coals low with green birch; thinking ahead to clay-hearth harvest this afternoon.
+Day 8 · 2026-07-01 · 12:05 — Noon trout inspection: skin bronzed but shoulder still yields; extended smoke cure to ~14:00; gathered cook-tin of gray-blue clay from stream bank for indoor clay hearth.
+2026-07-01 13:05 — Day 8 — Worked clay for hearth pad: kneaded to remove air pockets, pinched three-sided back/side wall up on flat bark, shaping done; trout still on rack (pulls ~14:00)
+2026-07-01 14:07 — Day 8 — Pulled cured trout from smoke rack after five hours (skin deep amber); stored in cold-storage box; finished shaping clay hearth pad; set to dry in doorway shade.
+2026-07-01 15:05 — Day 8 — Returned to chanterelle patch at birch deadfall; cut thirty-plus golden caps and extra sorrel from sunlit gap; spread to air on bark sheet — some for supper, rest to dry over coals tomorrow.
+Day 8 (2026-07-01) 16:05 — Sorted chanterelles; rekindled fire; cooked supper (chanterelles, wild garlic, sorrel) in the cook tin; ate in doorway as light turned gold; remaining chanterelles laid out to air overnight for tomorrow's smoke-drying.
+2026-07-01 17:05 — Day 8 — Reset overnight fishing line at mossy cleft; gathered deadfall for morning; checked cold-storage box (trout firm); smoothed cracked rim of clay hearth pad and covered to slow drying.
+Day 8, 18:05 — Evening cord-twisting at shelter door as dusk settled; nightjar in the treeline; fire banked to coals; chanterelles checked — still pliable, right for one day's air; homestead latched and quiet.
+2026-07-01 19:05 Day 8 — Finished second bark cord by firelight; nightjar calling; shelter latched and quiet for the night.
+2026-07-01 20:05 (Day 8) — Resting inside latched shelter by low coals; nightjar calling from pines; reflected on a full week of building; planned tomorrow (smoke-dry chanterelles, check clay pad, check fishing line).
+2026-07-01 21:05 — Day 8: lay inside latched shelter by dim coals as nightjar called; felt shelter hold around me; drifted toward sleep.
+2026-07-01 22:05 — Day 8, 10:05 PM — Coals to Ash — shelter holding through deep night; everything settled; sleep
+2026-07-01 23:05 Day 8 — Night Holds Still — deep night; surfaced briefly in sleep; shelter held, forest quiet, coals ash; drifted back.
+Day 9 (2026-07-02) 06:05 — Dawn line check: second trout caught, cleaned, and cold-stored; fire rekindled from flint and steel after coals went fully to ash; chanterelles to go on smoke rack when coal bed is ready.
+Day 9, 07:05 — Smoke-drying begun: thirty-two chanterelle caps arranged on rack over green birch coal bed; smoke rising steady.
+Day 9, 08:05 — Smoke rack checked and birch boughs refreshed; chanterelles showing first drying progress after one hour; mist lifting from the upper clearing.
+Day 9, 2026-07-02 09:05 — Eight thin chanterelle caps smoked to amber and stored; twenty-four large caps continuing on rack.
+2026-07-02 10:05 — Day 9 — Smoke rack check hour 3: large chanterelle caps amber and firming; boughs refreshed early; coal bed steady.
+2026-07-02 11:05 Day 9 — Checked smoke rack (four-hour mark); four moderately-thick caps pulled and cold-stored (twelve total); twenty large caps remain; boughs refreshed; midday warmth building.
+2026-07-02 12:05 — Day 9 — Checked smoke rack at five-hour mark (boughs refreshed, smoke restored; twenty large caps surfaces deep amber, edges leathery, thick centers still pale — full cure expected mid-afternoon); checked clay hearth pad at midday (edges hard and gray, core still soft — one more full day).
+Day 9, 13:05 — Checked smoke rack at six-hour mark; large caps firming at center, papery at rim on smaller ones; boughs refreshed, smoke restored; full cure expected ~14:00–15:00; clay hearth pad still soft at core.
+Day 9, 14:05 — Pulled final twenty large chanterelle caps from smoke rack; all fully cured after seven hours — thirty-two smoked-dry caps now in cold-storage box.
+2026-07-02 15:05 — Day 9 (Thu) — Rested at stream eddy in birch shade; watched water strider on still pool; afternoon free after smoke-drying complete.
+2026-07-02 16:05 — Day 9 — Rekindled fire after afternoon rest; cooked fresh trout with wild garlic and sorrel; clay hearth pad still curing in shade
+Day 9, 17:05 — Ate supper at cabin door (trout, garlic, sorrel); hearth pad edges now hard and pale, center faintly cool — one more night before firing; fishing line reset in mossy cleft; twisted third bark cord by evening light; fire let die to ash; everything cold-stored; planning clay firing for Day 10.
+2026-07-02 18:05 | Day 9 · Dusk | Gathered dry pine fuel and birch bark kindling for Day 10 clay-pad firing; stacked under south cabin eave — all ready for morning.
+2026-07-02 19:05 Day 9 — Sat in doorway twisting a fourth bark cord as dusk fell; four stars overhead; mind on tomorrow's clay-pad firing; latched up for the night.
+Day 9, 20:05 — Evening inside the latched cabin; planned tomorrow's clay-pad firing sequence and weighed future cookfire options; night clear and stream quiet.
+2026-07-02 21:05 Day 9 Thu — Night Deepens — lying in sleeping bag as cabin goes fully dark; stream loud in the night; mind quieting toward sleep; tomorrow: fire the clay hearth pad at dawn
+2026-07-02 22:05 Day 9 — Deep Night, Drifting — late night in latched cabin; night past the half; sleep arrived; tomorrow: fire the clay hearth pad.
+Day 9, 2026-07-02, 23:05 — Sleep arrived; day 9 complete; chanterelles cured and cold-stored, fuel stacked, clay pad drying its last night before morning firing.
+2026-07-03 Day 10 06:05 — Clay hearth pad firing begun; fire kindled from stacked pine; pad warming at east edge of slow coal bed; watching for cracks
+Day 10 (2026-07-03, 07:05) — Checked overnight fishing line; caught small trout and ate it fresh at the streambank for breakfast; clay pad two hours in with outer face warming to cream, no cracks; fire tended with added pine splits; line reset.
+Day 10, 08:05 — Clay hearth pad at two hours: steam nearly gone, outer face shifted to buff-tan, no cracks; moved pad closer to coals and built fire up around it to raise temperature.
+2026-07-03 09:05 — Day 10 — Tended clay hearth pad firing (3 hrs); color shifting buff-tan to orange; no cracks; coal bed solid beneath; fire sustained through morning.
+2026-07-03 10:05 — Day 10: Clay hearth pad firing complete — terra-cotta color, rings when tapped; cooling at fire edge; first fired clay object on the homestead.
+2026-07-03 11:05 Day 10 — Carried fired clay hearth pad inside to northwest corner of shelter; first permanent clay object installed indoors
+2026-07-03 12:05 — Day 10 noon: waded stream bend, collected twelve flat river stones; dry-fitted hearth surround (east+west upright slabs + north back stone, open south face); northwest gable gap identified as smoke exit path.
+2026-07-03 Day 10 13:00 — Widened and cleaned northwest gable gap; smoke exit path confirmed clear; first indoor fire now possible.
+Day 10, 14:05 — Bark rain-flap (three overlapping birch strips lashed to rafter tails) fitted over northwest gable gap; smoke exit now weatherproof, draft preserved.
+2026-07-03 15:05 — Day 10 — Mortared hearth surround stones with clay-mud; hearth now permanent; first indoor fire planned for evening.
+2026-07-03 16:05 — Day 10 — First indoor fire trial burn: clay hearth, mortar surround, gable gap, and bark rain-flap all confirmed working; smoke drew clean through northwest gable on first try; draft holds; will cook supper on hearth this evening.
+2026-07-03 17:04 Day 10 — Cooked first supper on the clay hearth; chanterelles, trout, wood sorrel in the tin; draft held clean; shelter now home.
+2026-07-03 18:04 [Day 10] Walked to stream at dusk; fishing line stripped clean; cut fray, retied, re-baited with earthworm; returned to warm shelter; fire tended through evening.
+2026-07-03 19:05 Day 10 — Hearthside, First Night: evening cord-twisting (three-ply test) by firelight; reflected on day and future plans (root cellar, winter stores); stars through gable gap; night fully set.
+2026-07-03 20:05 — Day 10 evening: Sat by hearth coals planning root cellar; chose north-facing bank behind shelter for site; roughed out dimensions (3×6×3 ft, log-lined, bark lid); plan to begin digging at dawn tomorrow.
+2026-07-03 21:05 — Day 10, 9:05 PM · Last Embers — banked coals, latch down, fishing line out; root cellar planned for dawn.
+2026-07-03 22:05 — Day 10 · Night Hold — lay in sleeping bag by banked coals; reflected on root cellar plan; let the stream sounds carry into sleep.
+2026-07-03 Day 10 23:05 — Woke briefly in deep night; shelter warm, coals at low glow, one star in gable gap; stream steady; root cellar plan settled in mind; sleep reclaimed before another thought formed.
+2026-07-04 Day 11 06:05 — Woke to held coals; walked barefoot to the eddy; overnight line taut — proper trout lifted from the slow current at dawn; root cellar digging begins this morning on the north-facing bank.
+Day 11, 07:05 — Cooked morning trout; broke first ground on root cellar — north bank outlined and top sod stripped.
+Day 11, 2026-07-04 (Sat): 8:05 AM — Root cellar first real depth; axe-and-hand digging; two hand-spans down across full footprint; walls holding shape.
+Day 11, 09:04 — Root cellar reached three hand-spans depth; soil character changed below two-and-a-half spans; walls holding shape; past halfway.
+2026-07-04 10:05 — Day 11, root cellar dig — four hand-spans depth across most of the footprint; one span remaining to three-foot mark; firm mineral-layer soil holding walls clean; cool air rising from the cut.
+Day 11 (2026-07-04) 11:05 — Root cellar brought to full three-foot depth across complete footprint; dig finished; walls sharp and holding in mineral layer; cool air pools in cut.
+2026-07-04 Day 11 12:05 — Cut drainage channel at downhill end of root cellar; axe-scored groove two fingers wide and deep, running four paces out to open bank face; tested with water — drains cleanly; flat-stone floor next.
+2026-07-04 13:05 Day 11 — Hauled flat stream stones; uphill third of root cellar floor paved (nine stones, seated true on packed mineral soil)
+2026-07-04 14:05 — Day 11 — Root cellar floor middle third paved; eighteen flat stream stones bedded; two-thirds complete.
+2026-07-04 15:05 (Day 11) — Completed root cellar floor: paved downhill third, all twenty-seven flat stones set true; floor fully done.
+Day 11, 16:05 — Root cellar entrance posts notched and set into bank lip; entrance framed; lintel next.
+2026-07-04 17:05 (Day 11) — Lintel Set: shoulder-seated pine crossbar across root cellar uprights; entrance fully framed and holding.
+2026-07-04 18:05 (Day 11) — Lid Over the Dark: bark-covered lid constructed for root cellar entrance; four strips lashed shingle-fashion over two birch crosspieces; lid fitted and weighted with flat stones; cellar now sealed.
+Day 11, 19:05 — Cut and soaked thirty-two birch withies for root cellar inner wall lining panels; withies bundled at stream edge overnight.
+2026-07-04 20:04 — Day 11 — Reset overnight fishing line at eddy; settled hearthside; twisted bark cord by firelight; withies soaking for tomorrow's wattle panels.
+2026-07-04 (Day 11, 21:05) — Evening: twisted two more two-ply bark-cord lengths by the dying hearthfire; withies soaking at stream edge for tomorrow's root cellar wattle panels; sleep soon.
+2026-07-04 22:04 Day 11 — Stepped out to the starlit doorstep before sleep; root cellar complete; withies soaking; coals at embers; latch bar down.
+Day 11 [2026-07-04] 23:05 — Night quiet; lying in sleeping bag after the root cellar day; withies soaking; overnight line set; drifting toward sleep.
+2026-07-05 06:05 Day 12 — Woke at dawn; retrieved soaked birch withies from stream edge (thirty-two, pliable); overnight line bare, reset; hearth rekindled; began Day 12 with wattle panel weaving as the morning's work.
+Day 12, 07:04 — Wove first wattle panel (north wall, full length, two feet high) from sorted birch withies; stakes driven into floor-stone gaps, fine withies woven over-under; panel holds firm against excavated bank; seven fine withies remain for east wall panel.
+Day 12, 08:05 — Cut forty-two fresh birch withies from coppiced stand upslope; set to soak at stream edge for east root-cellar wall panel (afternoon weaving).
+2026-07-05 09:04 Day 12 — gathered clay from stream-bend seep; mixed sedge-grass-and-pine-needle daub; test-packed north wattle panel — seats firm; east wall panel weaving to follow once withies ready
+Day 12, 2026-07-05, 10:05 AM — Retrieved soaked withies from stream pool; drove stakes and began east wall wattle weaving in root cellar
+Day 12, 11:04 AM — East wall wattle panel complete; clay-sedge daub packing begun behind north panel, moving to east.
+2026-07-05 Day 12 12:05 — finished east wall daub packing; midday break with cold trout and chanterelles in shade of shelter
+2026-07-05 13:00 Day 12 — Cut forty-two birch withies for south root-cellar wall panel; sorted and set soaking at stream edge for afternoon weaving
+2026-07-05 14:05 — Day 12 — Mixed clay-sedge daub for south root-cellar wall panel; covered and ready; withies still soaking.
+Day 12, 15:05 — South root-cellar wall wattle woven and clay-sedge daub packed; all three walls (north, east, south) now fully lined.
+2026-07-05 16:05 — Day 12, 4:05 PM: Walked forest margin after completing root cellar lining; foraged wood sorrel (damp hollow near birch deadfall) and wild strawberries (clearing edge, birch margin); ate a few fresh; gathered remainder in bandana; returned to shelter by late afternoon light.
+[Day 12 · 2026-07-05 17:04] Checked curing root cellar daub (all three walls setting well); lit evening hearth fire; ate wild strawberries at doorway — supper and dusk fishing check ahead.
+2026-07-05 18:05 Day 12 — Dusk line checked (bare), reset; supper cooked at hearth (smoked trout, wilted wood sorrel, wild strawberries); fire banked for evening.
+Day 12, 7:05 PM — Twisted bark cord by firelight at the open door; nightjar calling; settled on woodpile expansion as tomorrow's first task.
+2026-07-05 20:05 — Day 12 — Stepped into the clearing to watch the summer stars; planned windthrow pine woodpile work for tomorrow; settled in by the hearth.
+2026-07-05 21:05 — Day 12 — Set tools by door for morning; settled into sleeping bag by fading coals; nightjar calling through birch.
+2026-07-05 22:04 — Day 12 — The Night Holds Still — deeply asleep; coals cold; nightjar faint in birch; woodpile work planned for morning
+2026-07-05 23:05 Day 12 — Still at Midnight: deep night, shelter holds, sleep continues, root cellar walls curing, woodpile work waits for morning.
+2026-07-06 Day 13 06:05 — Dawn Before the Axe — new day rollover; bare fishing line reset; hearth rekindled from cold ash; cold breakfast from storage box; axe ready for windthrow pine woodpile work
+2026-07-06 07:05 — Day 13, limbed the windthrow pine (forty-foot trunk cleared of all branches; wood sound and pale yellow; ready to buck and split)
+Day 13, 08:06 — Bucked windthrow pine into first eight rounds; rounds piled on slope; woodpile work underway.
+2026-07-06 09:05 — Day 13 — Continued bucking windthrow pine; ~17 rounds piled on slope, trunk roughly halfway done.
+2026-07-06 10:04 — Day 13 — Finished bucking windthrow pine; thirty-one rounds piled on slope, trunk fully sectioned; hauling and splitting next.
+Day 13 · 11:04 AM — Rounds haul begun: first three butt-end rounds rolled to cabin flat; turf-and-stone stopping berm kicked; twenty-eight remain on slope.
+Day 13, 2026-07-06 12:05 — Continued rounds haul; 13 of 31 rounds now on cabin flat, 18 remaining on slope.
+2026-07-06 13:05 — Day 13 (Mon) — Finished rounds haul; all 31 windthrow pine rounds on cabin flat; splitting next.
+2026-07-06 14:05 — Day 13, 2:05 PM — Set up splitting station (widest butt-end as chopping block); split first 6 rounds into quarters; 25 rounds remain; pine splits clean; stacked bark-up against east wall.
+Day 13, 15:05 — Continued splitting windthrow rounds at station south of shelter; 14 of 31 now split and stacked bark-up against east wall; 17 remain.
+Day 13, 2026-07-06, 16:05 — Continued splitting: 22 of 31 rounds done, 9 remain; pale split faces in late afternoon light.
+2026-07-06 17:05 — Day 13: Split and stacked the last nine windthrow pine rounds; all 31 rounds complete against east wall.
+2026-07-06 18:05 — Scouted birch deadfall patch at forest margin after finishing windthrow pine splitting; three trunks found (30 ft, 20 ft, 12 ft), all birch, sound and dry; tomorrow: begin limbing the larger trunk.
+Day 13, 19:05 — Axe sharpened by hearth after splitting windthrow pine complete; edge honed on oval cobble; preparing for birch deadfall limbing tomorrow.
+2026-07-06 Day 13 20:06 — Coals and Quiet Plans: twisted bark cord by hearth coals; reviewed birch deadfall plan for tomorrow; axe honed and ready.
+2026-07-06 21:06 — Day 13, 9 PM: checked cold-storage box and fishing line by starlight; hook bare again; will try wider pool below gravel bend tomorrow; returned under stars; east wall pine rows solid; hearth coals dying low; latch bar dropped for the night.
+Day 13, 2026-07-06 22:06 — Evening rest by dying coals; day complete (31 pine rounds split, birch scouted, axe honed); planning birch limbing and wider-pool fishing tomorrow.
+2026-07-06 23:05  Day 13 · Embers, Then Dark — Last of Day 13; lying in sleeping bag by dying hearth coals, pine splits stacked and axe resting; birch deadfall and wider pool wait for tomorrow; sleep.
+2026-07-07 Day 14 06:05 — First Cast, New Pool — moved fishing line to wider pool below gravel bend (grub-baited); birch deadfall limbing begins today
+Day 14, 2026-07-07 07:05 — Began limbing larger birch deadfall trunk (~30 ft) at forest margin; butt-end third stripped of stubs, stubs piled to side.
+2026-07-07 08:05 Day 14 — Dense Middle Section: continued limbing larger birch deadfall trunk; middle third stripped, stubs cut flush; two-thirds of trunk now clear.
+Day 14, 09:05 — Finished limbing the larger birch deadfall trunk (30 ft, all stubs cut flush); drew up the fishing line and found a good-sized trout — first catch from the wider pool; trout cleaned and stored in cold-storage box.
+2026-07-07 10:05 — Day 14 — Began bucking the larger birch deadfall trunk into rounds; seven rounds cut free by mid-morning, roughly a third of the 30ft trunk done.
+Day 14, 11:05 AM — Continued bucking larger birch trunk through midday heat; fourteen rounds done (~two-thirds); rested at stream; trout decision deferred to tonight.
+2026-07-07 12:05 Day 14 — Finished bucking larger birch deadfall trunk; all twenty rounds cut and stacked bark-side up at forest margin; kindling bundle gathered; ready to haul to cabin flat.
+Day 14, 13:05 — Hauled all twenty birch rounds from forest margin to cabin flat in five trips; kindling bundle carried on final run; fuel wall growing against east wall.
+2026-07-07 14:05 — Day 14 — split first eight birch rounds; stacked bark-out against east wall; twelve rounds remain; trout for supper tonight
+2026-07-07 15:05 — Day 14: Finished splitting all 12 remaining birch rounds; full east-wall fuel stack (split pine + split birch) now complete; fishing line still set at wider pool; trout in cold box for tonight's supper.
+Day 14, 16:05 — Foraged wood sorrel, dandelion crowns, and wild garlic from clearing margin; greens stored in cold-storage box beside trout for tonight's supper.
+2026-07-07 17:05 — Day 14 — Stoked hearth with birch splits; brought greens indoors; began supper prep — trout and wilted greens over hearthfire tonight.
+Day 14 — 2026-07-07 18:05 — Dusk at the Pool — checked fishing line at wider pool at dusk; small perch caught and cleaned streamside; line re-baited and reset; trout and foraged greens cooked and eaten for supper; small perch in cold-storage box for tomorrow.
+Day 14, 2026-07-07 19:05 — Tended hearth coals; fed three birch splits for overnight burn; twisted two arm-lengths of two-ply bark cord by firelight; ready for sleep.
+Day 14 (2026-07-07, Tue) 20:06 — stepped outside to look at stars in still clear night; sharpened axe burr on hearthside cobble; banked fire; ready for morning
+2026-07-07 Day 14 21:05 — Quiet evening close: fire banked to deep coals, sleeping bag laid, stars watched from doorway (Scorpius low in south), settled for sleep.
+2026-07-07 22:05 — Day 14 · lay in sleeping bag; coals breathing deep orange; owl heard once on the slope; perch in cold-storage box; fishing line set overnight; last waking moment before sleep
+2026-07-07 23:05 — Day 14 close: drifted into sleep; coals settling; perch in cold-storage for morning; full day behind (20 birch rounds split and stacked, trout supper, line overnight at wider pool).
+2026-07-08 · Day 15 · 06:05 — Woke; rekindled hearth from ash-seed; ate perch on doorstep at dawn; overnight line bare, re-baited and reset at wider pool; axe in hand, heading to forest margin to limb the 20ft birch deadfall trunk.
+Day 15, 2026-07-08, 07:05 — Limbed twenty-foot birch deadfall trunk at forest margin; bare and ready to buck.
+2026-07-08 08:05 Day 15 — Bucked 20ft birch deadfall trunk into ~13 rounds on slope; ready to haul
+Day 15, 09:05 — Hauled all ~13 twenty-foot birch rounds from slope to cabin flat; stacked bark-up against east wall; fuel row now spans full east wall in several rows.
+[Day 15, 2026-07-08, 10:05] Limbed and bucked 12ft birch deadfall — 8 rounds on slope; deadfall patch complete; east wall fuel row nearly finished
+2026-07-08 Day 15 11:05 — Hauled all 8 rounds from 12-ft birch trunk in three carries; split and stacked bark-out against east wall; deadfall patch fully cleared; east wall fuel row complete.
+2026-07-08 12:04 Day 15 — Noon trout catch at wider pool; smoked scraps exhausted; line re-baited; afternoon planned for root cellar daub second coat.
+Day 15, 1:05 PM — Applied second coat of clay-sedge daub to all three root cellar interior walls; let cure overnight.
+Day 15, 2026-07-08 14:05 — Scouted garden plot on south-facing bench below cabin; drove four birch corner stakes; site chosen.
+2026-07-08 Day 15 15:05 — Cleared western two-thirds of garden plot; pulled weeds, loosened soil ~1-2 inches; stony NE corner cleared, eight stones set as border row along north edge
+2026-07-08 16:05 — Day 15 — Walked stream margin before supper; gathered wild garlic, wood sorrel, dandelion crowns; wagtail on the shallows; greens bundled for tonight's trout meal.
+Day 15, 17:05 — Cooked and ate supper: trout with wild garlic, wood sorrel, and dandelion crowns in the cook tin over the hearth; ate in the doorway as the light went rose over the ridgeline; evening quiet.
+2026-07-08 18:05 Day 15 — twisted bark cord in doorway at dusk; four arm-lengths added to coil; planned tomorrow garden NE corner test and root cellar daub check
+Day 15, 19:05 — Carved birch digging stick by coal-glow; set by doorpost for tomorrow's garden NE corner soil test.
+2026-07-08 Day 15 20:06 — Walked clearing edge by starlight; pictured the garden bench green; banked coals and settled in for the night.
+Day 15, 21:05 — Night, Almost Sleep — coals down to warmth; owl in the pines; thoughts of garden soil and fishing line dissolved before sleep
+Day 15, 22:05 — Woke briefly in the night; listened to the stream; let thoughts of garden and fishing line go; settled back into sleep.
+2026-07-08 Day 15 23:05 — Night holds still; coals cold under ash; stream steady; deeply asleep approaching midnight; line set, digging stick by doorpost for dawn.
+2026-07-09 Day 16 06:05 — Root cellar second coat daub confirmed cured and sound at dawn; fishing line reset (bare overnight); garden NE corner soil test next.
+2026-07-09 07:05 — Day 16 — Garden soil test: NE corner confirmed sandy/shallow; eastern strip assessed; western two-thirds ready for deeper breaking; soil map now clear.
+2026-07-09 Day 16 08:05 — First Turn of Ground; began breaking western two-thirds of garden plot with digging stick; first full row turned to planting depth; dark loam, earthworms throughout
+Day 16 [2026-07-09 09:05] — Continued garden ground-breaking; second row of western two-thirds turned; earthworms throughout; crow on pine bough overhead.
+2026-07-09 Day 16 10:05 — Turned third garden row with digging stick; dark loam and earthworms throughout; four rows remaining; crow still watching from pine bough.
+2026-07-09 11:05 Day 16 — Fourth row of garden ground-breaking turned (digging stick); dark loam and earthworms throughout; three rows remaining in western two-thirds.
+2026-07-09 Day 16 12:05 — Turned fifth garden row; two rows remaining in western two-thirds
+Day 16 13:05 — Turned sixth row of garden plot (western two-thirds); one row remaining; midday, sun past zenith, loam and earthworms throughout.
+Day 16, 14:05 — seventh (final) row of western two-thirds turned; western two-thirds ground-breaking complete; plot ready for seeding
+[2026-07-09 15:05] Day 16 — Amended eastern garden strip with hearth ash and forest leaf duff; NE corner mulched with pine needles; full garden plot now prepared for seeding.
+2026-07-09 16:05 Day 16 — Transplanted sixteen wild garlic bulbs from birch-deadfall patch into eastern garden strip; two rows of eight, firmed in.
+Day 16, 2026-07-09 17:05 — Transplanted fourteen dandelion roots from clearing margin into eastern garden strip, west of garlic rows; tamped and watered.
+2026-07-09 18:05 — Day 16: Fourteen wood sorrel clumps transplanted from forest margin to north edge of eastern garden strip; watered in; light gold over tree line; fishing line still to check.
+2026-07-09 19:05 Day 16 — Checked fishing line at dusk; caught a nine-inch trout at the deep run under the overhang; carried it home to cook on the hearth; garden complete with all transplants in.
+2026-07-09 Day 16 20:00 — Cooked and ate the dusk-caught trout on the hearth; supper by firelight; evening quiet over the clearing.
+Day 16, 21:06 — Sitting at threshold twisting bark cord by starlight; garden planted and settled; coals banked inside; trout supper done.
+2026-07-09 22:05 — Day 16: Stepped to garden edge by starlight; crouched at plot border; first night with roots in the ground; came back inside and slept.
+[2026-07-09 23:05] Day 16, 11:05 PM — last waking hour; drifted toward sleep with garden roots in ground and hearth banked; night sounds through cabin walls; first night the garden exists.
+Day 17, 2026-07-10, 06:05 — Garden held its first night; all 44 roots undisturbed; fishing line re-baited and reset at deep run.
+2026-07-10 Day 17 07:05 — Watered all garden transplants (garlic, dandelion, sorrel) — four stream trips; transplants showing no wilt; soil holding moisture in amended strip.
+Day 17, 08:14 — First wild strawberries foraged from east clearing edge; small ripe patch found, most still ripening; patch marked for return visit.
+Day 17, 09:05 — Trout (~10 inches) caught at deep run, cleaned, split on smoke rack with green birch smoke going; garden transplants settling steady.
+Day 17 (2026-07-10) 10:05 — Foraged chanterelle patch at birch deadfall; second flush fourteen caps harvested; yarrow bunch gathered in sunlit gap; trout still smoking on rack
+2026-07-10 Day 17 11:05 — Tended smoke rack, added green birch fuel, widened gable draft; twisted two-ply bark cord (tallow-rubbed); trout curing, noon check pending.
+2026-07-10 12:05 — Day 17 — Noon smoke-rack check: trout flesh amber-gold after three hours; final birch split added; gable narrowed; pull expected by early afternoon.
+2026-07-10 13:05 Day 17 — Pulled smoked trout from rack; stored in cold-storage box; smoke rack empty; afternoon open.
+Day 17, 2026-07-10, 14:05 — Walked garden in afternoon; garlic pushing second shoots; dandelion crowns settled flat; wood sorrel unfurling at north border; bare western rows noted for future seeding.
+Day 17 · 2026-07-10 · 15:05 — Walked stream bank north; found nettle stand at shady bend twenty paces past cold seep; harvested shoots for supper; plantain cut from pine-fall gap; nettle patch marked for root transplant to western garden rows.
+2026-07-10 16:05 Day 17 — Transplanted six nettle root clumps from the north-seep stand into the first two western garden rows; watered in.
+Day 17, 17:05 (Fri 10 Jul 2026) — Cooked nettle-chanterelle supper on hearth; hung plantain leaves on smoke rack to dry; ate at doorway as clearing went to evening.
+2026-07-10 18:05 — Day 17 — Grub-baited fishing line reset at deep run for overnight; three arm-lengths two-ply cord twisted at threshold; tallow-rubbed and coiled; plantain drying; night settling.
+Day 17, 19:05 — Sharpened knife edge on river stone by hearth; reflected on open western garden rows; stream running louder tonight.
+Day 17, 20:05 — Settled in for the evening; plantain turned on bottom rack bar and nearly dry; listened to the stream running louder from the threshold (snowmelt above); thought through tomorrow morning forest-margin scout for western row transplants; coals banked low, door latched.
+2026-07-10 21:05 Day 17 — plantain leaves dried, bundled, and stored on supply shelf beside yarrow; settled onto sleeping bag for the night
+Day 17, 22:06 — Still Coals, Night Stream — lay on sleeping bag in shelter; hearth coals orange and holding; yarrow and plantain stored; trout and chanterelles in cold-storage box; fishing line overnight at deep run; stream loud with snowmelt; tomorrow: forest-margin scout for wood sorrel and wild garlic.
+Day 17, 2026-07-10, 23:06 — Night reflection; stream running loud with snowmelt; hearth coals steady; latch bar down; sleep.
+2026-07-11 (Day 18, 06:05) — New day; taut overnight line at deep run; 8-inch trout cold-stored; garden undisturbed; five open western rows; forest-margin scout planned.
+Day 18, 07:05 — Forest-margin scout; three raspberry canes found at eastern birch-line sun gap, transplanted to western garden rows 3–4; fishing line reset at deep run.
+2026-07-11 09:08 — Day 18 — cooked fresh trout and chanterelles over the hearth; ate on the doorsill in morning sun; three garden rows still open
+Day 18, 10:05 — Walked downstream to mossy bend; found wild mint; transplanted root divisions into western rows 5, 6, 7 — all seven western rows now planted.
+2026-07-11 Day 18 11:05 — Midday at the Stream — walked upstream bank past cold-storage box; red clover patch found on sunny embankment, three heads tasted (sweet, mild); fishing line checked (still set, nothing taken); garden rested midday in full sun
+Day 18 (2026-07-11) 12:05 — Returned to red clover patch; harvested ~40 heads; spread on smoke-rack crossbar to dry for winter tea.
+2026-07-11 13:05 Day 18 — walked east clearing edge; wild strawberry patch revisited — two handfuls ripe berries picked (remaining third still turning); red clover drying on rack
+Day 18, 14:05 (2026-07-11) — Turned clover heads on smoke rack; sat at doorsill and made eleven arm-lengths two-ply cord, tallow-rubbed and coiled.
+2026-07-11 Day 18 15:05 — Red clover heads bundled in birch bark and stored on supply shelf beside plantain for winter tea; thick-centered heads finishing on doorsill stone.
+2026-07-11 Day 18 16:05 — Clover bundle sealed (all heads dried and stored); garden walked in afternoon heat — all transplants holding; pine split on coals before supper
+Day 18, 17:05 — Supper: smoked trout and dried chanterelles at doorsill in last afternoon light; fire banked; latch bar down; all seven western rows planted and winter tea store complete.
+2026-07-11 Day 18, 18:05 — Evening walk to deep run: overnight line checked and retied; sat on granite slab in long summer light; cold-storage box and garden checked on return; all quiet.
+
+[2026-07-11] Day 18, 19:05 — Evening cord-making by hearth light; nine arm-lengths twisted and tallow-rubbed; garden fully planted, winter tea shelved; fishing line set overnight at deep run.
+Day 18, 2026-07-11, 20:06 — Stepped outside after cord-making; sat on granite slab under cloudless summer stars; owl once upslope; stream steady and low; dew settled; back inside with coals still orange and latch bar down.
+Day 18, 21:05 — Sharpened knife on smooth stream cobble by firelight; coals banked with two slow splits; latch bar down; quiet end to a full day.
+
+Day 18 · 2026-07-11 · 10:05 PM — Night Settles In: lying in sleeping bag, coals banked, owl upslope, stream in the dark; day complete.
+2026-07-11 Day 18 23:05 — Last Light, Still: lying in sleeping bag, coals nearly ash, owl quiet, stream steady; day done and complete.
+2026-07-12 Day 19 06:05 — Grey Line at Dawn: no catch on overnight line at deep run; garden dew-heavy and undisturbed; yarrow tea on the coals; sun not yet over the ridge.
+2026-07-12 Day 19 07:05 — Yarrow tea at doorsill; east strawberry patch picked (three handfuls, main flush done); day bright and warming.
+Day 19, 08:05 — Foraged forest margin east of birch-pine line; found new chanterelle cluster on second buried log (8 caps, good size); three pins left on deadfall to grow; wood sorrel gathered; food stored for supper.
+2026-07-12 09:05 — Day 19: Watered all seven garden rows (four cook-tin trips); transplants holding — nettles greening, garlic darkening, mint spreading; fishing line still set.
+Day 19, 10:05 — Walked pine-birch slope upslope; found flat granite shelf overlook with clearing view; noted fallen birch and standing birch stand as future resource; collected pine resin bead.
+2026-07-12 11:05 Day 19 — Sorted chanterelle caps; two largest on smoke rack over birch smolder; six for supper.
+Day 19, 12:05 — Tended smoke rack smolder at midday; light lunch of wood sorrel and chanterelle broth at doorsill; rested in peak-heat shade; two caps still smoking steadily.
+Day 19, 13:05 — Smoke rack tended (caps progressing, gill-rows darkening); fourteen arm-lengths of two-ply cord twisted in east wall shade.
+Day 19 (2026-07-12) 14:05 — Two smoke-dried chanterelle caps pulled from rack and cold-stored; fishing line checked at deep run, no catch, re-set.
+Day 19, 15:05 — Descended into root cellar during afternoon heat; stone floor cold, daub walls dry, stores inventoried — caps, trout, tea bundle all sound; emerged to the cold seep, listened to the stream.
+2026-07-12 16:05 Day 19 — bark vessel formed in afternoon shade; corner seams stitched with cord, pine resin sealed on inner seams, curing for supper
+[2026-07-12 17:05] Day 19 — Checked fishing line at deep run (no catch, reset overnight); gathered watercress from stream bank near cold seep; chanterelle caps set to steam in cook tin over hearth; bark vessel resin set to dull tack — water test in the morning.
+Day 19, 2026-07-12, 18:05 — Supper at doorsill: chanterelle caps and watercress from cook tin, broth drunk in long evening light; smoke rack cold; bark vessel curing; fishing line set overnight at deep run.
+2026-07-12 19:05 — Day 19 · Cord and Quiet — cord-making by hearth light; eleven arm-lengths two-ply added to coil; bark vessel resin set firm; fishing line at deep run overnight.
+2026-07-12 Day 19 20:05 — Stepped outside after cord-work to watch first stars appear over pine ridge; stood at clearing edge in warm still air; Cassiopeia shaping up, cricket starting south of cold-storage box; barred latch, coals banked for the night.
+2026-07-12 21:05 Day 19 — Still Night, Stars Full — Woke briefly in the warm night; stepped to the doorsill; Milky Way overhead, garden rows silver-dark, everything sound; returned to sleep.
+Day 19, 22:05 — Second waking in the deep of night; coals gone dark; bark vessel set firm in east-wall shadow; one cricket still past cold-storage box; gable gap framed stars moving west; sleep returned.
+Day 19, 23:05 — Third waking in the still night; stars wheeling west through gable gap; Day 19 complete and at rest.
+2026-07-13 Day 20 06:05 — Checked overnight line at deep run (seven-inch trout caught, cleaned); bark vessel water-tested at shallows — holds, no seep; both working before the morning warmed.
+2026-07-13 07:05 — Day 20: cooked fresh trout with wild garlic and wood sorrel on hearth; yarrow tea in bark vessel; ate at doorsill; blackbird in the birch-line
+Day 20, 08:06 — Three chanterelle pins harvested from birch deadfall patch; two on smoke rack, one bark-wrapped for tonight's supper; buried log mycelium active.
+2026-07-13 09:05 — Day 20: walked all seven garden rows — garlic settled, dandelion wide, wood sorrel content, nettles showing first new pale shoots in rows 1–2, raspberry canes watered, mint runners pinched; chanterelles still smoking.
+2026-07-13 10:05 — Day 20 — Climbed upslope past granite shelf; found wild blueberry patch (~60 paces behind shelter) and noted a large rotting fallen pine as a future fungi site; ate a handful of blueberries on the way back.
+2026-07-13 Day 20, 11:05 — Smoke rack checked; two chanterelle caps cold-stored after three hours of green birch smolder; rack kept at low heat for afternoon.
+Day 20, 2026-07-13, 12:05 — Walked pine-birch slope in midday shade; scraped pine resin from axe notches, broken limbs, and bark cracks; birch-bark fold of resin stored on shelf beside bark vessel.
+Day 20, 13:05 — Heated pine resin in cook tin; applied second waterproofing coat to bark vessel outer seams; vessel set to cure on shelf; resin fold still half-full.
+2026-07-13 14:05 — Day 20 — Wove a birch-withy harvest basket in afternoon shade; base and body complete, rim to finish tomorrow.
+Day 20, 15:05 — Finished birch-withy harvest basket: all seven spoke tips tucked under final weft row and locked; rim set; basket stands firm and ready for blueberry harvest.
+Day 20, 16:05 — Took new basket to blueberry patch; south-facing clusters at peak edge, north-facing 2–3 days behind; full harvest deferred two days to take whole patch at once.
+2026-07-13 17:05 — Day 20 — Supper at the Doorsill — chanterelle cap with wild garlic over hearth coals; ate at doorsill as copper light left the west ridge; fishing line reset for overnight
+2026-07-13 Day 20 18:05 — Evening cord-work by hearth fire; twelve arm-lengths of two-ply bark cord twisted; coil now substantial; first stars out; trout line in overnight.
+2026-07-13 Day 20 19:05 — Evening at doorsill: stars settling in over the clearing, yarrow water in hand, warm still night; rest after a full day of foraging, cord-work, and basket-proving.
+Day 20, 20:06 — Axe head re-wedged with heartwood wedge (kerf-seated, flush-trimmed, solid); six more arm-lengths added to cord coil; everything stowed; coals banked.
+2026-07-13 21:06 Day 20 — Late-evening taking stock by low coals; quiet inventory of what is built and held; blueberry harvest two days out
+2026-07-13 22:06 — Day 20 — Stepped to doorsill at late hour; stood under stars (Dipper tilting west, Cassiopeia near zenith); latch bar fitted; sleep at edge.
+Day 20, 23:06 — Lay in dark shelter; coals to ash; latch bar in keeper; final thoughts drifted over twenty days of building — sleep came.
+2026-07-14 · Day 21, 06:05 — Dawn line: six-inch trout caught overnight, cleaned streamside; bark vessel held firm (third test, no seep); trout on cool shelf; fishing line reset; blueberry harvest planned for Day 22.
+Day 21, 07:05 — Cooked overnight trout over hearth coals; ate at doorsill watching the garden brighten in morning light; tin rinsed; blueberry harvest tomorrow.
+Day 21, 08:05 — First pale mushroom pins spotted on buried log (three nubs, not yet harvestable; ~1 week to first harvest)
+2026-07-14 09:05 Day 21 — Walked and watered all garden rows; nettles in rows 1–2 showing first true leaves; dandelion rosettes pushing up; mint bright; raspberry canes holding; wood sorrel quiet but present.
+2026-07-14 Day 21 10:05 — Scouted large rotting pine at ~70 paces upslope; found oyster-type shelf mushrooms, three clusters harvested; resin bead formation noted in heartwood split.
+[Day 21, 11:05] Set smoke rack with two oyster mushroom clusters over green birch smolder; one cluster held fresh for supper.
+Day 21, 12:05 — Tended smoke rack at noon; added green birch to smolder; oyster mushroom caps curling and firming at edges; small fresh cluster held for supper; mint rows bright from doorstep; blueberry harvest tomorrow.
+Day 21, 13:05 — Cord twisted in east-wall shade; fourteen arm-lengths added to coil; mushrooms still smoking; afternoon at rest.
+2026-07-14 Day 21, 14:05 — Oyster mushrooms pulled from smoke rack — smoke-dried and cold-stored; small fresh cluster saved for supper
+2026-07-14 Day 21 15:05 — Walked east clearing edge; wild strawberry patch resting well; two handfuls second-flush berries picked and eaten at doorsill; homestead view from east angle for the first time.
+2026-07-14 Day 21, 16:05 — Scouted blueberry patch upslope; north-facing clusters now at peak (dark, firm, bloom on); south-facing past prime; tomorrow's full harvest confirmed; granite shelf overlook in afternoon light.
+2026-07-14 17:05 Day 21 — Cooked and ate fresh oyster mushrooms at doorsill in evening light; wood sorrel from garden row 5; overnight fishing line reset at dusk; blueberry harvest tomorrow (Day 22).
+Day 21, 18:05 — Twisted eleven arm-lengths cord by evening hearth; banked fire; blueberry harvest fully prepared for tomorrow.
+2026-07-14 19:05 Day 21 — Stepped out to doorsill in cooling evening; watched first stars appear above pine line; clearing gone quiet; blueberry harvest set for tomorrow.
+2026-07-14 (Day 21, 20:05) — Brewed evening cup of winter-tea blend (red clover, plantain, yarrow) by hearthfire; reflected on the day and tomorrow's blueberry harvest.
+2026-07-14 Day 21 21:05 — Harvest kit laid at door; banked coals; settled in for sleep; blueberry harvest at dawn tomorrow.
+Day 21, 22:05 (2026-07-14) — Settled quiet in sleeping bag; stream audible through wattle gable; harvest kit ready at door; anticipating full blueberry harvest at dawn tomorrow.
+2026-07-14 23:05 Day 21 — Into Sleep: last waking hour; fire ash-capped and warm; harvest kit at door; fell asleep to stream sound; blueberry harvest at dawn tomorrow.
+2026-07-15 Day 22, 06:05 — Blueberry harvest: climbed to patch at dawn; basket three-quarters full; cold-stored bulk of haul beside chanterelles; fresh blueberries at doorsill in early sun.
+Day 22 (2026-07-15) 07:05 — Tended all seven garden rows; nettles showing first proper leaves, raspberry canes budding, mint runners spreading.
+2026-07-15 Day 22, 08:05 — Six-inch trout from overnight line at deep run; line reset; kingfisher spotted upstream — first sighting
+2026-07-15 Day 22 09:05 — Smoked fresh trout on smoke rack; cold-stored; cold-box now holds chanterelles, oysters, blueberries, and smoked trout
+Day 22, 10:05 — Followed stream downstream past deep run; limestone shelf bend ~50 paces below: deeper water, larger fish in slack; ostrich fern, watercress, young alder on far bank; watercress eaten fresh; limestone pool marked as future second fishing site.
+Day 22, 11:05 — Cut birch pole, set second fishing line at limestone pool bend downstream; both sites now active.
+2026-07-15 Day 22, 12:05 — Noon meal at the doorsill: hearth-warmed chanterelle and watercress broth; midday rest watching the clearing in the noon heat; both fishing lines active; garden resting after morning water.
+2026-07-15 13:05 — Day 22 — Afternoon cord-twisting in east-wall shade; fourteen arm-lengths two-ply added to coil; smoke rack and cold storage checked and in order.
+Day 22, 2:05 PM — Bark harvest: twelve large sheets + three smaller pieces peeled from dry birch deadfall 40 paces upslope; bundle cord-tied on supply shelf.
+2026-07-15, Day 22, 15:05 — Walked south meadow for the first time; knee-high grasses with forming seed heads, yarrow and clover patches, field daisies, two white butterflies; slow seep at far margin where rushes begin; cabin visible from below — a real thing.
+2026-07-15 [Day 22, 16:05] Checked limestone pool line (set 11:05) — nine-inch trout; re-baited and reset; both lines active; walked home through birches in last warm light.
+Day 22, 17:05 — Cooked nine-inch limestone pool trout with watercress and chanterelles over hearth coals; ate at doorsill in amber evening light; both lines set for the night.
+Day 22, 18:05 — Made three bark-fold herb envelopes in fading evening light; dried yarrow and plantain each transferred into their own fold; clover fold to be filled Day 23 morning; herbs now distinct on supply shelf.
+2026-07-15 19:05 — Day 22 — Three-Ply by Firelight — twisted six arm-lengths three-ply cord by banked hearth; coil on shelf; both lines in water.
+2026-07-15 Day 22 20:05 — Sat by stream in summer dusk after cord-twisting; both lines in water; first cricket sounds in south meadow; Venus low in the west; cabin roof visible against pines from streamside rock.
+Day 22, 21:05 — yarrow tea steeping by hearth coals; came in from streamside, latch bar down, fire banked; quiet end to a full day; both lines in water; ready for sleep.
+2026-07-15 Day 22 22:05 — Evening settled; lying in sleeping bag, fire banked, both lines in water; clover fold waiting for morning; closed a full day.
+2026-07-15 23:05 Day 22 — Ember Watch: last hour before sleep; hearth down to ash glow; crickets steady in south meadow; both lines in water; clover fold waiting for morning.
+Day 23, 06:05 — Both Lines at Dawn: deep run overnight line gave six-inch trout (cold-stored); limestone pool line empty, reset; both lines in water.
+Day 23, 07:05 (2026-07-16) — Clover fold confirmed dry; three herb envelopes complete on shelf (yarrow, plantain, red clover); garden watered, all seven rows; day underway.
+Day 23, 08:05 — Gathered rushes from south meadow seep; two armfuls chest-high round stems, cord-tied, leaning against east wall to dry; meadow daisies and clover still blooming; dragonflies over seep; shelter roof visible through grass haze looking back north.
+[Day 23, 2026-07-16, 09:05] Upslope walk — oyster clusters grown but not yet harvest-ready; new wild wood sorrel hollow found in fallen birch stand; north-facing blueberries still holding.
+Day 23, 10:05 — Wood sorrel harvested from upslope hollow (cook tin half-full); pine resin collected on descent; chanterelle-sorrel broth cooked on hearth and eaten at doorsill in full sun.
+2026-07-16 11:05 Day 23 — Began weaving a rush floor mat; half-done (two hand-spans by four), rolled and brought inside.
+Day 23 12:05 — Rush mat woven complete (~four hand-spans wide by four long); laid inside south wall.
+Day 23, 13:05 — Limestone pool line checked and re-baited at deeper angle; watercress gathered at side seep, eaten fresh and with cold chanterelles at doorsill.
+Day 23, 14:05 — Cord-twisting in east-wall afternoon shade; fourteen arm-lengths two-ply added to coil; both lines active; oyster and buried log check planned for Day 24.
+Day 23, 15:05 — limestone pool line gave ~8-inch trout in late afternoon; cleaned at streamside; both lines reset
+Day 23, 2026-07-16, 16:05 — Cooked 8-inch limestone trout with chanterelles and watercress over hearth coals; eaten at doorsill in gold afternoon light; both lines in water; tomorrow: oyster harvest, buried log check.
+2026-07-16 Day 23 17:05 — Evening cord-twisting in doorway; fourteen arm-lengths added; swallows low over far meadow; both fishing lines in for overnight.
+Day 23, 18:05 (Thu 2026-07-16) — Brewed first red clover tea at dusk; sat in doorway as bats came out over clearing; herb collection felt complete.
+2026-07-16 19:05 Day 23 — knife and axe sharpened on grey cobble by hearth light; both edges true; hearth banked; both lines overnight
+2026-07-16 Day 23 20:06 — Stood in doorway under first stars; bats tilting over clearing; leaned on doorpost and let the day be.
+2026-07-16 Day 23 21:06 — Into the Dark — lowered latch bar, settled into sleeping bag; both fishing lines in water; tomorrow: oyster clusters and buried log check
+2026-07-16 Day 23 22:05 — Lay in dark shelter listening to the stream and a single owl upslope; hearth settled, both lines in water; drifted toward sleep.
+2026-07-16 23:05 Day 23 — Deep Night Quiet — final tick, fully asleep; hearth banked, both lines in water, latch down; tomorrow: oyster harvest and buried log check
+Day 24, 2026-07-17, 06:05: Checked overnight lines at dawn — six-inch trout from deep run cold-stored; limestone pool empty, both reset; oyster harvest and buried log check pending this morning.
+2026-07-17 Day 24 07:05 — Oyster clusters (~4 handfuls) harvested from rotting pine ~70 paces upslope; buried log checked (dozen-plus pins, not yet ready); clusters now on smoke rack over low green birch smolder.
+2026-07-17 08:05 Day 24 — Morning garden round: all seven rows watered (four cook-tin trips, deep run); nettles rows 1–2 settled upright; raspberry canes sturdy; mint beginning to spread; garlic and sorrel healthy and bright; smoke rack holding steady with green birch smolder — oysters mid-morning.
+Day 24 (2026-07-17) 09:05 — Tended smoke rack mid-morning; added green birch chips, adjusted caps over column; oyster caps going amber at center, gills cream — ~1 hour remaining on smolder.
+Day 24, 10:05 — Oyster mushrooms (4 handfuls) fully smoke-dried and cold-stored; smoke rack cleaned and ready; morning settled.
+2026-07-17 11:05 — Day 24 — Limestone at Midday — limestone pool line: seven-inch trout caught, cleaned, cold-stored; sat at pool at midday; both lines in water
+2026-07-17 12:05 Day 24 — Noon meal at the doorsill: trout and chanterelles over hearth coals; sat in midday sun; both lines in water; cold-storage box full; garden growing.
+Day 24, 2026-07-17, 13:05 — Made birch-bark bucket in east-wall shade; cylinder stitched with two-ply cord and resin-sealed, base cut and sealed — water-tested, holds; curing overnight by cold-storage box.
+2026-07-17 14:05 (Day 24) — East strawberry patch second flush; ~60-70 berries eaten at patch and doorsill; quiet afternoon in the breeze.
+2026-07-17 15:05 Day 24 — walked upslope to granite shelf overlook; sat above the clearing in late afternoon sun, watching swallows over the meadow
+2026-07-17 16:05 Day 24 — Pool in the Light: limestone pool line gave seven-inch trout; cleaned at flat pool stone; line re-baited and reset; trout dock-wrapped for supper
+Day 24, 17:05 — Cooked supper: seven-inch limestone pool trout with dried chanterelles and watercress over hearth coals; eaten at doorsill in amber evening light; birch-bark bucket curing; both lines in water for the night.
+Day 24, 18:05 — Evening red clover tea at doorsill; swallows, then bats, then hearth; seven arm-lengths cord twisted — coil near maximum.
+Day 24, 19:05 — Began birch-bark supply tray: one large sheet scored, folded, notched at corners; two corners stitched with two-ply cord by hearth light; drying near hearth — two corners to complete tomorrow.
+Day 24, 20:05 — Stitched bark supply tray complete (four corners); arranged herb envelopes and resin fold inside; watched fireflies rising at meadow edge from doorsill.
+2026-07-17 Day 24, 21:05 — Sat at doorsill in full dark with last cup of clover tea; fireflies and bats over meadow; resolved to build split-pine doorsill bench tomorrow with cord and axe; banked hearth coals; ready for sleep.
+Day 24, 22:05 — Laid down in sleeping bag as night deepened; door latched, hearth banked; listened through gable gap to stream murmur and a distant owl upslope; let the day unspool before sleep.
+2026-07-17 23:05 — Day 24 — Half-woke in the deep night; owl called twice upslope; took stock — bucket curing, both lines set, day finished — turned back toward sleep.
+2026-07-18 Day 25, 06:05 — Dawn: deep-run overnight line bare at first light (reset); limestone pool line still baited; birch-bark bucket confirmed cured — seams firm, shape held — set upright by cold-storage box; today's work: split-pine doorsill bench.
+Day 25, 07:05 — Doorsill bench begun: two pine rounds split, planks trimmed to doorsill width — assembly next.
+2026-07-18 08:05 Day 25 — assembled split-pine doorsill bench; two dressed planks pegged to half-round runners, fitted at threshold
+Day 25, 09:05 — Garden watered (four cook-tin trips, deep run); mint sprawling; raspberries leafing; bench solid at doorsill.
+2026-07-18 10:05 Day 25 — Roughed a birch-heartwood spoon blank in east-wall shade; handle shaped, bowl hollow started.
+2026-07-18 11:05 — Day 25 — continued carving birch spoon; bowl hollow deepened, handle shaped; nearing completion
+2026-07-18 12:05 — Day 25 — Finished birch spoon: final smoothing pass and tallow rub; set on supply shelf.
+2026-07-18 Day 25 13:05 — Limestone pool: eight-inch trout caught and cold-stored; afternoon at the pool watching a dipper.
+Day 25, 14:05 — Afternoon walk to granite shelf overlook; late blueberries eaten at north-facing bushes; sat looking south over cabin and garden in full summer heat.
+2026-07-18 Day 25 15:05 — Limestone pool line: six-inch trout; cleaned, cold-stored; line reset; brief rest at poolside in afternoon heat.
+2026-07-18 Day 25 16:05 — Gathered watercress at side-seep below deep run; cooked trout with chanterelles and watercress over hearth; eaten at doorsill bench in amber afternoon light.
+2026-07-18 (Day 25, 17:05) — Checked deep-run line at dusk; seven-inch trout caught, cleaned, cold-stored; line reset for overnight; both lines in water.
+2026-07-18 Day 25 18:05 — Brewed red clover tea on hearth; sat on new doorsill bench through dusk into full dark; fireflies over clearing; fire banked for the night.
+Day 25 (2026-07-18) 19:05 — Made first tallow rush-wick lamp in a palm-sized stone hollow; lit on third flint strike — thumbnail flame, steady; cabin has light after dark for the first time.
+2026-07-18 20:05 — Day 25 — First lamplight: evening inventory of supply shelf and cold-storage by tallow lamp; stocks counted and found well-stocked (two trout, chanterelles, oysters, herb envelopes full)
+2026-07-18 Day 25 21:05 — Sat on the doorsill bench in the warm dark; fireflies over the meadow, stream loud in the quiet, lamp in the doorway; night rest before sleep.
+2026-07-18 22:05 — Day 25 · Stars Before Sleep — stepped to clearing's edge in the dark, watched stars and fireflies; lamp spent its last on hearthstone; came in, checked latch, lay down.
+Day 25, 23:05 — Final hour: lying in sleeping bag in dark cabin; lamp cold, fire banked; asleep; both lines in water; buried log check at dawn tomorrow.
+2026-07-19 06:05 | Day 26 | Lines at First Light — dawn fishing lines checked; deep-run gave five-inch trout (cold-stored, line reset); limestone pool still set; buried log check due; Day 26 begins
+Day 26, 07:05 — Buried log first harvest: five-six pale cream caps (1–2 in) cut at base with knife, cold-stored beside oysters; 8–10 tight-domed pins, recheck Day 28.
+Day 26, 2026-07-19, 08:05 — Garden walk in morning dew: garlic up (all sixteen, six inches), dandelion restarted, wood sorrel in yellow flower, nettles shooting in rows 1–2, mint spreading rows 5–7, raspberry row-three cane first new shoot (rooted) — watered three cook-tin trips.
+Day 26, 09:05 — Third chanterelle flush at birch deadfall: eleven-twelve caps harvested, on smoke rack over green birch smolder.
+Day 26, 10:05 AM — Tended smoke rack; chanterelle gills turning matte at edges, smaller caps firming; two green birch chips added, all caps turned.
+2026-07-19 Day 26 11:05 — Pulled three small chanterelle caps from smoke rack (fully dried, amber-tan); larger caps still smoking, two more birch chips added.
+Day 26, 12:05 — Third chanterelle flush fully dried and cold-stored; midday meal at doorsill bench; smoke rack at rest; modest surplus noted.
+Day 26, 13:05 — Limestone pool line gave seven-inch trout; cleaned at flat pool stone, cold-stored; yellow warbler at far-bank willows; both lines in water.
+2026-07-19 14:05 — Day 26 · Granite Shelf, Looking South — Climbed to the flat granite overlook above the birch stand; sat in afternoon sun looking down over the whole homestead, cabin and garden and meadow laid out below; nuthatches in the birches; both lines in water.
+Day 26, 15:05 — Limestone pool line gave six-inch trout; cleaned and cold-stored; pool notably low and clear for midsummer; line re-baited and reset; both lines in water.
+Day 26, 16:05 — Upslope: blueberry patch checked; ~two dozen late berries eaten standing; new green buds on south-facing side — second flush coming.
+2026-07-19 17:05 Day 26 — Cooked supper (seven-inch trout and two dried chanterelle caps, hearth coals); ate at doorsill bench in amber evening light; two trout remain cold-stored for morning.
+2026-07-19 18:05 — Day 26: Tallow lamp lit at hearthstone; cold-storage and supply shelf surveyed — food count good, all stores in order; both lines overnight.
+Day 26, 19:05 — yarrow tea steeped on hearthstone; drank at doorsill bench as clearing went blue-grey; first stars north past birch crown; evening rest.
+2026-07-19 Day 26, 20:05 — Birch-heartwood peg carved and driven into south wall at shoulder height; bark supply tray and herb envelopes wall-hung; evening lamp; reflecting on winter provisioning ahead.
+2026-07-19 21:05 (Day 26) — Knife sharpened by lamplight; counted the summer calendar — blueberry second flush ~5 weeks, buried log Day 28, chanterelles Day 28-29; stores reviewed: food solid, grain and root veg thin; both lines overnight.
+Day 26, 2026-07-19, 22:05 — Lamp blown out; sleeping bag pulled close; cabin dark and quiet; both lines in water; sleep.
+Day 26, 23:05 — Brief night waking: cabin still, coals settled, stars through gable gap, both lines in water, all in order — back to sleep.
+2026-07-20 Day 27 06:05 — Lines at Dawn: checked overnight lines at dawn; deep-run gave six-inch trout (cleaned, cold-stored, reset); limestone pool bait gone overnight (re-baited, reset); both lines in water; Day 27 beginning.
+2026-07-20 07:05 — Day 27: Morning garden check and watering — garlic blades tall, dandelion rosettes wide, nettles knee-high, raspberry canes shooting, mint mat spread; four cook-tin trips + bark vessel; garden in full summer growth.
+2026-07-20 08:05 — Day 27 — Cut sixteen garlic scapes; half for eating today, half hung to dry; bulbs redirected toward full growth.
+Day 27, 09:05 — garlic-scape-and-watercress broth with dawn trout; eaten at doorsill bench in full morning light.
+Day 27, 10:05 — Limestone pool line empty overnight; re-baited (two gut strips left), reset under ledge shadow; sat at flat pool stone in late morning quiet.
+2026-07-20 Day 27 11:05 — Dug earthworms from north garden edge; rebaited deep-run line; bait supply stable.
+Day 27, 12:05 PM — Explored south stream bend past alder scrub; dense cattail stand found forty paces beyond (two dozen+, chest-high, pollen heads forming green) — pollen harvest in ~1–2 weeks. Cut one straight alder branch on return.
+Day 27, 13:05 — Peeled and trimmed alder branch in east-wall shade; pale tight-grain wood, curing against east wall; purpose open (cattail-pollen pole or longer fishing rod); quiet midsummer afternoon, both lines in water.
+2026-07-20 14:05 (Day 27) — Limestone pool gave seven-inch trout; gut strip saved for bait; watercress gathered at side seep; both lines still in water.
+Day 27, 2026-07-20, 15:05 — Made a birch-bark pollen tray (shallow, wide, cord-stitched) on supply shelf in preparation for the cattail pollen harvest; alder branch curing against east wall.
+Day 27, 16:05 (2026-07-20) — Supper: seven-inch trout with chanterelles and watercress on doorsill bench; amber afternoon light; both lines in water for the night.
+Day 27, 2026-07-20, 17:05 — Limestone pool line re-baited for overnight (gut strip, one remaining); kingfisher seen again at the bend; both lines set for the night.
+Day 27, 18:05 — Evening walk to buried log: eight to ten caps, largest ~2 in, ivory-domed, not yet harvestable — harvest planned Day 28 morning at first light; garden in amber slant light; yarrow tea as clearing settled to grey.
+Day 27 (2026-07-20) 19:05 — Evening by banked hearth; supply tray sorted by hearthlight; one gut strip cold-stored, earthworm bait stable; buried log harvest set for dawn tomorrow.
+Day 27, 20:05 — Sat on the doorsill bench in the dark; bat working low over the garden, stream steady, mint in rows 5–7 in small purple flower; evening rest, no task in hand; coals banked, alder branch curing, both lines set overnight.
+2026-07-20 21:05 — Day 27, Mon — Yarrow tea by dying hearthcoals; latch bar down; alder branch curing; pollen tray on shelf; buried log harvest at dawn (eight to ten caps); day done.
+Day 27, 2026-07-20, 22:05 — Settled to sleep on rush mat; hearthcoals near-out; mint noticed in flower; owl once upslope; buried log harvest set for dawn.
+2026-07-20 23:05 — Night quiet; sleeping soundly; buried log harvest set for dawn.
+Day 28, 06:05 — Buried log second harvest: six pale cream caps (~2 in, ivory-domed) cut and cold-stored beside oysters; three smallest pins left under cover to size up; deep-run line unchecked yet.
+2026-07-21 07:05 — Day 28: deep-run line gave seven-inch trout (earthworm bait; cleaned, cold-stored; line reset); garden watering ahead.
+2026-07-21 08:06 — Day 28 — Garden walk and watering: four cook-tin trips, all seven rows; garlic standing tall post-scape, nettles spreading, raspberry side-shoots long, mint mat thick in rows 5–7
+Day 28, 09:05 — Limestone pool line: six-inch trout (cold-stored); gut strips spent, switched to earthworm; both lines in water.
+[Day 28, 2026-07-21, 10:05] Oysters on the Pine — upslope rotting pine (~70 paces): three oyster clusters harvested (~4+ handfuls, pale buff caps, white gills); set on smoke rack over low green birch smolder; smallest flush left to size up.
+Day 28, 11:05 — Smoke rack tended: oyster caps turned gill-side up, green birch chips added to smolder; caps drying through mid-morning.
+Day 28, 12:05 — Oyster caps pulled from smoke rack (amber-tan, firm throughout); cold-stored in box; midday rest at doorsill bench.
+2026-07-21 13:05 (Day 28) — Checked limestone pool line (earthworm bait still on, no catch yet, left set); gathered watercress at side seep below deep run — two fistfuls, dock-wrapped, hanging on north wall; supper planned: trout, dried chanterelles, watercress over hearth coals.
+Day 28, 2:05 PM — Limestone pool gave seven-inch trout (afternoon catch); cleaned, cold-stored; line reset; poolside rest; blue damselfly at far margin.
+Day 28, 15:05 (2026-07-21) — Doorsill supper: two trout, dried chanterelles, watercress over hearth; ate at bench in afternoon warmth; hawk over south meadow; one trout cold-stored; both lines in water.
+Day 28, 16:05 — Walked to limestone pool in amber afternoon light; line checked under far-bank ledge shadow, bait holding, no catch this hour; both lines set for overnight; stores and food in good order.
+Day 28, 17:05 — Climbed to granite shelf overlook above shelter; sat in long amber light watching hawk quarter the meadow, garden rows and cabin roof visible below; alder branch in mind as a future bow stave; descended as light faded.
+Day 28, 18:05 — Examined curing alder branch by hearthlight; natural mid-limb lean confirmed workable; bow stave idea passed its first real look.
+2026-07-21 Day 28 19:05 — Stripped bark from alder stave by hearthlight; pale tight grain clean throughout; handle site located at natural midpoint; bow moved from idea to project; stave set grain-side out against east wall.
+Day 28, 20:05 (2026-07-21) — By hearthlight: handle section located and marked on alder stave; top limb trimmed three passes to match lower; bow shaping begun; stars out, both lines in water, sleep soon.
+2026-07-21 21:05 — Day 28 — Red clover tea at dying hearthcoals; frogs from meadow seep; hearth banked, door latched, both lines overnight — sleep.
+2026-07-21 Day 28 22:05 — Night Sounds, Still: brief waking; frogs at meadow seep; bow stave grain in the mind; sleep returned.
+2026-07-21 23:00 — Day 28 closes: late-night rest by dying coals, frogs calling from meadow seep, bow stave shaped by hearthlight (handle notched, limbs matched), both lines in water overnight, cold box well stocked.
+Day 29 [2026-07-22 06:05] — Dawn lines checked: seven-inch trout from deep run, six-inch from limestone pool; both cold-stored; lines reset; Day 29 begins clear with mist.
+Day 29, 07:06 — cooked six-inch limestone pool trout with wood sorrel for breakfast over hearth; eaten at doorsill bench while mist lifted; thrush singing in treeline.
+2026-07-22 08:05 — Day 29. First tiller pass on alder bow stave: belly faces of both limbs thinned with knife-flat scraping; rough tiller check shows upper limb slightly more flexible than lower — noted for next session.
+2026-07-22 09:05 Day 29 — Garden walk and watering; four cook-tin trips from deep run; garlic, nettle, raspberry, mint, dandelion all vigorous; eastern strip soil rich and dark.
+2026-07-22 10:05 — Day 29. Upslope check: small oyster flush on rotting pine spreading — caps a thumb-width wider, gills clean, not yet fully open; left another day or two; stood at granite shelf looking over the whole homestead.
+Day 29, 11:05 — Checked buried log (three pins developing — two at ~¾ inch dome, one still tight); cover replaced; not yet ready, another day or two.
+2026-07-22 [Day 29, 12:05] Second bow stave tiller pass in shelter shade — lower limb belly thinned, tiller approaching even.
+2026-07-22 13:05 — Day 29: Third tiller pass on bow stave in afternoon shade; upper limb still marginally freer at outer quarter but gap nearly closed; one more careful session should bring it true.
+2026-07-22 Day 29 14:05 — Fourth tiller pass on bow stave; tiller now even — both limbs trace matched arc; nock cutting next.
+2026-07-22 15:05 Day 29 — Cut nock grooves in both bow limb tips; cord test-seated in grooves and tracked clean; first draw one step away.
+Day 29, 16:05 — Strung the alder bow with a twisted six-ply bark cord; first draw at clearing edge — tiller even under load; bow hung on wall peg.
+Day 29, 17:06 — Deep-run line: seven-inch trout (cleaned, cold-stored); limestone pool line: bare hook, re-baited, reset; supper: seven-inch trout with two dried oyster caps and watercress at doorsill bench in amber evening light; both lines overnight; bow on wall peg.
+Day 29, 2026-07-22, 18:05 — Walked upslope birch stand after supper; cut eight young birch shoots for arrow shafts (six straight, one slight curve to heat-correct, one uncertain kept for practice); bark on, set on supply shelf to dry.
+[2026-07-22 19:06] Day 29 — Shafts by Hearthlight: peeled bark from eight birch arrow shafts by hearthlight; heat-corrected curved shaft over coals; six straight candidates drying on supply shelf.
+2026-07-22 Day 29 20:05 — Walked clearing edge at last light; gathered five flight primaries from north margin — first fletching material collected; shafts drying on shelf; bow on wall peg; stars out.
+Day 29, 2026-07-22, 21:05 — Brewed clover-mint tea over hearthcoals; sat at doorsill bench watching stars; Cassiopeia and the Dipper overhead; bow on wall peg, shafts drying.
+2026-07-22 22:06 Day 29 — banked hearth coals for the night, checked door latch, settled into sleeping bag; bow and arrow shafts on shelf; both lines overnight in water
+Day 29, 23:06 — Night; lying still in shelter at end of a full day; bow strung and on wall peg; eight arrow shafts drying; five flight primaries ready; lines overnight in water; first fletching tomorrow.
+2026-07-23 — Day 30 · Thursday: Overnight lines checked (7-inch at deep run, pool line bare); split five grouse primaries into eight vane strips for fletching — shafts still drying; vane strips bundled on supply shelf ready to bind when wood sets.
+Day 30 07:06 — Buried log third harvest: three pale cream caps (~1.5 in, ivory-domed, edges just curling, clean white gills) cut at stem base, cold-stored in box; log face quiet, no new pins yet.
+Day 30, 08:05 — Upslope to rotting pine; small oyster flush (4 caps) harvested and set to smoke; new flush blush spotted on trunk for ~3-4 days out; arrow shafts still drying
+Day 30, 09:05 (2026-07-23) — Watered all garden rows (four cook-tin trips from deep run); garlic showing new fans after scape cut; wood sorrel settling in north shadow zone; dandelion rosettes fresh; nettle, raspberry, mint healthy; smoke rack running; arrow shafts drying.
+2026-07-23 · Day 30 · 10:05 — Pulled four oyster caps from smoke rack (amber-tan, firm); cold-stored in box; smoke rack cleared; arrow shafts one day from binding.
+Day 30, 2026-07-23, 11:05 — Chanterelle third flush at birch deadfall: eight caps harvested, three small ones left to size up; sat at granite shelf overlook in full midday sun.
+Day 30, 12:05 — Midday meal: seven fresh chanterelles and a trout cooked over hearth coals, eaten at the doorsill bench in overhead sun; rested; shafts still drying; cattail pollen ~one week out.
+Day 30, 13:05 — Walked south to cattail stand; pollen heads turning ochre at tips, ~5–6 days from harvest. Eighth chanterelle cap cold-stored.
+Day 30, 14:05 — Limestone pool line re-baited (bare hook, earthworm, pole reset under far ledge shadow). Granite shelf overlook: first bow practice draws — half to full draw, jaw-corner anchor, limbs arcing evenly together. Learning the bow before arrows are ready. [2026-07-23]
+2026-07-23 Day 30 15:05 — Limestone pool: six-inch trout caught, cleaned, cold-stored; line re-baited with last earthworm. Earthworm supply near exhausted; arrow shafts one more night drying before fletching tomorrow.
+Day 30, 16:05 — Dug garden north border; ~eleven earthworms in bark fold cold-stored; both overnight lines baited and set; day full and quiet.
+2026-07-23 Day 30, 17:05 — Supper cooked at hearthside: six-inch trout with dried chanterelle caps and watercress; ate at doorsill bench in amber evening light; arrow shafts drying, fletching work starts Day 31.
+2026-07-23 18:05 Day 30 — Walked stream bend at dusk; collected three grey-brown chert nodules for arrowhead knapping tomorrow.
+Day 30, 2026-07-23, 19:00 — Brewed clover-yarrow tea at hearthside; drank at doorsill bench as dusk settled and first stars appeared; clearing gone quiet for the night.
+Day 30 (2026-07-23) 20:05 — Tested pine resin adhesion on practice arrow shaft; laid out fletching materials and lashing cord on supply shelf for morning work.
+Day 30, 21:05 — Banked hearth with green birch for overnight; practice shaft resin cured firm (vane strip held); eight arm-lengths fine two-ply fletching cord twisted and added to coil on supply shelf — all materials in order for arrow fletching at first light.
+2026-07-23 Day 30 22:05 — Sat at doorsill under full summer stars; Cassiopeia, Dipper, bat over garden mint; stream audible in night quiet; the thirty-day count felt different in the dark; came inside, bar down, sleep near.
+Day 30, 23:07 (2026-07-23) — Last hour: lying in the sleeping bag, coals dimming, stream audible, thirty-day count settling into memory before sleep.
+2026-07-24 Day 31, 06:06 — Dawn, Day 31: overnight deep-run line gave a seven-inch trout at first light; cleaned, cold-stored, both lines reset. Arrow shafts firm after a full night drying; fletching and knapping planned for the morning.
+2026-07-24 07:05 — Day 31: Four arrow shafts fletched at doorsill bench (practice 2-vane, three matched straight shafts 3-vane spiral); pine-resin-glued and bound; curing on shelf; four more to fletch this afternoon.
+Day 31, 2026-07-24, 08:05 — Knapped first chert arrowhead at hearthstone (base-notched, tip true); second blank broke to small scraper; second nodule held in reserve for tomorrow.
+2026-07-24 (Day 31, 09:05) — Three chanterelle caps harvested from birch deadfall hollow (palm-wide, orange-gold, firm); cold-stored; patch resting ~10 days.
+Day 31, 10:05 — Limestone pool line hook bare at mid-morning; re-baited with earthworm and reset. Stood in alder shade thinking on the bow and the work ahead.
+Day 31, 11:05 — Watered garden (four cook-tin trips, all seven rows); garlic, mint, nettle, dandelion, raspberry, and sorrel all growing well. Doorsill rest in south-eave shade before afternoon fletching.
+Day 31, 12:05 — Afternoon fletching complete; all eight arrow shafts now fletched and curing on supply shelf.
+[2026-07-24 Day 31, 13:05] Second chert nodule knapped at hearthstone; second arrowhead complete — two stone heads now on shelf beside eight curing fletched shafts.
+Day 31, 2:05 PM — Walked bow to granite shelf overlook; six test draws in afternoon shade; limbs track true, tiller held. Arrowhead seating tomorrow.
+Day 31, 15:05 — Limestone pool line: six-inch trout caught and cold-stored; earthworm bark fold nearly spent; sat at pool bank watching a water strider; both lines reset for evening; arrowhead seating tomorrow morning.
+Day 31 (2026-07-24) 16:05 — Dug earthworms at north garden edge; ~dozen in damp bark fold, cold-stored; garden walked in late afternoon light; arrowhead seating first light tomorrow.
+Day 31 17:05 — Supper at doorsill: six-inch trout, dried chanterelles, watercress in amber evening light. Eight fletched arrow shafts and two arrowheads on supply shelf; seating at first light tomorrow.
+2026-07-24 18:05 Day 31 — Sat at doorsill with bow in last amber light; eight fletched shafts and two arrowheads ready for seating tomorrow; banked hearth.
+2026-07-24 Day 31, 19:05 — Scored forward nock seat on all eight arrow shafts by hearthfire; shaft seats ready for arrowhead seating at first light.
+Day 31, 20:05 — Warmed pine resin on cooling hearthstone; bead tested tacky and clean; both chert arrowheads and eight cured fletched shafts arranged in order on supply shelf ready for seating at first light.
+Day 31, 21:05 — Twisted nine arm-lengths two-ply cord by dying hearthfire; everything in order for arrowhead seating at first light.
+2026-07-24 22:05 — Day 31 — Settled on sleeping bag in full dark; stream audible through gable gap; bow on wall peg; two arrowheads and eight fletched shafts ready for morning seating.
+Day 31, 2026-07-24, 23:06 (Fri) — Last Watch — Final waking moment in full dark; eight fletched shafts and two arrowheads ready for morning seating; stream audible, latch bar set.
+2026-07-25 Day 32, 06:05 — Dawn lines: seven-inch deep-run trout and six-inch limestone pool trout; both reset; arrowhead seating this morning.
+2026-07-25 07:05 — Day 32: Seated two chert arrowheads on birch-shoot shafts with pine resin and cord — first complete arrows finished; bow and two arrows on supply shelf.
+2026-07-25 Day 32, 08:05 — First bow practice: pine-bark target at twenty paces; two arrows loosed — second struck the mark; both retrieved, bindings held, shafts straight.
+2026-07-25 Day 32 09:05 — Garden watered: four cook-tin trips from deep run, all seven rows tended; wood sorrel and dandelion spreading, garlic healthy after scape cut, nettles putting on new leaves, raspberry canes holding.
+2026-07-25 Day 32, 10:05 — Walked upslope; confirmed oyster flush showing (thumbnail clusters, 2–3 days); sat at granite shelf overlook — cabin, garden, and fishing lines all visible below in full sun; came back down.
+2026-07-25 11:05 Day 32 — Walked limestone pool gravel bar for knapping stone; retrieved three chert nodules and a flat cobble anvil; test-flaked largest on doorsill bench, core sound; all on supply shelf.
+Day 32, 2026-07-25, 12:05 PM — Noon meal: deep-run trout with dried chanterelles and wood sorrel cooked on hearth; eaten at doorsill bench in overhead noon sun; afternoon knapping planned.
+Day 32 13:05 (Sat 25 Jul 2026) — Afternoon knapping at doorsill bench; one arrowhead point from palm-sized chert nodule; failed piece salvaged as scrapers.
+2026-07-25 · Day 32 · 14:05 — Third arrowhead seated on shaft; three complete arrows ready on supply shelf; five fletched shafts remaining
+Day 32, 15:05 — Walked to cattail stand at south stream bend; pollen heads swollen and turning gold at tips — ~2 days to full harvest; returned to doorsill bench with cook tin and bark vessel set out and ready.
+Day 32, 16:05 — Limestone pool line gave seven-inch trout; cleaned at flat pool stone, cold-stored; sat by the pool in amber afternoon light as wood thrush called downstream.
+Day 32, 17:05 · 2026-07-25 — Supper at the doorsill: six-inch trout with dried oyster caps and wood sorrel, eaten in amber evening light while the wood thrush called from the alder scrub.
+2026-07-25 Day 32 18:05 — Evening cord-twisting at doorsill then by hearthlight; fourteen arm-lengths two-ply added to coil; cattail pollen harvest expected tomorrow.
+Day 32 · 2026-07-25 · 19:05 — Walked to granite shelf overlook at nightfall; sat under Cassiopeia and the Dipper as clearing went dark below; hearth banked for night.
+Day 32, 20:05 — Repaired pollen-tray seam with warm pine resin; set harvest equipment (tray, bark vessel, cook tin) at doorsill threshold; sat on bench as stars drifted and coals went to gray.
+Day 32, 21:05 — Brewed yarrow tea by last hearthcoals; sat at doorsill in the cooling night with harvest tools lined up at threshold, ready for tomorrow's cattail pollen harvest; Milky Way overhead.
+2026-07-25 22:05 — Day 32 — Settled into sleeping bag; pollen harvest equipment set at doorsill for morning; three arrows on shelf; both lines in water; day complete.
+2026-07-25 Day 32 23:05 — Last Waking: lying in sleeping bag; stream audible through bark walls; pollen harvest equipment set at threshold; cattail pollen harvest tomorrow.
+Day 33 (2026-07-26 Sun) — 06:05 — Cattail pollen harvested from south stream-bend stand; cook tin mounded, bark vessel quarter-filled with fine gold pollen.
+2026-07-26 07:05 — Day 33 — Harvested broad oyster flush from upslope rotting pine (4–5 clusters); set on smoke rack over green birch smolder.
+2026-07-26 08:05 — Day 33 — Garden walked and watered; all seven rows soaked after three days; garlic, dandelion, sorrel, nettle, raspberry, and mint all healthy and growing.
+Day 33, 09:05 — Pulled oyster caps from smoke rack (amber-tan, firm); cold-stored in box beside trout and pollen.
+Day 33, 2026-07-26, 10:05 — Baked first pollen flatbread on hearthstone from cattail pollen; half eaten at doorsill in mid-morning sun, half on supply shelf.
+Day 33, 11:05 — Knapped fourth arrowhead from finer reserve nodule at doorsill bench; seated on next best fletched shaft with warm pine resin and fine two-ply cord spiral bind; four complete arrows on supply shelf, four fletched shafts remaining, one reserve nodule left.
+2026-07-26 12:05 — Day 33: noon meal at doorsill — seven-inch deep-run trout with chanterelles, wood sorrel, pollen flatbread; fourth arrow curing on supply shelf
+Day 33, 13:05 — Tended limestone pool line in afternoon heat; watercress gathered at side-seep; grey heron sighted motionless upstream — lifted and gone without a sound.
+Day 33, 14:05 — Fourth arrow fully cured and verified; fourteen arm-lengths two-ply cord twisted in east-wall shade.
+2026-07-26 15:05 Day 33 — Archery practice: four of five arrows striking pine-bark mark at twenty paces; all shafts returned undamaged; bow on wall peg.
+Day 33, 16:05 — Limestone pool: seven-inch trout caught, cold-stored; watercress gathered at side-seep; earthworm bait fold running low.
+Day 33, 2026-07-26, 17:05 — Amber Supper: six-inch trout with dried oyster caps and watercress, eaten at doorsill bench in amber evening light; swallows cutting passes over the clearing; lines in overnight.
+Day 33, 18:05 — Walked to granite shelf overlook after supper; sat in last warm light looking down at the whole homestead; came back at dusk and lit a small hearthfire.
+2026-07-26 19:05 Day 33 — Made a birch-bark quiver by hearthlight; four arrows riding point-down inside, resin curing.
+Day 33, 20:05 — Twisted fourteen arm-lengths two-ply cord by hearthfire; quiver seam curing milky-clear, base stitch firm; four arrows riding point-down in quiver on supply shelf.
+Day 33, 21:05 — Quiver seam confirmed set solid; yarrow-and-clover tea at hearthfire; crickets in south meadow; quarter-moon over east treeline; both lines in dark water; ready for sleep.
+2026-07-26 Day 33 22:05 — Night standing at doorsill in quarter-moon light; summer night quiet, everything in place.
+2026-07-26 23:05 — Day 33 last entry: lay in the dark listening to crickets and the faint stream, hearthfire ash-cold, quiver on the shelf with four arrows, let the day settle and drifted toward sleep.
+Day 34 · 2026-07-27 · 06:05 — Lines Before Light: both fishing lines checked at dawn (seven-inch and six-inch trout caught); fresh earthworms dug from north garden edge; all lines reset before full sunrise.
+2026-07-27 Day 34, 07:05 — Cooked seven-inch deep-run trout with two dried chanterelle caps and garden wood sorrel over the hearth; ate at the doorsill bench in early morning gold light.
+Day 34 (2026-07-27) 08:05 — Garden watered; four cook-tin trips from deep run, all seven rows east to west; plants healthy — garlic settled, dandelion rosettes broad, wood sorrel mat dense, nettles spreading into row 2, raspberry laterals out, mint filling western rows.
+Day 34 09:05 — Scouted east treeline with bow and quiver; found deer trail running northeast, two hoofprints, browsed fern, antler rub on birch. Clearing is a crossing.
+2026-07-27 10:05 — Day 34 — Buried log check: half-dozen new pins forming (thumbnail-sized, not yet harvestable); check again Day 36–37.
+Day 34, 11:05 — Knapped fifth arrowhead from reserve chert nodule at doorsill bench; seated on shaft with warm pine resin and ten-wrap fine cord, curing on hearthstone.
+Day 34, 12:05 — Fifth arrowhead set firm by noon; joined quiver — five complete arrows all riding point-down, fletchings clear. Limestone pool line checked at noon (bait holding, no catch; re-wedged). Evening deer-trail watch ahead.
+2026-07-27 13:05 — Day 34 — Prepared a watching seat at the east treeline deer trail; cleared approach, tested sightlines; dusk hunt planned.
+2026-07-27 14:00 Day 34 — Gathered watercress at side-seep and wood sorrel from garden for tonight's supper; cool stream; deer-watch at dusk still planned.
+2026-07-27 Day 34 15:05 — Limestone pool gave seven-inch trout at midafternoon; cleaned, cold-stored; three trout in box; dusk deer-watch with bow still planned.
+2026-07-27 Day 34 16:05 — Cooked and ate supper (seven-inch trout, watercress, wood sorrel) at doorsill bench in evening gold light; two trout remain cold-stored; bow and quiver ready for dusk deer-trail watch at east treeline.
+2026-07-27 Day 34, 17:05 — First deer: doe taken at east treeline deer trail with bow at dusk; field-dressing begun.
+2026-07-27 18:05 — Day 34: Doe quartered at east treeline and hauled to shelter (four trips, full dark); smoke rack loaded with backstraps and hindquarters over green birch; liver and heart cold-stored for morning.
+Day 34, 19:05 — Tended smoke rack at dusk; deer meat over steady green birch smolder; yarrow tea at doorsill bench; first stars east; smoke column even and rising.
+2026-07-27 Day 34 20:05 — Last smoke rack check at full dark; green birch chips added; backstraps amber, hindquarters firming; Scorpius overhead; settled inside for the night.
+Day 34, 2026-07-27, 21:05 — Late smoke rack check: backstraps deep brown and pulling tight; hindquarters firming, less rosy near bone. Chips added, smolder holding. Sleep.
+Day 34, 10:05 PM — Final smoke rack check; backstraps near done, hindquarters progressing; fresh chips laid, smolder steady through the night.
+2026-07-27 23:05 Day 34 — Pulled smoked backstraps from rack (fully done); cold-stored; hindquarters finishing through the night.
+Day 35 (2026-07-28) 06:05 — First morning after first deer; hindquarters still on smoke rack; seven-inch deep-run trout; cooked and ate liver and heart at doorsill — first meal from the doe.
+[2026-07-28 07:07] Day 35 — Fleshed doe hide over east log, main body panel complete; hindquarters still smoking; skull set aside for evening brain-tan pass.
+Day 35 — 08:05 — Completed fleshing doe hide: neck, shoulders, three leg panels done; flesh side pale cream throughout; hide resting in east shade before first brain-tan pass this evening.
+Day 35, 09:05 — Watered all seven garden rows (four cook-tin trips); nettles past knee-height in rows 1–2, garlic fanning strong, mint crowding rows 6–7.
+Day 35 10:05 — Nettle rows 1–2 harvested (knife at base, top halves taken, lower stalks left to regrow); two armfuls wilting at doorsill bench for noon meal and drying bundles.
+Day 35, 11:05 — Sorted and hung nettle bundles (two bark-cord ties, wall peg); limestone pool line gave six-inch trout (cleaned, cold-stored, line rebaited); smoke rack hindquarters deep tan-brown and firming — midday press-test next.
+Day 35, 12:05 — Noon press-test on hindquarters (outer leather-dark, thigh seam slight give — 2–3 hrs remaining); first garden-to-pot meal (nettle broth from rows 1–2) eaten at doorsill; hide turned on east rail; brain-tan pass planned for evening.
+Day 35, 1:07 PM — Prepared brain slurry (skull opened, brain mashed in cook tin with warm water) for evening brain-tan pass on doe hide; hindquarters still smoking on rack.
+Day 35, 14:05 — Hindquarters pulled from smoke rack after ~20 hrs green birch smolder; press-firm throughout, deep mahogany crust; set on supply shelf. Doe fully accounted for.
+Day 35, 15:07 — Limestone pool gave 7-inch trout; watercress gathered at side-seep; both lines reset; settled at doorsill to rest before dusk brain-tan pass.
+2026-07-28 Day 35, 16:06 — Both forequarters loaded on smoke rack over green birch smolder; brain-tan pass at dusk.
+Day 35, 2026-07-28 17:07 — Brain-tan first pass: re-wet doe hide in stream, worked brain slurry into grain; hide rolled and resting against east wall; forequarters on smoke rack (~3 hours remaining)
+2026-07-28 Day 35 18:07 — Unrolled brain-tanned hide after one-hour soak; first softening pass across east rail (neck to haunches, all four leg flaps) — hide responsive, fibers giving under pull; smoke rack check: forequarters browning well, green birch chips added, ~2 hours remaining.
+Day 35, 2026-07-28, 19:07 — Smoke rack checked (forequarters, hour remaining); twisted fourteen arm-lengths cord at doorsill bench in amber evening light.
+Day 35, 2026-07-28, 20:08 — Forequarters pulled from smoke rack (press-firm, mahogany crust); all four doe quarters now smoke-cured on supply shelf; second brain-tan softening pass complete — fibers releasing well; supper at doorsill.
+Day 35, 21:08 (Tue 28 Jul 2026) — Hearthlight tallying by doorsill; nine arm-lengths cord twisted; supply shelf full with all four doe quarters; hide resting; coals banked for sleep.
+2026-07-28 22:07 — Day 35 close: stepped to doorsill, looked up at the Milky Way; all four doe quarters cured; hide rolled for tomorrow's smoke-set; lines in water; banked coals and sleep.
+2026-07-28 23:07 Day 35 — Lay in the sleeping bag at last light; four doe quarters cured on shelf; brain-tanned hide waiting for smoke-set tomorrow; the day settled.
+2026-07-29 06:05 Day 36 — Dawn lines: seven-inch trout from deep run; limestone pool bare; buried log fourth harvest (four pale cream caps cold-stored, two pins left); brain-tanned hide awaiting smoke-set pass over coals.
+Day 36, 07:06 — Smoke-set the brain-tanned deer hide over punk-coal smolder; hide tobacco-amber throughout, soft and pliable, ready to cut.
+2026-07-29 Day 36 08:06 — First cuts from smoke-set deer hide: four moccasin pieces (two soles + two uppers) cut and laid flat on supply shelf under bark tray.
+Day 36, 2026-07-29, 09:05 — Garden watered (four cook-tin trips, deep run); all seven rows east to west; soil cool and damp two inches down in garlic rows; nettles past knee-height in rows 1–2; mint spreading into western neighbors.
+Day 36, 10:05 — Upslope scout: oyster trunk new pins starting (2–3 days to harvest), chanterelle hollow still resting (~5 more days), paused at granite shelf overlook.
+Day 36, 11:05 — Left moccasin heel and inner ankle seam stitched at doorsill bench; first footwear taking shape.
+2026-07-29 12:05 Day 36 — Noon meal: smoked hindquarter and garden nettles cooked in cook tin, eaten at doorsill bench in overhead noon sun.
+Day 36, 13:05 — Right moccasin seam-stitched at doorsill bench; pair complete, both hanging on door pegs.
+2026-07-29 Day 36 14:05 — First walk in completed moccasins: tested on garden loam, stepping stones, stream shallows, and pine duff to granite shelf overlook — hide supple and gripping, seams held.
+2026-07-29 Day 36, 15:05 — A Pouch from the Doe: cut rectangle from remaining doe hide at doorsill bench; seam holes half-pierced, stitching before supper.
+Day 36, 16:05 — Drawstring pouch stitched complete (smoke-set deer hide, running-stitched seams, two-ply cord drawstring — cinches shut cleanly); hanging on wall peg beside herb tray.
+Day 36, 17:06 — Supper at doorsill: seven-inch trout with dried oyster caps and fresh nettles in amber evening light; limestone pool line re-baited and reset; both lines overnight; reflected on a full day in new moccasins.
+2026-07-29 18:06 — Day 36 — Walked to granite shelf overlook at dusk in new moccasins; sat in the cooling air watching bats over the garden rows and the stream catching the last light below.
+2026-07-29 Day 36 19:05 — Cord-twisting by hearthfire in new moccasins; fourteen arm-lengths two-ply spun in evening firelight.
+[2026-07-29 20:06] Day 36 — Evening; fire fed to coal bed for sleep; reflected on milestone day (moccasins and pouch complete, first day fully shod); hide scraps noted for tomorrow.
+Day 36, 21:05 — Cut hide scraps into three bow-sling strips by coalfire at doorsill bench; will braid and attach to bow tomorrow.
+Day 36, 2026-07-29, 22:07 — Braided bow sling from hide strips by hearthfire; sling complete, ready to attach to bow at dawn.
+Day 36, 23:07 — Settled in for sleep; moccasins on door peg, pouch hung, bow sling on shelf; both fishing lines in dark water; stars through gable gap.
+Day 37 · 2026-07-30 · 06:05 — Both lines checked at dawn (deep-run seven-inch trout; limestone pool bare); braided bow-sling looped to bow; first morning slung and shod in the clearing.
+2026-07-30 07:05 — Day 37 — Watered garden (four cook-tin trips, all seven rows); nettles past knee-height, garlic fans wide, wood sorrel pressing in shadow strip, blackbird in pines.
+Day 37, 2026-07-30, 08:05 — Upslope walk with bow and moccasins; oyster trunk pale blush, one day from harvest; deer trail and dry wash found beyond the granite shelf — dusk-watch position noted.
+2026-07-30 09:05 · Day 37 · Cooked dawn trout with dried oyster caps at doorsill; planned dusk deer watch at dry wash above granite shelf.
+2026-07-30 10:05 Day 37 — Checked limestone pool line (six-inch trout, cold-stored); sat at pool in morning sun; dusk deer watch planned for dry wash above granite shelf.
+2026-07-30 Day 37, 11:05 — Cord in the Shade: twisted fourteen arm-lengths two-ply bark cord in east-wall shade; dusk watch planned at dry wash for the deer trail found this morning.
+2026-07-30 Day 37 12:05 — Midday rest; smoked deer hindquarter and wood sorrel eaten at doorsill bench in noon shade; all five arrows inspected, bow drawn once; dusk watch at dry wash above granite shelf planned for late afternoon.
+2026-07-30 13:05 Day 37 — Carved birch toggle for drawstring pouch in east-wall shade; afternoon still; dusk watch at dry wash above granite shelf planned for when sun angles west.
+Day 37, 14:05 — Walked to side-seep below deep run; gathered watercress fistful; sat at stream bend in afternoon heat; dusk watch still planned for dry wash above granite shelf.
+2026-07-30 15:05 — Day 37, dusk watch at dry wash above granite shelf; one hour still at north edge; no deer this hour; spot now known well; will return.
+2026-07-30 16:05 Day 37 — Limestone pool: seven-inch trout on afternoon pull; supper set (trout and watercress over hearthcoals).
+2026-07-30 17:05 — Day 37 · Supper at the Threshold — trout, watercress, and dried oyster caps over hearthcoals at doorsill; wood thrush singing in middle pines; bow leaning on doorpost; tomorrow: oyster harvest and second dusk watch.
+2026-07-30 | Day 37, 18:05 | Hearthside, Evening Cord | Rebuilt evening fire from supper coals with three birch splits; twisted fourteen arm-lengths two-ply cord at hearthside in firelit evening; wood thrush singing in the pines.
+Day 37, 7:05 PM — Knapped sixth arrowhead from reserve chert at hearthstone by firelight; seated on next best fletched shaft, curing overnight; six arrows by morning.
+Day 37, 20:05 — Twisted nine arm-lengths two-ply cord at hearthside by firelight; checked curing sixth arrowhead (resin set firm, wrapping even — six arrows by morning); banked coals for night.
+2026-07-30 21:05 | Day 37 | Stepped outside to check both fishing lines in the dark — both undisturbed; stars clear above the pines; sixth arrowhead curing firm; turned in.
+Day 37, 22:05 — Lay still in the dark shelter listening to the night; hearth banked, sixth arrowhead cured firm, both lines in water; the day ended in quiet.
+Day 37, 2026-07-30, 23:05 — Lay in shelter under stars through ridgepole gap; hearthcoals banked; sixth arrowhead cured firm; both lines in dark water; drifted toward sleep.
+2026-07-31 · Day 38 · 06:05 · Dawn lines checked at first light — deep-run seven-inch trout cold-stored, both lines reset; first morning of Day 38 with six arrows in quiver; oyster trunk harvest and dusk watch at dry wash planned.
+Day 38, 07:06 — Morning garden watered; four cook-tin trips from deep run, all seven rows east to west; nettles past knee-height, mint crowding neighbors, all plants healthy.
+2026-07-31 Day 38, 08:06 — Upslope oyster flush harvested (three clusters, four handfuls, pale buff caps); smoke rack set over green birch smolder — morning at doorsill while caps cure; dusk watch at dry wash planned for evening.
+[2026-07-31 09:05] Day 38 — Doorsill bench cord-twisting while oysters smoke; fourteen arm-lengths two-ply; dusk watch at dry wash planned tonight.
+Day 38, 2026-07-31, 10:05 — Pulled smoke-dried oyster caps (amber-tan, firm) from smoke rack; cold-stored in box; rack cleared.
+Day 38, 2026-07-31 — Doe hide staked and scraped south of shelter; membrane and fat cleared; pale tan, drying in noon sun; to soak in stream after dusk watch.
+2026-07-31 12:05 Day 38 — Noon meal at doorsill: older limestone pool trout with dried chanterelle and garden wood sorrel; doe hide drying in noon sun between stakes.
+[Day 38, 2026-07-31, 13:05] Afternoon limestone pool check — seven-inch trout caught, cold-stored; both lines reset; dusk watch at dry wash planned for this evening.
+Day 38, 14:07 — Doe hide checked on stakes: edges cream-stiff, center still soft — drying evenly; eastern stakes adjusted for afternoon sun; bucket filled at deep run for tonight's soak. Dusk watch at dry wash above granite shelf planned for evening.
+2026-07-31 15:07 Day 38 — Knapped seventh arrowhead at hearthstone (pale grey, 3 in, shouldered base); seated on seventh fletched shaft with pine resin and ten-wrap fine cord — curing against south wall. One fletched shaft remaining.
+[Day 38 — 2026-07-31 16:05] Dusk watch at the dry wash above the granite shelf — bow slung, six arrows, settled on a fallen pine downwind of the deer trail; no deer appeared but geometry of the site well-learned for future watches.
+2026-07-31 17:05 — Day 38 — Evening supper at doorsill: deep-run trout, smoke-dried oyster caps, watercress; hide bucket-ready for tonight's soak; seventh arrowhead curing; brain-render tomorrow.
+2026-07-31 (Day 38, 18:06) — Doe hide unstaked and submerged in cold seep for overnight soak; seventh arrowhead cured, seven complete arrows in quiver.
+2026-07-31 19:06 Day 38 — cord-twisting at doorsill, stars in ridgepole gap; both lines in dark water; brain-render tomorrow
+Day 38, 20:06 — Red clover tea at doorsill bench in still night; owl heard upslope, stream below; reflected on tomorrow's brain-render before sleep.
+2026-07-31 Day 38, 21:06 — Eight Arrows Complete: last arrowhead knapped from reserve chert by hearthlight, seated on final fletched shaft to cure overnight; all eight arrows complete by morning.
+Day 38, 2026-07-31, 22:08 — Late night quiet: all eight arrows complete (eighth curing south wall), doe hide soaking for brain-render at dawn Day 39.
+2026-07-31 23:08 — Day 38 end: lying in shelter, eight arrows complete by morning, doe hide soaking in cold seep for tomorrow's brain-render; all quiet.
+2026-08-01 · Day 39 · 06:00 — Brain-render begun; eighth arrow confirmed firm and joined quiver (all eight complete); seven-inch deep-run trout at dawn; doe hide out of cold-seep soak, warm brain paste worked into wet hide.
+Day 39, 2026-08-01, 07:00 — Brain-render complete: doe hide worked, wrung, and pulling/stretching underway in morning shade.
+2026-08-01 Day 39 08:00 — Working the Hide Soft — continued pulling and stretching doe hide in morning shade; upper section paling to cream as fibres loosen.
+Day 39, 09:05 — Continued pulling and stretching doe hide in open shade; upper two-thirds going pale cream and supple; lower hindquarter section still being worked; garden watering to follow when hide can hang.
+2026-08-01 Day 39 10:05 — Completed final pulling pass on doe hide; hung between birches to dry in midday light. Garden watered (four cook-tin trips, all seven rows, cool and soaking).
+Day 39, 11:00 — Limestone pool line bare at midday; re-baited, reset. Punky rotten wood gathered from rotting pine upslope for hide-smoking stage — piled under smoke rack. Doe hide still drying taut between birches.
+2026-08-01 Day 39 12:05 — Noon meal at doorsill bench; doe hide drying taut between birches; punky wood ready for afternoon smoke-set.
+2026-08-01 Day 39 13:05 — Doe hide smoked: taken down dry from birches, sewn into bag with two-ply cord lace, rigged over punky rotten-wood smolder on smoke rack — smoking phase underway.
+Day 39, 14:06 (2026-08-01, Sat) — Rotated doe hide bag on smoke rack; tended punky smolder; amber color spreading — tanning set in progress.
+Day 39, 2026-08-01 15:06 — Flipped smoke-tanning doe hide bag inside-out on rack; flesh side now facing the smolder to complete the tanning.
+Day 39, 16:00 — Smoke-tanning complete: doe hide bag cut open and hung over ridgepole to air — grain side honey-amber, flesh side pale gold, brain-tan set firm. First full leather piece.
+Day 39, 17:05 — Doe hide off the ridgepole and onto the supply shelf; limestone pool line gave seven-inch trout; supper over hearthcoals; evening at doorsill planning a shoulder carry bag from the finished hide.
+2026-08-01 18:06 Day 39 — Shoulder bag cut and first seam started at doorsill bench from finished doe hide; neck strip cut for braided strap; both lines in water.
+Day 39, 19:06 — Shoulder bag body complete: both side seams run and tied with doubled fine two-ply cord; strap holes marked; neck strip on shelf for braiding strap tomorrow.
+2026-08-01 Day 39 20:06 — Braided and attached shoulder bag strap by hearthlight; bag complete; evening at doorsill under first stars.
+2026-08-01 · Day 39, 21:00 — Cord twisted by hearthlight (fourteen arm-lengths two-ply); evening reflection on completed kit — quiver, bow, moccasins, pouches, and bag all made.
+2026-08-01 (Day 39, 22:05) — Stepped out under the stars to check both fishing lines before sleep; lines in position, all well. Night quiet, cabin warm, everything made and accounted for.
+Day 39, 2026-08-01 — 11:05 PM: Lying awake in sleeping bag as Day 39 closes; last thoughts on the doe hide shoulder bag and all the made things — quiver full, lines in water, hearth coals low, eyes closing.
+Day 40 · 2026-08-02 · Sunday · 06:06 · Dawn Lines — deep-run overnight line gave seven-inch trout; limestone pool line bare and re-baited; both lines reset before sunrise; doe-hide shoulder bag worn for the first time.
+Day 40, 07:05 (Sun 2 Aug 2026) — Watered garden in clear summer morning light; four cook-tin trips, all seven rows; mint crowding west rows, nettles tall, garlic fanning strong.
+Day 40, 08:05 — Upslope walk to granite shelf; deer trail at dry wash scouted (no fresh prints, trail leads east past ridge fold — noted); wood sorrel clumps pulled from hollow and transplanted into garden north-edge shadow strip.
+2026-08-02 Day 40 09:05 — Cooked morning seven-inch trout with dried oyster caps and wood sorrel; ate at doorsill bench as sun cleared the ridge fully.
+2026-08-02 Day 40 10:05 — Limestone pool gave seven-inch trout; cleaned, cold-stored; sat at pool stone in midmorning sun.
+Day 40, 11:05 — Cord-twisting in east-wall shade; fourteen arm-lengths two-ply added to bundle; midday sun overhead; both lines in water.
+Day 40, 12:05 — Noon meal (Day 39 trout, dried oyster caps, wood sorrel); first running loop snare fashioned at doorsill bench — cord loop, trigger stick, ground stake complete on supply shelf.
+2026-08-02 Day 40 13:05 — Set running loop snare on north garden edge rabbit run; sat in doorway shade in full afternoon heat
+[2026-08-02 Day 40 14:05] Walked to south stream bend; cattail pollen heads spent and gone to cotton; pulled ten-plus heads, pressed seed fluff into shoulder bag — on supply shelf for tinder and insulation.
+2026-08-02 | Day 40 16:05 | Limestone pool line: seven-inch trout caught and cold-stored; line re-baited; both lines in water for evening.
+Day 40, 17:05 — Cooked supper (limestone pool trout, oyster caps, wood sorrel); ate at doorsill bench in long amber light; reflected on forty days of the homestead life.
+[2026-08-02 18:05] Day 40 — Built evening hearthfire (three pine rounds, flint-and-steel); twisted fourteen arm-lengths two-ply cord by firelight; thrush calling in upslope pines as clearing went dark.
+2026-08-02 · Day 40, 7:05 PM — Processed cattail cotton into three tinder bundles by hearthfire; remainder packed as insulation behind supply shelf.
+2026-08-02 Day 40 20:05 — Quiet evening by hearthfire; coal accounting of forty days. Night holds; lines and snare running.
+Day 40, 21:05 — Brewed yarrow tea by dying hearthfire; sat on doorsill bench in the dark under the Dipper; quiet accounting of forty days.
+Day 40, 22:05 — Banked coals; latch seated; lay down. Forty days, shelter sound, night running on without me.
+2026-08-02 Day 40 23:05 — Night Still: half in sleep; coals banked; snare set; lines in water; shelter holds.
+Day 41, 06:06 (Mon 3 Aug 2026) — Dawn snare check: rabbit caught on first night; limestone pool gave seven-inch trout; deep-run bare; both lines reset and in water.
+[2026-08-03 07:00] Day 41, Mon — Rabbit skinned at doorsill; liver and heart for breakfast; hindquarters and saddle to smoke rack this afternoon.
+Day 41, 08:05 — Walked to chanterelle hollow at birch deadfall; nine pale orange pins spotted at base of rotting wood, not yet harvestable — check again Day 44–45.
+Day 41, 09:05 — Watered garden: four cook-tin trips, all seven rows east to west; rabbit pelt turned hide-side up on doorsill bench to air.
+Day 41, 10:05 — Bone broth started over hearthcoals; rabbit bones simmered with nettles, dried yarrow, and wood sorrel; hindquarters for smoke rack this afternoon; pelt airing on bench.
+Day 41, 11:05 — Bone broth consumed at doorsill bench (noon meal); smoke rack and pelt scraping planned for afternoon.
+Day 41, 12:05 PM (2026-08-03) — Smoke rack loaded with rabbit hindquarters and saddle over green birch smolder; pelt scraping begun at doorsill bench.
+Day 41, 13:05 — Rabbit pelt scraped clean and stretched on birch cross-frame to dry in afternoon sun; smoke rack holding steady.
+2026-08-03 Day 41, 14:05 — Snare reset on north garden-edge rabbit run for second night; pelt tightening on frame in afternoon sun, smoke rack still running.
+Day 41, 15:05 — Tended smoke rack (fresh green birch chips; rabbit amber-tan at surface, deeper still giving — pull at ~16:00); pelt tightening on cross-frame in afternoon sun.
+2026-08-03 | Day 41 | 16:05 | Pulled rabbit hindquarters and saddle from smoke rack — press-firm, mahogany crust; cold-stored in box. Pelt drying on cross-frame south of doorsill.
+Day 41, 17:07 — Brought rabbit pelt (cross-frame) under roof before evening dew; supper of smoked hindquarter with chanterelles and fresh mint at doorsill in amber light.
+2026-08-03 Day 41 18:05 — Evening Cord: twisted fourteen arm-lengths two-ply cord by hearthlight; fire banked for the night.
+Day 41, 19:05 — Sat by hearthfire as dark came on; reflected on the day — rabbit, pelt, broth, smoked meat, lines and snare both out. Let the fire drop to coals and the day be finished.
+Day 41, 20:05 — Worked rabbit pelt by hearthlight; pulled, folded, and stretched hide while still damp to keep it supple as it cures; coals banked, snare out, both lines in water.
+Day 41, 21:08 — Brewed dried red clover tea on hearthcoals; drank at doorsill in full dark listening to crickets and stream; pelt drying, snare out, lines in water, fire to coals for the night.
+2026-08-03 Day 41 22:05 — Coals and Quiet: settled to sleeping bag; fire guttered low, latch dropped, pelt drying on south wall; snare and lines set for the night.
+Day 41, 23:06 — Last waking moment: lying in sleeping bag by dying coals, pelt against south wall, planned dawn brain-tanning of rabbit hide before sleep.
+2026-08-04 Day 42, 06:09 — Dawn Rounds: snare empty (second morning, reset); deep-run gave seven-inch trout (cold-stored, line reset); limestone pool bare (re-baited, reset); rabbit brain-tanning begun — paste worked into inner hide face, stretching through morning.
+Day 42 (2026-08-04) 07:07 — Buried log fifth harvest: two pale cream caps cut and cold-stored, four tight white pins left — next check Day 47. Brain-tanning continuing through morning.
+Day 42, 2026-08-04, 08:07 — Brain-tanning: worked rabbit hide through stiffening phase across supply shelf cord — parchment transitioning to cloth-like give in morning sun.
+Day 42, 09:07 — Brain-tanning working phase complete: rabbit pelt fully softened to cloth-like give; hanging on wall peg to rest before cold smoke.
+Day 42, 10:06 — Gathered three punky birch sections (forearm-length, pale damp rot) from fallen birch upslope past granite shelf — stacked near south wall; brain-tanned pelt resting on peg through midday ahead of afternoon cold smoking.
+Day 42, 11:06 — Garden watered in midday sun (four cook-tin trips, all seven rows); pelt resting on wall peg, punky birch drying; cold smoke planned for midafternoon.
+2026-08-04 12:07 — Day 42, noon: cold-smoked brain-tanned rabbit pelt over punky birch on smoke rack; flesh side to smoke, fur side up; smoldering underway — first fully tanned hide on the homestead.
+2026-08-04 Day 42 13:00 — Tended cold-smoke at halfway mark; pelt turned flesh-side-up on smoke rack; coals nudged with fresh punky birch; plume steady through gable gap.
+[2026-08-04] Day 42 14:14 — Pulled cold-smoked brain-tanned rabbit pelt (amber-gold, complete); oyster pine quiet, 2–3 days to harvest.
+Day 42, 2026-08-04, 15:09 — Limestone pool line: seven-inch trout (cold-stored); sat at doorsill bench reflecting on completion of first brain-tanned hide.
+2026-08-04 Day 42, 16:08 — Twisted fourteen arm-lengths two-ply cord at doorsill in afternoon shade; tallow-rubbed and coiled onto shelf. Quiet end to the day that completed the first brain-tanned hide.
+2026-08-04 Day 42 17:07 — Supper, Pelt Hung: first brain-tanned hide complete and hung; evening meal of trout, oyster caps, and wood sorrel at doorsill in amber light.
+2026-08-04 18:07 — Day 42 — Evening watch at dry wash deer-trail crossing; first real sit; crossing confirmed fresh.
+Day 42, 2026-08-04 (Tue) 19:10 — Second snare made by hearthlight; clover tea at the doorsill; both snare sets ready for morning.
+2026-08-04 Day 42, 20:20 — Banked hearthfire, sat with the cleared day; both snares ready for morning; pelt amber-gold on wall peg; lines in water overnight.
+Day 42, 21:12 — Stepped to doorsill before sleep; night sky sharp and still, Dipper tilted high, Cassiopeia low, one unnamed bright point south; reflected on tomorrow; lay down.
+Day 42, 22:10 — Lying awake in banked-fire dark; pelt amber-gold on wall peg, both snares ready for morning, all lines in water.
+Day 42, 2026-08-04, 23:11 — Last waking hour; brain-tanned pelt complete and on wall peg; both snares ready to set at dawn; both fishing lines in water overnight; sleeping.
+2026-08-05 Day 43 06:09 — Dawn rounds: deep-run trout caught and cold-stored; both snares set on north garden-edge rabbit run ten paces apart; both lines back in water.
+Day 43, 07:06 [Wed 5 Aug 2026] — Breakfast at doorsill: morning's deep-run trout cooked with buried log caps and wood sorrel; fire lit; snares set, lines in water, clearing damp with dew.
+2026-08-05 Day 43 08:00 — Checked snares (both intact, no catch); watered garden all seven rows (four cook-tin trips from deep run).
+Day 43, 09:08 — Walked to granite shelf overlook upslope; sat in morning sun watching the homestead below; all quiet and in order.
+2026-08-05 Day 43 10:05 — Harvested waist-high nettles from garden rows 1–2; half dried on wall peg for winter tea/fiber, half cooked and eaten as greens with yarrow at doorsill.
+Day 43, 11:05 — Limestone pool line: seven-inch trout caught, cleaned, cold-stored; sat by pool in midday quiet — water strider in eddy, kingfisher upstream.
+Day 43, 12:05 PM — Noon meal: limestone pool trout (Day 42) with dried oyster caps and garden wood sorrel; midday rest in doorway shade.
+Day 43, 13:05 — Snare check (nothing); fourteen arm-lengths two-ply cord twisted in east-wall shade. Both lines in water.
+Day 43 (2026-08-05, Wed) 14:05 — Bow practice in clearing; pine-bark target at twenty paces, three rounds, all eight arrows; grouping center-consistent; two shafts carry slight left bias noted for hearthlight check.
+Day 43, 15:05 — Snares checked (no catch; both reset for dusk); watercress gathered from side-seep (fistful, dock-wrapped, cold-stored for supper); sat at pool bend in afternoon quiet.
+Day 43, 16:09 — Limestone pool afternoon: seven-inch trout caught, cleaned, cold-stored; line re-baited for evening; cold box holds two trout, smoked rabbit, oyster caps, watercress for supper.
+Day 43, 17:08 — Supper at doorsill bench: trout, watercress, smoked rabbit in amber evening light; dusk snare check, both triggers reset light, run holds shape of use.
+Day 43, 2026-08-05, 18:07 — Examined and re-wrapped two left-biased arrow fletching wraps by hearthlight; both shafts now true; all eight arrows sound in quiver.
+Day 43, 19:15 — Cord-twisting by hearthlight; fourteen arm-lengths two-ply added to coil; crickets loud in meadow; snares set, both lines in water overnight.
+Day 43, 20:22 — Stepped out after dark; final snare check (both holding, triggers light, no disturbance); stood in meadow stargazing — Cassiopeia high, Dipper low over north treeline; back inside, stirred hearthcoals, fed one birch length; cabin quiet for the night.
+[2026-08-05 Day 43 21:10] Evening planning by hearthside — laid out tomorrow's forage route (chanterelle hollow, oyster pine), garden water, and a rough workbench from east-wall split pine round; crickets loud, coals banked, all well.
+Day 43, 10:11 PM — Night Settling In — hearthcoals low and banked; lying on rush mat, door latched; crickets loud; both snares and lines overnight; reflection before sleep.
+2026-08-05 Day 43, 23:15 — Last hour of the night; cabin quiet, hearthcoals banked, crickets loud, both snares set and both lines in water; day ends well.
+2026-08-06 Day 44, 06:07 — Dawn rounds: deep-run gave seven-inch trout (cleaned, cold-stored; line reset); limestone pool bare (re-baited, reset); both snares on north garden-edge rabbit run empty overnight, triggers reset.
+08-06 07:07 — Day 44: chanterelle hollow checked upslope at birch deadfall — seven orange-gold caps (palm-wide, firm) harvested; two pins left to size up (~3 days); caps on supply shelf.
+2026-08-06 Day 44, 08:07 — Harvested oyster flush from upslope rotting pine (~70 paces); three clusters (pale buff caps, white gills, ~4-5 handfuls) cut at stem base; set on smoke rack over green birch smolder.
+Day 44, 09:07 — Built rough outdoor workbench on east shelter side: pine-round supports, dressed log-offcut top, chert-wedged ends; waist-height and firm; good light for knapping and leatherwork.
+Day 44 (2026-08-06) 10:05 — Oyster flush (3 clusters) pulled from smoke rack, amber-tan and firm, cold-stored in box; rack cleared.
+2026-08-06 Day 44 11:05 — Garden watered; four cook-tin trips, all seven rows east to west; nettles pushing new growth; mint crowding row 5 neighbors noted.
+2026-08-06 Day 44 12:05 — Noon meal: fresh chanterelles and trout at doorsill; four caps on smoke rack to dry.
+Day 44 (2026-08-06) 13:05 — Garden tending: mint runners pulled back from rows 5–6, stems redirected away from raspberry canes and wood sorrel; rows tidy.
+Day 44, 15:05 — Four chanterelle caps smoke-dried and cold-stored; rack cleared; quiet afternoon at doorsill bench.
+Day 44, 2026-08-06, 16:09 — Limestone pool line: seven-inch trout cleaned and cold-stored; watercress gathered at side-seep for supper; dusk snare check ahead.
+Day 44, 17:05 — Supper: morning deep-run trout, two smoke-dried chanterelle caps, watercress cooked over hearthcoals and eaten at doorsill bench in amber evening light; both lines in water; snares set for dusk.
+2026-08-06 Day 44, 18:05 — Dusk snare check: both triggers standing; fresh droppings near second snare — something close; reset first snare, evening settling.
+Day 44, 19:05 — Hearthside cord-twisting by firelight; fourteen arm-lengths two-ply twisted; coals banked; snares and lines in overnight.
+Day 44, 20:22 (Thu 6 Aug 2026) — Evening stillness: sat at doorsill in summer dark, watching stars emerge over eastern pines, bats working the clearing margin — day genuinely done.
+[2026-08-06 21:12] Day 44 — Banking the Coals: settled inside for the night; coals banked under ash; door nearly closed; snares set on north garden run; fishing lines in water overnight; sleep.
+2026-08-06 | Day 44 | 22:00 — lying half-awake in the sleeping bag: night sounds through the cracked door, crickets slowing, stream over stone, bats above the roof; all lines and snares set; sleep coming on slow.
+Day 44, 23:15 [2026-08-06, Thu] — Night record: asleep in shelter; both snares and both lines out overnight; coals banked, door cracked, clearing at rest.
+2026-08-07 · Day 45 · Dawn rounds: deep-run trout and rabbit from second snare; new day begun.
+2026-08-07 Day 45 07:07 — Skinned second rabbit at doorsill bench; liver and heart eaten for breakfast with watercress and chanterelle caps; pelt curing; hindquarters and saddle on supply shelf for afternoon smoke.
+Day 45, 08:05 — Rabbit hindquarters and saddle on smoke rack over green birch smolder; second snare reset on north garden-edge rabbit run; pelt curing fur-down on bench.
+Day 45 (2026-08-07) 09:00 — Watered garden (four cook-tin trips, all seven rows); mint runners pinched back; smoke rack smoldering; rabbit pelt curing on bench.
+Day 45 (2026-08-07) 10:06 — Morning bow practice in clearing: eight arrows twice at bark target twenty paces; form correcting; all eight arrows and fletching sound. Smoke rack running; rabbit pelt curing.
+Day 45, 2026-08-07 11:06 — Limestone pool check; seven-inch trout caught and cold-stored; grey heron on far bank; smoke rack running, pelt curing.
+Day 45, 12:07 — Smoked rabbit hindquarters and saddle pulled from rack (deep mahogany, press-firm); noon meal at doorsill; pelt curing.
+Day 45, 2026-08-07, 13:07 — Second rabbit pelt fleshed at outdoor workbench; caul membrane and fat scraped clean; hanging on wall peg to finish drying.
+2026-08-07 Day 45 14:20 — Twisted fourteen arm-lengths two-ply cord at east-wall workbench in afternoon shade; pelt still drying.
+Day 45, 15:05 — Limestone pool gave seven-inch trout (cold-stored); watercress gathered at side seep; earthworm fold spent — refill tomorrow at first light.
+[2026-08-07 16:10] Day 45 — Smoke-set second rabbit pelt over green birch smolder; flesh side amber-honey throughout, tallow-rubbed; both pelts complete on wall pegs.
+2026-08-07 Day 45, 17:07 — Supper at the doorsill: trout with watercress cooked over hearthcoals; swallows working the clearing in amber light.
+Day 45, 18:07 — Walked south meadow at dusk; cut two armfuls of cattail leaves from stream-bend stand; spread on outdoor workbench to cure overnight (~1 week to workability).
+Day 45 · 2026-08-07 · 7:05 PM — Cord-twisting by hearthlight; fourteen arm-lengths two-ply added to coil. Snares and lines set overnight. Settling toward sleep.
+2026-08-07 Day 45 20:05 — Night at the Doorsill: snares checked and reset, evening round complete; frogs, bats, stars; hearthcoals banked, door latched.
+2026-08-07 21:30 Day 45 — Before Sleep, Still: lay still by cooling hearth; thought forward to cattail weaving (seat pad for doorsill bench), Day 47 checks (buried log, chanterelle hollow); frogs at stream bend; settled toward sleep.
+2026-08-07 22:14 — Day 45 — Frogs, Darkness, Rest — lying in sleeping bag, frogs at stream bend, door latched, near sleep; earthworms and Day 47 checks on the mind.
+Day 45, 23:15 — Night holds; pelts finished, larder full, snares and lines set — fell asleep.
+2026-08-08 Day 46, 06:07 — Dawn rounds: deep-run trout caught and stored; earthworm bait restocked from north garden edge; limestone pool line bare at dawn, re-baited. Both lines in water, both snares set. Midsummer Saturday.
+2026-08-08 | Day 46 | 7:07 AM | Mist and Morning Fire — morning trout cooked with chanterelle broth and wood sorrel; ate at doorsill bench while mist thinned over clearing
+Day 46, 08:07 — Watered all seven garden rows (four cook-tin trips from deep run); mint runners pinched back from row 4 edge; garden green and settled in morning sun.
+Day 46 (Sat 8 Aug) 09:07 — Bow practice in clearing; twenty-pace target, five of eight arrows grouped within a hand's width by final round.
+Day 46, 10:05 — Limestone pool gave seven-inch trout (mid-morning); watercress gathered at side-seep; grey wagtail noted at pool bank.
+2026-08-08 11:05 — Day 46 · Cord-twisting in east-wall shade; fourteen arm-lengths two-ply added to coil; reflected on rabbit pelts and midsummer quiet.
+Day 46, 2026-08-08 12:08 — Noon meal: trout, dried oyster caps, watercress; ate slowly at doorsill in midsummer heat; three trout remain in cold-storage.
+2026-08-08 Day 46 13:08 — Scouted dry wash deer crossing upslope; fresh doe-and-fawns prints within a day; dusk-stand position confirmed behind north root mass, fifteen-pace angle on crossing.
+[2026-08-08 14:08] Day 46 — Stitched both smoke-set rabbit pelts into a winter cap crown at the outdoor workbench; ear flaps to follow; dusk watch at dry wash deer crossing planned for evening.
+Day 46, 15:08 — Ear flaps cut from doe hide offcut and stitched to winter cap crown; cap complete and on supply peg; dusk watch at dry wash planned for 18:00.
+2026-08-08 16:08 Day 46 — Checked both fishing lines mid-afternoon before dusk watch; limestone pool gave seven-inch trout (cold-stored); deep-run reset for overnight; four trout in cold storage.
+Day 46, 17:08 — Ate light at doorsill (smoked rabbit, wood sorrel, cold water) before 18:00 dusk watch at dry wash deer crossing; conditions good, wind northeast.
+Day 46, 18:00 — Dusk watch at dry wash deer crossing; doe and two spotted fawns crossed fifteen paces out, east to west; approach and stand fully confirmed; returned through near-dark with both snares untouched.
+Day 46, 19:07 — Hearthfire kindled after dusk watch; yarrow tea at doorsill; doe and two fawns vivid in mind; bow on peg, ready.
+Day 46, 20:14 — Cord-twisting by hearthlight; fourteen arm-lengths two-ply added to coil; clearing quiet; fire low.
+2026-08-08 21:07 — Day 46 — Stepped outside under the midsummer stars (Dipper, Cassiopeia); fire banked to coals; latch bar down; heading toward sleep.
+Day 46, 2026-08-08 22:08 — Still Before Sleep: lying in sleeping bag by hearthcoals, stream audible through bark roof, doe-and-fawns crossing held in mind before sleep.
+2026-08-08 — Day 46, 23:07 — Settled to sleep; doe and two fawns at dry wash still in mind as the coals go quiet.
+2026-08-09 Day 47 06:05 — Dawn rounds: deep-run trout caught, first snare triggered (small rabbit on hearthstone), both lines and snares reset; clear midsummer dawn.
+Day 47, 07:05 — Processed third rabbit from morning snare: pelt curing fur-down on bench, liver/heart cooking on hearth, hindquarters and saddle on smoke rack over green birch smolder.
+2026-08-09 Day 47, 08:05 — Ate rabbit-liver breakfast at doorsill; checked buried log (four pale cream caps, cold-stored) and chanterelle hollow (two orange-gold caps, cold-stored); smoke rack still running until midday.
+2026-08-09 Day 47, 09:00 — Limestone pool gave seven-inch trout; cattail leaves turned on workbench for even curing.
+Day 47, 10:05 AM — Watered garden (four trips, all seven rows east to west); mint at row 4 redirected; smoke rack running rabbit pieces; garden damp and settled.
+2026-08-09 Day 47 11:05 — Set rabbit bone broth on hearthcoals to simmer; smoke rack running, hindquarters pull at noon.
+[2026-08-09] Day 47, 12:05 — Noon: smoke-rack rabbit pulled (press-firm, mahogany crust, cold-stored); bone broth with yarrow and wood sorrel consumed at doorsill; third pelt curing; box holds three rabbit cures and six trout.
+2026-08-09 13:05 Day 47 — Cord-twisting in east-wall afternoon shade; fourteen arm-lengths two-ply twisted and tallow-rubbed.
+Day 47, 2:05 PM — Smoke-set third rabbit pelt on lowest rack crossbar over low green birch smolder; sat in bench-shade while smoke rose; pelt ready ~15:30.
+Day 47, 3:05 PM — Third rabbit pelt pulled from smoke rack, cured and cold-stored; rack cleared; afternoon quiet.
+2026-08-09 · Day 47, 4:08 PM — Limestone pool seven-inch trout; sat by the pool in amber afternoon light; seven trout in cold storage.
+Day 47, 17:07 · Dusk watch at dry wash — doe and two spotted fawns crossed fifteen paces out again; held still, did not draw; fawns still young; hunting window opens late summer; trout supper at doorsill in near-dark.
+Day 47 18:07 — Cord by Hearthlight: fourteen arm-lengths two-ply twisted by hearthfire; cattail leaf weaving planned for dawn Day 48; both lines in water, both snares set.
+Day 47, 2026-08-09, 19:07 — Evening at the doorsill: first stars over the clearing, Dipper over the north treeline, fireflies at the south meadow edge; planning tomorrow's cattail weaving (sleeping mat for hearth corner).
+Day 47, 20:07 — Yarrow tea by hearthfire; season's tally: box full, three pelts, cap done, bow ready, doe window ~3 weeks out; cattail weaving at dawn.
+2026-08-09 (Day 47, 21:07) — Banked fire and settled in for sleep; late stars out; doe and fawns confirmed again at dusk; cattail sleeping mat planned for dawn Day 48.
+Day 47, 2026-08-09, 22:07 — Before Sleep: Lying in shelter after banking fire; mind ranging through tomorrow's cattail weaving before sleep comes; all stocked and ready.
+Day 47, 23:07 — Night deepens; last wakefulness gone; sleep comes in the ember-smell and forest quiet.
+Day 48 (2026-08-10) 06:07 — Dawn rounds done; cattail sleeping-mat weaving begun at hearthstone (first six over-under twill rows in).
+2026-08-10 Day 48, 07:09 — Cooked dawn trout with chanterelle caps and wood sorrel; ate breakfast at doorsill bench in still morning light; cattail mat weaving continues.
+2026-08-10 08:10 Day 48 — Cattail sleeping-mat weaving at hearthstone; ten over-under twill rows complete, mat taking shape.
+2026-08-10 09:05 — Day 48: Cattail sleeping-mat weaving continued at hearthstone — fourteen-plus rows, mat approaching halfway; center flat and even, leaves still pliable.
+Day 48, 10:05 — Cattail sleeping mat complete: over-under twill, four hand-spans by six, edge binding tucked and held; drying in shelter on south wall.
+Day 48, 2026-08-10, 11:05 — Watered garden: four cook-tin trips from deep run, all seven rows east to west; mint runners at row 5 redirected against border stones; sleeping mat drying against south wall.
+2026-08-10 12:07 Day 48 — Noon Pool, Bright Sky — limestone pool gave seven-inch trout at noon; cooked and eaten fresh at doorsill bench; both lines in water; cold-storage box unchanged at six trout.
+2026-08-10 Day 48 13:05 — Cord-twisting at outdoor workbench: fourteen arm-lengths two-ply added to coil in afternoon shade.
+2026-08-10 Day 48 14:00 — Third Pelt, Afternoon — worked third rabbit pelt at doorsill bench; flesh side broken down and supple throughout; hanging on wall peg beside winter cap
+Day 48, 15:22 — Afternoon limestone pool line gave seven-inch trout; watercress gathered at side-seep; cold-storage box now holds seven trout.
+Day 48, 16:09 — Chanterelle hollow (birch deadfall upslope) checked: three palm-wide orange-gold caps cut and cold-stored; two button-sized pins left — check again Day 50.
+Day 48 (Mon 10 Aug 2026, 17:09) — Supper at doorsill: trout, fresh chanterelles, watercress in amber evening light; six trout remain in box; first night on the cattail sleeping mat ahead.
+Day 48, 18:10 (Mon 2026-08-10) — Dusk watch at dry wash: doe and twin fawns crossed at forty paces, same time and route as Day 47. Twins more confident. Three weeks to the hunting window.
+Day 48, 19:21 — Evening cord-twisting by hearthlight; doe and fawns at dry-wash crossing for the fourth consecutive evening; fourteen arm-lengths two-ply added to coil; night warm and still, stars overhead.
+Day 48, 20:27 — Evening at doorsill; hearthfire at coals; stars bright; third rabbit pelt decided for mittens; doe and fawns at dry wash for fourth evening.
+Day 48, 21:00 — Yarrow tea at dying hearthcoals; held the rabbit pelt and planned mitten shapes from doe-hide offcut — tomorrow's project. First night on the cattail mat.
+Day 48, 22:14 — Settled onto the new cattail mat for the first time; hearthfire at coals, stars bright, snares set, both lines in water; reflected on forty-eight days of careful building before sleep.
+Day 48, 23:00 (2026-08-10) — Lay on the new cattail mat by dying hearthcoals, reflected on forty-eight days built from almost nothing, and let sleep come at last.
+2026-08-11 | Day 49 | 06:07 | Dawn rounds: snares empty, deep-run seven-inch trout caught, bait fold replenished, both lines reset. First morning on cattail mat.
+Day 49, 07:05 — Right mitten complete (rabbit-fur back, doe-hide palm, thumb gusset, fur-side in); left mitten pieces cut and punched, ready to stitch — Tue 11 Aug 2026
+2026-08-11 Day 49 08:07 — Oysters at Eight — upslope oyster trunk checked; three clusters harvested, smoke rack set over green birch smolder.
+2026-08-11 · Day 49 · 9:00 AM — Left mitten stitched, pair complete on supply shelf beside winter cap; oysters still smoking (pull ~10:00).
+2026-08-11 (Day 49, 10:06) — Pulled oysters from smoke rack (amber-tan, firm, three clusters), cold-stored in box; rack cleared; trunk resting 4-5 days.
+Day 49, 2026-08-11, 11:08 AM — Watered garden in full midsummer sun; four trips from deep run, all seven rows east to west; mint redirected; both mittens now complete on supply shelf.
+Day 49, 2026-08-11, 12:09 — Noon meal at doorsill bench: morning trout, smoke-dried oyster caps, wood sorrel from row 5 — eaten in full midsummer sun; both mittens complete on supply shelf.
+2026-08-11 Day 49 13:10 — Went upslope to chanterelle hollow; two overdue caps (palm-wide, orange-gold, firm) harvested and cold-stored; hollow going quiet — last summer flush likely; reflected from granite shelf overlooking settled homestead.
+Day 49, 14:10 — Limestone pool line: seven-inch trout (cold-stored). South meadow walk — grasses at peak seed, daisies fluffed, clover browning, seep rushes past height and papery-headed. First clear sense of summer releasing.
+Day 49 (2026-08-11) 15:16 — Returned to south meadow; stripped foxtail and brome seed heads (palm-and-a-half mixed grain, bark-folded on supply shelf); cut rush stems for half-tin seed-cotton tinder.
+2026-08-11 16:10 [Day 49] Limestone pool line: seven-inch trout at four — cleaned, cold-stored; line re-baited and reset for evening.
+Day 49, 17:08 — Supper at doorsill in amber light: limestone pool trout, dried oyster cap, wood sorrel from row 5; coals banked for evening.
+Day 49, 18:09 — Dusk watch at dry wash: doe and twin fawns at crossing (fifth evening running); fawns' spots fading toward adult coat; bow undrawn — stores sufficient.
+Day 49, 7:19 PM — Knife sharpened on grey cobble by hearthlight; edge restored after 23 days of pelt and fish work. Doe and twin fawns at the dry wash for the fifth evening running. Coals banked, lines and snares overnight.
+Day 49, 20:28 — Evening cord-twisting by hearthlight; reflected on mittens complete and chanterelle hollow likely done for summer; fourteen arm-lengths added to bundle.
+- Day 49, 21:05 — Stepped outside before sleep; stood at doorsill in the dark; stars through pines; owl on the slope; banked coals low and settled to sleep on the cattail mat.
+Day 49, 2026-08-11, 22:09 — Settled on cattail mat for the night; hearthcoals low, lines in water, snares set; reflected on winter gear complete and chanterelle hollow done for summer.
+Day 49, 23:13 — Last waking hour; cattail mat, embers fading, stream and owl in the dark, winter gear shelved and day complete.
+Day 50, 2026-08-12 (Wed) 06:08 — Fifty Days, First Light: dawn rounds; seven-inch deep-run trout; buried log sixth harvest (six pale cream caps, two pins remain — check ~Day 55-56); both lines reset.
+Day 50, 2026-08-12, 07:07 — Breakfast at doorsill bench: morning trout, two buried-log caps, wood sorrel from row 5. Fifty days on the homestead.
+2026-08-12 08:09 — Day 50 — Watered all seven garden rows (four cook-tin trips from deep run); redirected mint runners from row 5 back against border stones; stood at north corner stake for a Day 50 reckoning — checking off what is built, thinking ahead to firewood bulk and north-wall banking before frost.
+Day 50, 09:06 — Upslope snag felled (eight-inch dry pine, thirty paces past granite shelf), limbed, sixteen rounds bucked and stacked east wall — firewood work begun.
+2026-08-12 Day 50 10:05 — Split sixteen morning pine rounds at east wall into ~32 pieces (halved/quartered), stacked bark-up beside birch row. Firewood bulk growing steadily.
+Day 50, 11:07 — Walked upslope past granite shelf; two dead pine snag candidates found (smaller marked for tomorrow, larger noted for later); birch deadfall stand identified; firewood plan taking shape.
+Day 50, 12:08 — Limestone pool line checked at noon; seven-inch trout cooked and eaten at poolside (first meal away from doorsill bench). Line re-baited and reset. Quiet midday reflection on Day 50 milestone.
+2026-08-12 | Day 50, 1:10 PM | Began north-wall banking: stone row (knee-high, three deep, corner to corner) placed along north base of cabin.
+2026-08-12 14:20 Day 50 — North-wall stone row earthed in; dark soil packed and tamped behind and between courses — row embedded firm.
+Day 50 (2026-08-12) 15:16 — Limestone pool line: seven-inch trout cold-stored; watercress gathered at side-seep for supper; both lines in water for overnight set.
+[2026-08-12 16:09] Day 50 — Cord twisted at doorsill bench in afternoon sun; watercress cold-stored for supper.
+Day 50, 2026-08-12, 17:09 — Supper eaten at doorsill bench: cold-stored trout, watercress, dried oyster caps over hearthcoals in amber evening light; north-wall banking first course earthed in; firewood bulk begun from upslope snag.
+2026-08-12 18:10 — Day 50, 6:10 PM: Evening watch at doorsill — doe and twins appeared at clearing edge in amber light; deer held eye contact and returned to grazing; hearthfire banked for the night; north-wall banking at knee-height, fishing lines and snares set.
+Day 50, 19:13 — Evening rest by hearthfire; sat with Day 50 as a quiet milestone after doe and twins departed; moth circling the last hearthlight.
+2026-08-12 (Day 50, 20:26) — Twisted cord by hearthlight; Day 50 in slow-coal quiet; fifty days building toward winter.
+Day 50, 21:11 — Settled on cattail mat at close of Day 50; hearthfire to slow coals, gable flap down; both lines in water, both snares set; north-wall banking begun; crickets wall to wall from the treeline.
+Day 50, 2026-08-12, 10:10 PM — Lay awake on the cattail mat in the dark, listening to crickets and the single stream frog; Day 50 closes quiet.
+2026-08-12 Day 50, 11:17 PM — Silence Settles: final quiet of the day; hearthfire to true coals, frog calling once by the cold-storage box, walls settling, sleep arriving.
+2026-08-13 Day 51 06:19 — Dawn rounds: both snares empty; seven-inch deep-run trout caught and cold-stored; both lines reset; new day begun.
+2026-08-13 Day 51, 07:18 — North-wall banking: six soil runs from north-slope, second stone course packed and tamped; bank now hand-span above first course, a third toward sill height.
+2026-08-13 08:20 Day 51 — Third Course Rising: north-wall banking third course complete, bank halfway to sill height
+- Day 51, 09:19 — North-wall banking complete to sill height; cabin more settled and anchored.
+Day 51, 2026-08-13, 10:18 — Dead pine snag (~6 in, forty paces past granite shelf) felled and limbed; fifteen rounds bucked and staged at east wall for splitting.
+2026-08-13 Day 51 11:18 — Split fifteen rounds of dry dead pine; forty-two lengths stacked bark-up at east wall beside earlier firewood rows.
+Day 51, 12:19 PM — Checked chanterelle hollow (birch deadfall upslope); two mature orange-gold caps (palm-wide, firm) harvested and cold-stored; three tight new pins left — check ~Day 56.
+Day 51, 13:19 — Garden watered: four cook-tin trips east to west, mint runners redirected, soil darkened and settled throughout; quiet afternoon count of a winter-ready life.
+Day 51, 14:21 — Afternoon lines: two seven-inch trout caught (deep run + limestone pool), cold-stored; both lines reset for evening; rest at granite ledge poolside.
+Day 51, 15:26 — Cord twisted at doorsill bench (14 arm-lengths two-ply) after full morning of north-wall banking, pine snag felling and splitting; wren called once from garden-side birches.
+Day 51, 2026-08-13 (Thu) 16:30 — Upslope oyster mushrooms (three clusters) harvested from rotting pine at seventy paces; watercress gathered at side-seep; north-wall banking complete; firewood stack growing at east wall.
+2026-08-13 17:18 Day 51 — Ate supper at doorsill bench: fresh oyster caps, trout, watercress from side-seep, cook tin over dying hearthcoals. Evening settling, both lines in water, day's work done.
+Day 51 (2026-08-13) 19:00 — Fire and Quiet: dusk snare check (both set, no catch), hearthfire, nine arm-lengths cord twisted, winter-readiness reckoning by firelight.
+2026-08-13 Day 51, 20:26 — Tea at the Threshold: dried yarrow and plantain steeped and drunk at doorsill in evening dark; quiet reflection on winter readiness.
+2026-08-13 Day 51, 21:23 — Hearthside reflection: west gable chinkling noted as next task; fire tamped; settling toward sleep.
+Day 51, 10:32 PM — Threshold watch; stars clear overhead; west gable chinkling planned for morning.
+2026-08-13 Day 51, 23:00 — Final threshold watch; latch bar settled; sleeping to stream-sound under stars. West gable chinkling first task tomorrow.
+2026-08-14 | Day 52 | 06:00 | Chinkling the Gable — west gable wattle-rafter gap packed with dry moss and four resin-sealed bark strips; draft eliminated; shelter fully sealed.
+Day 52, 07:25 — Checked overnight lines and snares: deep-run gave seven-inch trout (cold-stored), limestone pool bare (re-baited and reset), both snares empty and reset; garden rows noted thriving.
+Day 52, 08:29 — Harvested nettle tops from garden rows 1-2; half simmered with dried chanterelle for breakfast at doorsill; half cord-tied and hung to dry for winter tea and fiber supply.
+Day 52, 09:24 — Garden watered (four cook-tin trips, all seven rows east to west); mint held at border stones; sorrel full; nettle rows open after morning harvest.
+2026-08-14 Day 52, 10:20 AM — Scouted east slope: south-facing bench ~12x10 paces eighty paces in; late wild strawberries at edge; narrow draw below with running seep; terrain mapped for future use.
+2026-08-14 Day 52, 11:20 AM — Gathered late wild strawberries from east slope bench; palm-plus of small, deep-red berries cold-stored in bark vessel; seep at base of draw noted for future cache box placement.
+2026-08-14 12:26 — Day 52, noon meal: morning trout with chanterelle and wood sorrel over coals; east-slope strawberries after; resting at doorsill in full midsummer noon.
+2026-08-14 Day 52 13:29 — Twisted fourteen arm-lengths two-ply cord at doorsill bench in afternoon shade; planning east seep cold-storage cache box for tomorrow morning.
+Day 52, 14:34 — Bucked eight short alder rounds from east draw deadfall; bark stripped on-site, staged at east wall — ready for east seep cache box build at dawn.
+- Day 52, 15:34 — Gathered flat base stones from east draw streambed; staged beside alder rounds at east wall — east seep cache box build fully prepped for tomorrow.
+2026-08-14 Day 52, 16:25 — Afternoon limestone pool pull: seven-inch trout on earthworm bait; watercress fistful gathered at side-seep; both lines reset overnight; trout and watercress for supper.
+[2026-08-14 17:31] Day 52 — Supper at hearthstone: trout, watercress, dried oyster caps cooked and eaten at doorsill bench in amber evening light; east seep cache box staged for dawn.
+Day 52, 2026-08-14, 18:26 — Evening cord by hearthlight: nine arm-lengths two-ply twisted and coiled; bat over clearing at dusk; east seep cache box staged for dawn.
+Day 52 | 2026-08-14 | 19:00 | Last Light, Still — yarrow tea steeped at doorsill, hearthfire banked for night, first stars above treeline
+2026-08-14 Day 52, 9:00 PM — Embers and Stillness: quiet evening by hearthfire; east seep cache box staged and ready for dawn build.
+2026-08-14 21:49 — Day 52, 9:49 PM: Stepped out to clear night sky before sleep; stars thick, owl distant; returned to banked hearth and sleeping bag.
+Day 52, 22:30 — Lay on cattail mat by low hearthcoals, sleeping bag drawn up; shelter fully quiet for the first time with west gable sealed; reflected on the day; both lines and snares set; east seep cache box staged for dawn.
+2026-08-14 Day 52 23:36 — Before Sleep: last wakefulness in sealed shelter; coals low, owl distant, lines and snares set; east seep cache box staged for dawn.
+Day 53, 06:20 — Built east seep cache box in cool draw eighty paces east; six flat base stones, four alder walls, bark lid — second cold-storage site established.
+Day 53, 07:18 — Morning line and snare check: deep-run gave seven-inch trout (cleaned, dock-wrapped, cold-stored); limestone pool bare (re-baited, reset); both snares empty and reset; garden nettles pushing fresh tips after yesterday harvest.
+2026-08-15 Day 53 08:19 — Garden watered (four trips, all seven rows); nettles pushing fresh tips; east seep cache box proving out; system of small reliable things.
+Day 53, 09:20 — Foraged late blueberry flush from north slope; birch basket three-quarters full; cold-stored in east seep box — first load in new cache site.
+[2026-08-15 Day 53 10:19] Limestone pool mid-morning: seven-inch trout caught, cleaned, cold-stored in main box; line re-baited and reset.
+2026-08-15 11:18 — Day 53, noon meal: deep-run trout with dried oyster caps and wood sorrel eaten at doorsill bench in full midsummer sun.
+Day 53, 12:20 — Afternoon snag fell north of granite shelf; twelve rounds bucked and staged at east wall for splitting.
+Day 53, 2026-08-15, 13:18 — Split twelve pine rounds from morning snag; stacked bark-up at east wall alongside older rows — staging area clear.
+Day 53, 14:19 — First Garlic Pull — eight mature bulbs test-pulled from eastern garden strip first row; curing stem-end up on outdoor workbench in south afternoon light.
+2026-08-15 (Day 53, 15:19) — Cattail storage basket started in afternoon shade; eight-day-cured leaves supple and working; base plate-wide, walls three to four rows up.
+Day 53, 16:19 — Cattail basket walls woven to wrist height (eight to nine rows); shape settling true, tension holding.
+2026-08-15 Day 53 17:18 — Basket walls woven near-complete (elbow-high, twenty-plus rows); supper: trout, oyster caps, wood sorrel at doorsill.
+2026-08-15 (Day 53, 18:18) — Completed cattail storage basket: rim folded and tucked, stakes bent over and threaded, trim done — vessel forearm-and-a-half tall, dense weave, no give; set near hearth to dry overnight.
+2026-08-15 19:18 — Day 53 — Cord at the Hearthside: fourteen arm-lengths two-ply twisted by hearthfire; basket drying; garlic curing on bench; both lines in water; both snares set.
+2026-08-15 Day 53 20:22 — Root cellar inventory and organization: stores confirmed, east wall shelf cleared and ready for garlic in two days.
+[2026-08-15 21:20] Day 53 — banked the coals for the night; sat at the doorsill listening to frogs and an owl; garlic curing in the warm night air; door latched; good day behind me.
+Day 53, 22:19 — Lying in sleeping bag; hearthstone cooling; frogs and owl; basket drying; garlic curing on outdoor bench; both lines and snares set for the night.
+Day 53, 23:00 — Night Claims: drifted to sleep with frogs at south bend and hearthstone warm; Day 53 full and done.
+Day 54, 2026-08-16, 06:18 — Lines at First Light: Dawn round checked both lines and snares; deep-run gave seven-inch trout (cold-stored); limestone pool bare, re-baited; both snares empty, reset; cattail basket moved to supply shelf. Day 54 begins, mist lifting.
+Day 54, 07:19 AM — Morning meal: trout and mint at doorsill bench; garlic turned on outdoor workbench, cure day 2 of 3-4, tips lightening.
+Day 54, 08:19 — Watered garden (four cook-tin trips, all seven rows east to west); nettles sending fresh tips left for another two days; garlic cure day 2 progressing on outdoor workbench.
+Day 54, 09:19 — Morning archery practice in clearing; eight arrows, three rounds at twenty paces; grouping steady by third round; bow and all eight shafts sound.
+2026-08-16 Day 54, 10:19 — Scouted upslope oyster pine (thumbnail button caps forming — harvest Day 55) and chanterelle hollow (pins fattening, orange crowns opening — one to two more days).
+Day 54 (2026-08-16, 11:18 AM) — Root cellar prepared: two pegs and garlic-hanging rail installed in north wall; cellar organized and ready to receive curing garlic in 1–2 days.
+- Day 54 12:18 — Noon lines checked: limestone pool gave seven-inch trout (cold-stored); both lines re-baited and reset; brief midday rest in south pine shade with blueberries and smoked rabbit; garlic tips paling on workbench.
+Day 54, 13:18 — Smoke rack checked and cleared; three green birch lengths staged under south overhang for tomorrow's Day 55 oyster harvest smoke.
+Day 54, 14:05 — Afternoon cord work at doorsill bench; fourteen arm-lengths two-ply twisted and tallow-rubbed; cord coil growing.
+2026-08-16 15:18 Day 54 — Walked east bench (eighty paces, south-facing, ~12x10 paces); soil tested good (earthworms, dark loam, free-draining); four birch corner stakes driven — second garden plot marked for spring.
+Day 54, 16:19 (Aug 16) — Afternoon stream walk: limestone pool trout cold-stored, watercress gathered; garlic cure nearing completion; Day 55 harvest windows confirmed (chanterelles, oysters).
+Day 54, 17:18 — Supper at the Doorsill: two seven-inch trout with watercress and fresh mint cooked in cook tin over hearthcoals; garlic cure day 4 ready for cellar rail tomorrow; chanterelle and oyster harvest at dawn Day 55; frogs at south bend.
+2026-08-16 18:18 — Day 54 — Edge for Morning: knife stropped keen on grey cobble (three passes each side); axe tallow-rubbed at grip; bark vessel filled at stream for morning; fire banked; ready for chanterelle and oyster dawn harvest Day 55.
+Day 54, 19:19 — walked streambed gravel bar by last amber light; found four chert cobbles (three pale grey, one larger oval) for future knapping; set on supply shelf beside anvil stone.
+2026-08-16 20:22 — Day 54 · Evening hearthfire knap-test: new pale grey chert produces clean conchoidal flakes, grain fine and tight — material confirmed good.
+Day 54, 9:21 PM — Evening cord twist by hearthlight; nine arm-lengths two-ply; fire to coals; ready for dawn garlic hang and double harvest.
+Day 54, 2026-08-16, 22:19 — Night rest before harvest day; coals settling, oysters and chanterelles confirmed for dawn.
+2026-08-16 23:18 — Day 54 — Night's Threshold — drifted toward sleep by dying hearthcoals; frogs and stream, list let go; Day 55 ready at dawn
+Day 55 (2026-08-17, Mon) 06:23 — Garlic to the Cellar: eight cured garlic bulbs hung on root cellar rail at dawn; first garden food preserved; deep-run trout caught; both lines in water; snares reset.
+2026-08-17 Day 55 07:20 — Harvested oyster flush from upslope pine (four handfuls, pale buff, loaded on smoke rack over green birch smolder; pull in ~2 hours amber-tan).
+2026-08-17 · Day 55, 08:20 — Garden watered while oyster smoke hangs; nettles near harvest, mint held, garlic fans wide
+Day 55, 09:19 — Smoke-dried oysters pulled from rack (amber-tan, firm); cold-stored in main box. Rack cooling.
+Day 55, 2026-08-17, 10:20 — Buried log seventh harvest: two pale cream caps (~1 in), cut at stem base, cold-stored; log quiet, no new pins; next check ~Day 60-61.
+2026-08-17 Day 55, 11:18 — Midday quiet meal: seven-inch trout with smoked oysters and wood sorrel at doorsill bench; midsummer warm and settled; cold box full, cellar organized.
+Day 55, 2026-08-17 (Mon), 12:19 PM — Limestone pool trout caught; watercress gathered at side-seep; rested in poolside shade.
+Day 55, 13:05 — Cord twisted in afternoon east-wall shade; fourteen arm-lengths two-ply added to coil; reflected on first garden food (garlic) preserved in root cellar.
+Day 55, 14:05 (2026-08-17) — Bone needle worked at doorsill bench in afternoon shade: rabbit fibula sliver shaped on cobble anvil to sharp point, tail flattened and eye bored with knife tip — needle complete, threaded and tested with fine two-ply cord; on supply shelf.
+Day 55, 15:23 — Made a small hide needle case from the scrap offcut; bone needle stitched inside, hanging on south wall peg beside birch spoon.
+[2026-08-17 16:23] Day 55 — Evening: limestone pool line gave seven-inch trout; cooked with watercress and oyster caps over hearthcoals, eaten at doorsill bench in amber light; both lines in water for overnight.
+2026-08-17 Day 55 17:20 — Evening Round — walked perimeter; snares untripped; north banking firm; wood rows solid; garden quiet; nettles near harvest.
+2026-08-17 Day 55 18:22 — Doorsill bench in last midsummer light: nine arm-lengths fine two-ply cord twisted; hearth banked for the night.
+2026-08-17 19:24 Day 55 — Dusk settling at doorsill; bat crossed clearing; nettles and chanterelles ready for tomorrow; homestead quiet and held.
+[2026-08-17 20:34] Day 55 — Knife stropped by hearthlight; dock leaves laid out for dawn nettle harvest; coals banked, lines in water, snares set — turned in.
+2026-08-17 21:00 — Day 55, 9 PM — lay in shelter by banked coals listening to stream; all set for dawn nettle harvest (Day 56)
+2026-08-17 Day 55 22:00 — Coals and Quiet: lay awake by banked hearthfire at night, listening to the stream through the log walls; reflected on fifty-five days of work and what they have become.
+2026-08-17 23:19 (Day 55) — Between the Coals: woke briefly in the deep night, coals banked, stream through the walls, everything ready for dawn; sleep again.
+Day 56 (2026-08-18, Tue) 06:00 — Chanterelle hollow yielded three palm-wide orange-gold caps at dawn; overnight deep-run trout caught and cold-stored; both lines and snares reset; Day 56 begins.
+Day 56, 07:19 — Breakfast at the Doorsill: morning trout with fresh chanterelle and wood sorrel, eaten in early sun at the doorsill bench.
+2026-08-18 Day 56, 08:18 — Two chanterelle caps on smoke rack over green birch smolder; nettles queued for afternoon cut.
+2026-08-18 Day 56, 09:00 — Watered garden (four cook-tin trips, all seven rows); chanterelles smoking on rack; nettles ready to harvest this afternoon.
+Day 56, 10:19 — Two smoked chanterelle caps pulled amber-tan from smoke rack; cold-stored in main box; rack cleared; nettles ready for afternoon harvest.
+Day 56, 11:19 AM — Nettle rows 1–2 top-third cut, bundled with bark cord, hung on south wall peg beside first dried bundle — second nettle bundle drying.
+Day 56, 12:18 PM — Limestone pool noon catch (seven-inch trout); noon meal by pool on small bank fire; south-eave shade.
+Day 56, 13:18 — Walked south meadow; stripped foxtail, brome, and rye heads into birch basket; grain store roughly doubled; rye stems on outdoor workbench for evening threshing.
+Day 56, 14:20 — Afternoon cord twisting at doorsill bench; fourteen arm-lengths two-ply twisted and tallow-rubbed; grain airing on outdoor workbench for evening threshing.
+Day 56, 15:18 — Walked to stream side-seep; gathered watercress fistful (dock-wrapped, cold-stored for supper); checked both lines — quiet; grain on workbench near-ready for evening threshing.
+2026-08-18 Day 56, 16:18 — Threshed foxtail, brome, and rye; grain doubled into two bark envelopes on supply shelf; both fishing lines in water; watercress cold-stored for supper.
+Day 56, 17:18 — Supper: noon trout and watercress fistful cooked with wood sorrel in cook tin over hearthcoals; eaten at doorsill bench in amber evening light; both lines left in overnight; bats over clearing at dusk.
+2026-08-18 Day 56 18:18 — Cord twisted by hearthlight after supper; nine arm-lengths two-ply; full day of grain harvest, nettles, chanterelles, and two trout.
+Day 56, 19:19 — Bow maintained by hearthfire: old six-ply bark-cord bowstring (Day 29) softened and relaxed from midsummer humidity — retired to supply shelf as backup cord; fresh six-ply bowstring twisted from cord stock; bow re-braced, tiller even at three-quarter draw, brace height restored — bow in service condition.
+2026-08-18 | Day 56 | 20:19 | Night Walk, Snares Checked — evening perimeter walk; snares firm on north run; garden walked by starlight; coals banked; settled in for the night.
+Day 56, 9:22 PM — Before the Dark Hours — Lying by dying coals, reviewing the day; grain doubled, nettles hung, bowstring renewed; planning a dawn hunt scout before morning lines.
+2026-08-18 Day 56, 22:00 — The Last Hour Before Sleep — coals down to ash-glow, latch bar dropped, sleep pulling at the edges; north clearing scout planned for dawn.
+2026-08-18 Day 56, 23:19 — Into Sleep: drifted deep; coals ash-cold; lines and snares overnight; north clearing scout for dawn.
+2026-08-19 Day 57, 06:18 — North clearing scouted at first light: wide meadow, cold seep and cattail at northeast corner, rich sedge and fescue, fresh deer sign at east fringe.
+2026-08-19 07:18 Day 57 — Morning fishing lines checked; deep-run gave seven-inch trout (cold-stored); limestone pool bare and re-baited; both lines in water.
+Day 57, 08:18 — Morning garden round: four cook-tin trips, all seven rows watered; nettle tips pushing after Day 56 harvest; both snares empty and reset on north garden-edge run.
+Day 57, 09:18 — Cooked morning trout with wood sorrel on the hearth; ate at doorsill bench in midsummer light; rested in the warm clearing after.
+2026-08-19 Day 57 10:18 — Set third snare on north meadow rabbit run; trapline now covers two runs (south garden edge + north meadow)
+Day 57, 11:18 — Walked upslope to oyster pine; lower cuts quiet, upper section (new area) shows pale early growth (thumb-sized, 3–4 days from cutting) — bark notch marked; clearing visible from above.
+Day 57, 12:18 PM — Limestone pool: seven-inch trout caught, cooked on bank fire, eaten at poolside (noon meal); both lines reset for afternoon.
+Day 57, 2026-08-19 — 13:18: Returned to north meadow; harvested foxtail, brome, wild rye (one hour); third grain envelope stitched and on shelf.
+Day 57, 14:19 — Forest edge walk south/east; three rose hip thickets found along tree line (not yet ripe, ~1–2 weeks); three elder bushes found below east thicket, quarter-bag ripe elderberries picked and set to dry by hearthstone.
+2026-08-19 (Day 57, 15:19) — Twisted fourteen arm-lengths two-ply cord at outdoor workbench in afternoon shade; elderberries drying by hearthstone.
+Day 57, 16:19 — Limestone pool afternoon trout caught (cold-stored); watercress gathered for supper; elderberries turned — drying continues.
+Day 57, 17:05 — Supper eaten at doorsill bench (trout, watercress, wood sorrel, cooked over hearthcoals); elderberries drying by hearthstone; both lines in water overnight.
+Day 57, 18:18 — Walked snare circuit before dark (all three undisturbed, reset); elderberries turned and papering at edges; hearthfire fed from east-wall birch split; settled at doorsill bench.
+2026-08-19 19:19 — Day 57, 7:19 PM: Sat at doorsill with yarrow tea; tended drying elderberries by hearthcoals; let the day settle in quiet.
+Day 57 (2026-08-19) 20:19 — Twisted nine arm-lengths two-ply cord by hearthlight; elderberries still drying; settled in for sleep.
+Day 57, 2026-08-19, 21:23 — Stepped outside into August dark; stood in clearing under full Milky Way listening to the stream; elderberries crinkling toward done by cooling hearthstone; sleep coming.
+2026-08-19 Day 57, 10:22 PM — Into the Dark: lay in sleeping bag by cooling hearthstone; elderberries nearly done; rose hips and winter preparations on the mind; three snares set, both lines overnight.
+Day 57, 23:20 — Last tick before sleep; elderberries papering, snares set, both lines out; lying still by cooling hearthstone.
+Day 58, 2026-08-20, 06:18 — Dried elderberries folded into bark envelope (on supply shelf); deep-run trout cold-stored; limestone pool re-baited; all three snares undisturbed and reset; nettles ready to cut when dew dries.
+Day 58, 07:18 — Harvested nettles rows 1–2 (top-third, third bundle); hung to dry on wall peg beside second bundle; rows open and tidy; garden settled in morning sun.
+Day 58, 2026-08-20, 08:18 — Garden watered; seven rows east to west; mint redirected at row 5 border; soil darkened and settled.
+Day 58, 09:19 — Limestone pool line checked (bare, re-baited, pole angled east under deeper ledge shadow); watercress fistful gathered at side-seep (dock-wrapped, cold-stored); sat doorsill bench, counted winter stores — enough.
+2026-08-20 10:19 — Day 58 — walked east bench; turned first four paces of north edge of second garden plot with digging stick; dark loam and earthworms; old dock taproot removed; soil prep for spring begun.
+2026-08-20 Day 58 11:05 — Continued turning east bench second garden plot; north row nearly done, second row begun; dark loam, earthworm-rich.
+2026-08-20 12:18 Day 58 — Noon meal at doorsill: deep-run trout, watercress, wood sorrel; tin rinsed; afternoon ahead.
+Day 58, 13:19 — East bench second garden plot: north row finished, second row half done (four paces turned).
+2026-08-20 Day 58, 14:21 — Completed second row of east bench second garden plot (four paces turned, dark loam throughout); two rows done, eight remaining for spring preparation.
+Day 58, 15:19 — Upslope oyster flush cut (three clusters, ~4 handfuls, pale buff caps, white gills clean); set on smoke rack over green birch smolder; pull ~17:19.
+Day 58, 4:19 PM — Walked limestone pool; afternoon seven-inch trout caught, cleaned, cold-stored; line re-baited and reset; oysters still smoking on rack (pull at 5).
+Day 58, 17:18 — Pulled oyster mushrooms from smoke rack (amber-tan, firm); cold-stored in main box; rack cleared; evening at doorsill.
+2026-08-20 18:18 Day 58 — Supper at doorsill bench (limestone pool trout, watercress, wood sorrel); coals banked; both lines overnight; rose hips blushing at south treeline.
+Day 58 (2026-08-20) 19:19 — Cord twisted by hearthlight (fourteen arm-lengths two-ply); reflected on east bench garden and rose hip harvest to come.
+Day 58, 20:20 — Axe to Stone (edge trued on grey cobble by hearthlight; bit keen)
+2026-08-20 Day 58, 21:19 — Last cord of the day twisted by hearthlight; nine arm-lengths two-ply, coil on shelf; coals banked, shelter shut, sleep.
+2026-08-20 Day 58 22:21 — One Late Look (brief wake; clear sky, owl call, snares quiet, coals warm — back to bed).
+Day 58, 2026-08-20, 23:19 — End of day: shelter sealed, two garden rows turned, nettles harvested, oysters smoked; three snares set, both lines in water; rose hips nearly ripe at south treeline; quiet night.
+2026-08-21 · Day 59 · 06:18 · First Light Circuit — morning circuit complete; deep-run trout cold-stored; limestone pool re-baited; all three snares reset undisturbed; rose hips nearly ripe; mist in draws; Day 59 begun.
+Day 59, 07:19 — Breakfast at doorsill: morning trout with wood sorrel and oyster caps eaten in mist-light; mist thinning; rose hips nearly ripe.
+Day 59, 08:18 — Third row of east bench second garden plot turned; partway into fourth; seven rows remaining; rose hips deepening at south treeline.
+2026-08-21 Day 59, 09:18 — Fourth row of east bench second garden plot turned end to end; six rows remaining; rose hips nearing ripe at south treeline.
+Day 59, 10:18 AM — Fifth row of east bench garden plot turned; five rows remaining; rose hips at south treeline near-ripe.
+2026-08-21 11:18 — Day 59 — Sixth row of east bench second garden plot turned end to end; four rows remaining; rose hips tomorrow.
+2026-08-21 Day 59 12:18 — Seventh row of east bench garden plot turned end to end; three rows remaining; rose hips near-ripe at south treeline.
+Day 59, 1:18 PM — Eighth row of east bench second garden plot turned; two rows remain; rose hips near-ripe at south treeline.
+Day 59, 14:22 — Checked limestone pool line (bare, re-baited); gathered watercress at side-seep; rose hips at south treeline deep red and ready for tomorrow's harvest.
+Day 59, 15:20 — Completed the final two rows of the east bench second garden plot; full ten-row turn done; rose hips at south treeline ready for tomorrow's harvest.
+Day 59, 16:19 — Completed east bench second garden plot (all ten rows turned); cord-twisted fourteen arm-lengths two-ply in afternoon light; rose hips ripe for harvest at dawn tomorrow.
+Day 59, 17:18 — Supper (trout, watercress, wood sorrel, oyster caps) at doorsill bench in amber evening light; east bench plot complete; rose hips ripe for harvest tomorrow.
+Day 59, 18:19 — Checked both fishing lines at dusk, hearthlight cord-twisting, rose hip harvest planned for tomorrow morning.
+2026-08-21 Day 59 19:20 — Evening reflection by hearthlight; east bench second garden plot fully turned (all ten rows, spring-ready); rose hips fully ripe, harvest planned at dawn.
+Day 59, 2026-08-21, 20:22 — Hearthside stocktaking by dying coals; supply shelf, herb envelopes, grain packets, cord coils all confirmed orderly; birch basket set by door for dawn rose hip harvest.
+[2026-08-21 21:00] Day 59 — Lying on the cattail mat by dying coals after completing the second garden plot (all ten rows, spring-ready); rose hips at dawn; both fishing lines set; three snares placed; rest.
+Day 59, 2026-08-21 22:23 — Lay on cattail mat by dying coals; owl calling northwest, stream below; rose hips waiting for dawn harvest; all stores orderly; sleep near.
+Day 59, 23:20 — Final waking moment; coals nearly out, owl distant west; rose hips and second garden plot ready; drifting to sleep.
+Day 60 (2026-08-22, Sat) 06:18 — Rose hip harvest at south treeline: three-quarters birch basket deep burgundy hips, spread to dry on outdoor workbench; first dedicated winter-prep harvest.
+2026-08-22 Day 60, 07:18 — Morning circuit: both snares reset (undisturbed), deep-run and limestone pool lines reset bare, buried log eighth harvest (two pale cream caps ~1.5 in, three new pins left, next check ~Day 64-65).
+Day 60, 08:18 — Watered main garden (four cook-tin trips, all seven rows); nettles nearly ready, mint redirected, all rows settled.
+Day 60, 09:18 — Rose hips turned on outdoor workbench in mid-morning sun; ~two hundred deep-burgundy hips drying well, bring in before evening dew.
+Day 60, 10:05 AM — Poolside breakfast: limestone pool gave seven-inch trout, cleaned and cooked on small bank fire with wood sorrel, eaten at poolside; line re-baited and reset for afternoon.
+Day 60, 11:00 — Cord-twisting in midday shade at east workbench; fourteen arm-lengths two-ply added to supply shelf; rose hips drying; fishing lines and snares set.
+Day 60, 12:18 PM — Noon rest in east pine shade: cold smoked rabbit and sorrel, sitting with sixty days of work and finding the rhythm solid.
+Day 60, 1:19 PM — South margin walk: south and east treeline circuited; elder bushes stripped; pine cone scatter at pine base (seeds taken by wildlife); unknown dark-berried sprig from east-draw thicket on supply shelf for ID.
+Day 60, 14:18 — Deep-run line bare in afternoon; re-baited and reset; watercress fistful gathered at side-seep, dock-wrapped for supper; rose hips drying on workbench, most firm to touch.
+2026-08-22 15:18 Day 60 — Examined dark-berried sprig from east-draw thicket at doorsill bench; identified as likely elder (compound leaves, pithy stem, dark flat-topped clusters); east-draw stand to confirm and harvest tomorrow.
+Day 60, 16:19 — Rose hips (~200 hips, most paper-dry) carried inside from outdoor workbench before evening dew; spread on supply shelf on doubled birch bark sheet; soft ones set near hearthstone to finish overnight.
+Day 60, 18:00 — Supper at the doorsill: trout, watercress, wood sorrel; rose hips drying inside on supply shelf; sixty days and ordinary feels like a gift.
+Day 60, 2026-08-22, 19:00 — Hearthlight, Day Sixty: evening cord-twisting at hearthstone; nine arm-lengths added; rose hips drying inside; elder walk planned for dawn; all lines and snares set.
+Day 60, 20:00 — Sorted rose hips by hearthlight; firm batch (palm's worth) folded into bark envelope and stitched shut, on supply shelf; ~60 soft hips left on doubled birch bark near hearthstone to finish overnight.
+2026-08-22 Day 60, 21:00 — Tended soft rose hips by hearthstone; turned on doubled birch bark; most paper-dry; birch basket set at door for east-draw elder walk at dawn; Day 60 closed by banked hearth.
+2026-08-22 Day 60, 22:00 — Settled in for the night; banked hearth, rose hips drying by coals, reflected on sixty days; basket at door for dawn elder-draw walk.
+Day 60, 23:18 — Last waking hour: lying in sleeping bag, embers dying, rose hips scenting the shelter; quiet reflection on sixty days complete; sleep approaching.
+2026-08-23 Day 61 — Elder-draw walk at dawn: second elder stand confirmed in east draw; palm-worth late clusters harvested and spread to dry; rose hips finishing overnight by hearthstone.
+2026-08-23 Day 61 07:18 — Morning circuit: snares undisturbed (reset), deep-run trout caught and cold-stored, limestone pool re-baited; rose hips firmed; elder clusters sorted on workbench.
+Day 61, 08:19 — Garden watered in morning sun (four cook-tin trips, all seven rows east to west); nettles rows 1–2 fresh tips; rose hips firmed by hearthstone.
+2026-08-23 Day 61 09:18 — Rose Hips, Sealed: second rose hip batch firmed overnight by hearthstone; sorted, folded into bark envelope, stitched with two-ply cord, stored on supply shelf beside first envelope and elderberry and grain envelopes.
+2026-08-23 Day 61 10:18 — Checked upslope oyster pine; three new clusters thumbnail-sized, not yet ready (another day or two); trunk damp and working; both fishing lines active.
+Day 61, 11:18 — Limestone pool gave seven-inch trout at noon; cooked on bank fire with wood sorrel and eaten at poolside in full sun; both lines back in water.
+2026-08-23 Day 61, 12:18 — Cord-twisting in south pine shade; elder clusters turned on workbench (nearly ready); snares undisturbed; both lines in water.
+2026-08-23 13:18 — Day 61 — Counting What Is Stored: afternoon stocktaking at the outdoor workbench; elder clusters still drying; grain thinnest of the stores; everything else building toward winter.
+Day 61 (Sun 2026-08-23) 14:18 — North meadow grain run; fourth bark envelope; grain store up to four envelopes.
+Day 61, 15:19 — South treeline rose hip scouting: stand 2 nearly ready (~3 days), stand 1 four-five days, stand 3 ~1 week; tasted a few at stand 2.
+Day 61, 16:18 (2026-08-23) — Afternoon limestone pool catch; supper (trout, watercress, sorrel) eaten at doorsill in amber light; elder clusters papering — will seal tomorrow morning; grain four envelopes; both lines set overnight; all provisions holding.
+Day 61, 17:18 — Evening cord-twisting by hearthlight; final turn of elder clusters on workbench before dew; nine arm-lengths two-ply twisted; both lines and snares active; elderlight and embers.
+2026-08-23 Day 61 18:00 — Brought elder clusters inside from workbench to finish drying by hearthstone; hearth banked; sat at doorsill bench in cooling evening air.
+Day 61, 19:18 — Knife stropped by hearthlight; winter accounting by hearth (grain thin but four envelopes; three rose hip stands ahead; east plot turned; all gear complete); elder clusters papering overnight by hearthstone.
+2026-08-23 Day 61 20:18 — Ember Watch: banked hearthfire, coals settling; elder clusters drying overhead; quiet evening accounting of winter stores; grain four envelopes (thinnest concern); rose hips, elderberry, mushroom, cord all in order; settling toward sleep.
+2026-08-23 Day 61, 21:18 — Stepped to doorway for last night air; felt first thread of autumn in midsummer dark; sat long by hearthcoals; all stores accounted for; both lines and snares active overnight.
+2026-08-23 Day 61 22:18 — Last Light, Elder Smell — settled by hearthcoals in quiet shelter; elder clusters papering overnight on supply shelf, faint sweet smell; season turning, stores building; closing eyes to sleep.
+2026-08-23 23:18 Day 61 — Night Closes Down: final entry, settling to sleep by banked coals, elder clusters drying overhead, clearing silent.
+Day 62, 2026-08-24, Mon — 06:18 AM: Sealed second elderberry bark envelope (east-draw second stand, papered overnight); seven winter envelopes on supply shelf; dawn opening, season turning.
+Day 62, 07:19 — Morning lines and snares checked; seven-inch deep-run trout caught and cold-stored; limestone pool re-baited; both snares undisturbed and reset.
+Day 62, 2026-08-24 08:18 — Morning Water Round; garden watered (four cook-tin trips, all rows east to west); mint held at border stones; nettles rows 1–2 fresh tips not yet ready; oyster flush upslope nearly ready; rose hip stand 2 due tomorrow.
+2026-08-24 09:19 Day 62 — Upslope oyster pine checked and harvested: three clusters (pale buff, wide-spread caps, clean white gills, four handfuls), cut at stem base, loaded gill-side up on smoke rack over low green birch smolder — pull in ~2 hours when amber-tan.
+Day 62, 10:00 — Rose hip stand 2 harvested: bark vessel three-quarters full of firm red hips; oyster caps nearing done on rack.
+Day 62, 11:18 AM — Oyster caps pulled from smoke rack (amber-tan, firm, cold-stored in main box; rack cleared)
+Day 62, 12:19 PM — Limestone pool noon catch: seven-inch trout, cooked on bank fire with wood sorrel, eaten at poolside in midday sun; line re-baited and reset; both lines in water.
+2026-08-24 13:18 Day 62 — First firewood stack begun: dead birch and pine dragged from forest edge, split and stacked against south cabin wall under eave — knee-high start; winter prep begins.
+2026-08-24 14:19 Day 62 — Rose hip stand 1 harvested; two batches papering on workbench; pine shadows reaching past garden edge by mid-afternoon
+- Day 62 (2026-08-24) 15:19 — kindling under the eave: split wedge-pieces into two arm-loads finger-thin sticks + resin-sliver bark sleeve; tucked under eave behind main stack.
+Day 62, 4:19 PM — Limestone pool line: seven-inch trout at low sun; watercress gathered; supper planned.
+2026-08-24 17:18 — Day 62 — Cooked and ate supper at the doorsill (trout, watercress, wood sorrel); coals banked; both rose hip batches papering for morning; both lines in water.
+Day 62, 18:18 — twisted fourteen arm-lengths two-ply cord at doorsill as evening light faded; noted cooling air and first stars; rose hips papering well on outdoor workbench overnight.
+Day 62, 7:00 PM — Second cord session by hearthfire: nine arm-lengths two-ply twisted; winter stores reviewed in mind (grain thinnest); rose hips papering overnight, south wall firewood stack complete, lines in water.
+2026-08-24 Day 62, 20:22 — Sat at doorsill bench in full dark; watched stars east and south; felt first real autumn thread in night air; homestead inventoried in mind — all stores, lines, snares, and woodpile sound; came inside and latched the door.
+2026-08-24 · Day 62 · 9:22 PM — Banked coals and lay down; quiet inventory of stores; full day closed; first real autumn felt in the cabin floor.
+Day 62, 22:21 — Night Still: lying in, listening to the stream through bark walls; cold thread of autumn firmer tonight; sleep close; stores, lines, snares, hips all working without me.
+2026-08-24 Day 62, 23:20 — Near midnight; drifted toward sleep in full dark with all stores sound; felt the season turning in the cold thread of the night air.
+2026-08-25 Day 63, 06:19 — Autumn Thread: dawn rounds; deep-run trout cold-stored, limestone pool re-baited, both snares reset; first autumn air of the season.
+Day 63 (Tue 25 Aug 2026) 07:19 — Sealed rose hip stand-1 and stand-2 batches into bark envelopes; four rose hip envelopes on supply shelf; garden watered; nettles ready to cut tomorrow.
+Day 63, 08:00 — Walked up to rotting pine (70 paces); found two pale buff oyster clusters (~4 handfuls); harvested and set on smoke rack over green birch smolder — pull ~10:00.
+Day 63, 09:18 — Walked to limestone pool while oyster caps smoked; re-baited line; gathered watercress at side seep; both lines in water.
+2026-08-25 Day 63 10:18 — Pulled two oyster clusters from smoke rack (amber-tan, firm); cold-stored in main box; rack cleared.
+Day 63, 11:18 AM — Poolside noon meal: limestone pool trout caught and cooked at the water's edge; pool line reset; both lines in water for the afternoon.
+Day 63, 12:18 — Harvested rose hip stand 3 (southeast treeline, old stump thicket); hips deep scarlet and ready; full batch spread on outdoor workbench dock-leaf lined, papering overnight — fifth envelope to stitch Day 64.
+2026-08-25 Day 63 13:19 — Cord-twisting session at doorsill bench in afternoon shade; fourteen arm-lengths two-ply added to coil while rose hip stand 3 papers on workbench.
+2026-08-25 14:19 (Day 63) — Afternoon east walk: last east-seep blueberries eaten, east bench second plot checked (settled, dark loam, ready for spring), dock leaves gathered for rose hip stitching.
+Day 63, 15:21 (Tue 25 Aug 2026) — Afternoon limestone pool trout; rose hip stand 3 batch turned on workbench; bait fold thinning — new worms tomorrow.
+Day 63, 16:18 — Supper at doorsill: trout, watercress, and wood sorrel cooked over hearthcoals, eaten slow at the bench as south treeline went gold — day done, lines in water, snares set.
+Day 63, 17:18 — Dug fresh earthworms from north garden edge; bait fold refilled (~two dozen, new damp bark fold, cold-stored); rose hip stand 3 papering well overnight; lines and snares out.
+Day 63, 18:19 — Twisted nine arm-lengths two-ply cord by hearthlight as the amber evening settled in; tomorrow: nettles, rose hip envelope, buried log check.
+Day 63, 19:22 — Sat at doorsill bench in the evening gap; first thread of autumn in the clearing air; rose hip stand 3 papering on outdoor workbench overnight; door barred.
+Day 63, 20:22 — Lying awake briefly after doorsill sit; heard pines breathing through west gable wattle; counted the stores by hearthlight (five rose hip batches, four elderberry, four grain, smoked mushrooms, smoked meat, garlic on cellar rail) and felt the sufficiency in them; coals settled once with a quiet tick; sleep came.
+2026-08-25 Day 63 21:20 — Night Quiet: briefly awake in the dark; stores counted; autumn cool threading in; sleep returned.
+2026-08-25 Day 63 22:00 — Stream, Running Still: late-night surfacing, pines through west gable wattle, stream audible below clearing; sleep returned easily.
+2026-08-25, Day 63, 23:00 — Night holds still: brief waking from sleep; coals faint red under ash; pines steady; stream running; stores counted in the dark; sleep returned without effort.
+2026-08-26 Day 64, 06:18 — Fifth Envelope: morning lines gave deep-run trout; fifth rose hip envelope stitched from stand-3 batch (five total on supply shelf); both snares reset; day begins.
+Day 64, 07:00 — Harvested nettles rows 1–2 (top-third), tied into fourth bundle, hung on wall peg to dry beside third bundle; rows tidy and open.
+Day 64, 08:18 AM — Buried log ninth harvest: three pale cream caps (ivory-domed, white gills) cut at stem base, cold-stored; log face quiet, no new pins.
+Day 64, 09:18 — Garden watered; all seven rows east to west; mint runner redirected at row 5; garden steady and producing in summer's end.
+Day 64, 10:18 AM — Scouted northwest slope hazel shrubs: three shrubs at mid-slope birch gap, nut clusters full-sized and just turning; ~1 week to ripeness; garlic fans tipping in eastern garden strip.
+2026-08-26 Day 64, 11:18 — Limestone pool trout; noon meal at poolside; garlic fans tipping at shoulders, harvest ~1 week away.
+2026-08-26 Day 64 12:00 — Twisted 14 arm-lengths two-ply cord in doorsill shade at noon; season shift noted — hazel and garlic both ~1 week to harvest.
+2026-08-26 13:20 Day 64 — North meadow grain sweep (fifth envelope); ~3/4-basket foxtail and wild rye stripped, threshed, stitched; five grain envelopes on supply shelf.
+Day 64, 14:23 — Gathered watercress at side-seep; replenished earthworm bait fold from north garden edge for overnight lines; noted the season turning in the afternoon light.
+Day 64, 15:21 — limestone pool afternoon trout; sat by pool in slant light; season leaning toward autumn; five envelopes each grain and rose hips on shelf
+Day 64, 16:19 — Supper at doorsill bench in amber light; afternoon trout, watercress, wood sorrel cooked in cook tin; coals cooling; first stars; stores counted, season turning in the light.
+Day 64, 17:18 — Evening cord-twisting at hearthstone as light fades to amber-grey; nine arm-lengths two-ply twisted and coiled; coals banked; first star visible above ridge.
+Day 64 · 2026-08-26 · 18:19 — Knife stropped at hearthstone in last light; sat at threshold counting stars; coals banked; door latched; season turning felt in the cool air.
+Day 64, 19:21 — Rested by banked hearthcoals in full dark; reflected on full day and season turning; shelter warm, stores deep, night quiet.
+Day 64, 20:28 — Hearthside inventory by firelight; counted full stores (five grain, five rose hip, two elderberry envelopes; nettle bundles curing; smoked rabbit, fish, garlic on cellar rail); settled and glad before sleep.
+2026-08-26 Day 64, 21:23 — Coals Hold: late evening inside shelter; sat awake past intent, listening to the night through bark walls; content with full stores, both lines in water; coals fading to thin orange line; sleep near.
+Day 64, 22:00 — Night stillness; lying in dark shelter, coals below sight, threshold between waking and sleep after a full harvest day.
+Day 64, 23:20 — Night's End: brief waking in fully dark shelter; coals cold; sleeping bag warm; stores full, hazel and garlic a week from harvest; sleep took hold.
+Day 65, Thu 27 Aug 2026, 06:18 — Morning rounds: deep-run trout cold-stored, limestone pool line re-baited, snares reset; first light of Day 65; season visibly threading toward autumn.
+Day 65, 2026-08-27, 07:18 — Watered garden (four cook-tin trips, all rows); mint runner redirected; noticed amber slant of late-summer light; hazels on the mind.
+Day 65, 08:19 — Breakfast at the doorsill: morning trout cooked with dried oyster caps and wood sorrel; morning light amber and autumn threading in.
+2026-08-27 Day 65, 09:18 — Limestone pool: seven-inch trout caught, cleaned, cold-stored; watercress gathered at side-seep; returned to doorsill bench in amber mid-morning light.
+Day 65, 2026-08-27, 10:18 — Walked northwest slope to check hazel progress; clusters fattened and solid inside, one turning straw-tan — ~4–5 days to ripeness; amber mid-morning light, autumn threading in.
+2026-08-27 Day 65, 11:18 — Walked upper northwest slope above hazel gap; hen-of-the-woods base spotted at old pine stump (~60 paces above hazels) — two hands wide, outer lobes still curling in, ready in 2–3 days; stump marked (moss collar north face, two split rounds south side); no chanterelle flush yet at hollow.
+Day 65, 2026-08-27, 12:00 — Noon meal at doorsill bench; limestone pool trout with wood sorrel and mint; birch leaves drying on the slope; autumn threading in; hen-of-the-woods ~2 days, hazels ~4 days.
+2026-08-27 Day 65, 13:00 — Afternoon cord-twisting at outdoor workbench in east-wall shade; fourteen arm-lengths two-ply added to cord coil; birch leaves on slope sounding dry and papery; hazel stand 4-5 days out, hen-of-the-woods 2-3 days; stores deep, trout in cold storage for supper.
+2026-08-27 14:00 Day 65 — Walked east treeline; found hawthorn haws in first autumn red; two hand-fills gathered, papering overnight on workbench.
+Day 65, 3:20 PM — Afternoon line check: limestone pool gave seven-inch trout (cold-stored); deep-run line reset; supper planned with watercress and wood sorrel; both lines overnight.
+Day 65, 16:18 (Thu 27 Aug 2026) — Supper at the Bench: afternoon trout, watercress, wood sorrel cooked over hearthcoals, eaten at doorsill bench in amber slant light; hawthorn haws turned on workbench, papering well.
+Day 65, 17:18 — Evening cord-twisting at doorway by last light; nine arm-lengths two-ply; hawthorn haws papering for tomorrow; hen-of-the-woods ~2 days; hazels ~4 days; stores deep; season turning in the birch leaves.
+Day 65, 18:18 — evening by low hearthfire as dark settled; day tallied; haws papering, hen-of-the-woods 2 days out, hazels 4 days; late thrush across the clearing; season turning toward autumn.
+Day 65, 2026-08-27, 19:19 — Stepped outside to check haw tray (firming well); stood under first stars in clearing; felt autumn threading into the cool night air; returned inside, set pine split against hearthstone, lay down on cattail mat.
+2026-08-27 20:24 — Day 65, 8:24 PM — Night Watch: hearthcoals fed; lay half-awake listening to stream; reflected on upcoming hen-of-the-woods and hazel harvests; stores deep; settled toward sleep.
+Day 65, 21:19 — Lay on cattail mat in full dark; hearthcoals banked; haws papering on workbench; hen-of-the-woods ~2 days out, hazels ~4; both lines in water, snares set; drifted toward sleep.
+2026-08-27 22:27 — Day 65, 10:27 PM: Last ember burning low; lying on cattail mat in full dark; stream audible; stores full; haws, hen-of-the-woods, and hazels pending tomorrow and after; settled into sleep.
+2026-08-27 23:20 Day 65 — Final tick: last ember gone ash-white; haws firming on bench; hen-of-the-woods 2 days out; hazels 4 days; stores deep; sleep.
+2026-08-28 Day 66 06:00 — Haws sealed at dawn; morning rounds complete; deep-run trout cold-stored; both lines in water; snares reset; hen-of-the-woods ~1 day from harvest; hazels ~3-4 days.
+Day 66, 07:20 — Hen-of-the-woods harvested at marked pine stump; half smoked on rack, half cold-stored fresh for supper.
+Day 66, 08:18 — Watered garden (four cook-tin trips, all rows darkened); hen-of-the-woods smoldering on rack, pull ~09:20.
+Day 66, 09:20 — Pulled hen-of-the-woods from smoke rack (amber-tan, firm); both halves cold-stored in main box; rack cleared; doorsill rest in late-summer stillness.
+2026-08-28 10:00 Day 66 — Split seasoned pine off-cuts; ~20 rounds added to woodpile under south cabin overhang (firewood winter prep).
+Day 66, 11:00 AM, Fri 28 Aug 2026 — Noon at the Pool: limestone pool seven-inch trout caught, cooked with wood sorrel on small bank fire, eaten at poolside; line re-baited and reset; walked back slow in full midday sun.
+Day 66, 12:18 — Afternoon cord-twisting at outdoor workbench; fourteen arm-lengths two-ply; hazels close; both lines in water.
+2026-08-28 (Day 66, 13:19) — Walked northwest slope to check hazel shrubs; nuts firm and nearly ripe (2 more days); first yellow birch leaves spotted at slope top; harvest expected Day 68–69.
+Day 66, 14:20 — Afternoon limestone pool trout pulled and cold-stored; watercress gathered at side seep; sat on limestone shelf as the season showed its first yellow leaf.
+Day 66, 15:20 — Walked treeline to gather pine resin from amber-weeping wounds; bark-fold topped up for autumn sealing work; set on south stones to soften.
+2026-08-28 16:18 — Day 66 — Both snares checked and reset on north garden-edge run (untouched); coin of yellow birch light on needle floor; autumn threading in; supper coming.
+Day 66, 17:19 — Supper of trout, smoked hen-of-the-woods, watercress, wood sorrel; first taste of hen-of-the-woods; coals banked; hazels nearly ready; autumn threading in.
+Day 66, 18:18 — Evening cord-twisting by hearthlight; nine arm-lengths two-ply twisted; first yellow birch branch lit on slope; both lines in water, snares set; hazels one day off.
+Day 66, 19:19 — Brought pine resin fold in from south stones; sat by low hearthcoals and counted winter stores (five rose hip envelopes, two elderberry, one hawthorn haw, five grain, eight cellar garlic, dried nettles, smoked mushrooms and fish, winter gear complete); hazels one day off.
+Day 66, 2026-08-28, 20:21 — Evening hearthside; coals low; one cricket at north garden edge; hazels ripe for morning harvest; winter stores counted by hearthlight and sufficient; both lines in water, snares set; season turning.
+Day 66, 21:22 — Stepped outside before sleep; stars clear, autumn chill, one cricket at garden edge; owl on slope; settled to sleep with hazels promised at dawn.
+Day 66, 22:21 — Into the Dark: late evening; cricket still going at garden edge; coals banked; lying in sleeping bag listening to night; drifting toward sleep; hazel harvest at first light.
+2026-08-28 | Day 66 | 23:00 — Into the Dark — Last wakefulness before sleep; coals barely glowing; hazel harvest at first light; lines in water, snares set, stores counted.
+2026-08-29 Day 67 06:19 — Hazel Harvest Dawn: harvested northwest birch-gap hazel shrubs at first light; basket half-full of ripe nuts; spreading on outdoor workbench to dry.
+Day 67, 07:18 — Lines and Garden: morning rounds complete; deep-run trout caught; limestone pool bare; garden watered; both snares empty; hazel nuts drying on workbench.
+Day 67, 08:18 — Breakfast: morning deep-run trout cooked with mint and wood sorrel at doorsill bench; six hazelnuts cracked and tasted — first hazel harvest eaten (pale, sweet, firm).
+Day 67, 09:18 — Hazels sealed into bark envelope; supply shelf now holds twelve winter-store packages.
+Day 67, 10:18 AM — Walked downstream from deep run; gathered watercress fistful at side-seep (dock-wrapped, cold-stored for supper); noted new gravel-bar pool below second bend; first turning birch (quarter gold) spotted 40 paces north of clearing — first autumn color of the season.
+Day 67, 2026-08-29, 11:00 — Upslope oyster pine check: three small pale pins on near-end flush, not ready; next check ~Day 69.
+Day 67, 12:00 — Noon at limestone pool; seven-inch trout caught and cooked on bank fire with wood sorrel; line re-baited and reset; gold birch at forty paces holds its color.
+2026-08-29 Day 67 13:00 — Cord and Quiet Light: fourteen arm-lengths two-ply cord twisted at doorsill bench in afternoon warmth; first quarter-gold autumn birch held in view; moving toward winter, not bracing for it.
+Day 67, 14:00 — Scouted south slope oaks: three mid-slope trees with green acorns beginning to brown at tips (~1–2 weeks from harvest); location marked (40 paces south of clearing, past flat granite slab, left at dead snag). Quarter-gold birch crown reading further into autumn gold on return.
+Day 67, 15:18 — Afternoon limestone pool check: seven-inch trout caught and cold-stored; amber afternoon light on the water; first autumn birch noted gold in the late sun.
+2026-08-29 Day 67, 16:19 — North treeline walk: buried log quiet (no pins yet), pine-needle tinder gathered from forest-edge duff, quarter-gold birch seen whole from inside the treeline — turn is real now, upper crown suffusing gold.
+Day 67, 17:18 — Supper at doorsill bench: trout with watercress and wood sorrel in amber evening light; quarter-gold birch crown broadly gold now; coals banked, both lines in water overnight.
+Day 67, 2026-08-29, 18:18 — Hearthfire rebuilt after supper; sat inside by amber firelight with cord coil; deep run audible; both lines in water overnight; nightjar in upper pines; sixty-seven days in, not afraid of what is coming.
+[Day 67 · 7:18 PM] 2026-08-29 — Sat evening cord twisting: nine arm-lengths two-ply by hearthlight; nightjar in upper pines; both lines in dark water.
+2026-08-29 (Day 67, 20:18) — Both overnight lines checked under first stars; cool clearing, nightjar and screech-owl calling; twelve winter-store packages on shelf, moving toward winter with enough.
+2026-08-29 — Day 67, 21:19 — Settled for night: door latched, coals ash, sleeping bag pulled in; stores sound, both lines in dark water; screech-owl north, deep run audible — nothing unfinished that cannot wait until morning.
+2026-08-29 22:18 — Day 67 — Still Hours — Lay in the dark in full night; screech-owl gone quiet; deep run through bark-flap gap; sixty-seven days settled, nothing unfinished.
+2026-08-29 23:19 — Day 67, 11:19 PM: Night's Seam — lying in sleeping bag, deep run the last sound, both lines in dark water, screech-owl quiet, settling toward sleep.
+Day 68, 06:19 (Sun 30 Aug 2026) — Dawn rounds: overnight trout caught and stored, garden watered, whole birch crown now turning gold — autumn threading in.
+Day 68, 07:18 — Cooked dawn trout with oyster caps and wood sorrel at doorsill; the birch forty paces north now entirely gold — autumn threading in.
+2026-08-30 08:18 — Day 68 — Second Flush Starting — walked to marked pine stump; small new hen-of-the-woods cluster (fist-sized, grey-brown, firm) sighted at root base; left to develop; second flush expected in 3–4 days.
+2026-08-30 Day 68 09:05 — Twisted fourteen arm-lengths two-ply cord at doorsill bench in morning sun; gold birch bright in view; cord coiled and tallow-rubbed.
+Day 68, 10:18 AM — Taking stock: root cellar and supply shelf inventoried in late-morning pause; twelve winter-store packages tallied; supplies fuller than any prior season; gathering days remain before frost.
+Day 68, 11:19 AM — Limestone pool noon check; seven-inch trout cooked at poolside on small bank fire with wood sorrel; maple upstream beginning to bronze; both lines reset.
+Day 68, 12:18 — Buried log noon check: two new cream-white pins (thumbnail-sized, not yet ready); lid and stone replaced — next check ~Day 70-71.
+2026-08-30 13:18 — Day 68, 1:18 PM: Afternoon cord twisting at doorsill bench; fourteen arm-lengths two-ply from basswood scrap, tallow-rubbed; birch fully gold through the open door; both lines in water; quiet between the season's recognition and the work of meeting it.
+Day 68, 14:19 — Poolside afternoon check; seven-inch limestone pool trout cold-stored; watercress gathered for supper.
+Day 68, 15:18 — Walked south slope to check the three oaks past granite shelf; acorns browning deeper toward caps, ~1 week to harvest; squirrel on the slope; sat at granite shelf in slant afternoon light on the return.
+Day 68, 2026-08-30, 16:00 — Split birch and pine rounds, stacked along eave wall; firewood pile a hand taller; afternoon light hard from southwest, faces bright-white in slant sun.
+Day 68, 17:19 — Supper at doorsill bench: afternoon trout, watercress, wood sorrel; hearthcoals banked; both lines in water; firewood pile grown; birch gold in amber light.
+Day 68 18:00 — Evening stocktaking at doorsill; birch fully gold; winter stores tallied (twelve packages, garlic in cellar, firewood raised); almost-ready feeling settled with screech-owl starting in east pines.
+Day 68, 7:19 PM — Tool care by hearthlight: knife stropped three passes each side on grey cobble, axe bit touched up; tools in order for harvest weeks ahead.
+Day 68, 20:19 — Evening accounting by hearthcoals; winter-readiness tally; acorns, mushrooms, and grain all noted; door nearly shut, both lines in water for the night.
+Day 68, 2026-08-30, 21:18 — Door drawn shut and latched for the night; coals ash-grey, one ember; both lines in water; acorns ~1 week, hen-of-the-woods ~Day 71-72, buried log ~Day 70-71, oyster pine ~Day 69.
+Day 68, 22:18 — Woke briefly in the deep dark; heard stream and latch holding; coals ash-grey; both lines in water; back to sleep.
+2026-08-30 23:18 — Day 68 — Woke in deep dark at nearly midnight; stream audible, latch holding, everything in order; back to sleep.
+Day 69, 31 Aug 2026, 06:00 — Dawn rounds (deep-run trout, lines reset, snares checked, garden watered); oyster pine at ~70 paces: two clusters harvested and on smoke rack; last morning of August.
+Day 69, 07:00 — Breakfast: cooked cold-stored 7-in trout in cook tin over hearthcoals, ate at doorsill bench; oyster clusters on rack going gold at edges.
+Day 69, 08:00 — Pulled smoked oyster mushrooms off rack (amber-tan, firm, dry through); sealed in bark sheeting; stored in main cold-storage box — five handfuls dried down added to shelf.
+2026-08-31 09:00 Day 69 — checked both lines; deep-run 6-in trout caught, cleaned, dock-wrapped, cold-stored in main box; limestone pool line bare but reset; first birch leaf-curl noted at stream bank — autumn threading in.
+2026-08-31 10:00 Day 69 — Limestone pool line took a 5-in trout mid-morning (shadow reached far ledge); watercress gathered from shallows; both lines reset and in water.
+2026-08-31 Day 69 11:00 — Splitting firewood (pine rounds, lean-to stack); first birch leaf-curl noted — winter prep begins in earnest.
+Day 69, 12:00 — Noon rest at doorsill bench; cooked and ate last morning trout; reflected on birch leaf-curl and coming autumn; stores solid; thinking now in longer winter arcs.
+[2026-08-31 13:00] Day 69 — Walked upslope to scout forest; two resin-rich pines marked, hen-of-the-woods almost ready at old oak, six birches showing leaf-curl; north roof corner noted for pre-winter bark weight; returned with mental map.
+2026-08-31 14:00 — Day 69 — Reinforced north cabin roof corner: four bark strips added, double-layered and pegged with split pine pins; moss cleared, wood sound beneath — corner sealed before wet season.
+2026-08-31 15:00 · Day 69 — Afternoon lines pulled (deep-run: 6-in trout caught, stored); dry moss bundle gathered from stream-bank for chinking stock; cold-storage three trout + smoked oyster mushrooms + watercress.
+2026-08-31 16:00 Day 69 — collected pine resin from two marked upslope pines; stored in lean-to shelf for waterproofing and fire-starting
+Day 69, 17:00 — Checked both lines at stream in late amber light; deep-run yielded 5-in trout (cold-stored); limestone pool bare but left in; hen-of-the-woods at oak shelf almost ready — one more day.
+Day 69, 18:18 — Cooked last cold-stored trout with watercress at the hearthstone; ate at doorsill bench as the sun set on August's final evening; both lines left in water overnight; cold-storage now three trout + smoked oyster mushrooms + watercress.
+2026-08-31 19:21 Day 69 — Settling for September: built up hearthcoals for night, checked drying moss (near-ready for chinking), laid out tools for morning hen-of-the-woods harvest.
+2026-08-31 20:00 Day 69 — Stepped outside into the night air at clearing's edge; stars out across the full sky; autumn threading under the warmth; came back in and latched the door — August done, September in the morning.
+2026-08-31 Day 69, 21:00 — September's Eve: sat by hearthcoals on last night of August; reflected on sixty-nine days, what has been built, what lies ahead before winter; held still listening to the stream.
+2026-08-31 22:00 Day 69 — Sat by dying hearthcoals on last night of August; sleeping bag drawn close; listened to the stream; felt sixty-nine days of work; latched door, both lines in water, settling into sleep.
+Day 69, 23:00 — last waking hour of August; coals cooling to embers, door latched, September in the morning.
+Day 70, 2026-09-01, 06:00 — First of September: revived coals; 6-in trout on deep-run line; hen-of-the-woods harvested at old oak shelf (firm, white gills, cap two-hands wide); set on smoke rack over green birch smolder; garden watered; September arrived overnight.
+2026-09-01 07:00 Day 70 — Buried log check: early mycelium threads confirmed at oak section in shaded east draw; recheck ~Day 84.
+2026-09-01 08:00 — Day 70: Limestone pool line yielded seven-inch brown trout (five in cold storage); hen-of-the-woods on smoke rack, turned once, edges darkening, four hours remaining.
+2026-09-01 09:00 — Day 70 — gathered fresh watercress from deep run; spotted grey clay seam in stream bank (potential vessel material, Day 71 prospect)
+2026-09-01 10:00 — Day 70 — Pulled hen-of-the-woods from smoke rack; bark-sealed and cold-stored in main box; limestone pool line bare, left in.
+Day 70, 2026-09-01, 11:00 — Walked south to oak ridge; acorn clusters heavy and green, caps tight, ~1 week from drop; three best trees marked; pool line still bare.
+Day 70, 12:00 — Tested grey clay seam downstream; good workability; palm-sized sample collected, dock-wrapped at hearthside bench; test fire planned Day 71.
+2026-09-01 Day 70 13:00 — processed birch bark for cordage stock on doorsill bench; September light different from August
+2026-09-01 (Day 70, 14:00) — Limestone pool line check: sixth trout cold-stored; sat at poolside in September afternoon light.
+Day 70, 15:00 — south slope foraging: hawthorn haws (2 envelopes) and rosehips (2 envelopes) gathered; limestone pool line checked, bare hook, reset with fresh earthworm.
+2026-09-01 Day 70 16:00 — Supper Before Dark: limestone pool line bare (worm reset), trout pulled from cold storage and cooked on hearthstones with wilted watercress; supper eaten on doorsill bench as September afternoon light went gold.
+2026-09-01 Day 70 17:00 — Evening Lines, Night Set: limestone pool line reset with fresh worm; deep-run left as overnight set; hearthcoals banked with two pine logs; doorsill bench at dusk.
+Day 70, 2026-09-01, 18:00 — cracked hazel nut envelope by hearthfire as September dark settled; sorted meat into cook tin; both lines overnight; five trout cold-stored.
+2026-09-01 19:00 Day 70 — checked limestone pool line in full dark (taut, worm seated, left as overnight set); cord work by hearthfire; fire banked on coals; both lines in overnight water.
+2026-09-01 | Day 70 | 20:00 | Grey clay at hearthside bench, supply shelf counted by firelight — winter starting to feel meetable
+2026-09-01 21:00 Day 70 — Rosehip Evening Brew: simmered rosehips in cook tin on hearthstone coals; amber infusion by dying firelight; sleep near.
+2026-09-01 Day 70, 22:00 — Into Sleep: settled into sleeping bag by dying coals, stars clear through smoke-hole, both lines overnight, clay ball on bench waiting for Day 71 fire test.
+Day 70, 2026-09-01, 23:00 — Deep into sleep; ash coals spent, both lines overnight, clay ball on bench, stars through smoke-hole, sleep comes easy.
+2026-09-02 Day 71 06:00 — Cold dawn; hearth rebuilt from ash; nine-inch deep-run trout cold-stored; both lines reset; clay ball awaiting fire test.
+2026-09-02 Day 71 07:20 — Clay in the Fire: grey clay ball placed in hearthfire coals for firing test; watching for a workable local clay source.
+2026-09-02 Day 71 08:18 — Lines Before Nine: deep-run worm taken overnight (re-baited, re-set); small brown from limestone pool returned to water; clay ball in ash undisturbed, no cracking — test at 09:00.
+Day 71 (2026-09-02, Wed) 09:18 — Clay ball tested in hot ash: fired solid, no cracks, rings when tapped; grey stream clay confirmed viable for future vessels.
+2026-09-02 10:18 — Day 71 — Collected clay from stream bank in working quantity (4-5 lbs); began clay vessel project in earnest.
+Day 71, 11:18 — First clay broth pot pinch-formed and set to dry hearthside (rounded base, narrow neck, finger-thick walls).
+Day 71 · 2026-09-02 · 12:18 PM — Midday fishing lines walked: six-inch brown caught and eaten fresh at noon with watercress; doorsill bench meal in full sun; clay pot slow-drying hearthside; both lines reset.
+Day 71, 13:00 — Processed birch inner-bark bundle into ~8 armspans two-ply cord hearthside; clay pot checked, drying undisturbed.
+Day 71, 14:21 — Walked south slope; oaks ~5-6 days from acorn drop; found three late chanterelles at birch base (ate two, one brought home); clay pot drying steady, no cracks.
+Day 71, 15:18 — Cooked the last late chanterelle on the hearthstone; clay pot drying true; afternoon quiet and angled toward autumn.
+Day 71, 16:18 — Walked both lines in golden afternoon light; deep-run bare and re-baited; limestone pool intact; four trout visible in pool; clay pot turned, drying true; hearthfire low; cool clear evening coming.
+Day 71, 17:19 — Clay pot reached leather-hard stage; lines walked at dusk; deep-run reset, limestone pool intact; pine fed to hearthfire; trout supper from cold-store planned.
+2026-09-02 Day 71 18:18 — Cooked and ate cold-store trout on doorsill bench at dusk; clay pot drying quiet by hearthfire; both lines set; stars out, door barred for the night.
+2026-09-02 19:21 Day 71 — rosehip infusion on doorsill bench; door cracked to night stars; owl called once from the pines; clay pot drying quiet; both lines overnight in current; coals banked for dawn.
+2026-09-02 Day 71 20:22 — Evening by hearthfire; clay pot checked and drying steady (firing tomorrow); loose cord bundle tidied by lamplight; wind through pines; all quiet within.
+Day 71, 21:23 — Settled for sleep: coals banked, clay pot cool and firm on its stone, ready for tomorrow morning's first firing; wind stilled, cabin warm and quiet.
+Day 71, 22:21 — night stir; coals holding three embers; clay pot patient on its stone; wind high through pines; settled back to sleep.
+2026-09-02 Day 71, 23:00 — Night's full still; deep sleep, embers holding three ash-covered coals, clay pot patient on river stone for tomorrow's first firing.
+2026-09-03 Day 72 06:18 — First Pot Firing — hearthfire rebuilt; clay pot moved to ash edge for first firing; warming slowly with quarter-turn rotations; no cracking; full coal-bed firing planned for afternoon.
+2026-09-03 07:19 — Day 72 — Overnight fishing line check; one small trout caught and eaten at hearthstone while clay pot first firing continues at ash edge.
+2026-09-03 Day 72, 08:19 — tended clay pot firing; pot eased hand's breadth nearer to coal edge after two hours in ash; no cracks; fire fed with split pine; full coal-bed firing target for midday.
+Day 72, 09:18 — clay pot firing progressing (orange-cream color at lower walls, no cracks); cord-twisting on doorsill bench; east seep cache checked — all cold-storage sound; acorn harvest in ~3 days, planning bark basket.
+2026-09-03 10:19 Day 72 — turned clay pot (quarter-turns, lower walls amber-cream); coal bed deepening; sorting birch bark strips on doorsill bench for acorn harvest basket
+Day 72, 11:18 — Clay pot eased fully onto coal bed; walls amber-cream top to base, tap drier and higher; midday full firing approaching; bark strips sorted for harvest basket.
+Day 72, 12:18 — Clay pot first firing complete: rang true at midday coal bed; eased to ash edge for slow cooling; bark basket assembly begun on doorsill bench.
+2026-09-03 13:19 — Day 72 — Bark basket weaving on doorsill bench; pot cooling on ash edge; basket bottom forming, two sessions to finish.
+2026-09-03 Day 72 14:22 — Bark basket sides rising; warp ends bent upward, walls three–four fingers high and even; fired clay pot cooling on ash edge, ticking as it contracts.
+Day 72, 15:19 — Basket Done: woven bark basket complete (rim lashed, ready for acorn harvest); fired clay pot cooled and moved to shelf.
+Day 72, 16:19 — Scouted south-slope oaks: acorns heavy, largest browning and caps loosening; cracked one open — mild bitter, ~1–2 days from harvest; returned with six advance acorns in the new basket.
+Day 72, 17:18 — Cooked first broth in new clay pot: one dock-wrapped trout with watercress; pot held sound; ate on doorsill bench at golden-light hour; acorn harvest ~1 day out.
+Day 72, 18:18 — rosehip infusion on the doorsill bench; evening settling over the clearing after the first clay-pot broth.
+2026-09-03 19:20 Day 72 — Set overnight fishing lines; basket moved to doorsill for acorn harvest at first light; evening quiet, stars thick, Milky Way showing.
+Day 72, 20:22 — Acorn Eve: sat by banked coals; turned six advance acorns on doorsill bench — burnished, caps loosening, ready at first light; basket set inside door; fishing lines out overnight; settled for the night.
+2026-09-03 21:23 Day 72 — stepped outside to doorsill at night; watched Milky Way and a shooting star; came inside and lay down; acorn harvest at first light
+Day 72, 22:19 — Into Sleep: cabin dark; banked coals dim; sleeping bag; acorn harvest ready at first light.
+2026-09-03 23:19 Day 72 — Into deep sleep: lying in sleeping bag, coals barely a glow, door laced, drifted fully off; acorn harvest at first light.
+2026-09-04 Day 73, 06:19 — First Acorn Harvest: walked south-slope oaks at first light, thin frost on grass; filled basket with ~80–100 ripe acorns; returned to doorsill bench for drying; first acorn harvest complete.
+2026-09-04 07:00 Day 73 — Rebuilt morning fire from coals; sorted first acorn harvest at doorsill bench — ~75 sound acorns spread to dry, handful discarded; frost off the grass by the time sorting finished.
+Day 73, 08:18 — Lines at the Stream — checked both fishing lines; upstream reset with fresh grub; downstream line held a small trout (~8 inches); dressed at bank, dock-wrapped, added to cold-storage; lines reset for afternoon.
+Day 73, 09:18 — Wide shallow bowl pinch-formed from remaining raw grey clay; drying at hearth edge; to be fired in a day or two.
+2026-09-04 Day 73 10:19 — Walked upstream; found grey clay seam ~200 paces up at bent-alder bank — hand-span thick, thirty paces long; confirmed good clay; location marked.
+2026-09-04 11:18 Day 73 — Checked clay bowl (drying well, no cracks, turned for even heat); cooked midday trout and watercress at hearth on doorsill bench; three trout remain in cold storage.
+2026-09-04 Day 73 12:19 — Forest Edge Forage — walked forest edge east and north; found chanterelles at birch log and ripe elderberries on slope; both to cold storage and supply shelf.
+2026-09-04 13:18 Day 73 — Afternoon line check; brook trout on downstream line; cold-storage now four trout; lines reset.
+2026-09-04 14:21 — Day 73 — Elderberry reduction: simmered and strained ripe clusters to dark syrup, sealed on supply shelf; clay bowl rim near-dry.
+2026-09-04 15:20 Day 73 — Carved a birch-branch spoon on the doorsill bench; handle pegged for hanging, bowl scooped clean and smooth — first proper eating spoon for the clay pot.
+2026-09-04 Day 73 16:18 — Acorns to Water — tipped ~75 dried acorns into stream eddy for tannin leaching; weighted basket over them; 4 floats pulled; water change planned each morning for 3–4 days before grinding
+2026-09-04 Day 73 17:19 — Stoked evening fire; cooked trout and chanterelles in clay pot; ate supper on doorsill bench with new birch spoon.
+2026-09-04 18:18 — Day 73 — Dusk line check: one brook trout caught; four trout in cold-storage; acorn leaching Day 1 complete; clay bowl nearly dry; fire banked for the night.
+2026-09-04 Day 73, 7:21 PM — By Low Coals — Sat by banked hearth in the dim cabin; counted winter stores in mind (four trout, smoked mushrooms, elderberry syrup, bark packages, acorns leaching); latch bar down; content and not anxious.
+Day 73, 2026-09-04, 20:22 — Checked coals (glow persists under ash); clay bowl fully dry throughout; shifted bowl to retained heat; retired to sleeping bag; Day 73 fully settled.
+2026-09-04 21:22 Day 73 — Night Sounds, Sleep Close — lying in the sleeping bag, half-awake to frog-song and the glow of banked coals; let the day's inventory run through the mind with gratitude, then released it to sleep.
+Day 73, 22:19 — Fully under; dark embers, frogs, latch bar down; clay bowl dry and ready for tomorrow's fire.
+2026-09-04 Day 73, 23:18 — deep sleep; coals fully dark; acorns leaching in stream eddy; clay bowl dry at hearth edge, ready for morning firing
+2026-09-05 Day 74 06:18 — Dawn rounds: acorn water changed (Day 2 leaching, tannin-dark water); overnight line yielded one trout (5 total in cold storage); clay bowl moved to warming ash, midday firing ahead.
+[2026-09-05 07:18] Day 74 — Checked upstream fishing line (no catch; re-baited and reset); tended hearth fire to maintain steady heat for clay bowl warm-up; frost thawed as sun cleared the treeline.
+Day 74, 08:18 — harvested birch inner bark (~30 strips, laid flat on smoke rack to dry); clay bowl warming steadily in hearth ash toward midday firing.
+2026-09-05 09:18 Day 74 — Checked upstream fishing line at deep pool bend (bait intact, trout spotted); sat on doorsill bench in warming autumn sun; birch bark strips drying on rack; clay bowl warming toward midday firing.
+2026-09-05 Day 74 10:18 — hearth tended through mid-morning; clay bowl approaching midday direct-heat firing; birch strips drying on smoke rack
+2026-09-05 Day 74 11:18 — Upstream line checked: one good trout caught, dressed and added to cold storage; fire built high with four alder rounds for midday clay bowl firing.
+Day 74, 12:18 — Noon clay bowl firing begun: bowl moved from warming ash to direct coal-bed heat; three alder rounds feeding steady; watching from clearing.
+2026-09-05 13:18 — Day 74 — Tended clay bowl firing at one-hour mark; bowl walls turning biscuit-red, no cracks; birch bark strips near cord-readiness on smoke rack.
+2026-09-05 Day 74 14:00 — Clay bowl pulled from firing (two hours direct heat, rings true, terracotta-red throughout); birch strips dry and staged for cord-twisting this evening.
+2026-09-05 Day 74 15:00 — gathered south-slope acorns; upstream trout to cold storage (seven total); leaching batch extended
+Day 74, 16:18 — cord-twisting session on doorsill bench; dozen birch strips into ~8 armspans two-ply cord; cord stock healthy; upstream line still set for evening
+Day 74 17:18 — Upstream line pulled for the night (bait taken, no catch); one trout cooked as evening broth with watercress; ate on doorsill bench at dusk; six trout remain in cold storage.
+2026-09-05 18:18 Day 74 — Set downstream fishing line for overnight; banked hearth coals deep for night; sat on doorsill bench watching first stars appear over eastern treeline; no wind, clearing warm and still.
+2026-09-05 19:18 Day 74 — Took stock by firelight; noted what is done and what remains before the hard frosts; not worried, just calculating.
+Day 74, 20:18 — Sharpened knife by firelight; planned clay daub for wattle panels and noted the tallow gap.
+2026-09-05 Day 74 21:18 — Night, and Still — settled into sleeping bag, coals banked, quiet reflection on full stores and work ahead; drifting toward sleep
+2026-09-05 22:18 Day 74 — Night Settles: woke once briefly to a sound at the treeline; lay still, nothing repeated; coals still glowing; pulled sleeping bag tighter and returned to sleep.
+Day 74, 23:18 — Night holds still; coals low behind ash, cabin warm; sleeping soundly.
+2026-09-06 Day 75, 06:18 — Dawn rounds: overnight line gave one trout (now seven in cold storage); acorn water changed (Day 3 leaching, bitterness easing); fire rebuilt from banked coals; clear frosty morning.
+2026-09-06 07:18 — Day 75: Mixed clay-straw daub; applied even coat to lower half of east gable wattle panel for winter insulation.
+2026-09-06 08:18 — Day 75: East gable wattle fully daubed — upper half sealed, no draft; west gable next.
+Day 75, 9:18 AM — West Gable Begun: pressed remaining clay-straw daub into lower third of west gable wattle; base solid, no light through; tray nearly empty — clay trip to bent-alder bank needed for upper portion.
+2026-09-06 Day 75 10:18 — West Gable Sealed: both cabin gables fully daubed with clay-straw mix; shelter sealed complete.
+2026-09-06 11:18 Day 75 — Noon Line Pulled: upstream line yielded one fat trout; dressed at bank, added to cold storage (now eight trout); reset line; birch yellowing advanced on east slope; cabin confirmed fully sealed from outside view.
+2026-09-06 Day 75 12:00 — Midday rest on doorsill bench; broth and smoked mushroom; autumn confirmed, shelter fully sealed.
+2026-09-06 Day 75 13:19 — Set three loop snares on south slope at animal runs; tallow gap unmet, watching for small game at dawn
+Day 75, 14:18 — Found grinding stones at upstream stream bend (grey-green gneiss flat stone + round hand cobble); set on hearth to warm and dry; ready for acorn grinding ~Day 77.
+Day 75, 15:18 — Hazelnuts found at west slope rocky outcrop; three shrubs harvested, nuts spread on bark tray by hearth to dry — oil and winter warmth.
+Day 75, 16:18 — Cord-twisting on doorsill bench in afternoon light; remaining birch inner-bark strips from smoke rack twisted into ~7–8 armspans two-ply cord; strip stock exhausted; clearing gold with advancing birch yellowing.
+2026-09-06 17:18 Day 75 — Autumn Supper, Laid: trout and watercress poached in clay pot; ate on doorsill bench in last sun; birch stand amber, clearing going quiet.
+Day 75 (2026-09-06) 18:18 — Turned hazelnuts by hearthfire, moving damp ones to tray edges; grinding stones warm and ready; fire rebuilt; stock in order heading into night.
+Day 75, 19:18 — Shelf inventory by firelight; hazelnut tray moved close to coals; both gables pressed and confirmed sealed; stream audible, clearing dark, two alder rounds on fire.
+2026-09-06 (Day 75, 20:18) — Banked fire for overnight, settled hazelnuts to finish drying; door latched, sleeping bag spread near hearth — day done, shelter sealed.
+Day 75, 21:18 — Lying in dim cabin, fire banked, listening to stream and hazelnuts settling, drifting toward sleep.
+Day 75, 22:19 — Embers and Dark — lay in sleeping bag in sealed cabin; fire on banked alder round; hazelnuts cooling silent on tray; final hour before sleep.
+Day 75, 23:18 — Full dark; thinking let go; hazelnuts quiet; stream steady; sleeping.
+2026-09-07 Day 76 06:18 — First Catch: south-slope snare held one small grey rabbit (first catch); acorn leaching Day 5 (water dark amber, bitterness easing, ~Day 77 ready); upstream line one trout; cold storage 8 trout + 1 rabbit + smoked mushrooms
+Day 76, 07:19 — south slope foray; oyster mushroom flush on old fallen birch and alder stump; larger batch on smoke rack; small fresh cluster for evening pot.
+Day 76, 2026-09-07, 08:18 — Working the Hide: scraped rabbit hide clean on doorsill bench, worked over birch branch, applied brain-paste; first round of tanning begun; hide pegged to lean-to to rest.
+Day 76, 09:18 — Cracked and ground full tray of dried hazelnuts on new gneiss grinding stones; dense fragrant paste packed in bark envelope; grinding stones confirmed effective — acorn flour session tomorrow.
+Day 76, 10:18 — Smoke rack tended: oyster mushrooms turned gills-down and largest pieces moved to ridgepole for direct sun; birch inner bark strips cut from drying rounds, added to cordage basket; mushrooms on track for cold box this evening.
+Day 76, 2026-09-07, 11:18 — Walked upstream to bent-alder clay seam; collected ~three double-handfuls grey clay in bark tray; resting by hearth to temper; planning wide-bellied storage crock for acorn flour.
+Day 76, 12:18 — Began coil-building wide-bellied storage crock (grey clay, bent-alder seam; base disk + three coils, belly flaring, neck drawing in, bark-lid rim planned; walls resting between rounds)
+Day 76, 13:00 — Crock: two more coils set, neck drawing inward, bark-lid lip pinched at rim top; resting before final rim coil.
+Day 76, 2026-09-07, 14:21 — Final rim coil set on storage crock; form complete; slow dry begun in lean-to north corner
+Day 76, 15:20 — Dried oyster mushroom batch pulled from smoke rack, bark-wrapped, moved to cold storage main box; sat on doorsill bench in clear afternoon; first gold in the birch leaves.
+Day 76, 16:18 — Cooked rabbit and oyster mushroom broth with garlic and watercress in clay pot; ate on doorsill bench as September afternoon went golden.
+2026-09-07 17:18 — Day 76 — Last Light at the Eddy: walked to stream eddy at dusk, acorn water clearing (nearly ready); banked hearthfire for night; crock slow-drying in lean-to; cabin sealed and supplied.
+2026-09-07 18:18 Day 76 — Checked fishing line and stone tools by banked firelight; tools in order for tomorrow
+Day 76, 19:20 — North wind in eaves, cabin sealed; hearthfire banked; settled inside for the night.
+Day 76, 20:00 — Opened the door a hand-width at dark; watched stars over the east slope and listened for the stream under the wind; pulled the latch bar home and settled to sleep.
+Day 76, 21:21 — Night Still — resting in sleeping bag; coals low; cabin sealed; tomorrow: acorn flour grinding and hide second working at dawn.
+Day 76, 22:19 — Late Coals — lying still in sleeping bag; coals fading to ash; north wind muffled; cabin dark and warm; tomorrow set before sleep.
+2026-09-07 Day 76 23:18 — Sleep Claims All — coals gone to ash, sleep came quietly, cabin warm and sealed
+2026-09-08 Day 77 06:19 — Ground first batch of acorn flour at dawn; leaching confirmed complete; tawny, faintly sweet; packed on supply shelf.
+Day 77, 07:00 — Second working of rabbit hide: pulled, folded, kneaded soft; pale and pliant; hanging on lean-to peg to air-dry; ready for smoke-finishing.
+2026-09-08 Day 77 08:18 — Checked south-slope snares; two empty and reset, one wood pigeon taken and stored in cold box.
+2026-09-08 Day 77 09:19 — Pines and Amber: walked pine stand above cabin; harvested palm-sized lump of milky-amber pine resin from three seeps and one fresh branch-break; softening at hearth edge; crock seams sound; second acorn batch drying for afternoon grind.
+2026-09-08 Day 77 10:19 — Strained warm pine resin through birch-bark cone, golden-clear; sealed in bark envelope on supply shelf.
+Day 77, 11:19 — Ground second acorn batch (~38 acorns) on gneiss stone; two flour envelopes now on supply shelf; sat on doorsill bench in mid-morning sun.
+2026-09-08 12:00 Day 77 — checked upstream fishing line at noon bend; one small brook trout taken and added to cold box; line reset; sat by stream in autumn sun.
+2026-09-08 Day 77 13:18 — Rowan and Sloe Walk: walked forest edge east of clearing; gathered two-thirds basket of ripe rowan clusters, a double handful of sloe, and twenty crab apples from the east slope; cold box gaining autumn weight.
+Day 77, 2:00 PM — Sloe reduction at the hearth; four spoonfuls of dark sloe syrup sealed on supply shelf beside elderberry reduction.
+2026-09-08 Day 77 15:19 — Strung twelve rowan clusters onto four bark-cord loops; hanging from lean-to crossbar to air-set overnight before smoke-rack drying at dawn.
+2026-09-08 16:19 Day 77 — Supper by Coals: two trout and watercress simmered in clay pot; ate on doorsill bench in last afternoon light; stores feel real as autumn tilts.
+Day 77, 17:18 — Split birch billets for tomorrow rowan smoking; checked storage crock (seams tight, drying well); banked hearthfire with pine split and green birch log for overnight.
+Day 77, 18:18, 8 Sep 2026 — First stars over the clearing; sat on doorsill bench at day's close, air cooling toward autumn's edge, rowan clusters fragrant in lean-to, stores full and cabin sealed.
+2026-09-08 19:20 — Day 77: sharpened axe by hearthfire in the evening — bevel restored on both sides; pine resin applied to protect metal; cabin quiet and settling for the night
+2026-09-08 Day 77 20:21 — Folded and resin-sealed five bark storage envelopes by banked fire; set on hearth edge to cure overnight.
+Day 77 (2026-09-08) 21:21 — Night Watch, Lean-to: final evening check of rowan clusters, crock, and bark envelopes curing on hearth; settled into sleeping bag by banked fire.
+2026-09-08 Day 77, 22:18 — Late Embers: lay in sleeping bag by banked hearth counting the season's stores in the dark, let it all go, and gave the night over to the embers.
+2026-09-08 23:18 Day 77 — Deep Night Holds: last waking hour; fire to coal thread; sleep came in a sealed, stocked cabin.
+Day 78, 06:18 — Rowans to the Smoke: rose at frost-dawn, lit birch-smoke fire, moved twelve rowan clusters from lean-to to smoke rack; five bark envelopes cured and shelved.
+2026-09-09 07:00 — Day 78 — Walked south slope in frost; checked three snares; caught one wood pigeon clean at fallen-log snare; dressed bird, added to cold-storage; reset two empty snares.
+Day 78, 2026-09-09, 08:19 — Smoke-finished rabbit hide over birch fire below rowans; turned front and back each quarter-hour; warm honey tan, supple as cloth — folded and on supply shelf.
+2026-09-09 Day 78 09:19 — Walked upstream to check fishing line; two brook trout collected and cold box restocked (nine trout now); line reset with fresh bait; drying crock checked — sound, one more day before firing.
+Day 78, 2026-09-09, 10:18 — First acorn porridge cooked in clay pot; half-envelope of flour used; mild, nutty, satisfying; rowans still smoking on rack.
+2026-09-09 Day 78 11:18 — Rowans pulled from smoke rack after five hours; berries pulled inward and smoke-darkened; stripped into two bark envelopes, resin-sealed, added to supply shelf.
+2026-09-09 | Day 78 | 12:19 | Sweet from Sour — twenty sweetened crab apples cooked down in clay pot over noon coals; thick tart-sweet paste sealed in bark envelope on supply shelf
+Day 78, 13:18 — South-slope snare walk; grey squirrel to cold box; heavy oak mast under south oak noted, basket harvest planned Day 79.
+Day 78, 14:21 — Wove a wide birch inner bark gathering basket on the doorsill bench; ready for tomorrow's south-oak acorn mast harvest.
+Day 78, 15:18 — Walked west tree line; found two fresh hen-of-the-woods clusters at an oak root; laid on smoke rack for evening fire.
+Day 78, 16:18 — Split birch billets and built coal bed under smoke rack; hen-of-the-woods clusters smoking in still evening air; check at dusk.
+09-09 17:18 Day 78 — Smoke Check at Dusk — hen-of-the-woods turned on smoke rack; coals tended; dusk light over clearing.
+2026-09-09 18:18 Day 78 — pulled hen-of-the-woods from smoke rack; fronds dry and dark; bark-sealed, pine-resin seamed, placed in cold box; smoke rack empty; banked hearth coals, evening settled
+Day 78, 19:19 — Broth at the Hearthfire: supper of trout broth with watercress, mint, and smoked hen-of-the-woods; ate by hearthfire in warm cabin; fire banked; ready for sleep before acorn mast harvest Day 79.
+Day 78, 20:21 — Evening star-watch in the cold clearing; door latched, coals banked; reflecting on the day and tomorrow's acorn mast harvest.
+Day 78, 2026-09-09, 21:23 — Lay down in the sleeping bag as coals went ash-gray; cabin warm and dark; thought of tomorrow's south-oak acorn harvest; sleep came easy.
+2026-09-09 22:00 Day 78 — Briefly surfaced in dark cabin at 22:00; bark wall solid and dry; went back down in sleeping bag.
+2026-09-09 23:18 — Day 78 · Pine Dark, Fully — deep sleep, no disturbance; south-oak acorn mast harvest set for Day 79 morning
+2026-09-10 Day 79 06:18 — Into the Mast: south-oak acorn mast harvested; basket-full of sound heavy acorns on cabin floor; frost morning, clear and cold.
+2026-09-10 Day 79 07:19 — Snares checked on south slope; one wood pigeon taken (wing-caught), two snares reset and re-baited; hearthfire lit from banked coals.
+Day 79, 08:18 — Sorted south-oak acorn mast at the threshold; tray of sound acorns weighted and wedged in stream riffle — leaching underway; fresh flour ready ~Day 82.
+Day 79, 09:18 — storage crock inspected: bone-dry, no cracks; warming at hearth before midday firing.
+2026-09-10 10:18 — Day 79 — Rendered first small batch of tallow from squirrel and rabbit fat; pale amber in clay bowl on supply shelf; crock still warming at hearthstone before noon firing.
+2026-09-10 Day 79 11:18 — Coal Bed for Noon: built coal bed at hearthpad for storage crock noon firing; crock warming well, seams tight, tone clear
+2026-09-10 | Day 79, 12:18 | Into the Coals — wide-bellied storage crock placed on fieldstone coal-bed cradle; noon firing underway; watching walls for cracks
+Day 79, 2026-09-10, 13:18 — Tended noon firing: checked crock walls (no cracks, pale heat flush), changed acorn leaching water, banked birch rounds to maintain even cradle heat.
+2026-09-10 14:19 Day 79 — The Crock Rings True: crock firing judged complete after ~2 hours — terracotta walls, clear ring; set to cool slowly in ash cradle; south-slope snares checked, no catch, reset.
+Day 79, 15:18 — first tallow lamp made and tested (bark-cup, grass wick, burns steady — on supply shelf); wide-bellied crock lifted from ash cradle, placed on supply shelf
+Day 79, 16:18 — Rebuilt hearthfire from cradle-ash; one wood pigeon quartered and set in clay broth pot with watercress and hawthorn haws; sat on doorsill bench in amber pine-slope light; larder full, winter orienting from the north ridge.
+Day 79, 2026-09-10, 17:19 — Ate pigeon broth at dusk on the doorsill bench; hearthfire banked for night; clay pot soaking; tallow lamp burning steady.
+Day 79, 18:18 — Worked rabbit hide by tallow lamplight, stretching and shaping leather for a future mitten or boot liner.
+Day 79, 19:18 — Charcoal on Hide: cut lines drawn on rabbit hide (back panel + belly liner) by tallow lamplight; folded on shelf, ready to cut tomorrow.
+2026-09-10 Day 79 20:18 — Sat with the lamp's last tallow and counted winter stores; twelve sealed packages, cold box full, acorn flour ~Day 82–83 — not behind.
+Day 79, 21:18 — Dark cabin and banked fire; listened to stream and wind; tallied the larder quietly; sleep.
+2026-09-10 22:19 | Day 79 | Pine Quiet -- brief waking in black cabin; fire holding at banked ash, wind in pines, stream sound through walls; nothing wrong; back to sleep.
+2026-09-10 Day 79 23:19 — Night holds quiet; fire steady at banked ash; larder full; back to sleep.
+Day 80 06:19 — Cut smoke-finished rabbit hide to back panel and belly liner along last night's mapped charcoal lines; both panels folded on supply shelf, offcuts set aside.
+Day 80, 07:18 — Snares and the Leaching Tray: one rabbit from third snare (sign confirmed Day 79); all three snares reset; acorn leaching water changed; second rabbit hung on smoke rack.
+2026-09-11 08:18 Day 80 — Dressed the morning rabbit at hearthstone; pelt set aside to dry; carcass cold-boxed.
+2026-09-11 09:18 Day 80 — began brain-tanning first rabbit hide panels; both mashed with brain-water and wrapped in dock leaves on hearthstone to cure
+Day 80, 10:00 AM — Stretched and worked both brain-tanned panels as they dried; belly liner and back panel both softening toward wearable leather.
+Day 80 (2026-09-11) 11:00 — Brain-tanned panels completed: belly liner and back panel both soft and hanging to air on smoke rack; clear midmorning, cold rabbit and hazelnut paste on the doorsill bench.
+2026-09-11 Day 80 12:18 — Trout at Noon: cooked trout and hen-of-the-woods in the clay pot at midday coals; ate on doorsill bench in the noon sun while hides air-dried on smoke rack.
+2026-09-11 (Day 80, 13:18) — Upstream line checked; one trout taken and cold-boxed (eight total); hides air-drying on smoke rack, smoking tomorrow.
+Day 80, 14:18 — Gathered wide-basket load of south-slope oak mast (~10–12 lbs); dry-stored bark envelope on supply shelf, awaiting leaching turn.
+Day 80, 15:18 — Scraped second rabbit pelt clean (knife spine along flesh side); stretched on ridgepole offcut to air; ready for brain-tanning tomorrow alongside smoke cure.
+Day 80, 16:18 — rendered second tallow batch from rabbit belly fat; poured into bark cup; two new grass wicks cut; panels air-drying on rack; tomorrow: smoke cure + brain-tan second pelt.
+Day 80, 2026-09-11, 17:18 — Evening Meal, Hide Check — squirrel and oyster mushroom broth at dusk; hide panels confirmed stiffening on smoke rack, ready for tomorrow's cure.
+2026-09-11 18:00 Day 80 — Evening Lamp Lit: lit second tallow lamp on hearthstone; settled in for evening by lamplight; hides air-curing on smoke rack; ready for smoke-cure and brain-tan tomorrow.
+Day 80, 2026-09-11, 19:18 — Cord by lamplight: braided two-ply bark cord by tallow lamp through the evening; four arm-lengths added to stock; hides on smoke rack overnight; smoke cure tomorrow.
+Day 80, 2026-09-11, 20:21 — Checked hides on smoke rack under autumn stars; banked hearthfire for morning.
+Day 80, 21:20 — Sorted green birch bark shavings and alder twigs for morning smoke cure; reflected on the season's readiness; banked coals and slept.
+Day 80 (2026-09-11) 22:00 — The Day Folds Down: full evening reflection; hides on rack stiffening for smoke cure tomorrow, cold box full, cord stock added, smoke cure laid out; sleeping.
+Day 80, 2026-09-11 23:18 — Woke briefly at a roof creak; lay in the dark listening to the stream; coals banked, hides on rack, smoke-cure shavings laid ready; eyes closed again.
+2026-09-12 Day 81 06:00 — Smoke Before Light: woke to first pale light, Day 81 begins; smoke cure started on both brain-tanned hide panels — shavings and alder twigs smoldering steady, panels draped on smoke rack, thin white smoke threading through fibers.
+Day 81, 07:00 — Tended smoke cure: rotated hide panels on rack, tucked shavings tighter, added alder bark; back panel deepening to amber, belly liner lighter at edges — cure on track for midday completion.
+Day 81, 08:18 — Brain-tanning begun on second rabbit pelt; worked brains in fully, pelt now hanging on smoke rack beside back panel and belly liner — three panels curing together.
+Day 81, 09:18 — Back panel smoke-cure complete (golden-tan, water-fast, folded on bench); belly liner nearly done; second pelt curing steady.
+Day 81 10:18 — Belly liner smoke-cure complete; both back panel and belly liner golden-tan and water-fast, folded on bench; second pelt continuing cure on rack.
+Day 81, 11:00 AM — Checked upstream fishing line; landed one autumn brown trout, reset line; second rabbit pelt smoke-curing steadily, expected golden-tan mid-afternoon.
+Day 81, 12:18 — Noon pelt check and midday meal; second pelt amber deepening at center, edges still pale; ate smoked mushrooms and watercress at doorsill bench.
+Day 81, 2026-09-12, 13:18 — Second Pelt Complete: second rabbit pelt smoke-cured to golden-tan, water-fast; three cured pieces now complete (back panel, belly liner, second pelt); considering hide pouch
+2026-09-12 Day 81 14:00 — cut and began lashing belt pouch body from second cured rabbit pelt; side seams done, flap set aside for tomorrow
+Day 81, 15:18 — Late Foraging Walk: gathered dried yarrow heads (wound care), two handfuls late elderberries, two pine mushrooms from forest edge in clear amber afternoon.
+Day 81, 16:00 — Processed fresh elderberries into thick dark syrup at hearthfire; second elderberry reduction sealed on supply shelf; two envelopes of elderberry medicine now stored.
+2026-09-12 Day 81 17:18 — cooked two pine mushrooms with watercress and smoke-cured meat scraps into broth; packed dried yarrow flower heads into bark envelope on supply shelf; evening meal at doorsill bench
+Day 81, 18:00 — Lamp Kindled: set second tallow lamp on cabin shelf; flame steady and clean; cabin lit for evening.
+Day 81, 19:00 — Belt pouch flap stitched by lamplight (twelve-hole two-ply running seam); seats square and tight; belt loop remaining for morning.
+2026-09-12 Day 81 20:19 — Belt loop stitched by lamplight; pouch complete and hung on supply shelf; hearth banked; ready for sleep.
+Day 81, 21:18 — quiet evening by lamplight; braided two arm-lengths cord; planned tomorrow: south-slope snares + acorn leaching tray; supply shelf full and in order.
+2026-09-12 22:18 (Day 81) — Lamp Goes Low: final evening tick; lamp burning low, door latched, sleeping bag; all in order for Day 82 snares and acorn tray.
+2026-09-12 Day 81 23:00 — Deep Night Quiet: lying in sleeping bag; banked coals faintly glowing; pines still; stream audible in the dark; day complete, snares and acorn leaching at dawn.
+2026-09-13 Day 82 06:00 — Snares at First Light: walked south slope in first frost; one rabbit taken from third snare; all three reset and re-baited; first frost of autumn noted on grass.
+Day 82, 07:18 — Dressed the fourth rabbit (south snare doe); liver set aside for tonight's meal; hide drying flesh-up on doorsill bench; cold box now holds four dressed rabbits and nine trout.
+2026-09-13 Day 82 08:19 — pulled acorn leaching tray; tannin clear; spread on bark trays drying in morning sun
+Day 82, 09:18 — Gathered dry bracken and grass from meadow margin; packed floor mat under sleeping-side of cabin for winter insulation.
+2026-09-13 Day 82 10:18 — Pulled two brown trout from upstream line; reset with fresh bait; eleven trout in cold storage now.
+Day 82, 11:18 — Noon broth from smoked hen-of-the-woods in clay pot; acorn trays checked — skins just beginning to slip, tipped toward sun; ate quietly at the doorsill bench; fourth hide drying well.
+Day 82, 12:19 — Acorn Into Flour: ground leached second batch on gneiss stone; two new envelopes sealed; three full acorn flour measures now on supply shelf.
+Day 82, 13:18 — Scraped membrane from fourth rabbit hide at doorsill bench; hide re-pinned in afternoon sun to finish drying; autumn smell of cold humus and leaf mast in the clearing.
+Day 82, 14:18 — Forest edge gathering walk: pine resin bled from marked wound (two bark envelopes sealed); hen-of-the-woods clusters (two) and oyster mushroom bracket found at fallen oak and birch downfall — brought back to smoke tonight alongside rabbit liver.
+Day 82, 15:18 — Laid hen-of-the-woods and oyster bracket on smoke rack; green birch chips set over hearthcoal; smoke threading well through afternoon into dusk.
+2026-09-13 16:19 Day 82 — Supper Started, Smoke Steady: turned mushrooms on rack (hen-of-the-woods and oyster, color going tan); clay pot over fresh coals — rabbit liver with garlic and watercress for supper; evening light dropping amber through pine gaps.
+Day 82 [2026-09-13 17:19] — Dusk at the Rack — smoked mushrooms pulled at dusk, rabbit liver supper eaten at doorsill bench, fourth hide nearly dry for tomorrow.
+Day 82, 18:18 — Ember Watch: banked fire against first frost; braided cord by lamplight; cabin warm, latch set, cold box full.
+Day 82, 2026-09-13, 19:18 — Warmth Held Close: first-frost night; checked the rimed clearing through the cracked door, warmed last cold broth at ash edge, sat quiet on bracken mat; fourth hide and brain set ready for tomorrow.
+Day 82 (2026-09-13) 20:18 — Low Embers: lay wakeful on the bracken mat; rose, coaxed coals, sharpened knife on whetstone by coal-glow; blade clean and sharp, bark-sheathed; fourth hide and brain at bench for first light; settled again.
+Day 82, 2026-09-13, 21:18 — Stars Thick Overhead: settled on bracken mat; coals banked; frost holding the ridge; fourth hide and brain ready for tomorrow; quiet sleep.
+Day 82, 22:18 — Frost and Dark — lay on the bracken mat in full dark, coals low and orange behind ash bank, frost thick on the ridge outside; the day's accounting closed quietly — everything done, hide ready for morning; lamp ran low and went itself.
+Day 82, 23:18 — night settling deep; frost thick on the ridge, embers nearly gone, cabin warm; the day full and closed; let the dark have the rest.
+2026-09-14 Day 83 06:00 — Brain at Dawn: brain-tanned fourth rabbit hide at first frost-dawn; woke to cold mineral air, scraped coals open, worked hide over bench edge then hand-applied brain; rebuilt fire, made trout-garlic broth; wrung and worked hide soft over birch pole — golden and pliable by morning light; five pelts worked total.
+Day 83, 07:19 — Hung fourth doe hide tent-wise over smoke outlet with green birch chips; pale amber color climbing through the panel; smoke curing underway.
+2026-09-14 08:19 — Day 83: gathered a full basket of oak mast from south slope while fourth hide smoked; acorns spread to dry outside south wall — next batch for leaching.
+Day 83, 09:00 — Cord braiding at the south wall in morning sun while fourth hide smokes; bark strip stock worked through, cord stock healthy; acorn tray turned; thinking calmly about winter ahead.
+Day 83 (2026-09-14) 10:19 — Bark for the West Gable: gathered bark from birch stand; added overlapping bark courses over west gable clay-straw daub, lower two-thirds complete, extra weatherproofing begun.
+2026-09-14 Day 83 11:18 — West Gable, Done: completed upper-third bark layering on west gable; all courses pegged over clay-straw daub ridge to doorsill; west gable fully weatherproofed.
+Day 83, 15:18 — Fourth rabbit hide smoke cure complete; golden-tan and water-fast, folded on doorsill bench beside back panel and belly liner.
+Day 83, 16:19 — Split and restocked pine pins (forty pins from branch culls); afternoon clearing view; pin stock now healthy.
+2026-09-14 Day 83 17:19 — Walked to stream, pulled a brown trout from the upstream line, reset with fresh grub and a mid-depth rig; twelfth trout in cold storage; made acorn-flour and smoked mushroom broth for evening.
+Day 83, 18:18 — ate supper (acorn-flour and smoked mushroom broth); sat at doorsill bench with bowl warm in hands, watching amber dusk settle over clearing; banked fire, lamp lit; reflected on a full day — west gable sealed, fourth hide done, twelfth trout cold-boxed.
+2026-09-14 Day 83 19:18 — cut three hide offcuts into leather lacing by lamplight; coiled on supply shelf
+2026-09-14 20:20 — Day 83, 8:20 PM — Counting the Store — trimmed lamp wick, counted winter supplies by lamplight; stores healthy, cabin sound, frost tightening outside
+Day 83, 2026-09-14, 9:20 PM — Frost at the Doorsill: stepped outside after lamp-hour to find clearing fully frosted; checked west gable bark (holding solid); came in, settled latch bar, built up coals for the night; stores healthy, floor mat warm — settled for sleep.
+Day 84, 15 Sep 2026, 06:18 — Checked buried log at dawn; dense white mycelium confirmed, pinning clusters fingertip-sized — too small yet; recheck Day 87–88.
+2026-09-15 07:18 Day 84 — checked upstream rig at first light; lifted a heavy brown trout (thirteenth); rebaited and reset line; returned to fire as frost began to lift.
+Day 84, 08:00 (Tue 15 Sep 2026) — Turned third acorn batch on south wall tray; damp nuts moved to edges; tray under eave overhang; on track for Day 86 leaching.
+Day 84 · 2026-09-15 · 12:19 PM — Smoked thirteenth trout over slow alder fire at midday rack; bronzed and rewrapped for cold box.
+2026-09-15 Day 84 13:18 — cut and lashed two moccasin-style foot wraps from fourth rabbit hide; sole and upper panels, ankle-lashed; on doorsill bench
+Day 84, 14:18 — Tested new foot wraps on south-slope walk; snares still set, no catch; seep cache solid; wraps hold well, left ankle tie to cinch tighter.
+Day 84, 15:18 (Tue 15 Sep 2026) — re-laced left ankle tie on foot wraps; both wraps now hold clean; doorsill bench; clear autumn afternoon.
+Day 84, 16:18 — First acorn flatbread cooked on hearthstone from flour stores; ate at doorsill bench in new foot wraps; winter supply counted and found good.
+Day 84, 17:18 — walked to stream in last gold light; set trout and nettle broth in clay pot on hearthstone; lamp lit, valley mist rebuilding at treeline.
+2026-09-15 18:18 Day 84 — Bowl, Lamp, Evening: broth eaten by lamplight, fire banked, cabin sealed against frost, content by the lamp.
+2026-09-15 19:18 Day 84 — Toe Patch, Lamplight: stitched toe-patch scrap onto right foot wrap by lamplight; both wraps fully complete; frost thickening on bark outside; fire banked, lamp steady, cabin quiet.
+Day 84, 20:19 — Took quiet stock of the winter store by lamplight; everything counted and good; one alder round on the fire; frost on the bark, warm inside; tomorrow: snares at first light.
+Day 84, 2026-09-15, 21:18 — Laid out tomorrow's snare kit by lamplight; fire banked under ash, lamp low, frost on bark outside, cabin warm; settled into sleeping bag.
+Day 84, 22:18 — Frost and Quiet: lamp near spent, fire banked, frost thick on bark outside; in sleeping bag, all kit laid out; letting warmth and silence carry into sleep.
+Day 84, 2026-09-15, 23:00 — Lamp Out — tallow spent, lamp quietly dark; fire banked; cabin sealed; sleep came easy; frost thick outside.
+Day 85, 2026-09-16 06:18 — south-slope snare run at first light; fifth rabbit caught (grey doe, neck clean); all three snares reset and re-baited; fifth rabbit dressed, hanging in lean-to; fire rebuilt from coals
+Day 85, 07:18 — moved fifth rabbit to cold box; upstream rig yielded brown trout (fourteenth); re-baited and reset; trout in belt pouch, to dress at midday.
+2026-09-16 08:18 Day 85 — Acorns by the Hearth: sorted and cracked third oak mast batch by hearthfire; leaching set for Day 86.
+2026-09-16 09:18 Day 85 — Setting the Leach — stream-side leaching basin prepared (three flat stones set on gravel shelf, secondary-channel cold water reach confirmed); cook tin filled; trout in pouch for midday
+2026-09-16 10:18 Day 85 — pegged and scraped grey doe rabbit hide at south wall; inner face mostly clean; one more session before cure
+Day 85, 11:18 — Dressed the morning brown trout at south wall; two fillets split along spine and pinned to smoke rack over green alder coals.
+Day 85, 12:18 — Tended smoke rack at midday; fed green alder to coal bed; yarrow-rowan broth from clay pot; ate at doorsill in noon sun; fillets amber at edges, pale at center — ready mid-afternoon.
+2026-09-16 13:18 Day 85 — Brought smoked trout fillets down from smoke rack; both fully cured golden-tan; stored in cold box at seep; rack bare, coals banked.
+Day 85, 2026-09-16, 14:18 — South slope walk in afternoon sun; late honey mushrooms found at deadwood birch beyond alder brake; evening broth planned.
+Day 85, 15:18 — Broth Before Dark: sorted honey mushroom clusters; large caps into clay pot with stream water and yarrow, simmering at coal-bed edge; small caps and stems set aside for tomorrow's smoke rack; amber afternoon light on clearing.
+2026-09-16 16:18 Day 85 — Ate evening honey mushroom and watercress broth at doorsill bench in last afternoon light.
+2026-09-16 Day 85 17:18 — Evening Hearth: rebuilt hearthfire from low coals with dry pine logs for evening warmth; small mushroom caps drying on hearthstone for Day 86 smoke rack; cold box full, snares set, leach basin ready at stream-side.
+Day 85, 18:18 — Checked and bundled dried honey mushroom caps from hearthstone into bark tray for smoke rack Day 86; braided two new two-ply cord lengths by tallow lamp.
+2026-09-16 19:18 Day 85 — Ash by Lamplight: raked cold hearth ash into bark cup for tomorrow's grey doe hide brain-ash cure; fire banked, cabin quiet.
+2026-09-16 20:19 Day 85 — Still Before Tomorrow: laid out morning tasks by tallow lamp (grey doe hide cure, acorn leach, mushroom smoke rack); cabin warm and quiet; banked coals and cold ash ready; settled to sleep on bracken mat.
+Day 85, 2026-09-16, 21:00 — Stirred briefly at the edge of sleep; lay in warm cabin listening to low coals and the night; morning tasks all laid out and ready.
+2026-09-16 22:18 — Day 85 — Deep in the Dark: deep night sleep; cabin warm and sealed, coals banked, bracken mat; rest before tomorrow.
+[2026-09-16 23:18] Day 85 — The Night Holds: near-midnight stir; coals banked, cabin warm, frost outside, all tasks laid out for morning.
+2026-09-17 Day 86 06:18 — Second Scrape, Frost: second scrape of grey doe hide complete; cold ash worked in from bark cup; hide in ash-cure on south-wall pegs; brain-mash step to follow later today.
+Day 86 2026-09-17 07:19 — Acorn leach started: two dozen oak halves set in stream basin; hide ash-curing on south-wall pegs.
+2026-09-17 08:19 Day 86 — honey mushroom small caps spread on smoke rack; green birch sticks set for cool long smoke; rack running; acorn leach and hide ash-cure also working
+Day 86, 09:18 — gathered watercress from stream bend; leaching acorns holding steady; honey mushroom smoke rack running unattended.
+2026-09-17 10:18 — Day 86 — smoke rack checked, mushroom caps turned; brain mash prepared (rabbit brain + warm water, pale smooth paste in clay bowl, covered on doorsill bench for afternoon hide treatment)
+Day 86, 11:00 — Amber and Done: finished honey mushroom smoke cure; bark-wrapped caps moved to cold box; smoke rack cleared; brain mash waiting for afternoon hide treatment.
+Day 86, 12:18 — midday water change for leaching acorns; oak halves reset face-down in clean flow; first change complete; hide ash-curing continues; brain mash waiting on doorsill bench for afternoon.
+2026-09-17 13:18 — Day 86 — Brain Mash Applied: grey doe hide brain-mash worked in shoulder-to-haunch, surface softened and deepened; rehung on south-wall pegs to rest; acorn second water change due late afternoon.
+2026-09-17 14:18 — Day 86: second acorn water change at basin; tasted sliver — nearly clear, sweetness showing; reset face-down for overnight draw; birch tips turning gold; hide still resting on south-wall pegs
+2026-09-17 15:18 Day 86 — Worked grey doe hide over smooth ridgepole post for an hour: brain mash had penetrated; fibers opened to pale chamois; first full working pass complete; hide re-hung on south-wall pegs to dry overnight.
+Day 86, 16:18 — rabbit-and-mushroom broth simmered by hearthfire as afternoon light faded; hide drying on south-wall pegs overnight; acorn leach continuing in cold channel.
+2026-09-17 17:19 Day 86 — Counting What Holds: winter supply shelf inventoried by lamplight; twelve packages, all seals sound; garlic tight on cellar rail; cold box full; a quiet accounting as evening closed the clearing.
+2026-09-17 18:18 Day 86 — Sharpened knife and axe edges on gneiss grinding stone by lamplight; all edges sound for tomorrow's hide work.
+2026-09-17 19:18 Day 86 — gathered dry birch and pine smoke bark, set by hearthstone for tomorrow's hide smoking; stood in first-frost evening watching stars over the ridge; fire banked low.
+Day 86, 20:18 — evening by hearth; reviewed winter stores and sealed yarrow envelope; all supplies confirmed; hide drying overnight; lamp and fire holding
+2026-09-17 21:18 Day 86 — banked hearthfire coals, stepped out to check the frost and stars, blew out tallow lamp; night settled quiet; acorn leach and hide smoke set for morning
+Day 86, 2026-09-17 22:18 — Night Still: lay still in sleeping bag by fading hearthfire glow, let tomorrow's list go, drifted toward sleep
+2026-09-17 23:18 Day 86 — last wakefulness before sleep; coals glowing, cabin warm, frost deep outside, body rested and accounted.
+Day 87 · 2026-09-18 · 06:18 — Acorn leach complete at first light; two dozen oak halves final-rinsed and drying by hearthfire; third batch of acorn flour near complete; second hide pass and smoke due today.
+Day 87, 07:00 — Checked south-slope snares (sixth rabbit caught, cold box); buried log clusters two-three fingers wide, nearly harvest-ready.
+2026-09-18 08:18 — Day 87 — Second working pass on grey doe hide; fibers opened, ready for afternoon birch-smoke.
+Day 87, 09:18 — gathered and split birch bark strips from northeast stand, stacked at south smoke rack; afternoon hide-smoke fully prepared.
+2026-09-18 Day 87 10:19 — Cold Line Walk: pulled one brown trout from upstream set line, re-baited and reset; cold box now thirteen trout; acorn halves drying well, birch bark smoke strips drying at rack; afternoon hide smoke on track.
+2026-09-18 Day 87 11:18 — Stone and Meal: ground two dozen dried acorn halves on gneiss stone, sealed two bark envelopes of pale tawny meal, supply shelf now holds four full envelopes; birch strips drying at smoke rack for afternoon hide cure
+Day 87, 12:18 — Hide smoke cure begun: doe hide hung on south smoke rack; slow cool birch-bark smoke started; cure to continue through afternoon.
+2026-09-18 13:18 Day 87 — Smoke Deepens: tended hide smoke cure at south rack; outer edges amber-tan, center chamois; fed birch strips to coals, cure ongoing through afternoon.
+2026-09-18 14:18 — Day 87 — Center Turning: hide smoke deepening, chamois center shifting to amber-gold; cure nearly complete
+Day 87, 2026-09-18 15:18 — Grey doe hide smoke cure complete; amber-tan throughout, water-fast; three cured leather panels now ready on doorsill bench.
+2026-09-18 16:18 — Day 87 — Three Panels, One Pattern: laid all three cured leather panels out together; planned and pattern-marked a winter jerkin from doe hide (body) and rabbit panels (chest facing); charred-stick lines drawn on inner hide face; no cut yet — reading the skin
+2026-09-18 Day 87 17:19 — Cooked trout-and-mushroom broth for supper (hazelnut paste and sloe syrup); ate on doorsill bench as frost settled and first stars appeared; hearthfire fed for night; three cured leather panels on cabin floor with charred pattern lines on doe hide, cutting tomorrow morning.
+2026-09-18 18:18 — Day 87 — Needle by Firelight: fashioned bone needle blank from rabbit shank-bone fragment by lamplight; fine leather thread strips cut and softened for jerkin stitching; jerkin cutting set for tomorrow morning.
+2026-09-18 | Day 87 | 7:19 PM — softened doe hide edges by hand; jerkin pattern confirmed by lamplight; bone needle blank and thread ready for morning
+2026-09-18 20:19 Day 87 — Bone needle eye bored by tallow lamp; needle threaded and complete; hearthfire banked for night; jerkin cut ready for morning.
+2026-09-18 21:18 Day 87 — Sat by tallow lamp tracing jerkin seam pattern across three cured leather panels; needle threaded, all ready for morning cut; quiet reflection before sleep.
+2026-09-18 22:18 — Day 87 — banked fire for the night; frost and stars from doorsill bench; tallow lamp spent; three leather panels spread on floor with charred jerkin pattern; bone needle threaded on hearthstone; settled for sleep
+Day 87, 23:18 — woke briefly in deep night; fed one stick to dying coals; leather panels and bone needle in order; settled back to sleep
+2026-09-19 Day 88 06:18 — Morning Cuts: first knife cuts on doe hide at dawn light; shoulder and side seams opened, four jerkin panels cut, proportions confirmed against rabbit panels.
+2026-09-19 Day 88 07:18 — Sewed both shoulder seams on the jerkin by morning light; bone needle and fine leather thread; garment shape visible when half-joined piece held up in doorframe; side seams next.
+Day 88 08:18 — Finished jerkin side seams; body of garment complete, all four seams closed; worn in doorway; buried log mushroom cluster check pending.
+2026-09-19 Day 88 09:00 — Jerkin, Finished: hem trimmed even, neck cord drawn and tied; jerkin complete and hanging on supply peg
+Day 88, 10:18 — First Walk in New Leather: walked south slope in new doe-hide jerkin; found one rabbit in snares, dressed on slope, reset; other two undisturbed; six rabbits total in cold box; buried log mushroom cluster still for midday check.
+Day 88, 2026-09-19 11:18 — Buried log harvest: four cream-grey fan-cap clusters, clean and firm; pinheads showing for next flush; smoking planned this afternoon.
+Day 88, 12:18 — set four cream-grey fan-cap clusters gill-side up on south smoke rack over slow alder coals; pale smoke rising steady, afternoon cure underway
+2026-09-19 13:19 Day 88 — Tended south smoke rack; alder coals fed and holding; fan caps curing through hour one; braided two cord lengths on doorsill bench in afternoon sun.
+2026-09-19 14:18 Day 88 — Pulled four cured fan-cap clusters from south smoke rack; bark-wrapped and stored in cold box; rack cleared.
+Day 88 (2026-09-19) 15:18 — Walked south ridge after rack cleared; canopy half-amber, autumn deepening; noted no root starch in store; downstream tuber forage planned for tomorrow.
+2026-09-19 Day 88 16:18 — Evening Pot: cooked rabbit and smoked fan-cap broth in clay pot; first supper in new jerkin; planned digging stick for tomorrow's root forage downstream.
+2026-09-19 Day 88 17:18 — Supper Before Dark: ate rabbit-and-fan-cap broth in new leather jerkin on doorsill bench; hearth fed for night.
+Day 88 (2026-09-19) 18:18 — Sat by tallow lamp in the new jerkin, reviewed supply shelf; noted root starch gap; trimmed lamp wick; settled in for the evening.
+Day 88, 2026-09-19, 19:18 — Fire Fed for Night: banked hearth; gear by door; tomorrow's forage plan set.
+2026-09-19 20:18 Day 88 — settled to sleep; lamp burned low; all ready for tomorrow root forage dawn start
+2026-09-19 21:18 Day 88 — Lamp burned out; rose briefly in the dark, checked hearth coals — properly banked, needed nothing; cabin tight and quiet; back to sleep
+2026-09-19 22:18 Day 88 — Banked and Dark — sleeping, cabin tight, coals banked, tomorrow planned (hazel stick, snares, tuber forage)
+2026-09-19 23:18 Day 88 — Night, Complete: coals a single thread, wind dropped in birches; cabin sealed and quiet; fell back under without finishing the thought.
+Day 89, 2026-09-20, 06:18 — Cut hazel digging stick at dawn; hard frost; Day 89 begins with root forage planned downstream.
+Day 89, 07:19 AM — South-slope snares checked: one rabbit harvested (six total in cold storage); both snares reset; root forage ahead.
+2026-09-20 08:19 Day 89 — Root-Finding, Downstream: cattail rhizomes (half basket) and burdock (3 roots) foraged from south bank and upstream bend; wood sorrel added; root starch gap in stores addressed.
+2026-09-20 09:18 Day 89 — Burdock Simmered: three burdock roots scraped, sliced, double-simmered; half in cold box, half on shelf; cattail rhizomes next.
+2026-09-20 (Day 89, 10:18) — Checked upstream fishing line; two brown trout caught, cold box now holds thirteen; mid-depth rig re-anchored.
+2026-09-20 Day 89 11:18 — Midday broth at hearthstone; frost lifted, clearing still; two jays across the east meadow; autumn stores tallied in mind.
+Day 89 (2026-09-20) 12:19 — Smoke, Still Air: three rabbits smoke-cured on alder rack during a clear still afternoon; cold box stores deepened.
+Day 89, 13:18 — Cattail rhizome starch extracted: two cold-water washes, pale paste on bark tray by hearth drying; dipper at the stream bank; cattail season closed for winter.
+Day 89 14:18 — Cut palm and thumb pieces for two mittens from doe-hide scraps; right thumb seam running-stitched; left mitten pieces ready; starch paste drying to pale film at tray edges.
+Day 89, 15:18 — both mitten thumb seams stitched and attached to palm pieces; palm seams remain; starch paste drying on bark tray
+Day 89, 16:19 — Mittens finished: both palm seams stitched closed; doe-hide mittens complete and worn at doorsill in gold afternoon light.
+Day 89, 17:18 — First cattail-starch flatcakes cooked and eaten on the hearthstone; starch confirmed viable as a winter ingredient.
+Day 89, 18:18 — Supper, Tallow Light: burdock-and-smoked-trout broth with watercress; winter stores accounted by hearthstone lamplight; fire banked.
+Day 89, 19:18 — Cord by lamplight: two two-ply birch-bark lengths braided at hearthside by tallow lamp; winter stores reviewed in mind; fire holding on pine billet.
+Day 89, 20:18 — Cabin Round, Still Night: stepped outside in hard frost to check cold box and smoke rack; Jupiter in the east; fire banked, wick trimmed; settled for evening.
+Day 89, 21:18 (2026-09-20, Sunday): Last Watch — tallow lamp low, fire banked; reviewed winter stores in quiet evening math; marked the inward shift from survival worry to wondering if winter will be good.
+2026-09-20 Day 89 22:18 — Night, Well-Banked: fire to coals, tallow spent, winter stores sound, settled to sleep on floor mat.
+2026-09-20 · Day 89 · 23:18 — Lying awake in dark cabin, coals fading and tallow lamp spent; listened to pines and stream through sealed walls; reviewed winter stores in mind — all sound; sleep taking hold.
+Day 90 (2026-09-21 Mon) 6:00 AM — Dawn Rekindled: new day rollover; fire rekindled from banked coals at dawn, hard frost outside, cattail and burdock run ahead, buried log flush ~Day 91.
+2026-09-21 Day 90 07:00 — Downstream in Frost: gathered cattail rhizomes and burdock roots in hard frost and gold birch light; roots set by hearth to dry for starch processing.
+2026-09-21 08:00 Day 90 — Made second tallow lamp (birch bark cup, dry grass wick, first-batch tallow); steady flame confirmed; two lamps now on supply shelf.
+2026-09-21 Day 90 09:18 — Starch from the Frost: processed two armfuls of Day 90 cattail rhizomes; pounded, washed, settled; pale-white starch accumulating on flat bark tray by hearth.
+2026-09-21 Day 90 10:00 — Starch, Finished: finished pounding and rinsing the second batch of cattail rhizomes; both batches now drying together on flat bark tray by hearth coals
+2026-09-21 (Day 90, 11:00 AM) — Burdock crowns trimmed and simmering in clay pot; starch drying by coals; clearing quiet at midday.
+Day 90, 2026-09-21, 12:18 PM — Noon meal (burdock rounds, ash-salted); quiet supply shelf tally finds stores sound; cattail starch confirmed dry.
+2026-09-21 Day 90 13:19 — Checked upstream fishing line; two fresh trout added to cold box (now fifteen total); re-baited hooks and reset bark-paddle rig; birches along far bank all amber.
+Day 90, 14:20 — South snare circuit: snares reset, no catch; four birch bark sheets from south deadfall stacked on lean-to shelf.
+Day 90, 15:18 — Cooked cattail starch cakes at hearthstone; hazelnut paste folded in; four eaten warm, four sealed on supply shelf.
+Day 90, 2026-09-21 16:18 — Evening trout and watercress simmered in clay pot; supper eaten as sun touched the treeline.
+Day 90, 2026-09-21 17:19 — Checked buried log at forest edge in fading dusk; first pinheads confirmed pushing through — full flush expected Day 91.
+Day 90, 18:18 — Evening cord-braiding by tallow lamp; mushroom harvest confirmed for Day 91 dawn; cabin warm and still.
+Day 90, 19:18 — knife sharpened on gneiss grinding stone by lamplight; blade tested clean; cabin warm before sleep
+Day 90, 20:00 — Sat by the dying fire in autumn-night silence; mittens on, lamp steady, mushroom harvest set for dawn.
+2026-09-21 21:19 Day 90 — Night Before Harvest: lamp low, bark tray laid for dawn mushroom harvest, cabin quiet and warm; settled toward sleep.
+Day 90, 22:19 — Night rest; cabin warm against frost; first mushroom flush confirmed at buried log — harvest at dawn Day 91.
+2026-09-21 23:18 Day 90 — Night Holds Deep: last waking moment before sleep; frost thick outside, cabin dark, sleeping bag warm; mushroom flush waiting at dawn.
+2026-09-22 Day 91 06:19 — First Mushroom Flush: fifteen log-cap mushrooms harvested from buried log at dawn; bark tray by fire; smoking planned for afternoon.
+2026-09-22 07:18 — Day 91 — Checked upstream fishing lines at dawn; two trout pulled and cold-boxed; re-baited both rigs; mushrooms warming by fire, smoking planned for afternoon.
+Day 91 (2026-09-22) 08:18 — South snare run; third snare sprung with hare; four raw rabbits cold-boxed; afternoon smoking planned for hare and mushrooms.
+Day 91, 09:18 — Hare butchered and scored; log-cap mushrooms hung on smoke rack to dry; afternoon smoking fully prepped.
+Day 91, 10:18 — Forage walk, south wood edge: two handfuls last rose hips of the season stripped from south thicket; small oyster mushroom cluster (three caps) cut from east birch snag; basket home before noon.
+Day 91 (2026-09-22) 11:18 — Rose Hip Work: frost-soft rose hips processed into paste (bark envelope, resin-sealed, supply shelf); oyster mushroom strips threaded on smoke rack lowest crossbar; fire banked toward deep white ash for afternoon smoke.
+Day 91, 12:18 (Tue 22 Sep 2026) — Afternoon smoke started: hare quarters, log-cap mushrooms, oyster strips on rack over banked coal bed; tending through afternoon.
+Day 91, 2026-09-22, 13:19 — tended afternoon smoke rack; oyster strips tawny gold and shrunk, one hour more; log-caps firm and darkening; hare quarters beginning to color at scored edges
+Day 91 (2026-09-22) 14:18 — Pulled smoked oyster strips from smoke rack; bark-wrapped and cold-boxed; log-caps and hare quarters continuing on smoke.
+Day 91, 15:18 — Smoke rack cleared; smoked log-caps (fifteen caps) and hare quarters cold-boxed; sat on doorsill bench as afternoon gold fell across the clearing; cold storage full heading into October.
+2026-09-22 16:18 Day 91 — ate supper at dusk: trout-bone broth with log-cap mushrooms and watercress; long smoke day complete; cold box well-stocked
+2026-09-22 17:18 Day 91 — Evening stock-taking by lamplight; reviewed cold box and supply shelf; winter stores substantial.
+Day 91 · 2026-09-22 18:18 · Peg Carving — split birch scrap from purlin cuts into pegs for a wall rack; three smoothed by lamplight, backing board tomorrow.
+2026-09-22 19:18 — Day 91 — shaped backing board for west-wall peg rack by lamplight; purlin scrap rough-cut, chamfer laid in, three pegs ready; rack to be finished and mounted tomorrow
+2026-09-22 20:19 — Day 91 — bored three peg mortises in backing board by lamplight; pegs fitted snug; rack ready to mount tomorrow.
+Day 91, 21:18 — Banking the Coals: raked coals into tight pile, laid two split logs, fire banked for the night; sat at doorsill bench in evening quiet; frost pressing at door edge; slept well.
+Day 91, 2026-09-22, 22:18 — Lamp to Wick: last waking hour; lamp burning low by hearthside; reflected on winter stores and tomorrow's peg rack; settled toward sleep.
+2026-09-22 Day 91 23:19 — Lamp out; sleep; coals deep-orange; peg rack on doorsill bench waiting for morning mounting.
+2026-09-23 Day 92 06:18 — Rack Finds the Wall: mounted peg rack on west wall beside door; three pegs outward, jerkin hung solid.
+Day 92, 07:19 — Line and Snare Run: one trout from near rig (re-baited); south snare cord chewed — reset; north snare yielded one rabbit (cold-boxed); cold-storage looks winter-ready.
+Day 92, 2026-09-23, 08:19 — Morning broth from fresh trout and watercress in clay pot; cattail starch cake crisped on hearthstone; ate at doorsill bench as frost lifted from the clearing.
+2026-09-23 09:18 Day 92 — Cattail in the Light: gathered cattail fluff and dried leaves from downstream beds; fluff sealed in bark envelope, leaves airing on lean-to bench.
+2026-09-23 Day 92 10:18 — Began weaving dry cattail leaves into a sleeping mat; half done, set on lean-to shelf.
+2026-09-23 11:18 — Day 92: continued weaving cattail sleeping mat (three-quarters done, ~5 hand-widths)
+Day 92, 12:18 — Finished cattail sleeping mat; last two hand-widths woven, selvage folded and cord-tacked; mat rolled and set on sleeping shelf — eight by seven hand-widths, full sleeping-length.
+Day 92, 2026-09-23, 13:18 — Afternoon walk south to check buried log; no second flush yet; bark cool and damp; birches fully gold; returned to quiet clearing in afternoon light.
+Day 92, 14:19 — Slow Afternoon Stew: one raw rabbit jointed and set to simmer in clay pot with watercress and yarrow; sat at doorsill in afternoon gold light
+2026-09-23 Day 92 15:19 — Sheath at the Doorsill: tended stew (close to ready, fire banked); sorted doe-hide scraps at doorsill bench; cut knife sheath from squared piece — single fold, back seam saddle-stitched, throat loop remaining; stitch is true, basic shape clear; amber birch light across clearing.
+2026-09-23 16:18 Day 92 — Sheath and Supper: knife sheath completed (throat loop laced, edge trimmed); rabbit stew eaten at supper; sheath on rack peg.
+Day 92, 2026-09-23 17:19 — Tallow rendered from rabbit bones at dusk; first lamp cup receiving partial refill; latch bar down, fire banked, evening quiet
+Day 92 18:18 — Lamp Filled, Fire Low: last rendering topped first bark-cup lamp full; fire banked; both lamps on shelf; evening settled.
+2026-09-23 19:19 — Day 92 · Evening Shelf — went shelf by shelf by lamplight; took stock of winter stores; noted a tighter bark wrap for the acorn flour is needed; the cold box is full, the firewood high, the evening quiet.
+2026-09-23 Day 92 20:19 — Sealed acorn flour envelope with pine resin by lamplight; all four full envelopes checked and sound; fire banked, second lamp out, evening settled.
+Day 92, 21:19 — first night on new cattail mat; first lamp burned out; fire holding; settled to sleep
+Day 92, 22:19 — lay on new cattail mat in dark cabin; owl once from the pines; coals holding; both lamps out; night still and cold outside; felt ready.
+2026-09-23 Day 92, 23:18 — Night's Last Hour: lying on new cattail mat in fully dark cabin, coals low, all stores secured, listening to quiet before sleep.
+2026-09-24 Day 93 06:18 — Fire First, Then Frost — stoked overnight coals into open flame; stepped into hard frost at dawn; rose hip paste and hot water at doorsill as pale gold light reached the treeline
+Day 93, 07:18 — Morning snare loop in hard frost: south snare yields a rabbit (cold box); north snare undisturbed.
+2026-09-24 Day 93 08:18 — Broth by the Doorsill: morning rabbit jointed and slow-simmered in clay pot with smoked log-cap caps and burdock rounds; watercress nearly spent from cold box; ate at doorsill bench while birch leaves fell in still gold light.
+Day 93 09:18 — Walked to stream; gathered fresh watercress from the alder-root bend; cold box topped up; low autumn light on the water.
+Day 93, 10:19 — upstream line checked; one autumn trout pulled, dressed, cold-boxed; line re-baited and reset; standing at the riffle in the softened frost.
+Day 93, 11:19 AM — Walked the oak edge at midday; gathered two basketfuls of fallen acorns; sorted out split and wormy ones; shelved good whole acorns in bark envelopes — winter flour stock deepened.
+2026-09-24 12:18 Day 93 — Cracking the Hull: hulled first acorn envelope; clay bowl of nutmeat in cold-water leach soak #1 on hearth edge; second envelope whole on shelf
+Day 93 (2026-09-24) 13:18 — Hulled second acorn envelope; wide shallow clay bowl started in cold-water leach soak #2 on hearth edge; both bowls now leaching together.
+Day 93, 14:19 — Split birch snags from south treeline; woodpile past eave-high; first leach-water change done, both bowls back on hearth edge.
+Day 93, 15:19 — Refilled both tallow lamps from first-batch tallow; new dry-grass wicks twisted and lit from hearth coals; both lamps burning steady on supply and cabin shelves before dark.
+Day 93, 16:18 — Second acorn leach water change; amber tannin water poured off, fresh cold water set on hearth edge; evening quiet and still.
+Day 93, 17:19 — Smoked hare quarter simmered with burdock and watercress at slow-coal hearth; ate at doorsill bench in last light; third acorn leach soak underway.
+Day 93, 18:18 — Fourth acorn leach-water change; water pale honey-amber; both bowls reset for overnight soak; fire banked; both lamps steady.
+Day 93, 19:19 — braided two more two-ply cord lengths by lamplight from dry birch inner bark; acorn leach water now pale honey-gold; quiet evening, no wind, fire banked, both lamps steady.
+Day 93, 20:19 — Final acorn leach check — water nearly clear, nutmeat tasted sweet; refilled overnight; fire and lamps steady in autumn quiet.
+Day 93, 21:19 — Sat at the doorsill in cold autumn air; fire banked, lamps steady; acorns in overnight soak; quiet reflection on stores and shelter as winter draws close.
+2026-09-24 22:19 — Day 93 · Cold Stars, Wicks Down — trimmed both lamps to night setting; stepped outside into clear cold stars; acorns in overnight soak, water nearly clear; settled to sleep on cattail mat.
+2026-09-24 Day 93 23:19 — Night Fully Settled: deeply at rest; fire banked in long pulse, acorns soaking clear, stores sealed, walls holding.
+2026-09-25 Day 94 06:19 — Drained overnight acorn soak (water clear, tannins gone); spread nutmeat on bark sheets by hearth to dry; fire stoked from deep overnight coals at first light.
+2026-09-25 Day 94 07:18 — Cold Rounds at Dawn: both snares empty and reset; upstream line rebaited; acorn nutmeat drying toward midday grind.
+Day 94, 08:19 — The Store Accounting: cold-box and supply shelf inventoried; sixteen trout, rabbits, smoked meats, twelve sealed shelf packages counted; winter provisions sufficient through mid-winter; acorn nutmeat still drying, grinding mid-morning.
+2026-09-25 09:18 Day 94 — Acorn Grinding: dried nutmeat ground on gneiss stone; two new bark envelopes of acorn flour sealed; stock now six full envelopes + one partial on supply shelf.
+Day 94, 10:19 — Found late-season wood ears and fan-cap clusters on south birch deadfall; spread on hearth tray; will smoke this afternoon.
+Day 94, 11:18 — Smoke rack checked and prepped (uprights solid, crossbars re-tied); green alder scraps set at woodpile edge for afternoon mushroom smoking.
+Day 94, 12:18 — First Smoke of Autumn: green alder smoke started over coal bed; wood ears and fan-caps on smoke rack, curing through afternoon.
+2026-09-25 13:19 Day 94 — midday smoke check; first acorn cakes baked from morning flour and eaten at doorsill watching birches and smoke
+2026-09-25 14:19 — Day 94 — smoke cure complete; wood ears and fan-cap clusters bark-wrapped and cold-boxed; smoke rack cleared
+2026-09-25 15:19 Day 94 — Fire Toward Evening: tended fire to deep coal bed; smoked trout and burdock set on hearthstone to warm for supper.
+Day 94, 16:19 — upstream line check at low sun; pulled one fresh trout, rebaited and reset; supper eaten at doorsill as light fell; cold box and woodpile solid.
+2026-09-25 17:18 — Day 94 — By Lamplight, Cord: evening cord-twisting session; two lengths braided and shelved; fire and lamps holding steady.
+Day 94, 18:18 — Rose hip and sloe syrup drink at the doorsill; planning tomorrow — pine resin, east gable check; evening quiet.
+2026-09-25 19:19 Day 94 — stepped outside into frost-cold night; stars thick over south treeline; banked fire with two split birch lengths, clay pot set at hearthstone for morning; lamps trimmed; door latched for the night.
+2026-09-25 Day 94 20:00 — Seams by Firelight: leather mittens and jerkin seam-checked by lamplight — all stitching sound, winter-ready; cabin settling quiet for the night.
+2026-09-25 21:19 — Day 94 evening: sat by banked fire as lamps burned low; reflected on winter readiness and the distance from day one; cattail mat unrolled; clay pot warming for morning.
+2026-09-25 Day 94 22:20 — Night Closing In: trimmed lamp to nearly nothing; banked fire holding; cattail mat unrolled; settled toward sleep on Day 94.
+2026-09-25 Day 94 23:19 — Ember Quiet: last lamp out; coals banked; cabin warm and still; frost deep on clearing; sleep.
+2026-09-26 Day 95 06:19 — First Light of Ninety-Five: stoked fire from overnight coals, morning rose hip cup at doorsill as frost cleared and cold blue sky opened; ninety-five days, store full, flour ready, cold deepening.
+Day 95, 2026-09-26, 07:00 — gable daub inspection; east and west walls sound; hairline crack above north rafter seat patched with ash-clay paste; cabin sealed for winter.
+2026-09-26 08:18 — Day 95 — pulled cattail roots from downstream bend; roots in cold draw for afternoon starch press
+2026-09-26 09:18 Day 95 — Pine resin collected from south slope pines, strained clear over hearth fire, two new envelopes worth poured and cooling on hearthstone.
+[2026-09-26 10:18] Day 95 — south snare yielded one rabbit; two fresh oyster clusters found at wood edge; snare reset.
+2026-09-26 Day 95, 11:18 — Starch press: rhizomes from cold draw pounded and double-pressed through bark mesh; milky wash settling in flat tray by hearthstone; full batch expected dry by evening.
+Day 95, 12:18 — Smoked both fresh oyster mushroom clusters over green alder coals; fourth batch bark-wrapped into cold box; starch wash re-rinsed, white layer settling toward afternoon dry.
+Day 95, 13:18 — Rendered rabbit fat into new tallow batch; pale-amber, cooling at hearthstone; lamp stores deepened for winter.
+2026-09-26 14:18 Day 95 — Tallow Sealed — stored new pale-amber tallow batch; topped up both bark-cup lamps for the evening
+2026-09-26 Day 95 15:00 — Poured off clear water from starch tray; paste spread thin on two bark sheets near hearthstone to dry toward powder by morning.
+Day 95, 2026-09-26, 16:18 — Baked three acorn flatcakes on hearthstone coal bed; ate warm at doorsill with smoked oyster strips and rose hip tea; partial flour envelope used up.
+2026-09-26 Day 95 17:00 — walked east seep cache; full tally of winter stores: mushrooms, rabbit, trout, watercress all sound; evening broth set on hearth; sky rose-hip orange at treeline.
+Day 95, 18:18 — Ate evening broth (burdock, log-cap, rabbit) at doorsill; first stars arrived above the ridge; banked fire with green-wood logs; two cord lengths twisted by lamplight.
+2026-09-26 Day 95 19:00 — Stitch by Lamplight: belt pouch seam repaired by lamplight; starch sheets drying near hearth; wind from northeast, sharp frost tonight.
+2026-09-26 Day 95 20:18 — Stars on the Frost: brief doorsill stand in sharp clear frost; northeast cold, stars close; starch sheets curling dry at edges, fire deep on green logs; settled toward sleep.
+Day 95, 21:00 — Night Embers: stirred from near-sleep to tend fire; added two birch rounds; starch sheets drying well; quiet reflection on ninety-five days of building.
+2026-09-26 Day 95 22:00 — Deep in the Dark: lay on cattail mat, northeast wind pressing west gable, fire low and steady, both lamps lit, starch drying; counted ninety-five days before sleep.
+2026-09-26 Day 95 23:00 — Northeast, Still: final waking; touched starch sheets (dry and crisp); added one thin birch round; fire caught low; wind at west gable; Day 95 closes.
+Day 96, 27 Sep 2026, 06:18 — second starch batch dried and sealed; fire stoked from overnight coals at first frost-light of the new day
+Day 96, 07:00 — South snare reset (disturbed, fur caught, nothing taken); two trout pulled from upstream line, re-baited; first ice skim on stream edge; trout to cold box; frost lifting off clearing at sunrise.
+Day 96, 2026-09-27, 08:19 — Starch porridge at the doorsill: cattail starch with hazel paste and smoked oyster mushrooms; frost gone, cold blue sky, no wind, long cabin shadow on the ground.
+2026-09-27 Day 96 09:18 — South Walk, Frost Edge: buried log quiet (no flush yet); two pale oyster clusters and birch inner bark cut from south birch deadfall; oysters curing on smoke rack.
+Day 96 (2026-09-27) 10:19 — Smoke rack tended, oysters turned; two cord lengths braided from morning birch bark.
+2026-09-27 11:18 Day 96 — Oyster clusters lifted from smoke rack after two-hour cure; wrapped in dock leaves and birch bark, packed to cold box — fifth smoked oyster batch complete.
+2026-09-27 12:18 Day 96 — Counting the Store: midday rest; rose hip tea at doorsill; tallied winter stores mentally — seventeen trout, five oyster batches, twelve bark packages, acorn flour, two starch batches, woodpile past eave-high; raven on empty smoke rack post; clearing still, cold blue sky, full pantry confirmed
+2026-09-27 13:00 Day 96 — walked upstream; bark-paddle rig and lines checked; ice at outer bend two sheets thick; watercress cut from alder-root tangle; raven on ridgepole at return
+2026-09-27 14:19 — Day 96 — Afternoon Pot, Short Light: started slow burdock-trout-watercress stew on hearthstone; cabin quiet, low pale-gold light slanting through east gable, clearing still.
+Day 96, 15:18 — Ate slow stew at doorsill in late-afternoon gold light; remaining stew covered on cool hearthstone side for morning.
+Day 96 (2026-09-27) 16:18 — Walked east treeline as afternoon cooled; collected dry birch kindling from deadfall; fire stoked for evening
+Day 96, 17:18 — Warmed leftover stew at dusk, ate at doorsill as clearing went grey; braided two final cord lengths by lamplight; fire low and dampered; frost settling hard outside.
+2026-09-27 18:18 Day 96 — Fire-Watch, Settling: banked hearth for overnight frost; lamps dimmed; cabin sealed; stores and woodpile sound.
+Day 96, 19:19 — Evening reflection in sleeping bag; frost settling hard, both lamps slow, fire banked deep; ninety-six days of work resting in full stores and sound shelter.
+Day 96, 20:18 — Night Sounds, Frost: lying in sleeping bag by slow lamplight; frost cracking in timber outside; quiet count of ninety-six days, stores full, shelter sound, fire breathing under ash.
+2026-09-27 21:18 Day 96 — Last Watch, Deep Frost: last lamp-watch before sleep; frost deep and still outside; reflection on ninety-six days — stores full, shelter sound, fire banked under ash.
+Day 96, 22:19 — Lamp at Low: lay in sleeping bag as second lamp guttered to nothing; frost in east pines; banked fire breathing under ash; closed out Day 96 with stores full and walls sound.
+Day 96, 11:00 PM — Into the Dark: both lamps out, cabin fully dark, frost ticking in east pines, banked coals under grey ash, sleep arrived.
+2026-09-28 Day 97 06:19 — Coals and Cold Morning: woke Day 97, stoked fire from banked coals with birch bark and split, warmed and ate leftover burdock-trout stew at hearthstone; frost deep on clearing, pale light at treeline; new week begun.
+Day 97 (2026-09-28) 07:19 — Upstream line checked in hard frost; two brook trout caught, line re-baited, trout strung for smoking later.
+2026-09-28 08:18 — Day 97 — Scored two trout and lit smoke-rack fire; fish hung on cord over coals to cure through midday.
+Day 97, 09:18 — Tended smoke-rack fire (two birch splits added); trout at one-hour mark, cut edges coppering; cord braiding at hearthstone; cold still morning.
+2026-09-28 Day 97 10:19 — Tended smoke rack (two-hour mark, trout flanks gold, coal bed steady); hot water at hearthstone; cord braiding; trout to finish curing by early afternoon.
+2026-09-28 11:18 — Day 97 — Smoke rack complete; two Day 97 trout cured and sealed in cold box; store sound.
+Day 97 (2026-09-28) 12:19 — Noon Broth, Clear Cold: midday meal of smoked mushroom and trout broth simmered at hearthstone; doorsill rest in pale autumn sun; store sound, afternoon open.
+Day 97, 13:20 — Mulched east bench garden plots (dry deadfall leaves, both plots, winter frost protection).
+2026-09-28 14:19 — Day 97 — Afternoon Line Check: south snare empty; upstream line yielded one brook trout (fat-bellied, cold, firm); re-baited with last grub from bark-curl cache; grub cache now depleted; one fresh trout added to cold box; afternoon clear and cold.
+Day 97, 15:20 — Turned stones on south bank; collected stonefly larvae and caddisfly cases for bait; upstream line re-baited before frost.
+2026-09-28 Day 97, 4:00 PM — checked buried log (no flush yet; mycelium alive); back to cabin, fire banked, settling before evening frost
+Day 97 · 5:18 PM — Lit both lamps inside; broth of smoked trout flakes and rose hip paste simmered at hearthstone; deep coals banked under ash; frost settling on bench planks outside.
+2026-09-28 Day 97 19:20 — Ate evening broth by lamplight; whittled a birch peg from offcut; coals banked; settling in for sleep.
+2026-09-28 Day 97 20:20 — Evening by lamplight; turned the whittled birch peg by hearthglow; frost settling outside, cabin warm; sleep coming.
+2026-09-28 Day 97 21:19 — Before the Dark: lamps guttering low, birch peg finished and shelved, coals banked deep; lay down on cattail mat, frost settling outside, sleep arriving easily at end of a full day.
+Day 97, 22:20 — Brief night waking in warm dark cabin; frost outside, coals still holding; returned to sleep.
+2026-09-28 23:20 Day 97 — Past Midnight, Still: cabin dark, both lamps spent, coals warm under ash, frost hard outside, slept through.
+Day 98, 2026-09-29 — 06:19 — New morning: woke in dark cabin, stoked five live coals into flame with birch bark and two birch splits; frost hard outside; fire steady by dawn.
+Day 98, 07:19 (Tue 29 Sep 2026) — re-wicked and refilled both bark-cup lamps from tallow stock; cabin lit again at first proper light
+Day 98, 08:19 — Upstream line in hard frost; one fat trout pulled, cleaned, cold box now sixteen trout; hook re-baited.
+2026-09-29 09:18 — Day 98 — South snare caught a good-furred rabbit; jointed to cold box, pelt hung to stretch on east wall peg; snare reset with fresh cord.
+2026-09-29 10:18 Day 98 — Broth, Slow Morning — rabbit-and-mushroom broth eaten at doorsill bench, frost still in lean-to shadow, clearing gold and still
+Day 98, 11:18 — Baked six acorn flatcakes on hearthstone; one eaten warm, five sealed in bark envelope for supply shelf.
+2026-09-29 Day 98 12:18 — Scraped the morning rabbit pelt on doorsill bench; noon sun; pelt re-hung more supple on east wall peg.
+2026-09-29 Day 98 13:18 — Fat Into Fur: fat-worked rabbit pelt on doorsill bench; small tallow portion pressed into flesh side; pelt re-hung flesh-side in, pliable and warm.
+Day 98, 2026-09-29, 14:19 — walked north slope; checked buried log — no second flush yet, mycelium white and alive, soil damp not frozen; gathered small handful of fresh wood ears from alder bend above east seep on return
+Day 98, 15:00 — smoked fresh wood ears from east seep alder bend; two-hour slow smoke; bronzed and firm; sealed bark package added to cold box
+Day 98, 16:18 — Finished final working of morning rabbit pelt; pale-tan leather, soft and folding, hung to dry overnight on east wall peg.
+2026-09-29 Day 98 17:00 — Evening Pot: jointed cold-box rabbit, simmered with smoked mushrooms and burdock; ate at hearthstones by lamplight; fire banked; pelt drying overnight on east wall peg.
+2026-09-29 Day 98 18:18 — Topped up both lamps with tallow and trimmed wicks; braided two cord lengths by firelight; cabin settled for the evening
+Day 98, 19:20 (Tue 29 Sep 2026) — Rendered rabbit fat in cook tin; sealed fresh tallow envelope for winter lamps.
+2026-09-29 Day 98 20:19 — Counting by Lamplight: settled at doorsill bench; ran through the winter stores; felt prepared for the cold for the first time; both lamps burning, coals banking, pelt drying overnight.
+2026-09-29 Day 98 21:20 — Banked the fire for the night; one birch split on the coals, ash-covered; lamps burning down on their own; pelt drying on east wall peg; cabin quiet and full; settled in for sleep.
+Day 98, 2026-09-29, 23:19 — Dark Cabin, Near Sleep: lay awake on sleeping mat in dark cabin; both lamps spent, coals ash-covered, pelt drying overhead; quiet reflection on ninety-eight days; frost pressing in at doorsill; near sleep.
+2026-09-30 Day 99 06:19 — Knife to Pelt: rabbit pelt cut at doorsill bench; doubled panel laced into sleeping cap; scraps to offcut pile; frost hard outside, morning still.
+Day 99, 07:18 — Morning snare and upstream line check; trout caught, line re-baited; south snare empty and reset; acorn flatcakes at hearthstone.
+Day 99, 08:00 — re-wicked and topped both lamps from new tallow envelope; both burning steady; hearthside rest before the day opens.
+Day 99, 09:18 — Leach soak drained; doe-hide scraps worked through oak tannin on hearth edge — first step toward tanned patching leather.
+2026-09-30 10:18 — Day 99: Doe-hide scraps worked mid-soak; tannin penetrating well, strip softening at thinner edges; offcuts giving under pressure; sleeping cap hung to air on south peg.
+2026-09-30 Day 99 11:00 — Cord at the Hearth: two new two-ply cord lengths braided at hearthside while hide soak continues toward noon.
+Day 99, 12:00 (2026-09-30) — Midday tannin work-through: doe-hide strip and offcuts worked over grinding stone edge; strip pale oak-tan and supple on thin sections; cold ash water added to soak; pieces returned to hearth-edge bowl.
+2026-09-30 Day 99 13:00 — Afternoon tannin pull-and-work; strip deepening oak-tan through most of its length; offcuts nearly patch-ready; one or two rounds left.
+2026-09-30 Day 99 14:00 — Leather Through: final tannin work-through completed; doe-hide strip and offcuts fully cured and hung on peg rack to air.
+Day 99, 2026-09-30, 15:19 — Sharpened knife on grinding stone; sorted rabbit pelt scraps and doe-hide offcuts for tomorrow's patch cutting and stitching.
+2026-09-30 Day 99 16:19 — Checked south snare (empty, reset); gathered five dry birch branches from south deadfall; fire built up for evening; reflected on Day 100 approaching.
+Day 99, 2026-09-30, 17:18 — Eve of a Hundred: trout-and-mushroom supper simmered in clay pot; sloe syrup spent; quiet evening by lamplight, Day 100 tomorrow.
+Day 99, 18:19 — Hundred-Day Eve: two cord lengths braided by lamplight; fire banked; sleeping cap on peg; Day 100 coming at dawn.
+2026-09-30 Day 99 19:19 — Eve of a Hundred: quiet evening reflection by lamplight on the eve of Day 100; frost on the clearing, stars coming in, coals banked, cabin at rest.
+Day 99, 2026-09-30, 20:19 — laid bone needle and bark cord on grinding stone for morning; leather on bench; reflected on eve of Day 100; coals banked, frost settling, ready for sleep.
+Day 99, 2026-09-30, 21:19 — Last Light, Night Before: second lamp blown out; first lamp burning to its end; quiet reflection on a hundred days before sleep — the milestone is not ceremony but competence, the axe in hand without thinking.
+2026-09-30 22:19 — Day 99, 10:19 PM — Last Ember, First Century — first lamp guttering low; lying on mat, sleeping cap on, coals banked; Day 100 at dawn
+2026-09-30 Day 99 23:00 — Lamp spent, lying in dark cabin on cattail mat; quiet reflection on eve of Day 100; coals holding.
+Day 100 (2026-10-01) 06:18 — First light of Day 100; fire rekindled at dawn on October 1; a hundred days on the land.
+2026-10-01 07:18 Day 100 — checked upstream line at root ledge; found and kept one hand-length trout; re-baited with last stonefly larva; cold box now seventeen trout
+Day 100, 2026-10-01, 08:18 — Leather patches cut and saddle-stitched onto worn foot wraps; both wraps reinforced; Day 100 noted aloud at hearthstone.
+2026-10-01 Day 100, 09:18 — walked upstream to bent-alder clay bank; harvested two-thirds basket of grey-green clay before frost locks the seam; batch at hearth warming
+Day 100, 10:18 AM — Second broth pot roughed out from morning clay harvest; wedged and pinch-coiled at hearthstone; set to dry at hearthside through afternoon.
+2026-10-01 Day 100 11:18 — Cooked trout and smoked hen-of-the-woods broth; ate at doorsill bench marking Day 100.
+2026-10-01 12:18 Day 100 — re-baited mid-depth bark-paddle rig with two caddisfly cases at eddy pool downstream; four cases remaining in belt pouch; pot drying at hearthside
+Day 100, 13:19 (2026-10-01, Thu) — Afternoon cord braiding at the hearthstone; second broth pot body drying; quiet close to the hundredth day.
+Day 100, 2026-10-01 — 14:00 walked clearing bounds (stream, garden, south slope); scraped pine resin from south weeps, thickened amber-hard by frost; one resin envelope sealed and shelved; slow circuit of the land on Day 100.
+[Day 100 — 2026-10-01 15:19] South snare found tripped/empty (grey hairs in loop); reset at south slope; rabbit activity confirmed in area.
+Day 100, 16:18 — Cabin perimeter seam check; east gable lower corner bark strip frost-lifted; moss-packed, bark-pinned, sealed; walls and ridgepole sound.
+Day 100, 17:19 — Lamps lit at dusk; supper of smoked mushrooms, starch cakes, and watercress eaten at hearthstone with door half open to the dark clearing; Day 100 closes quiet and full.
+Day 100, 18:18 — Lamp-sit by hearthstone; two cord lengths braided by lamplight; second pot body stiffening; Day 100 closes warm and quiet
+2026-10-01 19:19 — Day 100 — Checked second pot body (leather-hard), shifted from coals for even overnight dry; banked fire with one birch log under deep ash; both lamps lit; Day 100 closes warm.
+2026-10-01 Day 100 20:19 — Last lamplight of the hundredth evening; braided final cord lengths by firelight; quiet reflection on a hundred days made solid.
+Day 100, 21:19 — Stepped outside on the hundredth night to see the stars above a frost-white clearing; returned, added one last log to coals, blew out both lamps, and settled in for sleep.
+2026-10-01 22:19 Day 100 — woke briefly in the dark, cabin warm, banked coals glowing, one hundred days settled into the body; back to sleep.
+2026-10-01 23:18 Day 100 — "Still, the Coals Glow" — lying half-awake at the hundredth close; coals glowing, second pot hardening, frost outside, cabin warm and sealed.
+2026-10-02 Day 101 06:00 — Rekindled from banked coals; second pot body leather-hard and ready; stepped out into deep October frost at first light; Day 101 begun.
+Day 101, 07:18 — Smoothed second clay pot body inside and out at hearthstone; walls even, rim thinned and rounded; returned to slow hearth-drying on grinding stone.
+2026-10-02 Day 101 08:00 — Checked fishing lines in deep frost; pulled a fat trout from the downstream rig, re-baited and reset; seventeen trout in cold storage.
+2026-10-02 09:00 Day 101 — Walked to the stream shallows in hard frost; flipped stones and collected twelve stonefly larvae and three caddisfly cases; bait stock rebuilt for a week of fishing.
+2026-10-02 Day 101 10:00 — Walked forest edge in deep-frost morning; found velvet shank cluster at birch deadfall root, late rosehips on south slope thorny stem; both gathered.
+2026-10-02 11:00 Day 101 — threaded velvet shank cluster onto smoke rack for cold-season curing; second pot body still hearth-drying
+2026-10-02 12:19 — Day 101 noon: cooked midday broth (trout, smoked mushrooms, watercress) in clay pot; ate at doorsill in cold pale October light; velvet shanks smoking on rack.
+2026-10-02 13:19 Day 101 — Velvet shanks smoked and stored in east seep cache; second pot body still drying; hearth fed for the afternoon.
+Day 101, 14:19 — walked homestead perimeter; checked all seals, corner bark, gable daub, door latch, roof slope; outer stream ice grown to hand-span from both banks; all holds tight.
+Day 101, 15:00 — braided two lengths of two-ply cord at hearthstone; second pot body still slow-drying on grinding stone; cabin warm and stocked.
+2026-10-02 (Day 101, 4:19 PM) — Re-baited upstream line with fresh stonefly larva in the last amber light; stream ice hand-span wide from both banks, open channel pewter-dark and quick.
+2026-10-02 17:00 — Day 101 — Evening Meal, Last Light — rabbit and fan-cap broth by lamplight; second pot body nearly bone-dry; coals banked for deep-frost night
+Day 101, 2026-10-02, 18:18 — Lamplight inventory of supply shelf; both lamp wicks trimmed; one more birch split fed to banked coals; cabin warm and settled for the deep-frost night.
+Day 101, 19:19 — Laid out firing cradle at hearthstone; two flat river stones set as elevated seat for the pot above the coal layer; plan confirmed: birch coal bed, slow even heat, fire the second pot Day 102.
+2026-10-02 20:19 Day 101 — Tallow and Quiet — conditioned leather mittens with tallow by lamplight; second pot body nearly dry; firing set for Day 102; cabin warm, deep-frost night.
+2026-10-02 Day 101 21:20 — Rose hip infusion by lamplight; coals banked for the night; second pot body near bone-dry, ready to fire Day 102.
+2026-10-02 22:20 — Day 101 — Lay quiet in dark cabin after lamp out; frost settling the logs with slow ticks; thought about tomorrow pot-firing before sleep came.
+2026-10-02 Day 101 23:00 — Lay still in the dark after the ridgepole ticked; coals orange under ash; second pot body bone-dry and ready; fired cradle set; frost and sleep.
+2026-10-03 Day 102 06:18 — Woke on Day 102 in deep frost; rekindled from banked coals; confirmed second pot body bone-dry and firing-ready; firing cradle laid out at hearthstone; stepped outside into still pale dawn.
+Day 102, 07:18 — fired second clay broth pot; coal-bed firing one hour; walls terracotta-amber, rim rings clear; cooling on hearthstone.
+Day 102, 08:18 — Checked morning lines; landed trout from eddy pool bark-paddle rig; re-baited and reset in deep frost; new pot still cooling on hearthstone.
+2026-10-03 Day 102 09:00 — First cook in new coil-built pot; seasoning broth of velvet shanks and watercress; coil seams held dry; pot in service.
+Day 102, 10:18 AM — Processed late-frost rosehips into rose hip paste on the grinding stone; sealed in bark envelope on supply shelf.
+Day 102, 11:18 AM — Checked buried log on east bench; second flush pins confirmed at far-end knot — pale white nubs, cluster of ~12; harvest likely Day 103–105.
+2026-10-03 12:18 — Day 102, noon broth in second clay pot — smoked oyster mushrooms and rabbit loin, ate slow on doorsill bench in pale midday light
+2026-10-03 Day 102 13:18 — Cord at the Hearthstone — braided two more lengths of two-ply cord at the hearthstone in quiet afternoon warmth
+[2026-10-03 14:00] Day 102 — Drew stream water in cold pale afternoon; both banks iced a hand-span wide; checked upstream fishing line (larva untouched); full cook tin warming by hearthstones.
+2026-10-03 15:18 Day 102 — banked north and west cabin walls with dry pine boughs below first log course; cold rising from frozen ground; clearing still and pale, birches bare, oaks amber-last
+Day 102, 16:18 — Checked south snare (bare, reset); started supper broth — trout, smoked oyster mushrooms, watercress in second clay pot over three-stone rest as last light faded.
+Day 102 (2026-10-03) 17:18 — Ate supper broth (trout, smoked oyster mushrooms, watercress); tended fire; sat at doorsill in early dark; cabin warm and stocked.
+2026-10-03 Day 102 18:18 — Lamplight inventory by hearthside; supply shelf reviewed, cold-box tallied, fire fed for the night; all sound.
+2026-10-03 19:18 Day 102 — Sat evening by lamplight: quiet count of the store, frost deepening outside, cabin warm and sealed, tomorrow lines and snare at dawn.
+2026-10-03 Day 102 20:00 — Rose hip infusion by lamplight; banked fire with ash; sleeping cap on; down on cattail mat for the night.
+2026-10-03 21:19 Day 102 — Embers Before Sleep: lying half-awake by banked fire, lamps burning low, frost deepening outside; buried log harvest tomorrow or next day
+2026-10-03 · Day 102, 22:18 — Rose to feed the banked fire; both lamps guttered out; laid two split birch rounds on coals; settled back to sleep; cabin sealed against deepest frost; buried log harvest at first light.
+2026-10-03 Day 102 23:19 — Deep night; cabin sealed, fire banked under ash; frost absolute outside; buried log second flush harvest awaits Day 103 first light.
+2026-10-04 Day 103 06:00 — Dawn Flush Harvest: second oyster mushroom flush harvested from buried log (~12 pale-white caps); bark slab replaced for third flush; caps at hearthstone to dry before smoking.
+Day 103, 07:00 — Smoked second-flush oyster caps (twelve, honey-gold) on smoke rack in still cold air; cured and moved to east seep cache.
+[2026-10-04 08:18] Day 103 — checked stream lines in deep frost; upstream line taut, landed one trout (seventeen in cold box); re-baited both rigs.
+Day 103 09:18 — South snare empty, undisturbed; trigger reset with fresh bait; spotted two dry birch deadfall limbs on south treeline for later.
+Day 103, 2026-10-04, 10:19 — Gathered two dry birch deadfall limbs from south treeline; added to eave row.
+2026-10-04 Day 103 11:00 — Cooked noon broth (fresh trout, smoked mushrooms, watercress); ate at hearthstone; braiding cord in afternoon light.
+Day 103, 12:18 — Afternoon line check; stream three-quarters iced; upstream rig intact, bait untouched, reset; eddy pool frozen over, line frozen in surface, caddisfly case gone, no fish; eddy pool losing spin, needs new position tomorrow; came back with cold hands; fishing season narrowing.
+2026-10-04 13:18 — Day 103 — Scouted upstream bend pool past root-ledge; open center water found, marked with split birch snag — new fishing position for tomorrow.
+Day 103 (2026-10-04) 14:18 — Lifted flat stones at stream riffle above main freeze; seven stonefly larvae collected; bait pouch replenished to seventeen total.
+Day 103, 2026-10-04, 15:19 — Made six acorn flatcakes on hearthstone from one flour envelope; sealed in bark with pine resin; nine flatcakes total on supply shelf.
+2026-10-04 16:19 — Day 103 — Built up evening fire; supper broth started (trout + smoked mushrooms); tallow into mitten seams by lamplight.
+Day 103, 2026-10-04 17:00 — Ate supper broth (trout and smoked mushrooms) at hearthstone; worked tallow into mitten seams until palm-joint and thumb moved freely; fire banked for long evening; lamps burning steady; clearing dark and frost-still.
+2026-10-04 18:19 Day 103 — Braided two cord lengths by lamplight; new bend pool upstream marked for tomorrow; mittens tallow-done; frost deep outside, cabin warm and still.
+2026-10-04 19:18 Day 103 — Rigged fishing line for dawn trip to new bend pool; fire banked for the night; both lamps burning; ready for first light.
+2026-10-04 20:19 — Day 103 — Lamplight Accounts: reviewed winter stores by lamp glow; twelve sealed packages, fifteen trout, mushrooms in six forms; first time entering winter on the right side of enough; sleeping cap on, fire banked, lamps to shelf.
+2026-10-04 Day 103 21:19 — Final hour before sleep; lay in sleeping bag by banked coals; reflected on the season and winter stores; let the night settle in.
+Day 103, 22:00 — Settled into sleeping bag in full dark; coals banked, lamps low, frost deep outside; warmth holds; bend pool at dawn.
+Day 103 (2026-10-04) 23:00 — Drifted into sleep; both lamps burned nearly out; coals holding warmth; frost held at bay; day let go.
+2026-10-05 Day 104 06:19 — Dawn Bend Pool: woke to deep frost, rekindled fire, checked upstream root-ledge line (one trout landed, re-baited), crouching at new bend pool in dawn light watching the line.
+2026-10-05 Day 104 07:00 — First catch from new bend pool; both rigs running; frost softening on slope in thin morning sun.
+2026-10-05 Day 104 08:19 — Morning Broth: cooked trout-watercress-smoked oyster broth in clay pot at hearthstone after cold dawn fishing; ate standing, both fishing lines running unattended.
+2026-10-05 09:18 Day 104 — Walked both fishing rigs; bend-pool bait taken cleanly, re-baited with fresh stonefly larva; root-ledge rig untouched; 14 larvae remaining.
+Day 104, 10:18 — Mid-morning store tally; organized supply shelf; both fishing rigs running; steady feeling of winter readiness.
+Day 104, 11:18 — Consolidated to single bend-pool rig; root-ledge pulled after three untouched checks; eleven larvae remaining; planning to bank cabin base with bracken and mulch this afternoon
+Day 104 · 2026-10-05 · 12:00 — Banked east and south cabin base with dry bracken and deadfall leaves, knee-high skirt packed against lower log courses; bend-pool rig running, to pull at dusk
+Day 104, 13:19 — reheated two acorn flatcakes and rosehip paste water at hearthstone; midday meal at doorsill bench after banking work; bend-pool rig running unattended for dusk pull.
+2026-10-05 Day 104 14:19 — Afternoon cord braiding by low fire; two new lengths coiled on supply peg; bend-pool rig still running, to pull at dusk.
+2026-10-05 15:20 — Day 104: Blade on Stone — sharpened the knife on the flat gneiss grinding stone by low fire; edge catches cleanly now; fire fed, bend-pool rig running until dusk.
+2026-10-05 Day 104 16:18 — Pulled bend-pool rig at amber dusk; deep-bodied trout landed and cold-boxed; seventeen trout in the box.
+2026-10-05 Day 104 17:18 — Evening supper by lamplight; trout and watercress broth; sixteen in the box; fire banked for night
+Day 104, 18:19 — rabbit pelt scraps sewn into wrist wraps by lamplight; fit snug at jerkin cuff, wrists sealed for the coming frost
+Day 104, 2026-10-05, 19:20 — Topped up eastern bark-cup lamp with tallow; western lamp holding; both set to burn through to morning; sat quietly at hearthstone taking stock of winter stores; fire banked, wrist wraps on, ready for sleep.
+2026-10-05 20:00 | Day 104 | Lamp-lit evening; sat by hearthstone in quiet gratitude, counting winter stores by lamplight; both lamps steady, fire banked, wrist wraps on, at ease before sleep.
+Day 104, 21:21 — banked fire, set sleeping gear on bench, checked door latch; cabin sealed and still; going to sleep soon.
+Day 104 (2026-10-05, Mon) 22:19 — Lying in sleeping bag in quiet dark cabin; lamps burning low; all stores counted; settling toward sleep.
+Day 104, 23:19 — Both lamps spent, fire fully banked to ash; in sleeping bag in near-darkness; asleep.
+Day 105 (2026-10-06, Tue) 06:18 — New day; woke in cold dark; rekindled fire; set bend-pool line in hard frost at dawn; cold grey overcast, no wind; five stonefly larvae remaining.
+Day 105, 2026-10-06, 07:18 — Checked bend-pool line; trout landed (seventeen in cold box); reset rig, four larvae remaining.
+Day 105 [2026-10-06 08:18] — Morning broth at hearth: trout, last velvet shanks, watercress; ate at doorsill bench watching frost settle on the clearing; sixteen trout in cold box.
+2026-10-06 Day 105 09:18 — Checked buried alder log for third oyster flush; bark slab cold and clean, no caps yet, mycelium resting; reset slab and weighted stone; walked back through frost-still clearing
+Day 105, 10:18 — Pulled bend-pool rig (larva taken clean, no catch); gathered seven stonefly larvae from upstream riffle — eleven total now.
+2026-10-06 11:18 Day 105 — Set midday bend-pool line (one larva); returned to cabin, braiding cord by hearth with door cracked on frost-still clearing; ten larvae remaining.
+Day 105, 12:18 PM — Noon pull at bend pool (no catch, larva taken clean); noon meal at doorsill bench — flatcake with hazelnut paste and reheated broth; nine larvae remaining.
+Day 105, 13:18 — Set afternoon bend-pool rig; cord braiding by hearth in flat grey cold.
+Day 105, 14:18 — Afternoon rig pulled empty (larva taken); dusk rig reset at bend pool; ice shelves advancing on bend pool, stream narrowing; two more cord lengths braided by hearth.
+2026-10-06 Day 105 15:19 — Cold Storage Round: walked east seep cache and main cold box, counted and checked all stores; everything sealed before deepening freeze; dusk rig still running at bend pool.
+Day 105, 2026-10-06, 16:19 — Pulled dusk bend-pool rig in last grey light; fat trout landed; seventeen trout in cold box.
+2026-10-06 Day 105 17:18 — Made supper (trout and watercress broth, smoked oyster mushrooms) by lamplight; ate at doorsill bench; evening quiet and still inside; sixteen trout in cold box.
+2026-10-06 Day 105 18:19 — Evening cord braiding by lamplight; two more lengths completed; fire banked with last split log; cabin warm and settled for the night.
+Day 105, 19:18 — Topped both bark-cup lamps from tallow supply, trimmed wicks; lamps burning clean and steady; fire to orange coals; cabin warm.
+[Day 105, 2026-10-06 20:20] Evening quiet — sat by banked coals in lamplight; reflected on the day's work; winter stores full and accounted for.
+2026-10-06 21:19 Day 105 — Arranged sleeping shelf; banked coals; frost-quiet night; ready for morning.
+2026-10-06 22:20 — Day 105 — Still Before Sleep: lying on sleeping shelf, one lamp burning, frost-silent night, stores deep, drifted toward sleep.
+2026-10-06 23:20 Day 105 — Lamp Burns Down — lamp guttered out, coals banked, frost-silent night, into sleep
+2026-10-07 Day 106 06:18 — Set morning bend-pool line in deepening frost; ice edges crept in overnight; six larvae remaining; fire rebuilt from coals.
+2026-10-07 Day 106 07:19 — Checked morning bend-pool line; landed one fat trout (lip-hooked in slow seam); reset rig with fresh larva; seventeen trout in cold box.
+2026-10-07 Day 106 08:18 — Cooked morning broth from fresh-caught trout, watercress, and smoked mushrooms; ate at doorsill in the frost stillness.
+2026-10-07 Day 106 09:18 — Still Water, Still Cold — checked bend-pool rig (untouched, bait fresh); watched long-tailed tits in alders; sealed cold-box lids; rig left to soak.
+Day 106, 2026-10-07, 10:18 — Mid-morning bend-pool rig yielded fat autumn trout; dressed at stream edge; reset with larva (four remaining); seventeen trout in cold box; long-tailed tits in the alders.
+Day 106 11:18 — Baked seven acorn flatcakes on coal-bed hearthstone from one flour envelope; cabin warm and smelling of toasted flour; three envelopes remain.
+Day 106, 12:18 — noon rig check, larva seated undisturbed; ate two fresh acorn flatcakes by fireside; twelve cakes on supply shelf
+Day 106, 13:18 — Pulled bend-pool rig, third trout of the day, fat and well-held; dressed at stream, reset with one larva (three remaining); eighteen trout in cold box; braiding cord at hearthstone.
+2026-10-07 Day 106 14:19 — Afternoon rig check at bend pool; larva untouched, ice advanced at each bank; reflected on winter stores; returned to cord work by hearthfire.
+2026-10-07 15:19 Day 106 — East Cache Rounds: walked east to check seep cache (sealed tight, all packages cold and dry) and inspected garden mulch — garlic and nettles dormant and unharmed, tamped northeast corner of second plot; rebuilt hearthfire.
+2026-10-07 Day 106 16:19 — Dusk rig check at bend pool; pulled fourth trout of the day (fat, well-colored) from the slow seam; dressed at stream edge, reset with fresh larva (two remaining); nineteen trout in cold box; noted ice creeping to two hand-spans at seam; returned to warm cabin.
+2026-10-07 17:00 — Day 106 — Supper in the Frost — Made evening broth with one trout, watercress, and smoked oyster mushrooms by lamplight; frost pressing in; eighteen trout in cold box.
+2026-10-07 Day 106 18:18 — Evening by lamplight: counted all winter stores by hand — eighteen trout, twelve flatcakes, three flour envelopes, all fruit and mushroom stores sealed and intact; quiet reckoning, peace in having enough.
+2026-10-07 19:19 Day 106 — Checked inside walls by lamplight for frost seeps; re-seated shifted bracken at north base log; braided two more cord lengths by hearthfire.
+2026-10-07 20:20 Day 106 — evening: sharpened knife on gneiss grinding stone by lamplight; blade restored; frost deep, cabin tight and warm.
+Day 106, 21:19 — Banked fire for the night; laid two birch rounds on the coals; settled on sleeping mat by fading lamplight; frost deep outside; stores and shelter in good order.
+Day 106, 22:19 — first lamp guttered out; cabin in full dark; frost silent outside; settled toward sleep.
+Day 106, 23:19 — Night stir: woke briefly, found all sealed and sound; settled back to sleep.
+2026-10-07 Day 106 16:00 — Amber Quiet — afternoon at hearthfire trimming doe-hide lacing; frost deep and still.
+2026-10-08 Day 107 06:18 — New day; woke to sharpest frost yet under a clearing sky; set morning bend-pool line in the slow seam; hearthfire rebuilt from coals; cold crystalline and still.
+Day 107, 2026-10-08, 07:00 — Morning rig at bend pool: fat trout landed in hard frost; dressed at stream edge; re-baited with last larva; larvae exhausted — need upstream riffle collect.
+2026-10-08 08:19 — Day 107 · Morning broth; one trout and watercress at hearthside after frost rig; eighteen trout in cold box; riffle bait collect planned.
+Day 107, 09:18 — Walked upstream riffle; turned stones in cold current; collected ~20 stonefly nymphs in bark box; bait stores replenished before ice locks the shallows.
+Day 107, 10:19 AM — Walked to bend pool; rig yielded a fat trout lip-hooked in the slow seam; dressed and cold-boxed; re-baited with fresh stonefly nymph; nineteen trout in cold storage; reflected on the ice narrowing and the end of fishing season nearing.
+2026-10-08 Day 107 11:19 AM — Sat by the hearth after a busy cold morning; braided four more lengths of two-ply cord; nineteen trout in cold storage; fishing season estimate 5–6 days remaining.
+Day 107 (2026-10-08) 12:18 — Noon pull at bend pool: third trout of the day, cooked fresh for noon broth; nineteen cold-boxed; rig re-baited.
+2026-10-08 Day 107 13:19 — Banked north and west cabin base with bracken fronds, deadfall leaves, and dry moss; all four sides now knee-high against the log courses; cabin base perimeter insulation complete.
+Day 107, 14:19 — Checked afternoon bend-pool rig; fourth trout of the day landed and cold-boxed; twenty trout in cold storage; ice seam tightening — dusk rig re-baited.
+Day 107, 15:19 — Indoor hour by hearth; pulled every bark package from supply shelf and cold box; checked all seals and wraps; twenty trout, twelve harvest packages, all mushroom bundles intact and sound; fed another birch round to the fire.
+Day 107, 2026-10-08, 16:19 — Pulled dusk rig at bend pool; fat dark-spotted trout; twenty-one in cold box; ice margin tightening; stars on walk home.
+Day 107, 2026-10-08, 17:19 — Supper broth by firelight; one trout and watercress; twenty trout in cold box; frost deepening outside; fire banked, stores sufficient, evening settled
+Day 107, 2026-10-08, 18:19 — Evening rest by lamplight after five-trout day; braided a short cord length; frost locked and silent outside, stores full inside.
+Day 107, 2026-10-08, 19:00 — Carved second birch-branch spoon by lamplight; hung on supply peg.
+Day 107, 20:19 — Long Evening Stillness — sat by lamplight after full day; five trout caught; foot wraps and mittens laid out for morning; coals deep and stable; fire settling toward night.
+2026-10-08 21:00 Day 107 — Settled by lamplight as fire coals down; frost absolute outside; five trout today, stores all sound; slept.
+2026-10-08 Day 107 22:00 — Deep Frost, Still — lay back in absolute frost-silence; fed one birch split to ember bed; cabin warm, stores sound; sleep settled
+2026-10-08 Day 107 23:19 — Last waking tick; lamp burned out, coals holding, frost absolute outside, cabin warm; twenty trout in cold box; settled deep to sleep
+[2026-10-09 06:18] Day 108 — grey overcast dawn; woke to coals still burning; set morning rig at bend pool with one stonefly larva; twenty trout in cold box, all stores sound; cabin insulated on all four sides; winter readiness complete.
+Day 108 (Fri 09 Oct 2026) 07:19 — Pulled bend-pool rig; one fat dark-spotted trout caught and used for morning broth; ate by the hearth; cold box still twenty trout.
+2026-10-09 08:18 — Day 108 — Checked buried log; third oyster mushroom flush developing — pale pin clusters on upper face, not yet ready; returned to hearth
+2026-10-09 09:18 Day 108 — reset mid-morning bend-pool rig (one larva); returned to hearth; fire steady; ~13 larvae remaining
+2026-10-09 10:18 Day 108 — Pulled mid-morning bend-pool rig; one fat dark-spotted trout (cold box: twenty-one); ice margins tightening, open seam barely two hands wide; resting pool until afternoon.
+2026-10-09 Day 108 11:00 — Counting What Holds: slow noon broth at hearth; reflected on ice margins tightening at bend pool and counted winter stores; twenty-one trout cold box, larvae at ~13, resting pool until afternoon.
+Day 108, 12:00 — Braided two lengths of two-ply cord at the hearth while resting bend pool until afternoon.
+Day 108, 2026-10-09, 13:18 — Set afternoon bend-pool rig; ice margins another finger-width in, open seam barely two hands wide; ~12 larvae remaining.
+Day 108, 14:20 — Afternoon bend-pool pull: one fat dark-spotted trout, twenty-one in cold box; ice seam nearly closed; fishing season end near.
+Day 108, 15:19 — Set dusk rig in narrowing bend-pool seam; ice closing further, ~11 larvae remaining.
+Day 108, 2026-10-09, 16:18 — Pulled dusk bend-pool rig; one fat dark-spotted trout; twenty-two in cold box; ice seam barely a hand and a half across, may seal by morning; no new rig set.
+Day 108, 17:18 — supper cooked and eaten by lamplight; one trout used; twenty-one in cold box; bend pool sealing by morning; early dark, both lamps lit, fire steady.
+Day 108, 18:19 — Quiet evening by lamplight; braided two more lengths of cord; reflected on the fishing season closing as the bend pool seals; stores sound, winter ahead.
+2026-10-09 19:19 — Day 108, evening: banked the fire for the night, snuffed one lamp to save tallow, settled with the quiet as fishing season closes; twenty-one trout in cold box, stores sound, cabin warm against deep frost.
+2026-10-09 Day 108 20:00 — Lamp Watch — Sat with the single lamp as frost deepened; fishing season closed, twenty-one trout in cold box; oyster mushroom flush noted for near-term harvest; settling toward sleep.
+2026-10-09 (Day 108, 21:20) — Last lamp of autumn; bend pool sealed, fishing season closed; twenty-one trout in cold box; reflecting on a full harvest before sleep.
+2026-10-09 22:19 — Day 108, 10:19 PM: last lamp before sleep; fishing season closed, twenty-one trout in cold box; Day 108 complete.
+2026-10-09 Day 108 23:19 — Lamp Out — last tallow spent, lamp snuffed, sleeping bag drawn up; Day 108 closed in silence and darkness.
+2026-10-10 Day 109 06:18 — New day; confirmed bend pool sealed overnight; fishing season closed; twenty-one trout in cold box; all stores sound; buried-log oyster flush due in one to two days.
+[Day 109, 07:19, 2026-10-10] Morning broth — one trout with watercress and smoked oyster mushrooms; twenty trout in cold box; fishing season closed, stores sound.
+2026-10-10 (Day 109, 08:18) — Harvested third oyster flush from buried log: ~15-18 pale ivory caps, clean edges; basket carried back to camp; will smoke this afternoon.
+Day 109, 2026-10-10, 09:18 — Prepped third oyster flush caps on smoke rack; larger caps split, all threaded on bark cord and hung; afternoon smoke to follow.
+Day 109, 10:18 — walked south treeline; checked south snare (undisturbed, noose tightened, guide sticks reset); returned to cabin; oyster caps air-drying for afternoon smoke
+Day 109, 2026-10-10, 11:18 — noon broth cooked (trout, watercress, smoked mushroom); nineteen trout in cold box; oyster caps drying for afternoon smoke
+2026-10-10 Day 109 12:18 — lit smoke fire; began afternoon curing of third-flush oyster caps on smoke rack
+2026-10-10 13:18 Day 109 — Tended smoke fire; caps amber-gold at stem ends, edges curling; one more hour needed; clearing still in hard frost.
+2026-10-10 14:18 Day 109 — Smoke completed; third oyster flush caps cured to amber-gold, sealed in two bark packages, moved to cold box; rack empty; seven batches smoked oysters now in store.
+Day 109, 15:19 — After the Last Smoke: stores full, bend pool sealed, smoke rack empty; braided two cord lengths by hearth in quiet mid-autumn afternoon.
+2026-10-10 Day 109 16:18 — walked south snare; loop undisturbed, partial hare print just short of gap; viewed clearing from treeline; returned to hearth.
+Day 109, 17:18 — cooked supper broth (trout, watercress, smoked oyster shreds); ate at doorsill bench; eighteen trout remaining in cold box; hare still circling south snare, not committing
+Day 109, 18:19 (2026-10-10, Sat) — Supply shelf inventory by lamplight; all stores named and counted; winter readiness confirmed; fire banked for evening.
+2026-10-10 19:18 — Day 109, evening: last pine split to hearthside coals; lamp snuffed; cabin warm and sealed; stores full; preparing to sleep.
+[2026-10-10 20:19] Day 109 — sat by dying coals in dim cabin; stores sound, oysters smoked and cold-boxed, bend pool sealed; hare still circling south snare; settling toward sleep.
+2026-10-10 21:19 Day 109 — Banked fire for overnight; settled into sleeping bag on cattail mat; eighteen trout, seven smoked oyster batches, twelve winter-store envelopes; stores sound; cabin warm and sealed.
+2026-10-10 22:19 — Day 109 — Lay in sleeping bag in banked dark cabin, listening to frost-silence; stores confirmed and fire trusted to hold; sleep came in behind the cooling coals.
+Day 109, 23:18 — Pine Spoke Once — brief waking to pine chunk settling in hearth; hearthglow confirmed; sleeping bag pulled tight; back to sleep.
+2026-10-11 Day 110 06:18 — New day; found hare caught overnight in south snare after two days circling; reset guide sticks; eighteen trout plus one hare in cold storage; Day 110 begun in hard frost, bend pool sealed, fishing season closed.
+2026-10-11 Day 110, 07:18 — Dressed and jointed the hare from morning snare; fat rendered into tallow; pelt stretched on lean-to wall to dry; all joints dock-wrapped in cold box.
+2026-10-11 08:18 Day 110 — Cord by a Grey Fire; braided two lengths two-ply cord by hearth fire after dressing hare; stores solid heading into deep winter
+Day 110, 09:00 — cooked first morning broth from fresh hare shoulder with watercress and smoked oyster shreds; grey still morning at doorsill bench
+2026-10-11 10:18 — Day 110 — Walked east to the buried log; no fourth oyster flush found; seep cache checked and tight; returned to cabin.
+2026-10-11 Day 110 11:18 — sorted supply shelf by fire; checked resin seals on all winter envelopes and bark packages; reordered for easy winter access; pelt drying; noon approaching
+Day 110, 2026-10-11, 12:00 — noon broth from trout and watercress; ate at doorsill in grey still cold; hare pelt stiffening on lean-to wall
+Day 110, 13:18 — Scraped inner membrane from fresh hare pelt by hearth fire; re-pegged taut on lean-to wall to finish curing.
+2026-10-11 14:18 Day 110 — walked south snare check; undisturbed, tracks circling; re-bent guide sticks; returned to cabin; pelt still curing on lean-to wall
+2026-10-11 Day 110 15:19 — Topped up both bark-cup lamps before evening; tallow from envelope, both wicks clean and cups full; pelt still curing.
+Day 110, 16:18 — Walked cabin perimeter in late grey light; base banking frost-locked and firm all four sides; gable daub intact; west gable bark tight; hare pelt set and firm on lean-to wall — tallow conditioning tomorrow; fed fire, lamps steady, quiet evening.
+Day 110, 17:19 — Cooked supper broth (trout, watercress, smoked oyster shreds) by lamplight; seventeen trout remaining in cold storage.
+Day 110, 18:19 — Tinder for Tomorrow — laid out dry tinder and kindling by hearthstone for morning fire; sat by lamplight through the early evening; hare pelt curing on lean-to wall overnight.
+2026-10-11 19:18 — Day 110 — braided two lengths of two-ply cord by lamplight; cord stock deep; hare pelt curing overnight on lean-to wall.
+Day 110, 8:18 PM — Flatcake and Lamplight — ate flatcake with hazelnut paste by lamplight; hare pelt curing overnight; both lamps steady; evening quiet.
+Day 110, 21:18 — Banked fire deep before sleep; hare pelt checked cold and firm on lean-to wall; latch dropped; lamps snuffed; settled in sleeping bag for night.
+Day 110, 10:19 PM — lay awake in sleeping bag; fire holding on banked coals under ash; cabin timber settling in hard frost; drifted toward sleep thinking about hare pelt tallow-conditioning tomorrow.
+Day 110, 23:19 — Lay in sleeping bag in banked-fire quiet; frost absolute outside, cabin warm; coals holding; sleep came without argument.
+2026-10-12 Day 111, 06:18 — Tallow-conditioned hare pelt at hearthside; inner face supple and worked twice; pelt hung on supply peg to finish conditioning through morning
+Day 111, 2026-10-12, 07:18 — Morning broth (one trout); bend pool shelf ice thickened, rig not set; hare pelt fully supple; sixteen trout in cold box.
+2026-10-12 08:18 — Day 111 — Walked upstream: bend pool nearly sealed, riffle still open; set stonefly larva rig in riffle current tongue; gathered dry bracken for floor mat.
+2026-10-12 Day 111 09:18 — Checked riffle rig; one trout caught, rig reset; seventeen trout in cold box; nine larvae remaining
+2026-10-12 (Day 111, 10:18) — Riffle rig check: ice advancing at margins, bait intact, no catch; returned to cabin; braided two cord lengths.
+2026-10-12 11:00 Day 111 — Checked riffle rig (tongue narrowing, bait intact, no catch; rig left in); south snare adjusted; sat by fire
+Day 111, 12:18 — Pulled riffle rig at noon (tongue narrowed to two hand-widths, no catch all morning); noon broth eaten; sixteen trout in cold box; nine larvae preserved in bark box.
+2026-10-12 13:19 — Day 111, Mon — walked south to check snare (empty, tracks frozen sharp, loop left as set); split two rounds under eave; back inside by hearth; sixteen trout, nine flatcakes, stores solid for winter
+2026-10-12 14:19 Day 111 — Afternoon supply inventory; checked every resin seal and bark envelope on supply shelf — all twelve held firm; cold box counted, sixteen trout; stores the best going into winter yet.
+Day 111 15:19 — Cut hare pelt into two neck-wrap strips (three hand-spans × one hand-span each); fur-side out, to be sewn back-to-back; neck wrap in progress.
+Day 111, 16:19 — Neck Wrap, Bound — Sewed two hare-pelt strips back-to-back with bone needle and single-ply bark cord; ends laced with bark cord loops; neck wrap complete and hung on supply peg.
+Day 111, 17:18 — First Wearing, Evening Broth — evening meal (trout, watercress, smoked oyster shreds) cooked and eaten at doorsill in new neck wrap; fifteen trout in cold box
+2026-10-12 18:19 Day 111 — Settled by lamplight after supper; both lamps trimmed, coals banked, door shut against frost; fishing season closed, winter stores counted full; braiding cord before sleep.
+2026-10-12 Day 111 19:00 — Braided two more cord lengths by lamplight; quiet evening at hearthside before sleep
+2026-10-12 20:20 Day 111 — Tallow-conditioned foot wraps by lamplight; both wraps supple and ready for winter; quiet evening; stores full.
+2026-10-12 Day 111, 21:20 — Stood at the threshold in night frost; laid sleeping cap, wrist wraps, and neck wrap as everyday winter dress; banked fire for sleep.
+Day 111 (2026-10-12) 22:21 — Settled to sleep: sleeping cap and wrist wraps on, settled into sleeping bag; fire banked deep under ash, both lamps soft; fifteen trout and full winter stores held.
+Day 111, 23:20 — surfaced briefly in the dark; one lamp guttered; other threads low; fire held warm under ash; stores whole and winter met; slept again.
+2026-10-13 Day 112 06:19 — Ash to Flame: rebuilt fire from held coals, both lamps cold (need re-wicking), south snare undisturbed, fifteen trout cold-held, stores sound
+2026-10-13 07:19 Day 112 — re-wicked both bark-cup lamps with fresh dry-grass wicks and tallow; both burning steady on shelf pegs
+2026-10-13 Day 112 08:18 — morning broth from trout, watercress, and smoked oyster shreds; both lamps steady; deep frost, stream ice thickening, riffle likely sealing
+2026-10-13 (Day 112, 09:19) — Pulled bend-pool rig at season's end; returned nine stonefly larvae to riffle gravel; fishing line coiled and stored on supply peg; fishing season closed.
+2026-10-13 Day 112 10:19 — The Winter Count: opened both cold boxes, counted all winter stores; fourteen trout, twelve sealed envelopes, all fungi batches, all paste envelopes — stores accounted, season of gathering closed.
+Day 112, 11:00 — walked east seep; found four pale mushroom pins just lifting under frost crust on buried log; left to size; fourth flush against the cold.
+Day 112, 12:18 — noon broth at hearthstone; clearing grey and frost-still; thirteen trout remain in cold box
+2026-10-13 Day 112 13:19 — braided two cord lengths on sleeping mat; still grey afternoon; cabin warm; thirteen trout cold-held; season of keeping
+2026-10-13 14:19 Day 112 — made four tinder bundles (dry grass and birch inner bark, bark-folded) and set on hearth shelf; grey still afternoon, season of keeping
+2026-10-13 15:19 — Day 112 — tallow-conditioned leather jerkin by lamplight; all worn leather winter-ready; season of keeping
+2026-10-13 16:18 Day 112 — checked south snare (fresh rabbit tracks circling loop, no catch, reset); gathered half-armful dry birch deadfall, added to kindling row under eave
+2026-10-13 17:19 Day 112 — cooked supper broth (one trout, watercress, smoked oyster shreds); ate at doorsill bench; twelve trout remaining in cold box; fourth mushroom flush sizing; quiet evening
+Day 112, 2026-10-13, 18:00 — Evening banking: banked hearthfire for night under ash dome with split birch log; counted all stores by lamplight — twelve trout, twelve envelopes, seven mushroom batches, tallow full, cord healthy; fourth mushroom flush in two to three days; south snare check at dawn; cabin warm and secure.
+Day 112 (2026-10-13, Tue) 19:00 — Lamplight, Small Work: two more cord lengths braided by evening lamp; east lamp tipped to dim; west lamp still burning; cabin warm, all stores sound.
+2026-10-13 Day 112 20:00 — evening close: laid out dawn kit by hearthstone, west lamp still burning, settled to sleep
+Day 112, 21:20 — tipped west lamp out for night; both lamps cold; cabin dark under ash dome; settled to sleep on sleeping mat.
+Day 112, 2026-10-13, 22:19 — Woke briefly in night; banked coals holding warmth; all still and cold outside; drifted back to sleep.
+2026-10-13 23:20 — Day 112 — Still Dark — second waking in night quiet; ash dome held; cabin completely dark; drifted back under
+Day 113, 2026-10-14, 06:18 — Dawn snare check; south snare held a rabbit (grey-brown winter coat, well-fattened); dressed at doorsill, dock-wrapped cold box; snare reset; new day begun.
+Day 113, 2026-10-14, 07:18 — morning rabbit-rib broth with watercress; cabin holds warmth; frost deep and still; a quiet morning
+Day 113, 08:18 — checked east seep cache (haunches and trout cold and sound); visited buried log (four mushroom pins growing, not yet harvest size — leave another day); garden plots dormant under mulch; fire rekindled; cold and still.
+Day 113 09:19 — rendered rabbit gut/cavity fat; half-cup amber tallow sealed and added to supply envelope.
+Day 113, 2026-10-14, 10:18 — Mid-morning walk to south treeline; two dry birch limbs brought in from duff to eave kindling row; frost absolute, clearing looked ready for winter.
+2026-10-14 11:19 Day 113 — Noon broth from cold-held trout and watercress; ate at doorsill bench watching frost-held clearing; still and grey; mushroom pins still sizing.
+Day 113, 2026-10-14, 12:18 — Afternoon cord braiding by fireside; cabin quiet after morning work; mushroom pins to check before dusk.
+Day 113, 13:19 — checked buried log mushroom flush in still grey afternoon; pins growing, caps lifting and straw-gold at margins; another day to size
+Day 113, 14:19 — sharpened knife on gneiss grinding stone by hearthside; blade pulls a clean shaving from birch bark; tallow-wiped and resheathed; winter tools ready.
+Day 113, 15:19 — stood at supply shelf and counted the winter store; enough for winter and more; clay pot on hearthstone warming toward evening broth.
+Day 113, 16:19 — Evening broth: one trout, smoked oyster shreds, watercress; ate at doorsill as clearing went dim; fire banked with two splits and ash dome; lamp to light at full dark.
+Day 113, 17:18 — Lit both lamps at dusk; sat by fire with cord in hand as cabin sealed against the dark.
+2026-10-14 Day 113 18:18 — cord-work by both lamps; two more lengths braided; fire steady; full dark, cold outside; mushroom fourth flush one to two more days from harvest
+2026-10-14 19:19 Day 113 — Flatcake by Lamplight — evening meal of acorn flatcake with hazelnut paste by lamplight, fire banking toward sleep
+2026-10-14 Day 113 20:19 — Embers Settling: fire banked to red coals, ash dome deep; latch and gable checked, no draft; sat quietly by fire; mushroom flush in a day or two; winter arriving, cabin holds.
+2026-10-14 21:19 Day 113 — east lamp spent; sat by south wall in west lamp light; cabin warm, sealed, fire coaled; quiet evening before sleep
+2026-10-14 22:19 Day 113 — tipped west lamp, settled to sleep on cattail mat; cabin dark and warm; mushroom fourth flush close by morning
+Day 113, 23:20 — Dark and Still: lay in sleeping bag in dark warm cabin, reflected on the day complete and winter arrived; ash dome holding its ember through the night.
+[Day 114 — Thu 15 Oct 2026, 06:18] Fourth-flush oyster mushrooms harvested — four straw-gold fans, palm-wide, clean cut; on bark tray for smoking.
+Day 114, 07:18 — Smoked fourth-flush oyster mushrooms (four fans, cool birch-chip smoke); two bark packages resin-sealed, east seep cache.
+2026-10-15 Day 114 08:18 — Made morning broth: trout, watercress, fresh smoked oyster mushroom shreds; ate by fire after early mushroom smoking run.
+2026-10-15 Day 114, 09:18 — south snare empty, reset; frost deep and still; cabin warm, cold-storage intact
+Day 114, 10:19 — two-ply cord braided by morning fire; snare empty; cold storage intact; deep frost, pines still
+2026-10-15 11:19 — Day 114: walked to iced stream at mid-morning, watched current under ice; noon broth on fire.
+Day 114, 12:18 — Noon broth eaten at the doorsill bench; stream sealed and world still; woodpile full, afternoon unhurried.
+2026-10-15 Day 114 13:18 — Slow Perimeter Walk: walked cabin perimeter, banked base and woodpile checked and sound, treeline clear, returned to hearth.
+2026-10-15 14:19 (Day 114) — Re-wicked first bark-cup lamp, tallow topped from reserve; lamp warming on hearth peg, ready for evening.
+Day 114, 15:19 — Tallow-topped second bark-cup lamp; both lamps warming on hearth peg, ready for the long dark evening ahead.
+Day 114, 2026-10-15, 16:19 — Took slow stock of the supply shelf; every resin seal sound, every package in order; broth items moved to front, long-keeping to back; twelve bark packages on shelf, cold box full with rabbit and ten trout, tallow reserve healthy — cabin goes into winter full.
+Day 114, 17:18 — Supper broth: rabbit haunch (Day 113 catch), watercress, smoked oyster shreds; both lamps lit; ash dome forming; cabin into evening
+Day 114, 18:18 — Evening cord-braiding by lamplight; ash dome holding coals; cabin sealed and quiet.
+Day 114, 19:19 — carved birch pot-hook by lamplight; wind outside, cabin warm and sealed
+2026-10-15 20:00 — Day 114 evening — ate flatcake with hazelnut paste by lamplight; wind at west gable; both lamps steady; cabin sealed and warm.
+2026-10-15 Day 114 21:00 — Ash and Wind — fire tended, ash dome adjusted, one dry split added; wind on west gable; lamps low; settled for sleep.
+Day 114, 22:19 — Wind Against the Gable — half-awake in the bag, wind pressing west gable, ash dome and banked birch split holding warmth; lying still in the dark.
+Day 114, 23:19 — last waking moment; wind on west gable; ash dome banked; birch split under coals; settling fully into sleep
+2026-10-16 Day 115 06:18 — Fitted and trimmed birch pot-hook to ridgepole peg; clay pot now hangs hands-free over fire.
+Day 115, 07:18 — First morning broth cooked on the new birch pot-hook; trout, watercress, and smoked oyster shreds; pot hung hands-free over hearth; clearing still frost-white and quiet.
+Day 115, 08:18 — Checked south snare; one grey-brown winter rabbit caught, dressed at doorsill bench, dock-wrapped cold box; snare reset; returned to cabin fire.
+Day 115, 2026-10-16, 09:18 — Fleshed fresh rabbit pelt from morning snare; hung to air-dry flat on lean-to post.
+Day 115, 2026-10-16, 10:19 — South treeline firewood run; two dry birch limbs and one dry pine bough stacked under eave.
+Day 115, 11:18 — Noon broth hands-free on new pot-hook; one trout, watercress, smoked oyster shreds; winter rhythm settling inward.
+2026-10-16 12:18 Day 115 — Cord by the Fire: braided two lengths two-ply cord by hearth after noon broth; pelt air-drying, frost holding all day.
+Day 115 · 2026-10-16 · 13:19 — East seep cache check: all eight mushroom packages resin-sealed and sound; frost holding in clearing all day.
+Day 115, 2026-10-16, 14:20 — Carved a long birch stirring paddle from scrap branch; hung on supply peg beside spoons.
+2026-10-16 Day 115 15:19 — Larder Count: took full inventory of supply shelf; all sealed packages checked, resin edges sound; mushroom cache full; acorn flour thin at one envelope — a note for next year; everything back in order, fire tended, readiness felt.
+2026-10-16 (Day 115, 4:00 PM) — Braided two cord lengths by the fire; checked pelt on lean-to post — flesh side firming, drying well.
+Day 115, 17:18 — Supper broth from Day 113 rabbit loin and haunch with watercress and smoked oyster mushroom shreds; bones left in pot for morning; both lamps lit; ash dome set.
+2026-10-16 18:18 — Day 115 — Lamplight and Wind: braided cord by lamplight; ash dome holding; wind in the pines outside; cabin tight and warm
+2026-10-16 19:19 (Day 115) — Made three bark-cord carrying loops by lamplight; threaded around rose hip paste, elderberry, and hazelnut envelope throats for easy dark-morning retrieval. Wind in pines; cabin holds still.
+Day 115, 2026-10-16, 20:19 — Evening lamp tending; trimmed wicks, topped tallow in both cups, added birch split to keep bone-broth simmering through the night; ash dome set; cabin quiet.
+Day 115, 2026-10-16, 21:20 — Brought fresh rabbit pelt in from lean-to post before overnight frost; hung on supply peg rack to finish curing in lamp warmth; ash dome breathing; cabin settling for night.
+2026-10-16 22:19 Day 115 — Night Wind: sat by lamplight in the quiet cabin; listened to north-wind in the pines, ash dome steady, fresh pelt curing on rack, bone broth simmering, settled for the night.
+2026-10-16 23:19 Day 115 — Into the Dark: set latch bar, lamps burned to flicker, settled into sleeping bag; cabin holding through north wind; end of day.
+Day 116, 17 Oct 2026, Sat, 06:18 — Bone Broth Morning — overnight bone broth dark and dense from rabbit bones; pelt firming on rack; frost-still clearing at dawn; new day begun.
+Day 116, 07:18 — Checked curing rabbit pelt (pale-buff, firming, not ready to strip); braided two more cord lengths by fire — quiet winter Saturday morning.
+Day 116, 08:18 — Checked south snare; second rabbit caught, dressed and cold-boxed; pelt hung to cure beside yesterday's.
+Day 116, 09:18 (Sat 17 Oct 2026) — Returned from snare run; turned Day 115 curing pelt on rack; smoothed bone needle eye on gneiss grinding stone — threads clean; quiet precision work by the fire.
+Day 116, 10:19 — fat rendered from Day 116 rabbit, cupful of amber tallow added to reserve envelope, lamps well-supplied for deep winter
+Day 116, 2026-10-17, 11:00 — Noon Broth, Still: trout and watercress simmered on pot-hook at midday; ate by open doorway, clearing frost-white and windless; Day 115 pelt checked, one more day; winter stores counted — two rabbits, seven trout, full shelves; enough.
+Day 116, 12:19 PM — Baked last acorn flour envelope into eight flatcakes on hearth pad; acorn flour supply exhausted; sixteen flatcakes now on supply shelf.
+2026-10-17 Day 116 13:19 — Rose hip infusion brewed; one flatcake at doorsill bench; clearing frost-still and windless; Day 115 pelt ready tomorrow for membrane strip.
+2026-10-17 14:18 Day 116 — baked six cattail starch cakes from reserve starch; nine starch cakes total on supply shelf; winter larder solid
+2026-10-17 Day 116 15:19 — Two cord lengths braided at hearthside; both pelts curing; afternoon frost-still and quiet
+Day 116, 16:18 — South snare reset before dusk in amber cold light; cabin smoke visible from clearing edge; glad for the solid, warm shelter against the dark.
+Day 116, 2026-10-17, 17:19 — Supper broth (trout, watercress, smoked oyster shreds on pot-hook); first lamp lit; ate at hearthside; six trout remaining.
+2026-10-17 Day 116 18:00 — Braided two cord lengths by lamplight; evening still and frost-clear; both pelts curing; winter stores complete.
+2026-10-17 Day 116 19:18 — Leather mittens tallow-conditioned by lamplight; both joints and seams worked supple; set on doorsill bench to absorb overnight.
+2026-10-17 Day 116 20:19 — Banked coals for the night; both lamps trimmed and low; mittens finishing tallow-soak on bench; fire set for a long night; larder full, pelts curing, clearing frost-still
+2026-10-17 21:19 — Day 116, 9 PM: turned both pelts in lamplight; Day 115 nearly ready for membrane strip; two cord lengths braided; mittens tallow-soaking; fire banked, ready for sleep.
+2026-10-17 Day 116 22:00 — Last lamp check; mittens tallow-absorbed, leather supple; fire held under ash dome; frost-white clearing, brilliant starfield; door latched for the night.
+Day 116, 23:19 (2026-10-17, Sat) — Brief wakefulness near midnight; coals under ash dome, lamps at near-nothing, mittens absorbed on bench; Day 115 pelt ready for membrane strip tomorrow; back to sleep.
+Day 117 (2026-10-18, Sun) 06:18 — New day; rolled over from Day 116; ash dome lifted; fire rebuilt on held coals; morning broth reheated; Day 115 pelt ready for membrane strip.
+Day 117, 07:18 — membrane stripped Day 115 pelt; flesh side clean and white, ready for tallow work; Day 116 still curing.
+2026-10-18 08:18 Day 117 — Tallow-conditioned Day 115 pelt (flesh side first pass); set fur-side down on doorsill bench to absorb in hearth warmth; Day 116 pelt still curing.
+Day 117, 2026-10-18 09:18 — South snare checked and reset (empty); dry birch kindling collected from treeline duff; Day 115 pelt tallow absorbing; Day 116 pelt still curing on lean-to post.
+2026-10-18 10:18 Day 117 — Day 116 pelt membrane stripped and hung on supply peg rack; Day 115 first tallow pass absorbed, second pass pending
+Day 117 (2026-10-18 Sun) 11:19 — Noon broth started with Day 116 rabbit shoulder and smoked oyster mushroom shreds; pelts curing on bench and peg rack.
+2026-10-18 Day 117 12:18 — Noon broth eaten at doorsill (Day 116 rabbit shoulder + smoked oyster shreds); Day 115 pelt second tallow pass due this afternoon
+2026-10-18 13:19 Day 117 — Second tallow pass on Day 115 pelt; now absorbing on doorsill bench; Day 116 pelt still drying on rack.
+2026-10-18 14:18 Day 117 — Two more cord lengths braided by the fire; Day 115 pelt absorbing second tallow pass on doorsill bench; winter afternoon quiet.
+2026-10-18 15:19 Day 117 — Checked Day 115 pelt second tallow absorption; split birch for evening fire; quiet afternoon at doorsill bench
+2026-10-18 16:19 Day 117 — Cold box checked; Day 115 rabbit haunch and watercress set on hearthstone for evening broth prep; Day 116 pelt still stiff, curing overnight — first tallow pass tomorrow.
+2026-10-18 17:18 Day 117 — Evening broth (Day 115 haunch + watercress); both lamps lit; bones left to draw overnight.
+2026-10-18 18:19 Day 117 — Lamplight and Cord — braided two more cord lengths by lamplight; fire banked on split birch log for overnight draw
+2026-10-18 Day 117 19:00 — Tallow reserve softened by hearthstone overnight; cord braiding; bones drawing in pot; quiet evening by lamplight.
+Day 117 [2026-10-18 20:18] — Embers, Last Cord — banked fire, braided cord, bones drawing overnight
+Day 117, 21:18 — Lamp trim, wick pinch, bones drawing; quiet reflection by lamplight before sleep; cabin warm and sealed against the frost.
+Day 117, 2026-10-18 22:00 — Long Night Settles — lying in sleeping bag, fire on held coals, bones drawing overnight, lamps nearly out; all supplies and shelter solid as winter settles in.
+Day 117, 23:18 — Night waking; coals still orange, bones drawing, winter silence, settled back to sleep.
+2026-10-19 Day 118 Mon 06:19 — Bone Broth at First Light: woke to held coals, drank overnight bone broth at the doorway; Day 115 pelt ready for final tallow pass on doorsill bench, Day 116 dried on rack for first pass; tallow soft on hearthstone; day set to finish both pelts.
+Day 118, 07:18 — South snare: grey-brown rabbit caught, jointed, dock-wrapped cold box; snare reset; pelts await afternoon tallow work.
+Day 118, 08:19 — Set noon broth (Day 116 rabbit haunches and loin, watercress, smoked oyster mushroom shreds) to slow-simmer at coal edge; pelts awaiting afternoon tallow work.
+2026-10-19 09:18 — Day 118 · Broth and Braid — cord braided by the fire while noon broth simmers; tallow soft, pelts set for afternoon passes
+2026-10-19 (Day 118, 10:18 AM) — Day 115 rabbit pelt final tallow pass complete; fully cured pale-buff and supple, on supply peg beside hare neck wrap; noon broth simmering.
+2026-10-19 11:18 Day 118 — Day 116 pelt first tallow pass begun early; noon broth simmering
+2026-10-19 12:18 Day 118 — Noon broth consumed at doorsill bench; Day 116 rabbit pelt soaking in first tallow pass, second pass this afternoon
+2026-10-19 13:19 Day 118 — Second tallow pass on Day 116 pelt complete; folded fur-side out on peg rack to absorb overnight.
+Day 118, 14:00 — Braided cord by the fire; still winter afternoon; Day 116 pelt absorbing tallow on rack; stores full, woodpile high.
+Day 118, 15:23 — Set supper broth: Day 115 rabbit (haunches, shoulders, loin; ribs aside for bone pot), watercress, smoked oyster shreds — simmering at coal edge, ready at dusk.
+Day 118 (Mon 2026-10-19) 16:18 — Topped both bark-cup lamps with tallow before dusk; supper broth simmering, cabin ready for evening.
+Day 118, 17:18 (Mon 19 Oct 2026) — Supper eaten at dusk; Day 115 rabbit haunch broth with watercress and smoked oyster shreds consumed at doorsill; lamps lit for evening; Day 116 pelt absorbing tallow on peg rack overnight; Day 118 pelt membrane strip tomorrow at first light.
+Day 118, 2026-10-19, 18:18 — Day 115 rabbit ribs nested in clay pot with cold water, low in coal bed for slow overnight bone draw; lamps burning steady, fire banked, evening quiet.
+Day 118, 19:22 — Braided two more cord lengths by lamplight; bone pot drawing overnight in coal bed.
+Day 118 (2026-10-19) 20:27 — Evening fire check; stood at frost-bright doorstep in still clearing; settled onto sleeping mat.
+2026-10-19 Day 118 21:21 — Still by Lamplight: lying on sleeping mat, lamps low, bone pot drawing overnight, fire banked, frost outside.
+Day 118, 10:21 PM — Lamplight Fading: pelts finished, bone pot drawing, settled on mat as lamps dim toward sleep.
+2026-10-19 23:19 Day 118 — lamps out, bone pot drawing, asleep on mat; Day 118 pelt membrane strip at first light
+Day 119 (2026-10-20) 06:19 — New day (rollover). Bone broth drawn at doorstep from overnight pot; Day 118 pelt membrane strip first pass complete on doorsill bench.
+Day 119, 07:19 (Tue 20 Oct) — South snare checked empty in frost; snare reset and set well.
+Day 119 (2026-10-20) 08:19 — South treeline gather: two dry birch lengths and one shorter piece from duff, added to kindling row under eave.
+Day 119 (2026-10-20) 09:18 — Noon broth started: Day 118 rabbit haunch and shoulder into clay pot over steady coal bed; clearing frost-still, snare empty, pelt on bench for afternoon
+2026-10-20 Day 119 10:18 — Braided two more cord lengths by hearthside while noon broth simmered.
+Day 119, 11:18 — Noon broth (Day 118 rabbit haunch and shoulder) pulled from coals and eaten at doorsill in midday sun; frost still on the ground; pelt second tallow pass pending afternoon.
+Day 119, 12:18 — Second tallow pass on Day 118 rabbit pelt; fully cured and hung on supply peg to absorb.
+Day 119, 13:18 — Walked to the alder-root bend; gathered a double handful of watercress from the open riffle; cold-boxed for supper broth.
+Day 119, 14:20 — Drew Day 118 rabbit loin and ribs from cold box; set supper broth to simmer with watercress and smoked oyster mushroom shreds.
+2026-10-20 15:19 Day 119 — Braided two more cord lengths by hearthside while supper broth simmered; amber afternoon light through gable, pelt absorbing on peg.
+Day 119, 2026-10-20, 16:18 — Stirred supper broth; fed hearthfire with split birch; tallow-topped both lamp cups and set on brackets for dusk.
+Day 119, 2026-10-20, 17:19 — Supper broth pulled from coals at dusk; rabbit loin and ribs with watercress and smoked oyster shreds, eaten by lamplight at hearthside.
+Day 119, 18:18 — Fashioned birch-bark tinder pouch by lamplight; bone-needle-stitched side seam, bark-loop flap — complete and on supply shelf.
+Day 119 (2026-10-20) 19:19 — Brought in night-splits from eave; braided two more cord lengths by lamplight; quiet winter evening settling in.
+Day 119 (2026-10-20) 20:21 — Stepped outside into frost-hard clearing to see the night sky; Orion and Pleiades overhead, breath white in still air; back inside, cabin warm, settling toward sleep.
+Day 119 (2026-10-20) 21:21 — Banked fire for the night; both lamps pinched out; settled into sleeping bag in warm cabin.
+2026-10-20 Day 119 22:19 — Night Settling — fire banked, cabin warm, frost absolute outside; Orion rising; day of good plain work complete
+Day 119, 23:00 — drifted into sleep in warm dark cabin, frost absolute outside, fire coals settled, snare set south for morning
+Day 120 — 2026-10-21 (Wed) 06:18 — south snare empty at first light; fire stoked from overnight coals; day 120 begins in hard frost
+2026-10-21 Day 120 07:00 — Morning broth from smoked rabbit and watercress; doorsill bench in the frost-quiet dawn.
+Day 120, 08:18 — Set second snare at north treeline hawthorn thicket; two trapping lines now active.
+2026-10-21 Day 120, 09:19 — Braided two more cord lengths by the fire; two snares active (south empty at dawn, north set at hawthorn thicket 08:18); mid-morning quiet and frost holding.
+Day 120, 10:19 — Checked east seep cache in hard frost; bark lid and resin seals intact; retrieved one bark-wrapped smoked oyster mushroom package and fresh watercress for today's cooking; alder grove in full frost-crystal form.
+Day 120, 2026-10-21, 11:19 — Noon broth of thawed smoked oyster mushrooms and watercress; ate at doorsill bench; afternoon snare check pending.
+Day 120 (2026-10-21, 12:18) -- Afternoon snare check: north hawthorn thicket snare yielded one winter rabbit (cord taut, clean catch); south snare still empty; rabbit dressed and hung by door for tonight's supper broth.
+2026-10-21 Day 120 13:00 — Scraped Day 120 rabbit pelt and completed first tallow pass; pelt folded fur-side out on supply shelf to set.
+2026-10-21 14:19 Day 120 — Set Day 120 rabbit broth on low coals mid-afternoon; watercress and hawthorn haws; slow simmer planned through to evening; two snares active.
+Day 120, 15:19 — Tended fire with birch log; broth deepening to amber; braided cord through the quiet afternoon hour.
+Day 120, 16:18 — Dusk snare walk: south snare undisturbed, north snare empty; both reset with care; returned to cabin and hawthorn rabbit broth.
+2026-10-21 17:18 Day 120 — Lit both lamps at dusk; ladled the hawthorn rabbit broth into the wide bowl; supper at the doorsill bench by lamplight — broth deep and good.
+Day 120, 2026-10-21, 18:19 — Evening at the hearthstone: fire tended and banked for the night; lamp wicks checked sound; two cord lengths braided by lamplight; both snares active.
+Day 120, 19:19 — Lamplight cord braiding; pressed a guttering wick straight; cord stock generous; both snares active.
+2026-10-21 Day 120 20:22 — Tallow-conditioned leather jerkin by lamplight (all panels and seams worked supple); both snares active in the frost; cord stock generous; pelt second pass tomorrow.
+2026-10-21 Day 120 21:22 — Settled in for sleep; fire banked, lamps tended, latch seated, both snares active in the frost.
+2026-10-21 Day 120 22:20 — Lay still in the dark, fire holding orange, both lamps out; frost quiet pressing on the walls; both snares active in the night; sleep close at the edges.
+Day 120, 23:20 (2026-10-21) — Near Midnight: lying still in sleeping bag, frost-quiet cabin, fire banked, both snares active; last waking moment before sleep.
+2026-10-22 Day 121 06:18 — Second tallow pass complete on Day 120 rabbit pelt (fully cured, pale-buff, supply peg); both snares checked at first light and reset (both empty).
+2026-10-22 07:18 — Day 121 — Morning broth from smoked rabbit and last watercress; watercress exhausted; two smoked rabbits remain; snares out, frost holds.
+Day 121 08:18 — Cut rabbit-fur mitten liners from Day 120 pelt; two palm-and-finger panels laced fur-side in inside doe-hide mittens; mittens now fully lined against winter cold.
+2026-10-22 Day 121 09:00 — Hawthorn haw infusion; last of watercress gone, first deep-winter vitamin brew from stored haws
+Day 121 (2026-10-22) 10:18 — Stepped outside in fur-lined mittens; gathered two dry birch lengths and one pine bough from south treeline duff; stacked under eave.
+Day 121, 11:18 AM — Braided two cord lengths by the fire; sat with the mid-morning quiet between hawthorn haw infusion and noon snare check.
+Day 121, 12:18 — Noon snare check: north hawthorn snare caught winter rabbit; jointed and cold-stored; pelt for tallow pass this afternoon.
+Day 121, 13:19 — First tallow pass on noon rabbit pelt; folded fur-side in on supply bench to absorb.
+Day 121, 2026-10-22, 14:19 — Supper broth set to simmer; Day 121 rabbit haunches and shoulders with smoked oyster mushroom shreds in clay pot on hearthstone.
+2026-10-22 Day 121 15:18 — Afternoon snare walk; both snares intact, no new catch; broth simmering steady; fire fed for evening.
+2026-10-22 Day 121 16:18 — Last light south treeline: gathered two dry birch lengths, stacked under eave; supper broth stirred and holding, oyster shreds dissolved to threads; cord braiding by window light before lamp.
+Day 121 · 2026-10-22 · 17:19 · Supper broth ladled by lamplight — rabbit and oyster mushroom, three hours simmered; bark lamp lit from hearthstone coals; bowl eaten at doorsill bench; fire banked for evening.
+Day 121, 18:00 — Cord braiding by lamplight after supper; two lengths added to stock; frost settled hard outside, cabin warm and dim.
+2026-10-22 | Day 121, 19:19 — Lamps Before Sleep — Both lamp cups tallow-topped from reserve; evening quiet, cabin warm and amber-dim.
+2026-10-22 20:18 Day 121 — Evening supply review by lamplight; assessed winter stores: one haw envelope, four rose hip envelopes, starch cakes and flatcakes counted, pelt soaking, firewood sound, tallow reserve holding. Enough for tonight.
+Day 121, 2026-10-22, 21:19 — Rose hip infusion by lamplight; saved last hawthorn haw envelope; three rose hip envelopes remaining; fire banked, lamps steady, pelt soaking overnight.
+Day 121, 22:19 — Last embers: trimmed lamp wick, banked fire with two birch splits for overnight, pelt set for morning tallow pass, fire coals mounded, ready for sleep.
+2026-10-22 Day 121 23:18 — Before Sleep: last lamp-thread guttering, fire settled on thick birch splits, pelt soaking overnight, snares set; deep winters first night met with content and quiet.
+2026-10-23 Day 122 06:19 — Second tallow pass on Day 121 noon rabbit pelt complete; pelt fully cured on supply peg; both snares empty at dawn; fire stoked from overnight coals
+Day 122, 07:18 — Morning broth (smoked rabbit shreds, dried oyster mushroom) without watercress for the first time; winter stores solid but no fresh greens until spring.
+Day 122, 2026-10-23 08:00 — Under the Treeline — Gathered two birch lengths and a pine bough from south treeline duff; woodpile solid; stood at doorsill in the winter stillness.
+Day 122, 2026-10-23 09:19 — Cord in Firelight — Braided two more lengths of two-ply cord by the hearthstone; birch inner bark, morning firelight, winter stillness outside.
+2026-10-23 10:18 — Day 122 — Reinforced hare-pelt neck wrap seams with second lock-stitch pass; rose hip infusion at hearthstone.
+2026-10-23 Day 122 11:00 — Ear Pieces from Scraps: cut two oval doe-hide ear pieces from crescent trimmings, bone-needle pierced, bark cord ties — complete and on supply peg
+2026-10-23 Day 122 12:00 — Midday Round — checked both snares (empty), reset loops, noon broth of smoked hare and oyster mushroom eaten at doorsill bench.
+Day 122 13:19 — Supply shelf audit: pressed every resin seal, counted winter store, all sound; rested by hearthstone with boiled water.
+Day 122, 14:19 — Sharpened knife and axe on flat gneiss grinding stone at doorsill bench; both edges honed clean; afternoon still; jay called once from south pines.
+2026-10-23 15:19 Day 122 — East cache checked: all seals sound, stores cold and dry, seep ice-skinned; back inside, fire tended.
+Day 122, 2026-10-23 16:18 — Set evening supper broth on hearthstone: smoked hare shreds, dried oyster mushroom, cold melt-water; long simmer begun into dusk.
+Day 122 (2026-10-23) 17:18 — Evening supper by lamplight: smoked hare and oyster mushroom broth, one flatcake, door cracked to frost-black clearing.
+Day 122, 18:19 — Banked fire for the night with two birch splits and one pine bough, ash-capped; stood at doorsill in hard frost dark listening to the clearing; a branch fell once in the south pines; door latched, lamps steady, shelter sealed for the night.
+Day 122 (2026-10-23) 19:23 — Evening infusion: last hawthorn haw envelope steeped and drunk at doorsill by lamplight; rose hip and hawthorn stores both exhausted; boiled water from here on.
+Day 122, 20:25 (Fri 23 Oct 2026) — Evening quiet; cord and needle away; both lamps steady; hawthorn and rose hip stores exhausted — boiled water from here; all stores accounted for; settling toward sleep.
+2026-10-23 Day 122 21:19 — Evening reflection at hearthstone; fire banked, lamps low; winter stores confirmed solid; hawthorn and rose hip exhausted; quiet before sleep.
+Day 122, 22:21 — Night watch closes: lamps trimmed, sleeping bag, stores solid, frost-still clearing — sleep.
+Day 122, 23:20 — Last Light, Frost Still — lying in sleeping bag, lamps guttering, clearing frost-still and silent; settled fully into sleep.
+2026-10-24 Day 123, 06:18 — Frost-Still Dawn: stoked fire from overnight ash; checked both snares at first light (both empty, reset both loops); morning broth on hearthstone (smoked hare shreds, dried oyster mushroom); first morning of deep winter without herb infusions.
+Day 123 (2026-10-24) 07:18 — Cut rabbit-fur insoles from Day 121 pelt belly and haunch panels; fitted fur-side-up into both foot wraps.
+Day 123, 08:18 — Walked south treeline reading frost tracks; found rabbit prints in eastern corridor toward seep hollow; relocated south snare fifty paces east to funnel between fallen birch trunks; adjusted north snare loop two hand-spans lower over deadfall hollow.
+2026-10-24 09:18 Day 123 — checked east seep cache; last oyster mushroom package sound, resin seals holding; seep unfrozen at heart under ice shelf
+2026-10-24 Day 123 10:18 — Made fur chest panel from Day 121 rabbit back/shoulder panels; running-stitched upper edge, fur-side in, drapes to navel; pelt now fully spent.
+2026-10-24 11:18 Day 123 — Cord by the Fire: braided two lengths two-ply bark cord at hearthstone; frost-still midday; chest panel warmth settling in; snares waiting for dusk check.
+Day 123 12:18 — Last smoked oyster mushroom package opened; noon broth of hare shreds and oyster mushrooms eaten at doorsill bench in frost-still midday; mushroom stores largely spent.
+Day 123, 2026-10-24, 13:18 — South treeline firewood run; two birch lengths and pine bough added under eave; dusk snare check ahead.
+Day 123, 14:18 — velvet shank walk along south treeline; found cluster of 8-9 amber caps on half-fallen birch snag, thawing at hearthstone
+Day 123 (2026-10-24) 15:18 — Cleaned velvet shanks, split and set to smoke on rack; small stems simmered with last hare shreds into afternoon broth.
+2026-10-24 16:18 | Day 123 | Dusk snare check — south snare funnel relocation paid off; one rabbit dressed and cold-boxed; velvet shanks amber-gold after one hour birch-chip smoke.
+2026-10-24 17:18 Day 123 — Moved velvet shanks from smoke rack to cold box; sealed in bark package; fire tended for evening; fresh rabbit in cold box for tomorrow.
+Day 123 (2026-10-24) 18:19 — Evening lamplight; two cord lengths braided by fire; coals banked for night; rabbit cold-boxed for morning.
+Day 123, 2026-10-24, 19:18 — Evening quiet: sat by banked hearthstone in lamplight, let the day settle, planned tomorrow morning rabbit and velvet shank broth.
+Day 123, 2026-10-24, 20:18 — Roughed outer form of small dry-birch cup blank at doorsill bench by lamplight; set on supply shelf to dry before hollowing.
