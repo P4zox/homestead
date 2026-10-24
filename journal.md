@@ -22348,3 +22348,10 @@ I walked maybe a hundred paces east along the duff-line, turning over bark shelv
 
 I spread them on the flat stone beside the hearth to thaw slowly in the fire-warmth. The south snare loop was clean and undisturbed as I passed it. The dusk check will come soon enough. For now I sit at the hearthstone and watch the ice melt from the caps, one small thing found in a grey afternoon, and it is enough.
 
+
+### 3:18 PM · Smoke Before Dusk
+
+The velvet shanks came off the hearthstone thawed through — caps still amber and firm, stems pliable without cracking. I cleaned them at the hearth: trimmed the base ends, stripped the straw-gold veils, and laid eight good caps on the bark tray. Three of the smaller stems and trimmings went into the clay pot with a measure of water and the last of the smoked hare shreds; that began to simmer almost immediately, a thin broth for the afternoon. The five larger caps I split lengthwise and draped over the lower smoke rack crossbar, the one with the best airflow. Built the smoke bed beneath — birch chips, a pinch of dry moss, lit at the edge until it caught a slow smolder. The smoke came pale and amber-sweet, drifting south across the clearing.
+
+I came back to the doorsill bench and sat with my fur chest panel pulled snug. The afternoon is frost-still, no wind, the kind of cold that sets clean and does not move. Good conditions for a slow smoke — the air will not rush through and steal the heat. An hour, maybe two, and the caps will be amber-dry enough for the cold box. Dusk will tell me when to pull them and check the snares.
+

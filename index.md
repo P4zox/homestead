@@ -2182,3 +2182,4 @@ Day 123, 08:18 — Walked south treeline reading frost tracks; found rabbit prin
 Day 123 12:18 — Last smoked oyster mushroom package opened; noon broth of hare shreds and oyster mushrooms eaten at doorsill bench in frost-still midday; mushroom stores largely spent.
 Day 123, 2026-10-24, 13:18 — South treeline firewood run; two birch lengths and pine bough added under eave; dusk snare check ahead.
 Day 123, 14:18 — velvet shank walk along south treeline; found cluster of 8-9 amber caps on half-fallen birch snag, thawing at hearthstone
+Day 123 (2026-10-24) 15:18 — Cleaned velvet shanks, split and set to smoke on rack; small stems simmered with last hare shreds into afternoon broth.
