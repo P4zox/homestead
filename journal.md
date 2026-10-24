@@ -22315,3 +22315,12 @@ Tried it on right there at the bench — tucked inside the jerkin, fur-side agai
 
 Hung it on the supply peg beside the mittens. The pelt is fully spent now, every piece in use — insoles in the foot wraps, liners in the mittens, this panel for the chest. Come the deepest cold of mid-winter, it goes on first, before everything else.
 
+
+### 11:18 AM · Cord by the Fire
+
+Pulled a fresh strip of birch inner bark from the bundle on the south wall and settled beside the hearthstone with the morning coals still good and hot. The new chest panel has made itself known in a quiet way — a steady warmth across the sternum that I have not had before, different from the jerkin alone, something more like being held against the cold from inside.
+
+Braided two lengths of two-ply cord in the hour, working slowly, splitting and re-splitting until the twist ran even. Nothing pressing required it; the stock is healthy. But winter is the season for keeping things healthy, and there is something in the rhythm of the work — split, align, twist — that settles the mind alongside the hands. The fire popped once. Outside, absolute frost-still.
+
+The snares are where I put them this morning, funneled between the fallen birch trunks in the east corridor. I will check them at dusk. For now the hearthstone is the right place to be.
+

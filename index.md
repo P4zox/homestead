@@ -2178,3 +2178,4 @@ Day 123 (2026-10-24) 07:18 — Cut rabbit-fur insoles from Day 121 pelt belly an
 Day 123, 08:18 — Walked south treeline reading frost tracks; found rabbit prints in eastern corridor toward seep hollow; relocated south snare fifty paces east to funnel between fallen birch trunks; adjusted north snare loop two hand-spans lower over deadfall hollow.
 2026-10-24 09:18 Day 123 — checked east seep cache; last oyster mushroom package sound, resin seals holding; seep unfrozen at heart under ice shelf
 2026-10-24 Day 123 10:18 — Made fur chest panel from Day 121 rabbit back/shoulder panels; running-stitched upper edge, fur-side in, drapes to navel; pelt now fully spent.
+2026-10-24 11:18 Day 123 — Cord by the Fire: braided two lengths two-ply bark cord at hearthstone; frost-still midday; chest panel warmth settling in; snares waiting for dusk check.

@@ -4,3 +4,4 @@
 08:18 — Walked south treeline reading frost tracks; found rabbit prints in eastern corridor moving toward seep hollow; relocated south snare fifty paces east to funnel between two fallen birch trunks; adjusted north snare loop two hand-spans lower over hollow in deadfall where prints concentrated.
 09:18 — Walked east to seep cache; checked last bark package of smoked oyster mushrooms — resin seals unbroken, cold box sound; seep still unfrozen at heart under ice shelf; returned to cabin.
 10:18 — Sat at doorsill bench; cut Day 121 back and shoulder panels into wide fur chest piece (collarbone to navel, throat notch, running-stitched upper edge with bone needle and bark cord); tried on inside jerkin — immediate warmth at sternum; pelt now fully spent; fur chest panel on supply peg.
+11:18 — Sat at hearthstone; braided two more lengths of two-ply bark cord by fire in frost-still midday; chest panel warmth steady at sternum; stock healthy; snares waiting for dusk check.
