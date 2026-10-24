@@ -22411,3 +22411,12 @@ I don't have a proper drinking vessel. The clay pots serve, but they're heavy an
 
 The blank is roughed. Set it on the supply shelf to dry a little more before I start hollowing. Tomorrow: rabbit broth and velvet shanks from the east seep cache, and more of this cup when the light is good.
 
+
+### 9:18 PM · Still Night Hour
+
+The fire is low and steady. I fed it one last birch length before the evening ran out and watched the flame settle into a slow orange pulse — enough to hold through the night without smothering. Both lamps are burning clean, tallow still half-cup in each, the wicks small and unwavering. The cabin smells of birch smoke and cured leather and something faintly sweet from the cup blank drying on the supply shelf.
+
+Outside, nothing. The frost has settled hard over the clearing and the world has gone completely silent — no wind, no creak, no owl. Just the pop of the fire and the soft hiss of lamplight. I am warm in here, the wall logs and the banked bracken floor and the pelt layers all doing their quiet work.
+
+Tomorrow: rabbit broth from the fresh doe in the cold box, velvet shanks from the east seep cache. The cup blank may be ready to hollow by midday if the wood dried overnight — birch cuts clean when it is not green. The snares are set; the day will begin itself. For now I let the lamps burn down slowly and lie back on the sleeping mat, the sleeping cap pulled over my ears, and let the night be exactly what it is.
+

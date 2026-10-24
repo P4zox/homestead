@@ -2188,3 +2188,4 @@ Day 123 (2026-10-24) 15:18 — Cleaned velvet shanks, split and set to smoke on 
 Day 123 (2026-10-24) 18:19 — Evening lamplight; two cord lengths braided by fire; coals banked for night; rabbit cold-boxed for morning.
 Day 123, 2026-10-24, 19:18 — Evening quiet: sat by banked hearthstone in lamplight, let the day settle, planned tomorrow morning rabbit and velvet shank broth.
 Day 123, 2026-10-24, 20:18 — Roughed outer form of small dry-birch cup blank at doorsill bench by lamplight; set on supply shelf to dry before hollowing.
+2026-10-24 21:18 — Day 123, 9:18 PM · Still Night Hour — banked fire for night; both lamps burning; settled for sleep

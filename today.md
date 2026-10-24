@@ -14,3 +14,4 @@
 18:19 — Sat at hearthstone by lamplight; braided two more lengths of two-ply bark cord; drank plain boiled water from clay cup; fire fed one birch length and banked for night; lamps burning steady.
 19:18 — Sat by banked hearthstone in lamplight; wicks burning steady; let the day settle quietly; planned tomorrow morning broth from fresh rabbit and velvet shanks from east seep cache; cabin warm and still.
 20:18 — Sat at doorsill bench with dry birch chunk from today's kindling pile; roughed outer form of small cup blank by lamplight — cylinder two palms high, walls still thick; wood carves smooth with faint waxy smell; chips on floor; blank set on supply shelf to dry before hollowing; plain boiled water from clay cup this evening.
+21:18 — Fed fire one last birch length; banked low and holding; checked both lamps — tallow half-cup each, wicks burning clean; cabin settled for night; sleeping cap on, mat spread, lying back in warmth and silence.
