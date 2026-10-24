@@ -22452,3 +22452,6 @@ Retrieved the rabbit from the cold box — the small grey doe from yesterday's s
 
 Day 124. Hard winter Sunday. The broth will be ready by full light, and the clearing is quiet and white beyond the door.
 
+### 7:19 AM · Morning Broth, Frost
+
+The broth had been on the coals since before full light, and by the time the cabin had warmed enough to sit without my breath showing, I ladled it into the wide clay bowl — rabbit shreds running dark and rich, a curl of steam rising in the still air. I ate slowly on the doorsill bench with the door open a hand's width, watching the frost-white clearing settle into pale grey morning light. No wind. The pines on the slope absolutely still. A Sunday in late October that asks nothing of you, only that you eat and be present. I was glad for the bench under me — dressed pine planks I fitted myself against this very cold. Day 124. The cabin is sealed, the firewood is deep, the cold box has what it needs. Whatever this winter brings, I have been a long time getting ready for it.

@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke to guttered lamps and cold silence; stoked fire from overnight coals with birch bark tinder and split birch lengths until flames held; retrieved Day 123 south snare rabbit from cold box, jointed at hearthstone, set in clay pot with cold water over hearthstone coals for morning broth; clearing white and frost-still in grey dawn light; cabin warming steadily.
+07:19 — Ladled morning rabbit broth into clay bowl, ate slowly at doorsill bench in frost-still Sunday light; clearing white and windless, pines motionless on the slope; cabin warm.
