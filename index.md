@@ -2176,3 +2176,4 @@ Day 122, 23:20 — Last Light, Frost Still — lying in sleeping bag, lamps gutt
 2026-10-24 Day 123, 06:18 — Frost-Still Dawn: stoked fire from overnight ash; checked both snares at first light (both empty, reset both loops); morning broth on hearthstone (smoked hare shreds, dried oyster mushroom); first morning of deep winter without herb infusions.
 Day 123 (2026-10-24) 07:18 — Cut rabbit-fur insoles from Day 121 pelt belly and haunch panels; fitted fur-side-up into both foot wraps.
 Day 123, 08:18 — Walked south treeline reading frost tracks; found rabbit prints in eastern corridor toward seep hollow; relocated south snare fifty paces east to funnel between fallen birch trunks; adjusted north snare loop two hand-spans lower over deadfall hollow.
+2026-10-24 09:18 Day 123 — checked east seep cache; last oyster mushroom package sound, resin seals holding; seep unfrozen at heart under ice shelf

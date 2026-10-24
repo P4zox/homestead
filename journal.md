@@ -22300,3 +22300,7 @@ I reset the north snare first — loop dropped two hand-spans lower, over a shal
 
 An hour in the cold. The cabin smoke was visible through the birch, thin and dead-straight in the still air. I came back with cold hands and a clearer sense of where the winter rabbits walk.
 
+
+### 9:18 AM · Cache Check, Frost-Still
+
+Walked the eighty paces east to the seep cache in the hard morning frost. The path was quieter than the south treeline earlier — no tracks here, just pale grass stems standing rigid above the white ground, their seed heads turned to frost lace. The lid stone was exactly as left, flat and weighted. I lifted the bark lid: the last bark package of smoked oyster mushrooms on the flat stone base, bark-sealed and firm, resin seals unbroken. The cold inside the box was profound — deeper even than the clearing, the seep drawing the temperature down into something still and stone-cold. I turned the package, checked every seal, set it back. The seep below was still alive at its heart: a faint darkening in the ice shelf, water moving somewhere underneath, quiet and persistent. I stood there a moment watching frost on the alder bark, the way each twig was edged white. Everything held. The hare shreds and mushroom from this morning sit in my stomach; the box still has this last package for when they run thin. I walked back slow, checking my own boot prints in the frost, thinking about the snares in their new positions, about how the east corridor might hold a rabbit even now, its breath a small cloud somewhere in the birch shadows.
