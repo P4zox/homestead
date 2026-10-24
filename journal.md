@@ -22376,3 +22376,16 @@ Four kinds of food in the cold box now: the fresh rabbit, the last small measure
 
 The clearing has gone dark blue already — short days, hard frost. I latched the door and sat a moment at the hearthstone with the lamps both burning. Still warm in here, still dry, still enough.
 
+
+### 6:19 PM · Cord by Firelight
+
+The fire has settled into its overnight rhythm — birch burning slow and steady, door latched against the hard frost outside. Both lamps are throwing their orange pools across the cabin: the supply shelf in its tidy state, the peg rack with its winter kit hanging in order, two spoons side by side at the post.
+
+I pulled a length of birch inner bark from the supply stack and sat down at the hearthstone to braid by lamplight. The motion is almost automatic now — twist, cross, pull tight — hands finding the rhythm without needing eyes. The cord grows in the hand like a slow thought.
+
+A cup of plain boiled water cooled on the hearthstone beside me. No hawthorn, no rose hips — that season is over, the herb envelopes empty and done. Just warmth in a clay cup, and the sound of the fire. There is something clean about that. Winter has its own plainness and I find I do not resist it.
+
+The cabin feels full tonight. Cold box holding a fresh rabbit for morning, velvet shanks sealed in the seep cache, smoked hare almost spent but still there, woodpile shoulder-high along the lean-to face. Both lamps burning without a flicker. Two more lengths of cord braided and set in the stock. I fed the fire one last birch length and banked the coals deep for the night.
+
+Outside the frost is absolute. In here the walls hold and the lamp holds and I hold too.
+
