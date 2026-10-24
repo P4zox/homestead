@@ -22324,3 +22324,11 @@ Braided two lengths of two-ply cord in the hour, working slowly, splitting and r
 
 The snares are where I put them this morning, funneled between the fallen birch trunks in the east corridor. I will check them at dusk. For now the hearthstone is the right place to be.
 
+
+### 12:18 PM · Noon Broth, Frost Still
+
+The midday fire burned to coals while I sat with the cord work. I set the bone needle aside and cracked the last bark package of smoked oyster mushrooms — pale amber fans, still faintly fragrant with birch smoke, the resin seal giving cleanly at the pine pin. They went into the clay pot with a measure of smoked hare shreds and enough meltwater to cover, and the pot went over the coals.
+
+Ate the broth at the doorsill bench with the door propped on its latch. The clearing lay white and absolutely still in hard winter — frost unbroken, the sun at its peak throwing short shadows from the treeline firs. The oyster mushrooms swelled soft in the broth and gave back their smoke. The hare shreds came apart in threads. It was a good midday meal.
+
+The mushroom cold-store is largely spent now — no more oyster packages after this one. The hen-of-the-woods, honey mushrooms, and wood ears are still in the cache, rationed to last. The smoked hare in the cold box holds a small amount yet. If the snares come up empty at dusk I will need to think about ranging wider tomorrow. For now, full and warm in hard winter.
