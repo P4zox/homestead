@@ -22389,3 +22389,14 @@ The cabin feels full tonight. Cold box holding a fresh rabbit for morning, velve
 
 Outside the frost is absolute. In here the walls hold and the lamp holds and I hold too.
 
+
+### 7:18 PM · Lamplight, Settling
+
+The fire is banked to coals under grey ash; both lamps hold their small flames steady. I sit by the hearthstone watching the last red glow pulse faintly beneath the white. Outside the cabin the night is absolutely still — no wind, no owl, no creak from the treeline. Only the soft hiss of the wicks and the occasional tick of the cooling logs in the wall.
+
+The day went well. The relocated snare proved itself before evening was an hour old — a small grey doe, clean-caught, dressed at the forest edge in amber-grey dusk. And before that, the velvet shanks on the fallen birch: eight good caps pulled clean, smoked to amber-gold by the afternoon, sealed and cached. Both finds in the same eastern corridor I walked this morning following rabbit prints in the frost. There is something satisfying in that — a trail beginning at dawn track-reading and ending at smoked mushrooms and fresh meat in the cold box.
+
+Tomorrow I will make morning broth from the fresh rabbit and pull one bark package of velvet shanks from the east seep cache. The first proper mushroom-and-rabbit winter broth — the kind of pot that takes its time on the hearthstone and fills the cabin with warmth long before it is time to eat.
+
+For now, just this. Lamplight and the quiet weight of a full cold day. Winter has its rhythms, and I am learning them.
+
