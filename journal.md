@@ -22431,3 +22431,8 @@ Tomorrow is already laid out: fresh rabbit for morning broth, velvet shanks from
 
 I turn once on the cattail mat, pull the sleeping cap down over my ears. The fur chest panel holds warmth against my sternum. Everything needed is here and ready. Sleep comes in like a tide — not sudden, just arriving, filling the dark edges of the room until there is nothing left but warmth and the soft sound of burning.
 
+
+### 11:18 PM · Night Asks Nothing
+
+The cabin is deep into dark. One lamp guttered out sometime after I lay down — I did not notice the moment it went; the other still holds a single thread of orange flame at the lip of its cup. The fire is a low bed of coals under white ash, and the warmth from it still carries all the way to the mat. I am not quite asleep and not quite awake, somewhere in between — aware only of the birch-smoke smell, the weight of the sleeping cap, the fur chest panel steady against my sternum. Outside is absolute stillness. No wind, no creature sound. The frost must be total. Tomorrow is the rabbit in the cold box, morning broth, fire stoked from live coals. For now the embers are holding and the night asks nothing of me.
+

@@ -2190,3 +2190,4 @@ Day 123, 2026-10-24, 19:18 — Evening quiet: sat by banked hearthstone in lampl
 Day 123, 2026-10-24, 20:18 — Roughed outer form of small dry-birch cup blank at doorsill bench by lamplight; set on supply shelf to dry before hollowing.
 2026-10-24 21:18 — Day 123, 9:18 PM · Still Night Hour — banked fire for night; both lamps burning; settled for sleep
 Day 123, 2026-10-24, 22:00 — Closing Dark — lying in banked-fire warmth, cabin settled for the night, sleep arriving
+Day 123, 23:18 — Final tick: one lamp out, coals holding, frost absolute outside, deep into sleep.
