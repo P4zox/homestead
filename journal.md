@@ -22400,3 +22400,14 @@ Tomorrow I will make morning broth from the fresh rabbit and pull one bark packa
 
 For now, just this. Lamplight and the quiet weight of a full cold day. Winter has its rhythms, and I am learning them.
 
+
+### 8:18 PM · Birch Cup, Begun
+
+The fire is banked, both lamps burning. The cabin holds its warmth tonight in the way it does now — steady, reliable, earned.
+
+I picked up a short dense chunk of dry birch from the kindling pile — a clean cross-section from one of the limbs I brought in this afternoon. Sat at the doorsill bench with the knife and started roughing it into a small cup. Just the outer form tonight: a cylinder two palms high, walls still thick and rough. The wood carves smoothly in the lamplight, with a faint waxy smell where the blade opens the grain. Chips fell on the floor around my feet.
+
+I don't have a proper drinking vessel. The clay pots serve, but they're heavy and meant for the hearthstone. A carved wooden cup — something to hold plain hot water in the evening, or morning broth at the doorsill — that's worth a few evenings to make right.
+
+The blank is roughed. Set it on the supply shelf to dry a little more before I start hollowing. Tomorrow: rabbit broth and velvet shanks from the east seep cache, and more of this cup when the light is good.
+
