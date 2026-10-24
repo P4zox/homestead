@@ -2180,3 +2180,4 @@ Day 123, 08:18 — Walked south treeline reading frost tracks; found rabbit prin
 2026-10-24 Day 123 10:18 — Made fur chest panel from Day 121 rabbit back/shoulder panels; running-stitched upper edge, fur-side in, drapes to navel; pelt now fully spent.
 2026-10-24 11:18 Day 123 — Cord by the Fire: braided two lengths two-ply bark cord at hearthstone; frost-still midday; chest panel warmth settling in; snares waiting for dusk check.
 Day 123 12:18 — Last smoked oyster mushroom package opened; noon broth of hare shreds and oyster mushrooms eaten at doorsill bench in frost-still midday; mushroom stores largely spent.
+Day 123, 2026-10-24, 13:18 — South treeline firewood run; two birch lengths and pine bough added under eave; dusk snare check ahead.

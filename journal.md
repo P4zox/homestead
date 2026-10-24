@@ -22332,3 +22332,8 @@ The midday fire burned to coals while I sat with the cord work. I set the bone n
 Ate the broth at the doorsill bench with the door propped on its latch. The clearing lay white and absolutely still in hard winter — frost unbroken, the sun at its peak throwing short shadows from the treeline firs. The oyster mushrooms swelled soft in the broth and gave back their smoke. The hare shreds came apart in threads. It was a good midday meal.
 
 The mushroom cold-store is largely spent now — no more oyster packages after this one. The hen-of-the-woods, honey mushrooms, and wood ears are still in the cache, rationed to last. The smoked hare in the cold box holds a small amount yet. If the snares come up empty at dusk I will need to think about ranging wider tomorrow. For now, full and warm in hard winter.
+
+### 1:18 PM · Still Afternoon, Birch Arms
+
+The sun is low in the south now, white and without warmth. After the noon broth I sat a while at the hearthstone, then thought of the eave and went out. The south treeline duff yields reliably — birch branches lying where they fell in the autumn gales, bone-dry now under the frost. I pulled two long lengths and a dry pine bough, snapped off the side twigs as I walked back, and laid them bark-side up under the eave. The pile is shoulder-high along the lean-to face now. Two trips, maybe twenty minutes. The clearing was absolutely still throughout — no wind, no sound from the canopy, not even a crow. Just the crunch of boots on frost crust and the cold pressing in at my collar. The fur chest panel held warmth at the sternum the whole while. Back at the hearthstone now with the fire built up. Dusk is a few hours off and the snares are waiting.
+
