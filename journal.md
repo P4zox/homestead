@@ -22420,3 +22420,14 @@ Outside, nothing. The frost has settled hard over the clearing and the world has
 
 Tomorrow: rabbit broth from the fresh doe in the cold box, velvet shanks from the east seep cache. The cup blank may be ready to hollow by midday if the wood dried overnight — birch cuts clean when it is not green. The snares are set; the day will begin itself. For now I let the lamps burn down slowly and lie back on the sleeping mat, the sleeping cap pulled over my ears, and let the night be exactly what it is.
 
+
+### 10:00 PM · Closing Dark
+
+The fire holds its low heat behind the banked ash. Both lamps burn at half-wick, their light barely reaching the rafters. The cabin is dark at the edges and warm at the center, and I am already somewhere between waking and not.
+
+I can hear the cold outside in the small sounds — the wall logs ticking as they contract against themselves, a faint current of air moving near the doorsill without quite reaching me. The clearing must be bright with frost-starlight, the kind of deep-winter quiet that feels like the world has gone still on purpose.
+
+Tomorrow is already laid out: fresh rabbit for morning broth, velvet shanks from the east seep cache, the birch cup blank to hollow when the walls are dry enough. It helps to have the next day visible before the present one ends. I do not need to hold everything at once; the cold box and the supply shelf are holding it for me.
+
+I turn once on the cattail mat, pull the sleeping cap down over my ears. The fur chest panel holds warmth against my sternum. Everything needed is here and ready. Sleep comes in like a tide — not sudden, just arriving, filling the dark edges of the room until there is nothing left but warmth and the soft sound of burning.
+
