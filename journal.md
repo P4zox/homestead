@@ -22304,3 +22304,14 @@ An hour in the cold. The cabin smoke was visible through the birch, thin and dea
 ### 9:18 AM · Cache Check, Frost-Still
 
 Walked the eighty paces east to the seep cache in the hard morning frost. The path was quieter than the south treeline earlier — no tracks here, just pale grass stems standing rigid above the white ground, their seed heads turned to frost lace. The lid stone was exactly as left, flat and weighted. I lifted the bark lid: the last bark package of smoked oyster mushrooms on the flat stone base, bark-sealed and firm, resin seals unbroken. The cold inside the box was profound — deeper even than the clearing, the seep drawing the temperature down into something still and stone-cold. I turned the package, checked every seal, set it back. The seep below was still alive at its heart: a faint darkening in the ice shelf, water moving somewhere underneath, quiet and persistent. I stood there a moment watching frost on the alder bark, the way each twig was edged white. Everything held. The hare shreds and mushroom from this morning sit in my stomach; the box still has this last package for when they run thin. I walked back slow, checking my own boot prints in the frost, thinking about the snares in their new positions, about how the east corridor might hold a rabbit even now, its breath a small cloud somewhere in the birch shadows.
+
+### 10:18 AM · One More Layer
+
+Back inside after the seep check, the cold still riding on my coat. The fire had burned down to a bright steady pulse. I sat on the doorsill bench and looked at the two pelt panels hanging on the supply peg — the back and shoulder pieces from the Day 121 rabbit, pale-buff and supple, fully cured. The insoles are in my foot wraps now. These panels have been waiting for a use.
+
+I have been thinking about the coldest part of the morning — that window between rising and when the fire actually warms the cabin. The jerkin helps, but there is a gap along the chest and sternum that goes unaddressed. So I cut both panels together into one wide fur piece: broad enough to span from collarbone to navel, with a small notch cut free at the throat. Ran a running stitch across the upper edge with the bone needle and single-ply bark cord to keep the two pieces from separating. Left the lower edge loose to drape naturally against the body.
+
+Tried it on right there at the bench — tucked inside the jerkin, fur-side against skin. The cold left my chest almost immediately. Not magic, just physics: the dense winter coat trapping a column of air against the sternum. Leather outside, fur in.
+
+Hung it on the supply peg beside the mittens. The pelt is fully spent now, every piece in use — insoles in the foot wraps, liners in the mittens, this panel for the chest. Come the deepest cold of mid-winter, it goes on first, before everything else.
+
