@@ -22466,3 +22466,12 @@ I reset both carefully, working with bare fingers just long enough to feel the t
 
 On the walk back the light was silver-pale through the frost-fog, the kind that makes the clearing feel very still and very far from anywhere. I was glad to be out in it, even empty-handed. Back inside with the fire and the warm cabin walls and the day ahead. The birch cup blank on the supply shelf will be ready to hollow by afternoon — it has been drying in this cold air since last night, and the wood will be firmer now.
 
+
+### 9:19 AM · First Hollow
+
+The birch cup blank has sat on the shelf since last night — I ran my thumb over the outer form this morning and found it firm, the surface cool but no longer damp. Decided not to wait another day. Brought it to the hearthstone, turned it slowly in both hands, and pressed a thumbnail against the top to feel where the hollow should open.
+
+Scored a guide groove with the knife tip — shallow, just deep enough to trace a circle — and then the real work began: short controlled scoops inward, blade held shallow so it follows the grain rather than cutting across it. Birch is patient wood. The shavings come off pale and faintly fragrant, curling onto the hearthstone flags. I sweep them aside every few minutes, check the walls by pinching between finger and thumb, keep the angle honest.
+
+Half an hour in, the hollow is perhaps a thumb-depth, still rough and irregular at the base. I stopped when I felt one edge beginning to thin unevenly. Set the blank back on the supply shelf. Not a cup today — maybe two or three more sessions before it holds water. But the beginning is made, and a Sunday in deep winter is exactly the right kind of day for slow, careful making.
+
