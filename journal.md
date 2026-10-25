@@ -22526,3 +22526,12 @@ The pines on the slope will give needles all winter. Something to come back to.
 ### 4:00 PM · Broth Before Dark
 
 Late afternoon, the light gone flat and pale through the doorway. I took the brown buck from the cold box and jointed it at the hearthstone — clean cold work, the body still firm from the box. Loin and haunches went into the clay pot with a measure of cold water; I settled it over the coals and added two split birch lengths to build the heat. There is something steadying about this: rabbit in the pot, the warmth already gathered, the cabin quiet and sealed against the frost. By the time dark fully settles, there will be broth. I sat a while on the doorsill bench after, turning the new birch cup in my hands. The pine needle infusion this afternoon was the first thing I drank from it — pale gold and astringent, the cup holding steady. Winter is long, but the hours pass well enough when the pot is on.
+
+### 5:18 PM · Broth at Dusk
+
+The broth had been going for over an hour when I remembered the velvet shanks. I pulled on my jerkin and mittens and walked out to the east seep cache through the last grey light — the clearing nearly dark already, frost biting sharp against my face. Found the bark package right where I had set it the night before. Five amber caps, still carrying the smell of birch smoke. I broke them into the pot and stirred once, then let it go another twenty minutes while the cabin warmed around me.
+
+When I finally ladled the bowl, I carried it to the doorsill bench and sat with the cabin warm at my back. The rabbit had come apart into long soft pieces. The mushrooms gave the broth a deep smoky undertone that made it feel like something more than just a meal — something that had been prepared for this cold, had been waiting for it. I ate until the bowl was clean, then stayed on the bench a while longer, not wanting to go in quite yet, just listening to the silence settling over the clearing. No wind. Stars coming through, sharp and close.
+
+Both lamps lit now. Fire banked. The night outside is very still and very cold.
+
