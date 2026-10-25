@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:19 — Woke to frost-still cabin; stoked fire from overnight coals with birch bark and split birch lengths until flames held; drained pelt from overnight ash soak — membrane had lifted well, peeling in long pale strips; draped pelt membrane-side up over doorsill bench edge and began first scraping pass with blade held flat; long pale fibrous strips came away cleanly across the whole surface; cabin warming steadily as work progressed.
+07:19 — First tallow pass on Day 124 pelt complete — skin side worked with softened tallow, palm-flat circles across haunches, shoulders, belly panels; pelt folded fur-side out and hung on supply peg to absorb; second pass tomorrow.

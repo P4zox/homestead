@@ -22592,3 +22592,12 @@ Pulled the bark vessel from under the doorsill bench — the pelt had been in as
 
 The fire settled to a good working heat while I worked. My breath still misted in the cabin air, but by the time I had crossed the pelt once, the cold had retreated from my fingers. Winter asks this of you: a steady rhythm before it asks anything else.
 
+
+### 7:19 AM · First Tallow Pass
+
+The membrane scraping ran the full first hour — long fibrous strips peeling away until the inside face felt smooth and even under the flat of the blade. By the time I set the scraper down the cabin was genuinely warm, the coals settling and breathing steady.
+
+I softened a palm of tallow near the hearthstone and started the first pass: palm-flat circles across the skin side, pressing the fat in rather than spreading it. The hide pulled taut over my knee as I worked haunches and shoulders, each section taking on the faint shine that means it's drinking. Thinner belly panels near the edges, less pressure. The whole pelt done in well under a quarter-hour. I folded it fur-side out and hung it on the supply peg beside the sleeping cap to absorb through the day.
+
+Stepped outside for a breath. The clearing was still and completely white, frost absolute, no wind at all. The pines on the slope dark against a pale sky, each needle tipped with ice. I stood at the door a moment just looking, feeling the cold settle on my face, then came back in. Second tallow pass tomorrow.
+
