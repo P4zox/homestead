@@ -22535,3 +22535,14 @@ When I finally ladled the bowl, I carried it to the doorsill bench and sat with 
 
 Both lamps lit now. Fire banked. The night outside is very still and very cold.
 
+
+### 6:18 PM · Cord and Lamplight
+
+The lamps burn steady on their hooks, two small oranges against the dark. The fire is banked low — a red glow through the bark seam of the door frame — and the cabin holds its warmth the way a good shelter should: quietly, without announcement. I set the empty bowl aside after broth and did what I always do when my hands want something and my mind wants quiet: pulled the cord-stash from the supply shelf and braided.
+
+Two new lengths, tight and even. The bark strips are supple from the day's heat and twist into the braid without splitting. I counted the lengths racked on the peg and lost count somewhere past twenty — there is more cord than I could use in a month of ordinary work, yet I braid anyway. It is the kind of task that leaves you with more than you started and costs nothing but the sitting.
+
+The raw pelt from the afternoon buck is draped over the supply shelf edge, still stiff and pale. I let it be. Tomorrow I'll work the tallow into it; tonight is not for that. Tonight is for the lamps and the warm and the small measured work of the hands.
+
+Outside, frost is absolute. The south funnel snare sits in the dark cold with its trigger set. Whatever the night decides, I'll know by dawn. For now I hang the two new lengths on the supply peg and sit for a moment with my palms warm from the braiding. The birch cup is on the doorsill bench, tallow still damp on its rim from this morning's conditioning. Small things done well are still well done.
+

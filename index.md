@@ -2202,3 +2202,4 @@ Day 124, 11:18 AM — Walked south treeline duff; two dry birch lengths and one 
 Day 124, 15:00 — gathered pine needle clusters from slope pines; first use of new birch cup for pine needle infusion — pale gold, astringent, warm
 Day 124 [2026-10-25 16:00] Sunday — Jointed afternoon rabbit at hearthstone; set loin and haunches in clay pot over coals for evening broth before dark.
 Day 124 · 2026-10-25 · 5:18 PM — Supper: evening rabbit broth with smoked velvet shanks from east seep cache; ate at doorsill in frost-still dusk; both lamps lit, fire banked, cabin settled.
+2026-10-25 18:18 — Day 124 — Braided two cord lengths by lamplight; raw pelt resting; cabin warm and settled.
