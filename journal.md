@@ -22493,3 +22493,12 @@ The south treeline duff yields well if you know where to look. Under the low bir
 
 I laid the new branches in the kindling row under the eave, bark-side up beside yesterday's additions. The pile is solid now — well past eave-high. Whatever the week sends, there is warmth enough here.
 
+
+### 12:18 PM · Cup Found Its Shape
+
+The hollow is wide enough now. I brought the blank to the hearthstone after the midday fire settled into steady coals, and something in the wood told me it was ready for finishing. Two sessions had brought the bowl shape into being — walls still rough from the knife strokes, but the form was there. This time I held the blade nearly flat, scraping more than cutting, following the curve of the interior by feel. Birch is pale and close-grained; it gives back the light when you work it right.
+
+An hour of this and the inside stopped catching my thumbnail. The rim sat level. The base settled flat on the hearthstone without rocking. I ran a little tallow along the rim and inner wall to start conditioning, then set the cup on the doorsill bench in the weak noon light — the first time it sat there as a finished thing and not a blank.
+
+It will hold liquid. I am unreasonably pleased with it.
+
