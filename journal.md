@@ -22561,3 +22561,10 @@ The cabin is quiet. Both lamps burn steady at the shelf corners, and outside the
 I pulled the sleeping cap and the ear pieces from their peg and worked them together. The ear pieces have been sitting complete since Day 122 — oval doe-hide patches, bark cord ties, fur-side soft — waiting to be paired with the cap. I pierced two small holes with the bone needle at both temple edges of the cap's folded panel, threaded bark cord through and knotted it on the inside, then looped the ear pieces' ties around the anchor cords. Tried the whole assembly on by lamplight: cap snug, ear pieces pressed warm and flat over both ears. Cold clear mornings will be different now.
 
 Set the cap and ear pieces back on the supply peg as a single set. The pelt soaks under the bench in its ash water. Tomorrow: tallow work, snare check. Tonight there is nothing left to do.
+
+### 9:19 PM · Into the Dark
+
+The fire had drawn down to deep red coals banked solid against the night. I added two thick pine logs along the edge — not to build flame, just to feed the embers through the small hours. Both lamps burned low and steady in the amber stillness, their tallow holding. The pelt soaked quietly in its ash vessel under the bench. I tried the sleeping cap one last time in the warm light: the ear pieces settled snug, the fur dense over both ears, everything sitting right. I set it back on the peg for morning.
+
+Day 124: two rabbits taken and cooked, a birch cup finished and used, firewood stacked under the eave, a cap completed and fitted. Winter is fully here and I am as ready as I can be. The cabin held the cold out and the warmth in. That is the whole work, and for one more day it was enough. I pulled the sleeping bag up over my shoulders and lay back in the amber dark.
+

@@ -2205,3 +2205,4 @@ Day 124 · 2026-10-25 · 5:18 PM — Supper: evening rabbit broth with smoked ve
 2026-10-25 18:18 — Day 124 — Braided two cord lengths by lamplight; raw pelt resting; cabin warm and settled.
 2026-10-25 19:18 Day 124 — Raw afternoon pelt set in overnight ash soak (bark vessel, cold ash-water, grinding stone weight, under doorsill bench); tallow work tomorrow morning.
 Day 124 (2026-10-25), 20:19 — Ear pieces tied to sleeping cap by lamplight; cap and ear pieces now a set on supply peg.
+2026-10-25 21:19 — Day 124, Sunday — Settled into sleeping bag by banked fire; pelt soaking; ear-piece cap ready; Day 124 complete.
