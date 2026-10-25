@@ -22578,3 +22578,17 @@ The fire pulled me half-awake at the tenth hour — not startled, just aware. Th
 
 Something woke me lightly — not a sound but its absence. The wind had gone entirely still. Through the gap at the door lintel I could feel the cold pressing steady from outside, but the cabin held its warmth; the fire was a quiet orange glow under ash at the hearth. I lay for a long moment in the sleeping bag, ear pieces snug over both ears, listening to nothing at all. No wind, no animal, no creak of timber — only the frost doing its silent work. It is a particular kind of peace, this late winter dark. I am warm. The snares are set, the pelt soaks in ash-water beneath the doorsill bench, everything is ready for morning. The night belongs to itself.
 
+
+---
+
+# Day 125 — Monday, 26 October 2026
+*early winter · frost-still dawn, no wind, clearing white under frost*
+
+### 6:19 AM · Frost-Still, Pelt Work
+
+Woke to the cabin cold and quiet, fire a low red glow in the hearthstone ash — the kind of overnight burn that almost makes it through. Added two split birch lengths and a fold of bark tinder, and the flame took without fuss. Outside, through the gap at the doorsill, the clearing was white and motionless, pines perfectly still on the slope above, the kind of frost-still morning where you can hear your own breath in the air.
+
+Pulled the bark vessel from under the doorsill bench — the pelt had been in ash soak since last night. The membrane had lifted well: it peeled in long pale strips when I pressed a thumb along the inner face. Set the vessel on the hearthstone edge to drain while the fire built, then draped the pelt membrane-side up over the doorsill bench edge and began scraping with the blade held nearly flat. The membrane came away cleanly, fibrous strips falling onto the hearthstone stone below. This first pass takes patience — working slowly across the whole surface, not tearing the grain, keeping the blade angle true.
+
+The fire settled to a good working heat while I worked. My breath still misted in the cabin air, but by the time I had crossed the pelt once, the cold had retreated from my fingers. Winter asks this of you: a steady rhythm before it asks anything else.
+
