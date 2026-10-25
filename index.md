@@ -2207,3 +2207,4 @@ Day 124 · 2026-10-25 · 5:18 PM — Supper: evening rabbit broth with smoked ve
 Day 124 (2026-10-25), 20:19 — Ear pieces tied to sleeping cap by lamplight; cap and ear pieces now a set on supply peg.
 2026-10-25 21:19 — Day 124, Sunday — Settled into sleeping bag by banked fire; pelt soaking; ear-piece cap ready; Day 124 complete.
 2026-10-25 | Day 124, 22:19 | Embers in the Dark — woke briefly, added birch length to hearthstone coals, fire caught and settled, cap and ear pieces snug, back to sleep in deep winter dark
+Day 124, 23:19 (2026-10-25, Sun) — Frost-still midnight hour; lying in warmth listening to absolute winter silence; cabin holding heat, everything ready for morning.

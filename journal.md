@@ -22573,3 +22573,8 @@ Day 124: two rabbits taken and cooked, a birch cup finished and used, firewood s
 
 The fire pulled me half-awake at the tenth hour — not startled, just aware. The pine lengths had settled to a heavy orange glow, still holding their heat. I reached one arm from the sleeping bag, added a split birch length from the hearthside stack, watched it darken and then bloom. The cabin was unchanged: dark, warm, still. Both lamps long since guttered. The pelt soaking cold in its ash vessel under the bench. Outside, the frost doing its slow work on everything. I pulled the sleeping cap down over my ears, tucked the ear pieces snug, and let the fire find its own pace through the rest of the dark.
 
+
+### 11:19 PM · Night's Hold
+
+Something woke me lightly — not a sound but its absence. The wind had gone entirely still. Through the gap at the door lintel I could feel the cold pressing steady from outside, but the cabin held its warmth; the fire was a quiet orange glow under ash at the hearth. I lay for a long moment in the sleeping bag, ear pieces snug over both ears, listening to nothing at all. No wind, no animal, no creak of timber — only the frost doing its silent work. It is a particular kind of peace, this late winter dark. I am warm. The snares are set, the pelt soaks in ash-water beneath the doorsill bench, everything is ready for morning. The night belongs to itself.
+
