@@ -3,3 +3,4 @@
 07:19 — Ladled morning rabbit broth into clay bowl, ate slowly at doorsill bench in frost-still Sunday light; clearing white and windless, pines motionless on the slope; cabin warm.
 08:00 — Walked south corridor to check both repositioned snares; south funnel snare and north corridor snare both empty but triggers set true; faint frost-tracks show overnight movement; snares reset carefully; returned to warm cabin.
 09:19 — Brought birch cup blank from supply shelf to hearthstone; scored rim guide groove with knife tip; hollowed with short controlled scoops following the grain; hollow now thumb-deep but rough and uneven at base; blank returned to supply shelf — hollowing in progress.
+10:18 — Second session on birch cup blank at hearthstone; hollow deepened and widened — now two thumb-widths deep, bowl shape emerging, walls still rough inside; work paused, blank returned to supply shelf; ravens crossed north over treeline.

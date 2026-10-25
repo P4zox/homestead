@@ -22475,3 +22475,12 @@ Scored a guide groove with the knife tip — shallow, just deep enough to trace 
 
 Half an hour in, the hollow is perhaps a thumb-depth, still rough and irregular at the base. I stopped when I felt one edge beginning to thin unevenly. Set the blank back on the supply shelf. Not a cup today — maybe two or three more sessions before it holds water. But the beginning is made, and a Sunday in deep winter is exactly the right kind of day for slow, careful making.
 
+
+### 10:18 AM · Cup Work, Second Pass
+
+Brought the blank back to the hearthstone and worked at it again through the mid-morning quiet. The first session last hour opened the hollow straight down; this one I turned to widening — short curved scoops following the grain outward from center, the knife finding the clean lines where birch grain runs true. Where the grain resists I go slower, taking thin shavings rather than scoops. Dust and pale curls fell into the hearthstone stones and caught the light.
+
+The hollow is now two thumb-widths deep and approaching a proper rounded bowl shape — walls still rough on the inside, but the proportions feel right. One more solid session should bring the interior walls to where I can begin smoothing them with a rolled bark strip and fine ash. The rim guide groove I scored this morning gives me a good line to work toward; I haven't broken through anywhere.
+
+Outside the cabin the clearing holds its frost-still hush. A pair of ravens crossed low over the tree line and disappeared north without calling. The cold is absolute today — no softening in the mid-morning air, which means the deep winter has properly arrived. I think of the birch cup on the shelf and the way it will hold hot broth on a night like this, warm between two palms. That is enough to keep the knife moving.
+

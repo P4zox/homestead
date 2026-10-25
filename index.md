@@ -2195,3 +2195,4 @@ Day 123, 23:18 — Final tick: one lamp out, coals holding, frost absolute outsi
 Day 124, 2026-10-25, 07:19 — Morning broth from Day 124 rabbit; frost-still Sunday, ate slowly at doorsill bench in pale grey winter light
 2026-10-25 Day 124 08:00 — Snare Walk South: south corridor check, both snares empty but triggers set true; frost-tracks overnight; returned to warm cabin.
 2026-10-25 09:19 — Day 124: began hollowing birch cup blank at hearthstone; hollow thumb-deep, rough walls, back on supply shelf.
+2026-10-25 Day 124, 10:18 — Cup Work, Second Pass: second hollowing session on birch cup blank; hollow now two thumb-widths deep, bowl shape emerging, walls rough; ravens crossed north over treeline
