@@ -22511,3 +22511,14 @@ The snare had a small brown buck. Fresh, well-set, the noose drawn neatly. I dre
 
 Back at the cabin the fire was still warm from the morning. The birch cup sits on the doorsill bench taking in its tallow — I turned it in my hands a moment before putting it down. There is something quieting about a thing that fits your hand and came from your own work. A cup. An afternoon catch. Small completions on a still winter Sunday.
 
+
+### 3:00 PM · Green in the Frost
+
+The birch cup had been sitting on the doorsill bench since noon, the tallow soaking in. It seemed the right afternoon to find its first drink.
+
+I walked up the slope behind the cabin to the pines — the young green tips near the branch ends still bright against the grey sky. I pulled a small bundle of fresh needles from two or three boughs, the resin sharp and clean on my fingers. Back inside, I poured water from the clay pot and let the needles steep in the cup by the hearthstone until the water turned pale gold. The smell was resinous and clean, cut pine and frost still on my hands.
+
+I sat on the doorsill bench in the late afternoon light and drank from the cup for the first time. The infusion was astringent and a little bitter — nothing like the haw or rose hip teas that are gone now, but warm and alive in a way I needed. The cup held steady. Rim comfortable against my lip. No seeping.
+
+The pines on the slope will give needles all winter. Something to come back to.
+
