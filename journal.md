@@ -22484,3 +22484,12 @@ The hollow is now two thumb-widths deep and approaching a proper rounded bowl sh
 
 Outside the cabin the clearing holds its frost-still hush. A pair of ravens crossed low over the tree line and disappeared north without calling. The cold is absolute today — no softening in the mid-morning air, which means the deep winter has properly arrived. I think of the birch cup on the shelf and the way it will hold hot broth on a night like this, warm between two palms. That is enough to keep the knife moving.
 
+
+### 11:18 AM · Midday Fuel Walk
+
+The morning's two hollowing sessions left my hands knowing the cup — where the bowl curves true, where the walls still want thinning. But at mid-morning the sun was as high as late October lifts it, frost-light flooding the clearing, and it felt wrong to spend that bright hour indoors. I banked the fire, pulled on mittens and the fur chest piece, and walked south.
+
+The south treeline duff yields well if you know where to look. Under the low birch branches, where the overhanging needles shed the worst of the wet, dead wood lies dry and split-ready. I pulled two long dry birch lengths and one shorter piece free, shook the ice crystals loose, and carried them back in the crook of my arm. The clearing was brilliant and windless. One raven called from somewhere past the north pines, then went quiet.
+
+I laid the new branches in the kindling row under the eave, bark-side up beside yesterday's additions. The pile is solid now — well past eave-high. Whatever the week sends, there is warmth enough here.
+
