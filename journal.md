@@ -22553,3 +22553,11 @@ The lamps still hold, both wicks burning steady and low. I took the raw afternoo
 
 The fire is banked now — two thick pine lengths set in a slow cross for the overnight burn. Both lamps are full enough to hold until I sleep. Outside the wind is still and the frost absolute; inside the cabin holds its deep trapped warmth. I am content to sit with it a little longer before sleep.
 
+
+### 8:19 PM · Lamplight Fitting
+
+The cabin is quiet. Both lamps burn steady at the shelf corners, and outside the frost has settled the clearing into silence. The afternoon was full — the cup done, the rabbit dressed and simmered with the last velvet shanks, everything put away. Now there is just the fire's low pulse and the lamplight.
+
+I pulled the sleeping cap and the ear pieces from their peg and worked them together. The ear pieces have been sitting complete since Day 122 — oval doe-hide patches, bark cord ties, fur-side soft — waiting to be paired with the cap. I pierced two small holes with the bone needle at both temple edges of the cap's folded panel, threaded bark cord through and knotted it on the inside, then looped the ear pieces' ties around the anchor cords. Tried the whole assembly on by lamplight: cap snug, ear pieces pressed warm and flat over both ears. Cold clear mornings will be different now.
+
+Set the cap and ear pieces back on the supply peg as a single set. The pelt soaks under the bench in its ash water. Tomorrow: tallow work, snare check. Tonight there is nothing left to do.
