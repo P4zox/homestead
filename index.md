@@ -2198,3 +2198,4 @@ Day 124, 2026-10-25, 07:19 — Morning broth from Day 124 rabbit; frost-still Su
 2026-10-25 Day 124, 10:18 — Cup Work, Second Pass: second hollowing session on birch cup blank; hollow now two thumb-widths deep, bowl shape emerging, walls rough; ravens crossed north over treeline
 Day 124, 11:18 AM — Walked south treeline duff; two dry birch lengths and one shorter piece gathered and added to kindling row under eave; clearing frost-brilliant and windless; raven calling from north pines.
 2026-10-25 12:18 Day 124 — Birch cup complete; final hollowing and smoothing done; tallow-conditioned and on doorsill bench
+2026-10-25 13:18 Day 124 — Afternoon snare check; south funnel snare yielded small brown buck (dressed, cold-boxed); north snare empty; birch cup tallow-conditioning on bench.

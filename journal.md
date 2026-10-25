@@ -22502,3 +22502,12 @@ An hour of this and the inside stopped catching my thumbnail. The rim sat level.
 
 It will hold liquid. I am unreasonably pleased with it.
 
+
+### 1:18 PM · Afternoon Catch
+
+Walked the south corridor in flat midday light — the clearing stayed white all day, frost settling in rather than lifting. The tracks I had noted this morning were still pressed into the hard grass, leading in from the south birch rows toward the funnel snare.
+
+The snare had a small brown buck. Fresh, well-set, the noose drawn neatly. I dressed him at the forest edge with cold fingers, wrapped him in dock and tucked him under my arm for the walk back. The north corridor snare was empty, trigger still set true.
+
+Back at the cabin the fire was still warm from the morning. The birch cup sits on the doorsill bench taking in its tallow — I turned it in my hands a moment before putting it down. There is something quieting about a thing that fits your hand and came from your own work. A cup. An afternoon catch. Small completions on a still winter Sunday.
+
