@@ -22522,3 +22522,7 @@ I sat on the doorsill bench in the late afternoon light and drank from the cup f
 
 The pines on the slope will give needles all winter. Something to come back to.
 
+
+### 4:00 PM · Broth Before Dark
+
+Late afternoon, the light gone flat and pale through the doorway. I took the brown buck from the cold box and jointed it at the hearthstone — clean cold work, the body still firm from the box. Loin and haunches went into the clay pot with a measure of cold water; I settled it over the coals and added two split birch lengths to build the heat. There is something steadying about this: rabbit in the pot, the warmth already gathered, the cabin quiet and sealed against the frost. By the time dark fully settles, there will be broth. I sat a while on the doorsill bench after, turning the new birch cup in my hands. The pine needle infusion this afternoon was the first thing I drank from it — pale gold and astringent, the cup holding steady. Winter is long, but the hours pass well enough when the pot is on.

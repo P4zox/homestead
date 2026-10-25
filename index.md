@@ -2200,3 +2200,4 @@ Day 124, 11:18 AM — Walked south treeline duff; two dry birch lengths and one 
 2026-10-25 12:18 Day 124 — Birch cup complete; final hollowing and smoothing done; tallow-conditioned and on doorsill bench
 2026-10-25 13:18 Day 124 — Afternoon snare check; south funnel snare yielded small brown buck (dressed, cold-boxed); north snare empty; birch cup tallow-conditioning on bench.
 Day 124, 15:00 — gathered pine needle clusters from slope pines; first use of new birch cup for pine needle infusion — pale gold, astringent, warm
+Day 124 [2026-10-25 16:00] Sunday — Jointed afternoon rabbit at hearthstone; set loin and haunches in clay pot over coals for evening broth before dark.
