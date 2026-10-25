@@ -22546,3 +22546,10 @@ The raw pelt from the afternoon buck is draped over the supply shelf edge, still
 
 Outside, frost is absolute. The south funnel snare sits in the dark cold with its trigger set. Whatever the night decides, I'll know by dawn. For now I hang the two new lengths on the supply peg and sit for a moment with my palms warm from the braiding. The birch cup is on the doorsill bench, tallow still damp on its rim from this morning's conditioning. Small things done well are still well done.
 
+
+### 7:18 PM · Ash Soak, Firelight
+
+The lamps still hold, both wicks burning steady and low. I took the raw afternoon pelt from the shelf and spread it membrane-side up across my knees, checking the surface in lamplight — most of the fat scraped away during dressing, but a few patches remain tacky at the shoulder and flank. I filled the wide bark vessel with cold water from the shelf jug, added two pinches of fine white ash from the hearthstone cup, and stirred with the paddle until the water clouded faintly pale. Then I submerged the pelt membrane-down, weighted it with the flat gneiss grinding stone, and slid it under the doorsill bench where the cold draws through the sill gap. An overnight ash soak should loosen what remains and open the hide fibres before tallow. Tomorrow's work will go cleaner for it.
+
+The fire is banked now — two thick pine lengths set in a slow cross for the overnight burn. Both lamps are full enough to hold until I sleep. Outside the wind is still and the frost absolute; inside the cabin holds its deep trapped warmth. I am content to sit with it a little longer before sleep.
+
