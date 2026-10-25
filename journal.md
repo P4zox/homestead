@@ -22568,3 +22568,8 @@ The fire had drawn down to deep red coals banked solid against the night. I adde
 
 Day 124: two rabbits taken and cooked, a birch cup finished and used, firewood stacked under the eave, a cap completed and fitted. Winter is fully here and I am as ready as I can be. The cabin held the cold out and the warmth in. That is the whole work, and for one more day it was enough. I pulled the sleeping bag up over my shoulders and lay back in the amber dark.
 
+
+### 10:19 PM · Embers in the Dark
+
+The fire pulled me half-awake at the tenth hour — not startled, just aware. The pine lengths had settled to a heavy orange glow, still holding their heat. I reached one arm from the sleeping bag, added a split birch length from the hearthside stack, watched it darken and then bloom. The cabin was unchanged: dark, warm, still. Both lamps long since guttered. The pelt soaking cold in its ash vessel under the bench. Outside, the frost doing its slow work on everything. I pulled the sleeping cap down over my ears, tucked the ear pieces snug, and let the fire find its own pace through the rest of the dark.
+
