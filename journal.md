@@ -22455,3 +22455,14 @@ Day 124. Hard winter Sunday. The broth will be ready by full light, and the clea
 ### 7:19 AM · Morning Broth, Frost
 
 The broth had been on the coals since before full light, and by the time the cabin had warmed enough to sit without my breath showing, I ladled it into the wide clay bowl — rabbit shreds running dark and rich, a curl of steam rising in the still air. I ate slowly on the doorsill bench with the door open a hand's width, watching the frost-white clearing settle into pale grey morning light. No wind. The pines on the slope absolutely still. A Sunday in late October that asks nothing of you, only that you eat and be present. I was glad for the bench under me — dressed pine planks I fitted myself against this very cold. Day 124. The cabin is sealed, the firewood is deep, the cold box has what it needs. Whatever this winter brings, I have been a long time getting ready for it.
+
+### 8:00 AM · Snare Walk South
+
+The morning broth sat warm in me when I dressed to go out — fur chest piece inside the jerkin, mittens on, foot wraps laced tight. The clearing was still frost-white and windless, the pines on the slope not moving. My breath climbed straight up and dissolved.
+
+I walked south along the treeline corridor, following the line I had reset yesterday. The south funnel snare was empty — but the trigger was set true, the loop hanging at the right height, nothing disturbed. The north snare the same. Whatever moved through here last night — the frost showed faint tracks between dark and dawn — came and went without committing to either run.
+
+I reset both carefully, working with bare fingers just long enough to feel the tension in each trigger before pulling the mittens back on. The cold does not bite so much as simply insist.
+
+On the walk back the light was silver-pale through the frost-fog, the kind that makes the clearing feel very still and very far from anywhere. I was glad to be out in it, even empty-handed. Back inside with the fire and the warm cabin walls and the day ahead. The birch cup blank on the supply shelf will be ready to hollow by afternoon — it has been drying in this cold air since last night, and the wood will be firmer now.
+

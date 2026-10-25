@@ -2193,3 +2193,4 @@ Day 123, 2026-10-24, 22:00 — Closing Dark — lying in banked-fire warmth, cab
 Day 123, 23:18 — Final tick: one lamp out, coals holding, frost absolute outside, deep into sleep.
 2026-10-25 Day 124 06:18 — Grey Dawn, Rabbit Broth: woke to guttered lamps and cold cabin; stoked fire from overnight coals; jointed Day 123 south snare rabbit and set in clay pot over hearthstone coals for morning broth; frost-still grey dawn.
 Day 124, 2026-10-25, 07:19 — Morning broth from Day 124 rabbit; frost-still Sunday, ate slowly at doorsill bench in pale grey winter light
+2026-10-25 Day 124 08:00 — Snare Walk South: south corridor check, both snares empty but triggers set true; frost-tracks overnight; returned to warm cabin.
