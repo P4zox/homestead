@@ -22669,3 +22669,9 @@ I pulled the second smoked hen-of-the-woods package from the cold box — bark w
 
 This is the hour I like best, I think — the long afternoon simmer going quiet beside me while the light slides off the ridge and the cabin holds its warmth. I braided another cord length while the pot breathed. One hen-of-the-woods package remains in the cold box after this. The broth will be ready by the time the lamps want lighting.
 
+
+### 4:22 PM · Amber Broth, Amber Light
+
+The broth had been going since mid-afternoon, and by four o'clock the cabin smelled entirely of birch smoke and forest floor — that deep, settled smell the hen-of-the-woods gives off when it cooks long and slow. I ladled it into the birch cup, carried it to the doorsill, and sat in the last of the afternoon light. The clearing was bright and very still, all frost, the sun angled low past the ridge pines. I broke an acorn flatcake in half, alternated sips of broth with bites — ate the whole thing slowly, not in a hurry. The cup's rim is smooth where the tallow soaked in, and the warmth came through into my palms.
+
+One hen-of-the-woods package left in the cold box. One honey mushroom package. Five flatcakes. It feels like enough — enough until the snares catch again, enough to not be anxious tonight. The pelt has been absorbing all day on the supply peg; it will need its second tallow pass in the morning. Fire needs only banking. The frost will come back hard tonight, but the cabin walls are thick and the eaves are tight and I know it holds. I know it holds.
