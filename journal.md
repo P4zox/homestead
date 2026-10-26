@@ -22621,3 +22621,11 @@ I crossed to the south treeline and worked the snare line in order — east-faci
 
 Nothing today. Some days are like that. The tracks in the frost around both sets were old and wind-smoothed; the rabbits had been somewhere else last night. I headed back across the clearing and noticed the sun had just cleared the ridge pines, lying long and gold across the white ground. The cabin looked settled under the eave shadow, smoke rising straight up into the still cold air. It's a thing I keep noticing — how the place looks from a distance. More and more like somewhere that belongs here.
 
+### 10:19 AM · Frost Walk, Full Arms
+
+The sun had climbed well above the ridge pines by the time I pulled on my jerkin and mittens and stepped back out into the clearing. The frost had not broken — that kind of cold morning where it stays white on the north-facing ground all the way to noon. But the light was extraordinary: long and honey-gold, every pine needle edged in silver, the clearing quiet and still as held breath.
+
+I walked the south treeline duff for a firewood run — the same stretch I have been drawing from for weeks, but there was still plenty. Dry birch lengths half-buried in old needles, a fat pine bough with the bark still sound, a few shorter pieces that will split clean for kindling. I bundled what I could carry and made two trips back, arms full each time, stacking everything bark-side up under the lean-to eave.
+
+The pelt hung still on the supply peg inside when I came back, absorbing the morning tallow. The second pass is for tomorrow. Out in the clearing the frost still glittered, and the sky above the treeline was pale and deep at once. Everything is in its place.
+
