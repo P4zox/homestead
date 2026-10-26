@@ -22695,3 +22695,14 @@ The pine infusion is a quiet luxury in this season — something living and resi
 
 The pelt hangs on the supply peg, absorbing tallow. Second pass in the morning.
 
+
+### 7:21 PM · Lamplight and Cordage
+
+The cabin has been mine entirely since the sun left the ridge. Both lamps burn steadily on their hooks; the fire holds at a deep banking coal heat. Outside there is nothing but black frost and silence.
+
+I pulled more birch inner bark from the supply and worked two more lengths of two-ply cord by lamplight, hands moving through the familiar braid while the rest of me went quiet. It is the kind of task that does not need thought — just steady pressure and rhythm — and that is what evenings are for, I think. Working through them carefully, spending them without waste, arriving at sleep with something done.
+
+The pelt hangs on the supply peg still, faintly paler where the tallow has worked in. Tomorrow morning second pass will finish it. Five flatcakes on the shelf. One hen-of-the-woods package in the cold box. The cord stock is growing long and healthy. Winter is not something I am fighting right now; I am just deep inside it, warm, and tending what needs tending.
+
+There is a satisfaction in this hour I want to hold onto. The lamps are full, the fire is sound, the door is latched. Not much else is needed.
+
