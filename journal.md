@@ -22629,3 +22629,14 @@ I walked the south treeline duff for a firewood run — the same stretch I have 
 
 The pelt hung still on the supply peg inside when I came back, absorbing the morning tallow. The second pass is for tomorrow. Out in the clearing the frost still glittered, and the sky above the treeline was pale and deep at once. Everything is in its place.
 
+
+### 11:19 AM · Honey Mushroom Noon
+
+The morning work has settled into its places — wood stacked under the eave, snares reset in the frost, pelt folded fur-side out on the supply peg to absorb its first tallow pass. By late morning the sun has swung as far south as it comes in hard winter, and for an hour the clearing actually holds a little warmth in the still air. I have learned to use that hour: come in, build the fire back from its mid-morning settle, set a pot going, and take the noon meal slowly while the light holds.
+
+I opened one of the smoked honey mushroom packages from the cold box — Day 86 cure, small caps and stems, pale gold and still dry inside the bark fold. They went into the clay pot with water from the melt-tin, set over the coals while the room warmed around me. Honey mushrooms carry a depth different from oysters or hen-of-the-woods — earthier, slightly sweet, with a note I can never quite name but have come to expect from that first flush of autumn. The broth came to a dark amber by the time the smell had properly filled the cabin.
+
+I ate at the doorsill with the door cracked two fingers wide to watch the frost go off the clearing grass in the noon light. Took one acorn flatcake from the shelf and pulled it apart slowly over the broth. Six flatcakes remain. One smoked honey mushroom package still sealed in the cold box; the other is spent.
+
+The sun is already past its low meridian and beginning to fall back toward the ridge pines. The pelt will keep absorbing until tomorrow morning. A good rest hour before the afternoon — the cabin holds its warmth, the fire settles, and there is nothing pressing for another while.
+

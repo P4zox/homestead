@@ -2213,3 +2213,4 @@ Day 125, 07:19 — first tallow pass on Day 124 afternoon rabbit pelt; folded fu
 2026-10-26 08:19 Day 125 — Frost Broth, Morning Shelf — smoked hen-of-the-woods broth and acorn flatcake at doorsill bench; clearing frost-still and white
 2026-10-26 Day 125, 09:19 — Checked and reset south treeline snare line in frost-still morning; both snares empty and reset; sun clearing ridge pines, long gold across frost.
 Day 125, 2026-10-26, 10:19 — Walked south treeline duff in clear frost morning; gathered dry birch lengths and pine bough in two trips; stacked under lean-to eave.
+2026-10-26 11:19 Day 125 — Honey Mushroom Noon: midday broth from Day 86 smoked honey mushroom caps; one acorn flatcake at doorsill in winter noon light; one package honey mushroom remaining in cold box
