@@ -22724,3 +22724,18 @@ Outside the frost-still dark is total. No wind, no animal sound. The treeline ha
 
 I sat by the hearth a while longer after the braiding was done. Watched the coals pulse. Five flatcakes on the shelf, one hen-of-the-woods in the cold box, snares out and waiting. It is enough. Tomorrow will have its own work.
 
+
+### 10:30 PM · Coals and Frost-Still
+
+The lamps are nearly out — both wicks burning at their lowest, the flame a slow amber thread rather than a point of light. I moved my sleeping bag closer to the hearthstone an hour ago, and now I am inside it, fur panel against my chest, ear pieces down, the wool-dark of the cabin pressing gently around me.
+
+Outside there is nothing moving. Frost-still means exactly that: not cold with wind, but cold without it, the air locked and close and absolute. The clearing is invisible through the door crack. The cold does not leak through the chinked walls; it presses from outside, and the heat from the coals holds it there.
+
+I have been lying here listening to the coals settle. They do this every few minutes — a small shift in the bed, a brief brightening along one edge, then back to the same deep pulse. The clay pot is rinsed and on the hearthstone. The pelt is on the supply peg, absorbing its first tallow pass through the night. Tomorrow morning I will do the second.
+
+I thought about the snares a little. Both were empty this morning and reset snug — the second trigger notch freshly cut. They may hold something by dawn. Or they may not. Both are fine answers in early winter.
+
+Five acorn flatcakes left. One hen-of-the-woods package in the cold box. One honey mushroom package there too. The fire will hold until morning if I do not touch it. Everything I need tonight is within arm's reach.
+
+I am going to sleep now.
+
