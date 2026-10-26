@@ -22713,3 +22713,14 @@ The second lamp was burning a little lower than I liked, so I moved both cups to
 
 Everything else in the cabin was quiet and settled. Fire holding well at banking coal heat. Pelt still on the supply peg from the morning — second pass tomorrow first thing. Cord stock is generous after all these evenings by the lamp. I think what I mostly felt, working the leather in the still warm cabin while the frost-still dark sat outside, was a kind of satisfaction at the count: enough firewood, enough food for the near days, enough light, tools in good order. That feeling does not visit every night, and I tried to hold it for a while before banking the fire and putting the lamps low.
 
+
+### 9:33 PM · Fire Down to Coals
+
+The lamps are trimmed low — both wicks turned down to a steady amber glow. I braided one more length of cord in the last of the light, hands moving easily after so many evenings of it. The rhythm is nearly automatic now: the soft pull of fiber, the familiar twist. Good work to close the day with.
+
+Fire drawn to deep coal bed. I spooned the last of the loose ash to the side and set the largest chunk of birch to bank against it — this will hold until morning, slow and even. The pelt hangs on the supply peg still, grain-side warm from tallow. Second pass first thing tomorrow, then it goes to the shelf.
+
+Outside the frost-still dark is total. No wind, no animal sound. The treeline has gone black against a clear sky. This is the deep quiet of early winter settled in — the land has gone down into itself for the season, and I am glad to be sealed inside, warm, fed, with enough cord and enough fire to see the night through.
+
+I sat by the hearth a while longer after the braiding was done. Watched the coals pulse. Five flatcakes on the shelf, one hen-of-the-woods in the cold box, snares out and waiting. It is enough. Tomorrow will have its own work.
+

@@ -2223,3 +2223,4 @@ Day 125 17:00 — Lit lamps for the evening; cord braiding by lamplight; fire ho
 Day 125, 2026-10-26, 18:00 — Pine needle infusion brewed in birch cup; two cord lengths braided by lamplight; cabin settled into frost-still winter evening.
 2026-10-26 Day 125 19:21 — Sat by hearthstone braiding two more cord lengths by lamplight; pelt absorbing tallow on supply peg; fire and lamps sound; cabin sealed against frost-still dark.
 Day 125, 20:28 — Tallow-conditioned leather jerkin by lamplight; grain-side sheen restored, seams supple; fire banked, lamps low, frost-still dark outside.
+Day 125, 21:33 — Trimmed lamps low, braided one final cord length, banked fire to deep coals; settled into frost-still dark before sleep.
