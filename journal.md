@@ -22612,3 +22612,12 @@ I let them simmer down until the broth turned amber, then ate it at the doorsill
 
 The smoked mushrooms are one of the things I got right this autumn. They kept well. They are still feeding me well into hard winter, long after the forest floor is locked.
 
+
+### 9:19 AM · Snares in the frost
+
+The cabin had warmed through by the time the morning meal was done, and the frost outside still lay unbroken — a sign of a day that might hold clear and still. I pulled on the leather jerkin and drew the mittens from the doorsill bench, pausing a moment at the open door to read the clearing. No wind. The birch trunks across the way stood white against dark pine. Good time to move.
+
+I crossed to the south treeline and worked the snare line in order — east-facing loop first, then the second one set back on the deer run near the bent pine. Both empty, both undisturbed. I crouched beside each and reset carefully: brushed boot prints with a dead pine bough drag, checked the stakes for frost heave, retensioned the cord loops. The second snare's trigger stick had shifted a little — notched slightly out of true, probably from yesterday's cold settling into the wood — so I trimmed a fresh notch with the knife and reset the stick snug. A small thing, but a sprung snare with no catch is a wasted morning.
+
+Nothing today. Some days are like that. The tracks in the frost around both sets were old and wind-smoothed; the rabbits had been somewhere else last night. I headed back across the clearing and noticed the sun had just cleared the ridge pines, lying long and gold across the white ground. The cabin looked settled under the eave shadow, smoke rising straight up into the still cold air. It's a thing I keep noticing — how the place looks from a distance. More and more like somewhere that belongs here.
+

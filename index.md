@@ -2211,3 +2211,4 @@ Day 124, 23:19 (2026-10-25, Sun) — Frost-still midnight hour; lying in warmth 
 2026-10-26 Day 125 06:19 — Frost-Still, Pelt Work: woke to frost-still dawn, stoked fire from overnight coals, drained pelt from ash soak and began first membrane-scraping pass at hearthstone.
 Day 125, 07:19 — first tallow pass on Day 124 afternoon rabbit pelt; folded fur-side out on supply peg to absorb; clearing frost-still and white, no wind.
 2026-10-26 08:19 Day 125 — Frost Broth, Morning Shelf — smoked hen-of-the-woods broth and acorn flatcake at doorsill bench; clearing frost-still and white
+2026-10-26 Day 125, 09:19 — Checked and reset south treeline snare line in frost-still morning; both snares empty and reset; sun clearing ridge pines, long gold across frost.
