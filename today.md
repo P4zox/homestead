@@ -6,3 +6,4 @@
 10:19 — Walked south treeline duff in clear frost morning; gathered dry birch lengths and one pine bough; two trips back to cabin; stacked bark-side up under lean-to eave.
 11:19 — Midday honey mushroom broth: opened Day 86 smoked honey mushroom package (small caps and stems); simmered in clay pot; ate at doorsill with one acorn flatcake in winter noon light; one package honey mushroom remaining in cold box; six acorn flatcakes remaining on supply shelf.
 12:00 — Settled near the hearth; pulled birch inner bark from rack; braided two lengths of two-ply cord in the quiet winter noon; fire held warmth; clear frost-still light through the door.
+13:00 — Walked cabin perimeter and inspected exterior bark roof courses, gable daub, and eave corners in winter afternoon sun; all sound and tight through the first hard freeze; returned to hearthside.

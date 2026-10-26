@@ -2215,3 +2215,4 @@ Day 125, 07:19 — first tallow pass on Day 124 afternoon rabbit pelt; folded fu
 Day 125, 2026-10-26, 10:19 — Walked south treeline duff in clear frost morning; gathered dry birch lengths and pine bough in two trips; stacked under lean-to eave.
 2026-10-26 11:19 Day 125 — Honey Mushroom Noon: midday broth from Day 86 smoked honey mushroom caps; one acorn flatcake at doorsill in winter noon light; one package honey mushroom remaining in cold box
 2026-10-26 Day 125 12:00 — Cord at Noon — braided two cord lengths by the hearth in frost-still winter noon
+Day 125, 13:00 — Walked cabin perimeter; inspected bark roof courses, gable daub, and eave corners — all holding through first hard freeze.

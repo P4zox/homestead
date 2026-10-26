@@ -22649,3 +22649,8 @@ Outside the open door the clearing held its frost-still silence: white-gold in t
 
 Dry winter bark splits cleaner than summer bark. The fibers run straighter, less sap to make them stick, and the twist holds without slipping. Cord-making in winter is almost pleasant — unhurried work for a cabin hour, something accumulating quietly in the stock without demanding anything back.
 
+
+### 1:00 PM · Walk the Eaves
+
+The fire had settled to a steady hold by early afternoon — no wind outside, just the white clearing and the long gold of the winter sun angling low across the frost. I went out after the noon cord braiding to walk the cabin perimeter and look at the roof and gables from outside. The bark courses on both slopes are holding well; I pressed gently at the lower edges on the south side where the split pine pins have taken their first real freeze — they have swollen tight, if anything tighter than before. The north corner's double-layered bark, added back on Day 69, still sits flat and sound against the ridgepole overhang. The clay-straw daub on both gables shows a few hairline marks where the deep cold went in, but nothing has opened into a gap. I worked a finger along the east gable daub in the cold shadow; the surface firm and not crumbling. The whole structure looked as it should: bark tight, daub held, eaves clear of ice weight. I came back in, brushed the frost from my sleeves, and stood near the hearth for a few minutes listening to the fire and the silence of the clearing. A good structure, built slowly. It holds.
+
