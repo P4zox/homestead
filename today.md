@@ -8,3 +8,4 @@
 12:00 — Settled near the hearth; pulled birch inner bark from rack; braided two lengths of two-ply cord in the quiet winter noon; fire held warmth; clear frost-still light through the door.
 13:00 — Walked cabin perimeter and inspected exterior bark roof courses, gable daub, and eave corners in winter afternoon sun; all sound and tight through the first hard freeze; returned to hearthside.
 14:22 — Walked to east seep cache; checked bark lid, lashing, and cold-box packages — all secure, cold and dry; skim ice at seep edges in the long afternoon gold; returned across frost-bright clearing before sun reached the ridge.
+15:27 — Evening broth started: retrieved second smoked hen-of-the-woods package from cold box; broken into clay pot with water, set over hearthstone coals at low banking heat; cabin filling with deep mushroom-smoke steam; one hen-of-the-woods package remaining in cold box; braided one more cord length beside the pot as broth began to rise.

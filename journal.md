@@ -22658,3 +22658,14 @@ The fire had settled to a steady hold by early afternoon — no wind outside, ju
 
 The afternoon sun was already low when I pulled my jerkin on and headed east across the clearing. The frost had not broken all day — each footfall punched through a thin crust of ice over the meadow grass, the sound sharp and clear in the still air. The east seep cache stands eighty paces from the cabin door, tucked into the bank where the alder roots come down and the soil stays dark and cool. I checked the bark lid: still weighted with its flat seep stone, the lashing firm. Lifted a corner — the inside was cold and dry, the mushroom packages bark-sealed and holding well. I pressed the lid back and tightened the lashing cord, then crouched there a moment in the long gold light. The alders above me held a few last brown leaves, barely trembling. The seep itself was glazed with a thin skim of ice at the edges, quiet. Hard to say what draws me to check things I already know are sound. Winter asks for that, I think — the small confirming round, the reassurance that what you have made is holding. I came back across the frost-bright clearing well before the sun touched the ridge.
 
+
+### 3:27 PM · Evening Broth, Started
+
+The afternoon has gone quiet and low — that long gold hour before the ridge takes the sun. The clearing holds frost-white and still through the open door. The pelt is absorbing on the supply peg; the cabin is warm from a morning of steady fire.
+
+I walked to the east seep cache an hour ago and found everything tight, and now there is nothing left to tend that cannot wait until tomorrow. What there is to do is supper.
+
+I pulled the second smoked hen-of-the-woods package from the cold box — bark wrapping dark and resin-sealed, the amber-gold clusters inside dense with smoke. I broke them into the clay pot and poured water enough to cover, then set the pot over hearthstone coals banked low for a long draw. The mushroom smell began rising within minutes, deep and woody, faintly sweet where smoke meets steam.
+
+This is the hour I like best, I think — the long afternoon simmer going quiet beside me while the light slides off the ridge and the cabin holds its warmth. I braided another cord length while the pot breathed. One hen-of-the-woods package remains in the cold box after this. The broth will be ready by the time the lamps want lighting.
+
