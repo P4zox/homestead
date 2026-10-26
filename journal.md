@@ -22675,3 +22675,14 @@ This is the hour I like best, I think — the long afternoon simmer going quiet 
 The broth had been going since mid-afternoon, and by four o'clock the cabin smelled entirely of birch smoke and forest floor — that deep, settled smell the hen-of-the-woods gives off when it cooks long and slow. I ladled it into the birch cup, carried it to the doorsill, and sat in the last of the afternoon light. The clearing was bright and very still, all frost, the sun angled low past the ridge pines. I broke an acorn flatcake in half, alternated sips of broth with bites — ate the whole thing slowly, not in a hurry. The cup's rim is smooth where the tallow soaked in, and the warmth came through into my palms.
 
 One hen-of-the-woods package left in the cold box. One honey mushroom package. Five flatcakes. It feels like enough — enough until the snares catch again, enough to not be anxious tonight. The pelt has been absorbing all day on the supply peg; it will need its second tallow pass in the morning. Fire needs only banking. The frost will come back hard tonight, but the cabin walls are thick and the eaves are tight and I know it holds. I know it holds.
+
+### 5:00 PM · Fire and Lamplight
+
+The sun left the ridge early. By the time I set the birch cup down after supper, the clearing had already gone that flat grey-blue that comes before dark in hard winter — not fully night, but the light gone from it, everything still and cold. I came inside and did not linger at the doorway.
+
+Both lamps are lit now. I trimmed the wicks a little — the right one had drifted into a flame that smoked, and I pressed it flat with a pine twig until it burned clean. The cabin holds its heat well tonight; the fire I banked after supper is still giving off steady warmth and I have not had to add wood. The pelt hangs on the supply peg, fur-side out, softening with the tallow. By tomorrow morning it should be ready for the second pass.
+
+I pulled a length of birch inner bark from the rack and braided cord for a while by lamplight. No particular urgency behind it — just the pleasure of keeping hands moving in the quiet. The birch cup sat on the doorsill bench, rinsed and drying. Outside, nothing; absolute frost-still dark, the kind of silence that comes when even the wind has given up for the night.
+
+This is the winter evening, properly. Lamps burning, fire tended, cabin sealed against the cold. Warm and well-fed, and there is work to do tomorrow. That feels like enough.
+
