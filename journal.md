@@ -22640,3 +22640,12 @@ I ate at the doorsill with the door cracked two fingers wide to watch the frost 
 
 The sun is already past its low meridian and beginning to fall back toward the ridge pines. The pelt will keep absorbing until tomorrow morning. A good rest hour before the afternoon — the cabin holds its warmth, the fire settles, and there is nothing pressing for another while.
 
+
+### 12:00 PM · Cord at Noon
+
+The cabin was warm from the morning fire and the honey mushroom broth still sat in me — that mild earthy sweetness that smoked mushrooms carry even dried. I pulled a sheaf of birch inner bark from the rack and settled on the floor near the hearth, back against the south wall, feet toward the coals.
+
+Outside the open door the clearing held its frost-still silence: white-gold in the winter noon, nothing moving. The cold here is settled now — not aggressive, just absolute. I let the fire be the only sound and worked the bark into cord. Rolling, splitting, folding, setting the twist. Two lengths done before the light had moved enough to notice.
+
+Dry winter bark splits cleaner than summer bark. The fibers run straighter, less sap to make them stick, and the twist holds without slipping. Cord-making in winter is almost pleasant — unhurried work for a cabin hour, something accumulating quietly in the stock without demanding anything back.
+
