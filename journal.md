@@ -22766,3 +22766,14 @@ The second pass went slowly and deliberately. A knuckle of tallow softened at th
 
 Outside, through the open door, the frost lay unbroken across the clearing. Pale-blue pre-dawn light, not quite day. Day 126.
 
+
+### 7:19 AM · Frost Walk, Empty Snares
+
+Pulled on my mittens and the hare-fur neck wrap while the fire was still low from the overnight bank. The clearing was white and absolutely still — every stalk and grass blade rimed, the air cold in the lungs with that particular winter quality that makes sound carry differently, muffled and close.
+
+Both snares were empty. The south one had the bark cord loop iced into its set position overnight; I warmed it between my palms and worked the trigger loose, re-bent the loop, and left it again on the game trail. The north snare was intact — a small adjustment to the angle and it was right. No prints in the frost near either one. Whatever is moving in the treeline is not moving through my ground, at least not yet.
+
+I did not mind. The bare birch at the clearing edge stood quiet and pale against the sky, and the pines behind them were heavy and dark in the winter light. I stood there for a minute before heading back — just listening. Nothing moved. A simple winter morning, empty-handed but not unhappy.
+
+The fire had caught properly by the time I got back.
+
