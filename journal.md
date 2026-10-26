@@ -22601,3 +22601,14 @@ I softened a palm of tallow near the hearthstone and started the first pass: pal
 
 Stepped outside for a breath. The clearing was still and completely white, frost absolute, no wind at all. The pines on the slope dark against a pale sky, each needle tipped with ice. I stood at the door a moment just looking, feeling the cold settle on my face, then came back in. Second tallow pass tomorrow.
 
+
+### 8:19 AM · Frost Broth, Morning Shelf
+
+The pelt hangs on the supply peg, fur-side out, slow to absorb. I left it to its work and turned to the fire.
+
+The cabin had warmed by now — not hot, but the kind of warmth that makes the cold outside feel almost pleasant by contrast. I ladled water into the clay pot, set it on the hearthstone, and while it came up I pried open one of the bark packages from the cold box: hen-of-the-woods, smoke-cured from late autumn. The dark ruffled edges have dried to something almost papery, but the smell when they hit the hot water is deep and foresty, like the log they came from is still somewhere in the memory of the room.
+
+I let them simmer down until the broth turned amber, then ate it at the doorsill bench with an acorn flatcake from the shelf. The cake is hard and faintly bitter now — old stock — but softened in broth it is fine. The clearing outside was white and motionless, not a branch moving. The cold out there had weight to it, the kind that presses in at the seams around the door. But the bench was warm under me and the broth was hot, and I sat with it for longer than was strictly necessary.
+
+The smoked mushrooms are one of the things I got right this autumn. They kept well. They are still feeding me well into hard winter, long after the forest floor is locked.
+
