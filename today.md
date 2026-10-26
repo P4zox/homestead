@@ -16,3 +16,4 @@
 20:28 — Took leather jerkin from supply peg; softened tallow lump at hearthstone edge; worked tallow into all panels and seams by lamplight — chest, back, side strips, all stitched seams thumb-pressed until loose and supple; grain-side sheen restored; hung back on peg grain-side out to absorb overnight; fire banked at coal heat; both lamps burning steady.
 21:33 — Trimmed lamps low; braided one final cord length by lamplight; drew fire down to deep banking coal bed with birch chunk; sat by hearthstone watching coals pulse in the frost-still dark; cabin sealed and warm.
 22:30 — Settled into sleeping bag by banked hearthstone coals; lamps nearly out; fur panel and ear pieces on; pelt absorbing tallow on supply peg; listened to coals settle in frost-still dark; going to sleep.
+23:00 — Lying still in sleeping bag by last hearthstone coals; both lamp wicks nearly spent; frost-still dark outside; pelt absorbing tallow on supply peg; drifting to sleep.

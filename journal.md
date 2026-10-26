@@ -22739,3 +22739,16 @@ Five acorn flatcakes left. One hen-of-the-woods package in the cold box. One hon
 
 I am going to sleep now.
 
+
+### 11:00 PM · Still Before Sleep
+
+The coals have settled into a low amber pulse. Both lamp wicks are burning down to threads, barely a flicker. The cabin is dark and warm — that particular dense dark that comes when the fire is nearly spent but the logs still hold the day's heat.
+
+I am in the sleeping bag, fur panel pulled close, ear pieces down against my temples. The pelt from yesterday's rabbit hangs on the supply peg, heavy with tallow, absorbing through the night. Tomorrow morning: second pass, and it will be ready.
+
+Outside there is absolute stillness. No wind. The frost holds the clearing fixed and quiet. I can hear nothing past the cabin walls — not even a branch settling under ice weight. Just the slow cool of the coals and my own breathing.
+
+Day 125. A full day. Cord braided, wood stacked, snares checked, broth made and eaten, the jerkin conditioned, the evening marked by lamplight and warmth. The cabin held all of it — the cold outside never finding the inside tonight.
+
+Sleep comes easy on nights like this.
+

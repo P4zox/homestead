@@ -2225,3 +2225,4 @@ Day 125, 2026-10-26, 18:00 — Pine needle infusion brewed in birch cup; two cor
 Day 125, 20:28 — Tallow-conditioned leather jerkin by lamplight; grain-side sheen restored, seams supple; fire banked, lamps low, frost-still dark outside.
 Day 125, 21:33 — Trimmed lamps low, braided one final cord length, banked fire to deep coals; settled into frost-still dark before sleep.
 2026-10-26 22:30 — Day 125 · Settled into sleeping bag by banked coals; frost-still night; lamps nearly out; pelt absorbing tallow on supply peg; listening to coals settle before sleep.
+Day 125, 23:00 — Last coals dim to amber pulse; lying still in sleeping bag, both lamps nearly out; frost-still dark outside; drifting to sleep.
