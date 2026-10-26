@@ -22752,3 +22752,17 @@ Day 125. A full day. Cord braided, wood stacked, snares checked, broth made and 
 
 Sleep comes easy on nights like this.
 
+
+---
+
+# Day 126 — Tuesday, 27 October 2026
+*early winter · frost-still morning; pale-blue pre-dawn light; cold and clear*
+
+### 6:18 AM · Second Tallow Pass
+
+The cabin held its warmth through the night — the banked coals were still breathing faint red when I pulled myself out of the sleeping bag into the cold grey dark. The pelt was where I had left it, hanging fur-side out on the supply peg, the skin side having drunk in the first tallow pass through all the sleeping hours. I raked the coals first, fed in birch bark and a short split length until the fire caught and the cabin began to breathe again with real heat.
+
+The second pass went slowly and deliberately. A knuckle of tallow softened at the hearthstone edge, then I worked it palm-flat in circles across every part of the skin — haunches to shoulders, belly panel to margins. The haunches were still thirsty, the belly panels closer to done, the edges where the pelt had firmed overnight needing the most persuasion. I pressed tallow in with my thumb at those stiff borders until they gave and the surface held one even, faint sheen all the way round. Folded fur-side out, hung back on the supply peg. By evening it should be fully cured — pale-buff and supple, ready for the knife.
+
+Outside, through the open door, the frost lay unbroken across the clearing. Pale-blue pre-dawn light, not quite day. Day 126.
+

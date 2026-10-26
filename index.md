@@ -2226,3 +2226,4 @@ Day 125, 20:28 — Tallow-conditioned leather jerkin by lamplight; grain-side sh
 Day 125, 21:33 — Trimmed lamps low, braided one final cord length, banked fire to deep coals; settled into frost-still dark before sleep.
 2026-10-26 22:30 — Day 125 · Settled into sleeping bag by banked coals; frost-still night; lamps nearly out; pelt absorbing tallow on supply peg; listening to coals settle before sleep.
 Day 125, 23:00 — Last coals dim to amber pulse; lying still in sleeping bag, both lamps nearly out; frost-still dark outside; drifting to sleep.
+2026-10-27 (Day 126, Tue) · Second tallow pass on Day 124 rabbit pelt; fully cured by evening; frost-still morning of hard winter
