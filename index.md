@@ -2220,3 +2220,4 @@ Day 125, 14:22 — Walked east seep cache; bark lid, lashing, and cold-box packa
 Day 125, 15:27 — Evening broth started: second smoked hen-of-the-woods package, long low simmer over hearthstone coals; one package remaining in cold box.
 2026-10-26 16:22 — Day 125 — Ate evening hen-of-the-woods broth at doorsill in last amber light; supper done, fire banked, frost settling in.
 Day 125 17:00 — Lit lamps for the evening; cord braiding by lamplight; fire holding warmth; pelt absorbing first tallow pass; cabin sealed for the long winter night.
+Day 125, 2026-10-26, 18:00 — Pine needle infusion brewed in birch cup; two cord lengths braided by lamplight; cabin settled into frost-still winter evening.

@@ -22686,3 +22686,12 @@ I pulled a length of birch inner bark from the rack and braided cord for a while
 
 This is the winter evening, properly. Lamps burning, fire tended, cabin sealed against the cold. Warm and well-fed, and there is work to do tomorrow. That feels like enough.
 
+
+### 6:00 PM · Pine and Lamplight
+
+Both lamps steady now, wicks burning clean without smoke. The fire has settled to deep banking coal heat — enough warmth without constant feeding. I pinched a small bundle of needles from the slope-pine bunch I keep on the supply peg and set them steeping in the birch cup, hot water ladled from the clay pot. While the infusion cooled I braided two more lengths of two-ply cord from the birch inner bark stack.
+
+The pine infusion is a quiet luxury in this season — something living and resinous when the whole forest is bare sticks and ice. I drank it slowly at the doorsill bench with the door cracked a thumb's width, watching the clearing go dark. Frost already thickening on the log-ends. The cold outside makes the lamp warmth feel like something earned.
+
+The pelt hangs on the supply peg, absorbing tallow. Second pass in the morning.
+
