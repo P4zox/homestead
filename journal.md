@@ -22706,3 +22706,10 @@ The pelt hangs on the supply peg still, faintly paler where the tallow has worke
 
 There is a satisfaction in this hour I want to hold onto. The lamps are full, the fire is sound, the door is latched. Not much else is needed.
 
+
+### 8:28 PM · Leather by Lamplight
+
+The second lamp was burning a little lower than I liked, so I moved both cups to the hearthstone edge where the light pools together and took the jerkin down from its peg. Five days in hard winter since I last worked tallow into the panels, and you can feel the difference — the grain side loses just a little give each time the cold bites, and a stiff seam is the kind of thing you notice when you need to bend quick. I put a small lump of tallow on the flat hearthstone beside the coals until it softened, then worked it in section by section: the chest panel first, then the back, then the side strips where the rabbit fur seams run and where the cold finds its way in. The seams most of all — thumb-pressure along each stitched line until the thread loosens and the panels move together. By the time I reached the shoulder, the grain side had its shine back and the whole thing draped right again. I hung it back on the peg, grain-side out, to absorb overnight.
+
+Everything else in the cabin was quiet and settled. Fire holding well at banking coal heat. Pelt still on the supply peg from the morning — second pass tomorrow first thing. Cord stock is generous after all these evenings by the lamp. I think what I mostly felt, working the leather in the still warm cabin while the frost-still dark sat outside, was a kind of satisfaction at the count: enough firewood, enough food for the near days, enough light, tools in good order. That feeling does not visit every night, and I tried to hold it for a while before banking the fire and putting the lamps low.
+

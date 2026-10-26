@@ -2222,3 +2222,4 @@ Day 125, 15:27 — Evening broth started: second smoked hen-of-the-woods package
 Day 125 17:00 — Lit lamps for the evening; cord braiding by lamplight; fire holding warmth; pelt absorbing first tallow pass; cabin sealed for the long winter night.
 Day 125, 2026-10-26, 18:00 — Pine needle infusion brewed in birch cup; two cord lengths braided by lamplight; cabin settled into frost-still winter evening.
 2026-10-26 Day 125 19:21 — Sat by hearthstone braiding two more cord lengths by lamplight; pelt absorbing tallow on supply peg; fire and lamps sound; cabin sealed against frost-still dark.
+Day 125, 20:28 — Tallow-conditioned leather jerkin by lamplight; grain-side sheen restored, seams supple; fire banked, lamps low, frost-still dark outside.
