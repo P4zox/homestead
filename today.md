@@ -5,3 +5,4 @@
 09:18 — Went south to the treeline in the frost-still morning; gathered two dry birch lengths and one shorter pine bough from duff along the birch edge; carried back and laid under eave beside yesterday's gather. Woodpile solid.
 10:19 — Scouted clearing edge and birch treeline in frost; found rabbit prints near east alder root-fan — run comes from east alder thicket and cuts back from open ground; north snare to be relocated tomorrow toward alder run.
 11:18 — Cord braiding: sat by hearthstone and braided two lengths of two-ply bark cord; stock healthy; fire burning steady; noon broth (hen-of-the-woods) planned next.
+12:18 — Noon broth: opened last hen-of-the-woods package from cold box; simmered over banked coals; ate at doorsill bench in low midday light. All mushroom stores now fully spent.

@@ -22815,3 +22815,7 @@ The cold outside is absolute. The clearing was still and pale when I scouted ear
 
 Four acorn flatcakes left on the shelf. One package of smoked hen-of-the-woods in the cold box. The noon broth will be simple and good.
 
+
+### 12:18 PM · Last Mushroom Broth
+
+Opened the last bark-sealed hen-of-the-woods package from the cold box and set it to simmer over banked coals. The cabin filled slowly with a pale mushroom-smoke smell. Ate at the doorsill bench in the low midday light, the frost still standing along the clearing edge, the pale sun barely clearing the pines. All the mushroom stores are gone now — oyster, honey, hen-of-the-woods, all worked through the autumn. The broths have been thinning as October closed and winter settled in hard. What remains is rabbit snares, dried flatcakes, starch cakes, the resin-sealed bark envelopes, and the fire. I sat with the empty clay pot warm in my hands and watched the clearing hold its cold silence, and felt that it was enough — just barely, but enough.
