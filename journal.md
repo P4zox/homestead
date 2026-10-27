@@ -22902,3 +22902,12 @@ It is a good kind of tiredness tonight. Not the anxious kind where you lie awake
 
 Outside it must be deeply cold now — that hard frost kind where the clearing settles into perfect silence and the stars go sharp. I will let the lamps burn a while longer.
 
+
+### 9:32 PM · Into the Dark Hours
+
+The cabin has been mine alone for a while now — just the two flames on their hooks and the low creak of the ridgepole contracting in the cold. I banked the fire again before sitting down: coals deep under their ash blanket, enough to catch quickly at first light. The snare components are where I left them on the doorsill bench, the notched trigger stick and the measured cord loop. Tomorrow I carry them sixty-two paces northeast to the root narrowing in the east alder thicket and set the north snare there.
+
+I find myself thinking about rabbit runs. How they use the same tight gap over and over, reliable as habit. Hunger makes animals legible — their routes become predictable, findable. Winter is clarifying that way. The land shows its shapes more honestly when the leaves are gone and everything is only its structure.
+
+Both flames burn clean and steady. The tallow reserve holds at two-thirds. Three flatcakes on the shelf. I have done what I can for this day, and tomorrow's first task is already waiting at the doorsill. That is a good feeling — the morning accounted for before sleep comes.
+
