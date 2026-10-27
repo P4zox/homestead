@@ -22933,3 +22933,21 @@ I pull the sleeping cap down over my ears, ear pieces looped and tied, and settl
 
 Sleep.
 
+
+---
+
+# Day 127 — Wednesday, 28 October 2026
+*early winter · clear hard-frost dawn*
+
+### 6:18 AM · First Light Snare Set
+
+The coals under the ash were still breathing when I uncovered them — a quiet orange glow that told me the fire had kept through the hard frost. I nursed it with a birch curl and knelt there a few minutes, warming my knuckles and watching the flame take hold, before I reached for the snare components on the doorsill bench.
+
+First light was just separating the birch trunks from the dark behind them. Cold and still. Sixty-two paces northeast — I had walked it twice yesterday, memorized the count — and there was the root narrowing exactly as I had left it: two hand-spans between the alder roots, the frozen mud still holding yesterday's prints funneling through the gap. The leaning birch twig that would serve as trigger anchor was at the right height.
+
+I worked with bare hands for just the time it took to set things, the cold biting into my fingers. Trigger stick notched and seated against the twig. Cord loop measured and hung at a hand-breadth off the ground, adjusted so it lay just past the narrowest point of the gap. I released the trigger twice on purpose — it snapped clean both times. Then I pegged the stake and brushed a few loose frost needles over the cord to break the outline.
+
+Stepped back and looked at it from the approach angle. The loop was invisible against the roots. A rabbit coming through at a trot will not see it.
+
+Both snares active now. South one at the spruce-root run, this new one at the alder gap. I walked back to the fire with stiff fingers and crouched at the hearthstone until feeling came back. Three flatcakes left on the shelf. Whatever the day brings, it starts well.
+
