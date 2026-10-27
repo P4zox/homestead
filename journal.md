@@ -22849,3 +22849,14 @@ The mushroom stores are gone now. That fact sits differently at three in the aft
 I set a flatcake on the flat hearthstone to warm while I steeped a bark cup of rowan berries in hot water from the clay pot — the berries soft now, the water going deep red and tart. Ate at the doorsill bench in the last low winter sun, the birch trunks catching pale gold across the clearing. Cold enough that I could see my breath but not cold enough to refuse the view.
 
 Tomorrow the north snare moves to the alder run. The prints were clear in this morning's frost — a funnel, a real run, sixty-two paces northeast. I believe in tomorrow's set.
+
+### 4:20 PM · Tallow and Lamplight
+
+The last of the winter light is pulling off the birch trunks and the cold is settling back in hard. I have spent today well — traced the rabbit run, readied the snare components, eaten my meals at the doorsill in what pale sun there was. Now the cabin grows dim early, and that is the reminder.
+
+I brought both bark-cup lamps down from their hooks and set them on the hearthstone edge. The first lamp had run down to less than a finger's depth of tallow, the wick short and slightly blackened at the tip. I trimmed it carefully with the knife edge — drew the sooty end free, seated the fresh grass down into the cup. The second was a little better off, but not enough to leave. I spooned from the reserve envelope into both cups until the wicks sat deep and level, pressed the pine pin back in, refolded the resin flap. The envelope is maybe two-thirds full still. Enough for a good while yet.
+
+Hung both lamps back on their hooks. They caught and burned steady — clean yellow flames, no flicker. The cabin walls came up warm in the light, and I sat a while just watching the fire, the snare components on the bench beside me for first light tomorrow. The north snare moves to the east alder run, sixty-two paces northeast, root-narrowing two hand-spans wide. I know exactly where to set it. Today's scouting was not wasted.
+
+Three flatcakes and one rowan envelope left on the shelf. The mushroom stores are spent. Everything depends a little on the snares now — and on being patient. Winter is long, but I have been here before in some form, and the fire is steady, and the lamps are burning.
+
