@@ -2237,3 +2237,4 @@ Day 126, 12:18 PM (Tue 27 Oct) — Noon broth: last hen-of-the-woods package sim
 Day 126, 14:19 — Scouted east alder thicket; mapped rabbit run, marked snare placement sixty-two paces northeast at root narrowing.
 Day 126, 2026-10-27, 15:19 — Supper at doorsill in last winter light: warmed flatcake on hearthstone, rowan berry infusion in bark cup; lean table but enough; three flatcakes and one rowan envelope remaining; snare set confirmed for alder run at first light tomorrow.
 2026-10-27 Day 126 16:19 — Topped both bark-cup lamps from tallow reserve; trimmed first wick; both burning steady for the evening.
+Day 126, 17:19 — Braided two more cord lengths by double lamplight; snare components ready on doorsill bench for first-light alder run; fire banked into evening coals.

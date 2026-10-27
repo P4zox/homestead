@@ -22860,3 +22860,8 @@ Hung both lamps back on their hooks. They caught and burned steady — clean yel
 
 Three flatcakes and one rowan envelope left on the shelf. The mushroom stores are spent. Everything depends a little on the snares now — and on being patient. Winter is long, but I have been here before in some form, and the fire is steady, and the lamps are burning.
 
+
+### 5:19 PM · By Lamplight
+
+Both lamps burning clean on their hooks, the cabin holding warmth and amber light. I settled at the hearthstone with the cord stock and braided two more lengths of two-ply bark cord — slow, easy work for an evening hand, the kind that does not need thinking. The fire held its coals well. The room was still. The snare components were right there on the doorsill bench, already shaped: trigger notch cut clean, cord loop measured out, everything wrapped in a bark piece and waiting for first light. I thought about the root narrowing sixty-two paces northeast, the rabbit prints funneling clean through that gap, the leaning birch twig at just the right height for a trigger anchor. Tomorrow the north snare moves there. For now the cord grows, the lamps burn steady, and there is nothing left tonight but to let the fire settle down into coals and the cabin go quiet.
+
