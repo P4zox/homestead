@@ -22922,3 +22922,14 @@ Three acorn flatcakes on the shelf. Tallow enough for several more weeks of lamp
 
 Sitting here now, both flames steady, the cold absolutely still outside — I find I am not anxious. The morning will come. I will carry the snare out and set it in the good frost. The clearing will be dark and pale and the birch trunks will stand white against the treeline and my breath will show in the air. That is enough to think about. That is enough to look forward to.
 
+
+### 11:23 PM · Into the Night
+
+The lamps burned low tonight, wavering toward the ends of their wicks — I pinched them both and the cabin went dark except for the faint orange glow seeping through the hearthstone seam. The fire is well banked; it will hold until morning.
+
+Snare components are still on the doorsill bench, wrapped in bark: trigger stick and cord loop, ready for first light. I have walked that east alder run in my mind all evening — the root narrowing sixty-two paces northeast, the leaning birch at the right height, the prints funneling clean through the tight gap. Tomorrow morning I will carry it out and set it there.
+
+I pull the sleeping cap down over my ears, ear pieces looped and tied, and settle into the bag on the cattail mat. The warmth holds me. This was a quiet day — good, contained, purposeful. The mushroom stores are fully spent, and the rowan gone, but the woodpile stands solid, the tallow is two-thirds full, and three flatcakes wait on the shelf. Winter is doing what winter does. So am I.
+
+Sleep.
+
