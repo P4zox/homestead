@@ -22911,3 +22911,14 @@ I find myself thinking about rabbit runs. How they use the same tight gap over a
 
 Both flames burn clean and steady. The tallow reserve holds at two-thirds. Three flatcakes on the shelf. I have done what I can for this day, and tomorrow's first task is already waiting at the doorsill. That is a good feeling — the morning accounted for before sleep comes.
 
+
+### 10:27 PM · Last Lamp
+
+The fire has been banked twice now, ash heaped well back over the coals. Both lamps burn at their steady flicker on the hooks, and the cabin holds its warmth against whatever cold has settled outside. I can hear nothing from beyond the walls — no wind, no branch-click — just the faint pop of the firewood contracting as the coals cool beneath the ash.
+
+The snare components are still where I left them on the doorsill bench. Trigger stick, cord loop, bark wrapping — all ready. In the morning I will carry them northeast sixty-two paces to the root narrowing at the east alder, and set the loop where the prints funneled cleanest. I have no certainty it will take. But the run is real, and the placement is right, and that is what I know how to do.
+
+Three acorn flatcakes on the shelf. Tallow enough for several more weeks of lamplight at this use. The cord stock is deep from all the braiding. The cabin holds.
+
+Sitting here now, both flames steady, the cold absolutely still outside — I find I am not anxious. The morning will come. I will carry the snare out and set it in the good frost. The clearing will be dark and pale and the birch trunks will stand white against the treeline and my breath will show in the air. That is enough to think about. That is enough to look forward to.
+
