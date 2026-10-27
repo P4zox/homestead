@@ -2245,3 +2245,4 @@ Day 126, 19:22 — Last Rowan Cup — opened final rowan envelope; steeped in bi
 Day 126, 22:27 — Last lamp hour; both flames steady; snare components ready on doorsill bench for east alder root narrowing at dawn
 Day 126, 23:23 — Settled to sleep; snare components ready for dawn alder run to east root narrowing; mushroom stores spent; three flatcakes, tallow two-thirds full.
 Day 127, 06:18 — First Light Snare Set: carried north snare components to east alder root narrowing sixty-two paces northeast at first light; trigger stick anchored to leaning birch, cord loop at hand-breadth height, stake pegged firm; both snares now active.
+Day 127, 2026-10-28, 07:18 — Morning meal at hearthstone: one acorn flatcake and rose hip paste in hot water; tended fire from overnight coals; watched clear frost-sharp morning from the doorsill bench.

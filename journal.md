@@ -22951,3 +22951,14 @@ Stepped back and looked at it from the approach angle. The loop was invisible ag
 
 Both snares active now. South one at the spruce-root run, this new one at the alder gap. I walked back to the fire with stiff fingers and crouched at the hearthstone until feeling came back. Three flatcakes left on the shelf. Whatever the day brings, it starts well.
 
+
+### 7:18 AM · Rose Hip Morning
+
+The fire kept its coals through the night, just under the ash. I raked them out, added a curl of birch bark, breathed it to flame, then set two birch lengths across and left the door open a moment while the smoke straightened up into the cold.
+
+Both snares are set. The south one at the spruce-root run has waited patiently through several days now; the north one — hung fresh at first light at the alder gap sixty-two paces northeast — is barely an hour old. Both need time more than attention. I let them alone.
+
+I ate one flatcake at the hearthstone. I stirred rose hip paste into a mug of hot water, and it dissolved unevenly — thick and tart in patches, sweet where it thinned. Two flatcakes remain on the shelf. The starch cakes are still good. I am not worried; I am only watching the number clearly.
+
+The clearing at full light: hard frost, pale blue sky, three chickadees working the birch bark at the treeline. I sat on the doorsill bench until the cold found its way in, then went back inside to the fire. The morning is quiet and still.
+
