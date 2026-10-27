@@ -22793,3 +22793,16 @@ After the broth, I pulled on the fur-lined mittens and went south to the treelin
 
 The cold was honest and still out there — not biting, just present. That kind of winter morning that asks nothing except to keep moving. I stood a moment at the treeline before turning back, watching the pale sun clear the ridge. Low and white. The clearing quiet and sealed in frost. It is enough.
 
+
+### 10:19 AM · Reading the Frost
+
+The fire was burning steady and the pelt hung absorbing on the peg when I went out again — this time without the axe and without errand, just to walk the clearing edge and look.
+
+The frost is absolute now. Every boot-print from the morning run stands crisp and preserved, and the ground between them is unmarked as glass. I walked north along the treeline first, slow, reading the surface. Nothing at the birch edge — no rabbit runs, no compressed trails under the lowest branches where they like to move. The north snare site looks quiet; the ground near it has only my own prints from this morning's check.
+
+I came around the east side toward the seep. There, where the alder roots fan out and the snow is shallower, I found what I was looking for: a set of prints, small and light, coming from the east and turning back. One animal, moving two nights ago by the look of the frost-crystal formation at the edges. The run goes from the east alder thicket toward the clearing and then cuts sharply back — wary of open ground, as they are in hard winter.
+
+The north snare is set on an old run that may have gone cold. I'll move it tomorrow, closer to the alder root-fan where that recent trail turned. For now, I've walked the ground, read what it has to say, and I know more than I did an hour ago.
+
+Came inside to the fire. The light on the south wall is pale and still. It is enough.
+

@@ -2230,3 +2230,4 @@ Day 125, 23:00 — Last coals dim to amber pulse; lying still in sleeping bag, b
 Day 126, 07:19 — Morning snare check; both empty in deep frost; both reset; quiet walk along birch edge in frost-still air.
 Day 126, 08:18 — Morning honey mushroom broth with acorn flatcake at doorsill bench; honey mushroom stores now spent.
 Day 126 (2026-10-27 09:18) — Cold Treeline Run: gathered two dry birch lengths and one pine bough from south treeline duff; added under eave; woodpile steady.
+Day 126, 10:19 AM — Scouted clearing edge and east birch treeline in frost; found rabbit print trail near east alder root-fan, two nights old; north snare marked for relocation.
