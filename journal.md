@@ -22865,3 +22865,14 @@ Three flatcakes and one rowan envelope left on the shelf. The mushroom stores ar
 
 Both lamps burning clean on their hooks, the cabin holding warmth and amber light. I settled at the hearthstone with the cord stock and braided two more lengths of two-ply bark cord — slow, easy work for an evening hand, the kind that does not need thinking. The fire held its coals well. The room was still. The snare components were right there on the doorsill bench, already shaped: trigger notch cut clean, cord loop measured out, everything wrapped in a bark piece and waiting for first light. I thought about the root narrowing sixty-two paces northeast, the rabbit prints funneling clean through that gap, the leaning birch twig at just the right height for a trigger anchor. Tomorrow the north snare moves there. For now the cord grows, the lamps burn steady, and there is nothing left tonight but to let the fire settle down into coals and the cabin go quiet.
 
+
+### 6:19 PM · Lamp-Glow, Fire-Bank
+
+Both lamps burn steady on their hooks, the cabin warm with double flame. I have been sitting by the hearthstone through the early evening, letting the birch coals do their slow work. After supper and cord-braiding there is not much left to do but be still, and I find I do not mind it.
+
+I counted what is left on the supply shelf: three acorn flatcakes, one rowan berry envelope, tallow reserve two-thirds full. All the mushroom stores are spent — those careful packages built through autumn, gone now into winter broth. It is the cost of hard winter: you draw on what you made. I made enough, so far.
+
+Tomorrow I carry the snare components sixty-two paces northeast to the root narrowing in the east alder thicket. I walked that run in the frost this afternoon and memorized the tight gap where the prints funnel through. The leaning birch twig is at the right height for the trigger anchor. I will set it at first light when the cold is still and the rabbits have not yet moved.
+
+I banked the fire deep — good birch coals, slow and sure — and trimmed nothing more. The snare components sit on the doorsill bench, ready. Outside, the night comes down hard and cold over the bare clearing. Inside, the lamps hold.
+
