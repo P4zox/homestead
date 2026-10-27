@@ -22806,3 +22806,12 @@ The north snare is set on an old run that may have gone cold. I'll move it tomor
 
 Came inside to the fire. The light on the south wall is pale and still. It is enough.
 
+
+### 11:18 AM · Cord by the Fire
+
+The morning has been full and the fire is still high. I sat down beside the hearthstone with a fresh length of birch inner bark and began braiding. The rhythm of it is easy to find — split the strip, double the ply, draw it tight — and after a while my hands know the work without much asking. Two lengths finished and coiled into the stock before the light shifted.
+
+The cold outside is absolute. The clearing was still and pale when I scouted earlier, and the rabbit trail I found near the east alder root-fan felt like a small gift from the morning. I will move the north snare there at first light tomorrow. For now the snare cord runs under my thumb and the fire ticks and settles.
+
+Four acorn flatcakes left on the shelf. One package of smoked hen-of-the-woods in the cold box. The noon broth will be simple and good.
+
