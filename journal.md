@@ -22786,3 +22786,10 @@ I opened the last honey mushroom package from the cold box: small caps and stems
 
 The sun was still low, barely clearing the treeline. Long shadows across the frost, and the clearing very still. I ate slowly, warming from the inside out. The honey mushroom is the last — both packages spent now. I was glad I had saved them this long into winter; they made a good meal.
 
+
+### 9:18 AM · Cold Treeline Run
+
+After the broth, I pulled on the fur-lined mittens and went south to the treeline while the morning held its stillness. The frost had locked everything into place — each fallen branch printed clean white on dark bark, the ground ringing hard underfoot. I worked the duff along the birch edge where the driest dead wood lies, snapping lengths free from the frozen mat and shaking off the white. Two good birch branches and a shorter dry pine bough, carried cradled against my chest back to the lean-to. Under the eave beside yesterday's gather, they settle in well. The pile looks solid for the days ahead.
+
+The cold was honest and still out there — not biting, just present. That kind of winter morning that asks nothing except to keep moving. I stood a moment at the treeline before turning back, watching the pale sun clear the ridge. Low and white. The clearing quiet and sealed in frost. It is enough.
+
