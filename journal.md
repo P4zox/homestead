@@ -22819,3 +22819,12 @@ Four acorn flatcakes left on the shelf. One package of smoked hen-of-the-woods i
 ### 12:18 PM · Last Mushroom Broth
 
 Opened the last bark-sealed hen-of-the-woods package from the cold box and set it to simmer over banked coals. The cabin filled slowly with a pale mushroom-smoke smell. Ate at the doorsill bench in the low midday light, the frost still standing along the clearing edge, the pale sun barely clearing the pines. All the mushroom stores are gone now — oyster, honey, hen-of-the-woods, all worked through the autumn. The broths have been thinning as October closed and winter settled in hard. What remains is rabbit snares, dried flatcakes, starch cakes, the resin-sealed bark envelopes, and the fire. I sat with the empty clay pot warm in my hands and watched the clearing hold its cold silence, and felt that it was enough — just barely, but enough.
+
+### 1:18 PM · Readying the Alder Set
+
+The noon broth finished the last of the mushroom stores. The cabin feels a little quieter for it — all that autumn abundance, the oyster clusters and hen-of-the-woods fans and honey mushroom caps, gone through slowly over months and now just gone. Four acorn flatcakes on the shelf and the two snares empty and cold at the treeline. The rabbits are leaving prints near the east alder run but staying clear of the current sets. Tomorrow I move the north snare.
+
+I spent this hour at the hearthstone preparing for it. Measured out a fresh cord loop from the braiding stock — arm-and-a-half in circumference, supple but not springy — and cut a trigger notch into a straight birch stick with the knife, testing the notch depth against my thumb until it released cleanly with light pressure. When the notch is wrong the snare fails; I took my time. The loop and the trigger stick are wrapped in a piece of bark and set on the doorsill bench, ready to carry to the east alder run at first light tomorrow. I want to be there early, before any rabbit has crossed the frost and while the ground still holds the overnight track.
+
+The fire is steady. I fed in one thin birch length from the eave stack — enough to hold coals through the afternoon without burning through the morning store. The sun is already dipping behind the south pines; winter arcs it low and brief. Four flatcakes, two snares. That is the arithmetic of January coming on.
+
