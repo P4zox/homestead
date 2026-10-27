@@ -2228,3 +2228,4 @@ Day 125, 21:33 — Trimmed lamps low, braided one final cord length, banked fire
 Day 125, 23:00 — Last coals dim to amber pulse; lying still in sleeping bag, both lamps nearly out; frost-still dark outside; drifting to sleep.
 2026-10-27 (Day 126, Tue) · Second tallow pass on Day 124 rabbit pelt; fully cured by evening; frost-still morning of hard winter
 Day 126, 07:19 — Morning snare check; both empty in deep frost; both reset; quiet walk along birch edge in frost-still air.
+Day 126, 08:18 — Morning honey mushroom broth with acorn flatcake at doorsill bench; honey mushroom stores now spent.

@@ -22777,3 +22777,12 @@ I did not mind. The bare birch at the clearing edge stood quiet and pale against
 
 The fire had caught properly by the time I got back.
 
+
+### 8:18 AM · Morning Mushroom Broth
+
+After the snare check I came back to a fire that had held through the frost — coals still orange under the ash, the shelter warm. I fed it a birch length and crouched close while it caught. By the time my hands stopped aching the clay pot was heating over the coals.
+
+I opened the last honey mushroom package from the cold box: small caps and stems, copper-brown, carrying their smoke. They went into the water whole, and I sat near the hearth while the smell built — woodsmoke first, then something earthier underneath, sweeter. When the broth was steaming I brought it to the doorsill bench with an acorn flatcake and sat in the pale winter light to eat.
+
+The sun was still low, barely clearing the treeline. Long shadows across the frost, and the clearing very still. I ate slowly, warming from the inside out. The honey mushroom is the last — both packages spent now. I was glad I had saved them this long into winter; they made a good meal.
+
