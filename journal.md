@@ -22839,3 +22839,13 @@ I found the spot: a narrowing between two alder roots, maybe two hand-spans acro
 
 I stood there a while in the afternoon light before coming back in. The air was still and the light had that particular winter quality — white and clean and very quiet. The snare components on the doorsill bench will fit this spot exactly. Tomorrow morning I will carry them out at first light.
 
+
+### 3:19 PM · Low Sun, Lean Table
+
+The afternoon has gone quiet in the way winter afternoons do — the snare components sitting on the doorsill bench ready for first light, the fire banked low and steady, nothing left to do but tend the coming dark. I fed another birch length into the hearthstone and let the flames build slowly while I thought about supper.
+
+The mushroom stores are gone now. That fact sits differently at three in the afternoon than it did at noon. The cold box holds nothing; the shelves hold what they hold — flatcakes, starch cakes, rowan berries, pastes. Enough. But the broth smell won't be in the cabin tonight, and I notice that.
+
+I set a flatcake on the flat hearthstone to warm while I steeped a bark cup of rowan berries in hot water from the clay pot — the berries soft now, the water going deep red and tart. Ate at the doorsill bench in the last low winter sun, the birch trunks catching pale gold across the clearing. Cold enough that I could see my breath but not cold enough to refuse the view.
+
+Tomorrow the north snare moves to the alder run. The prints were clear in this morning's frost — a funnel, a real run, sixty-two paces northeast. I believe in tomorrow's set.
