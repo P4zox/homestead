@@ -22891,3 +22891,14 @@ Snare components still on the bench beside me. East alder run at first light. Th
 
 I am lean, but not empty.
 
+
+### 8:32 PM · Counting What Holds
+
+The cabin holds its warmth well tonight. Both lamps are burning clean on their hooks, the small yellow flames steady in the still air — no draft through the gables, no cold coming off the base logs. The fire is down to its coals the way I have learned to leave it: not buried, not burning high, just holding heat through the dark hours.
+
+I have been sitting with the fact that the mushroom stores are gone. Last hen-of-the-woods at noon, last honey mushroom at breakfast — the shelves are lighter than they were even a week ago. Three acorn flatcakes, no rose hips, no rowan berries. What remains now is the snare work and whatever game comes into it. Tomorrow at first light I will carry those snare components to the root narrowing sixty-two paces northeast — the rabbit prints were clear there, funneling tight through the gap, and the leaning birch twig will anchor the trigger at exactly the right height.
+
+It is a good kind of tiredness tonight. Not the anxious kind where you lie awake counting what is left. The kind that comes from a day that went the way it was meant to: fire tended, wood added, stores assessed, preparations set. The work tomorrow is already arranged in my hands.
+
+Outside it must be deeply cold now — that hard frost kind where the clearing settles into perfect silence and the stars go sharp. I will let the lamps burn a while longer.
+
