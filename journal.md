@@ -22876,3 +22876,18 @@ Tomorrow I carry the snare components sixty-two paces northeast to the root narr
 
 I banked the fire deep — good birch coals, slow and sure — and trimmed nothing more. The snare components sit on the doorsill bench, ready. Outside, the night comes down hard and cold over the bare clearing. Inside, the lamps hold.
 
+
+### 7:22 PM · Last Rowan Cup
+
+The lamps were burning well and I found myself standing by the hearthstone with nothing particular left to do. I decided: this is the night for the last rowan envelope.
+
+I opened it slowly — the smoked berries dry and dark, still carrying their faint resinous sweetness — and steeped a small handful in water I had set to warm at the hearthstone edge. By the time both lamps settled steady overhead, the water had pulled everything from them: deep garnet and tart, warm all the way down.
+
+I took the birch cup to the doorsill bench and sat with it in the still dark. The clearing was absolutely cold and quiet. Frost against the cabin walls. The lamps made small bright circles behind me; beyond the doorsill was only moonless winter night.
+
+I drank slowly. The rowan berries are gone now — no more until next autumn brings them back, months away. That is the shape of a winter life: you drink the last cup knowing it is the last, and the knowing is part of what makes it good.
+
+Snare components still on the bench beside me. East alder run at first light. Three flatcakes on the shelf. Tallow two-thirds full. Fire holding deep on birch coals.
+
+I am lean, but not empty.
+

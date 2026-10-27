@@ -2239,3 +2239,4 @@ Day 126, 2026-10-27, 15:19 — Supper at doorsill in last winter light: warmed f
 2026-10-27 Day 126 16:19 — Topped both bark-cup lamps from tallow reserve; trimmed first wick; both burning steady for the evening.
 Day 126, 17:19 — Braided two more cord lengths by double lamplight; snare components ready on doorsill bench for first-light alder run; fire banked into evening coals.
 Day 126, 18:19 — Evening at hearthstone by lamplight; supply shelf counted; fire banked deep for the night; snare components ready for first-light alder run
+Day 126, 19:22 — Last Rowan Cup — opened final rowan envelope; steeped in birch cup by lamplight; drank at doorsill in still winter dark; rowan stores fully spent
