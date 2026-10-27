@@ -22828,3 +22828,14 @@ I spent this hour at the hearthstone preparing for it. Measured out a fresh cord
 
 The fire is steady. I fed in one thin birch length from the eave stack — enough to hold coals through the afternoon without burning through the morning store. The sun is already dipping behind the south pines; winter arcs it low and brief. Four flatcakes, two snares. That is the arithmetic of January coming on.
 
+
+### 2:19 PM · Alder Run Scout
+
+The afternoon was frost-still and pale — good light for reading ground. I walked east from the cabin with nothing but my knife, following the clearing edge until the alder thicket opened ahead of me. I wanted to know exactly where tomorrow's snare should go.
+
+The run was clearer than I expected. Prints came from the root tangle at the base of the alders — small pocks pressed neat into the frost — and they moved in a purposeful arc across the open ground before looping back under the same roots. Whatever rabbit made this is using the same path twice. That is the habit I want to catch.
+
+I found the spot: a narrowing between two alder roots, maybe two hand-spans across, where the prints funneled tight and the frost was most disturbed. The ground there is lower, sheltered by the root mass on both sides. A leaning birch twig at the right height makes a natural anchor for the trigger stick. I paced it from the cabin door — sixty-two paces northeast, slight bearing toward the slope.
+
+I stood there a while in the afternoon light before coming back in. The air was still and the light had that particular winter quality — white and clean and very quiet. The snare components on the doorsill bench will fit this spot exactly. Tomorrow morning I will carry them out at first light.
+

@@ -2234,3 +2234,4 @@ Day 126, 10:19 AM — Scouted clearing edge and east birch treeline in frost; fo
 2026-10-27 Day 126 11:18 — Cord by the Fire — braided two lengths of two-ply bark cord by the hearthstone; fire steady, north snare relocation to east alder run planned for tomorrow morning
 Day 126, 12:18 PM (Tue 27 Oct) — Noon broth: last hen-of-the-woods package simmered and eaten at doorsill; all mushroom stores now fully spent.
 2026-10-27 Day 126, 13:18 — Prepared snare components for tomorrow north-snare relocation to east alder run: trigger stick notched, cord loop measured and wrapped in bark, set on doorsill bench ready for first light.
+Day 126, 14:19 — Scouted east alder thicket; mapped rabbit run, marked snare placement sixty-two paces northeast at root narrowing.
