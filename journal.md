@@ -23111,3 +23111,17 @@ I came in, shut the latch bar, put the fur chest panel across my chest and the s
 ### 11:29 PM · Last Coal, Near Midnight
 
 Woke in the dark without knowing why — the coals pulling me back from the edge of sleep. Rose without the lamp and moved to the hearth by feel. Lifted the lid on the clay pot: steam rose into the cold air, broth full and dark, bones pale and spent. Seven hours drawing. Good. I laid one short birch length under the banked coals, set the lid back, and stood a moment in the still cabin — frost showing at the doorsill gap as a thread of pale light, cold pressing in from every wall. The snares were somewhere out in that dark. The draw was running. There was nothing left to tend. I settled back into the sleeping bag with the fur chest panel warm against me and let it all go.
+
+---
+
+# Day 128 — Thursday, 29 October 2026
+*early winter · clear hard frost, pale sky at east*
+
+### 6:18 AM · South Snare Moved
+
+The overnight draw came through rich. I lifted the lid at first light — dark amber broth, steam rising into the cold cabin air, bones pale and spent after twelve hours on low coals. Strained it into the wide bowl and drank standing at the hearthstone, warmth spreading out from my chest into the chill. One starch cake alongside. Not acorn flatcakes anymore; those are spent. But the broth is full and the cakes are firm and faintly sweet, and there is enough.
+
+Then I took the trigger stick and cord from beside the door and walked the forty paces to the birch-snag gap southeast. My own boot prints from yesterday's scout were still there, edges crystallized and hard overnight, pointing the way. The gap is a hand-span and a half wide — the same narrow channel where fresh morning prints had come through. I set the trigger stick notched against the right-hand birch, measured the cord loop at hand-breadth height, anchored the stake firm into frozen ground, and tugged the trigger twice: clean releases both times. Dusted loose frost crystals over the cord from above, stepped back. The loop was invisible from approach angle.
+
+South snare is in the birch-snag gap now. North snare stays at the alder gap sixty-two paces northeast. Both set, both in ground where prints have been. The morning is clear and cold and still, pale sky just beginning to lighten at the east ridge. A good first hour — the planned thing done at the planned time, which is its own quiet satisfaction.
+
