@@ -23017,3 +23017,16 @@ I pressed out the air, fit the pine pin back through its loop hole, and smoothed
 
 Both snares are set and untouched. The firewood is stacked. Outside the light is that flat, almost shadowless white of hard winter noon, the treeline standing without motion. I sat on the doorsill bench for a moment after sealing the envelope and felt the cold come in at my ankles and the warmth push back from behind me. That is the whole transaction of this life in winter: holding the line between the cold and the warm, keeping each supply a little steadier than the day before.
 
+
+### 1:18 PM · Scouting South Treeline
+
+After the tallow render, the afternoon opened up clear and cold. The bones are still drawing in the clay pot on low coals; I left them to it and took a wide loop south to read the ground. The south spruce-root run has gone still for two days now, and I wanted to understand the shift.
+
+I walked the full south treeline slowly, watching. The old prints by the spruce root are two days crystallized — edges rounded and dusted with frost crystals, no fresher sign on the whole corridor. The rabbits have pulled away from the south slope entirely, drawn up by something. Perhaps the same pressure that funneled the doe through the alder gap this morning.
+
+Moving east along the birch edge, I found what I was looking for: a narrow throat between two birch snags, perhaps forty paces from the clearing's southeast corner. Fresh prints this morning, edges clean and sharp — a well-traveled thread through the duff. The neck between the snags is hand-span and a half across at its tightest. A snare set there would sit directly in the current line of movement.
+
+I notched the right-hand birch quietly as a marker and left the ground undisturbed. Tomorrow morning, if the south snare sits empty again, I'll pull it from the spruce-root run and relocate it here to the birch-snag gap. No point in holding a set nobody uses.
+
+The walk took most of the afternoon. I came back with cold feet and clear thinking. The bones continue their long draw on the coals; I'll leave them through the night.
+
