@@ -23107,3 +23107,7 @@ Both lamps are burning clean. I trimmed the wicks low — they will last the nig
 
 I came in, shut the latch bar, put the fur chest panel across my chest and the sleeping cap on with the ear pieces tied. The pot will do the rest. This is all the day asked for, and the day was enough.
 
+
+### 11:29 PM · Last Coal, Near Midnight
+
+Woke in the dark without knowing why — the coals pulling me back from the edge of sleep. Rose without the lamp and moved to the hearth by feel. Lifted the lid on the clay pot: steam rose into the cold air, broth full and dark, bones pale and spent. Seven hours drawing. Good. I laid one short birch length under the banked coals, set the lid back, and stood a moment in the still cabin — frost showing at the doorsill gap as a thread of pale light, cold pressing in from every wall. The snares were somewhere out in that dark. The draw was running. There was nothing left to tend. I settled back into the sleeping bag with the fur chest panel warm against me and let it all go.
