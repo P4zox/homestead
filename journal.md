@@ -23098,3 +23098,12 @@ The overnight draw has been going three hours now, and the cabin smells of rabbi
 
 Braided one more cord length while the fire settled low. Both lamps burning clean. South snare relocation still first light — fresh prints at the birch-snag gap were clear this morning; the trigger stick and cord are wrapped and ready by the door. Tomorrow's work is already laid out before I lie down. That's enough.
 
+
+### 10:30 PM · Low Coals, Long Night
+
+The draw has been running six-plus hours — I lifted the lid and found broth dark amber, fat pooled at the rim, bones gone pale and beginning to soften at the joints. Good work without me. I skimmed with the bark scrap, laid two short birch lengths under the coals to carry it through till morning, and set the lid back carefully so no ash falls in.
+
+Both lamps are burning clean. I trimmed the wicks low — they will last the night and still be going at first light. The fire is banked. Outside the door, a moment: clear sky, the clearing frost-white, no wind at all. Both snares sitting in the dark. Tomorrow morning, south snare moves to the birch-snag gap forty paces southeast where the fresh prints were funneling.
+
+I came in, shut the latch bar, put the fur chest panel across my chest and the sleeping cap on with the ear pieces tied. The pot will do the rest. This is all the day asked for, and the day was enough.
+

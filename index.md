@@ -2260,3 +2260,4 @@ Day 127, 6:18 PM — Set rabbit haunches and shoulders for overnight draw in cla
 2026-10-28 Day 127 19:19 — Lamplight and Cord: braided two cord lengths by hearth lamplight; tended overnight rabbit draw (seven-plus hours, broth darkening); reflected on tomorrow's snare relocation to birch-snag gap southeast; fire banked, both lamps clean.
 Day 127, 20:35 — braided cord by lamplight; tended overnight rabbit draw (two-plus hours, water topped, coals rebuilt); both lamps clean; fire banked; both snares set; south snare relocation to birch-snag gap first light tomorrow.
 2026-10-28 21:20 — Day 127: tended overnight rabbit draw by lamplight (three hours, deep amber, coals rebuilt); braided one more cord length; settling toward sleep; south snare relocation first light tomorrow
+2026-10-28 Day 127 22:30 — Tended overnight rabbit draw (6+ hrs, dark amber), trimmed lamp wicks low, banked fire; settled to sleep.
