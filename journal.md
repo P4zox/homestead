@@ -22997,3 +22997,14 @@ Two remaining flatcakes on the shelf. All the mushroom stores spent. Rowan berri
 
 The treeline is pale through the doorway and absolutely still.
 
+
+### 11:18 AM · Snare Fires
+
+I pulled on mittens and jerkin just past midday and walked the sixty-two paces northeast to the alder gap. The frost held thick in the shadow of the birch and alder — no wind, no sound, the whole north slope white and still under a pale sky. Coming around the leaning birch I could see it immediately: the cord loop was lying flat, the trigger fired.
+
+A grey doe rabbit, small but solid, had caught cleanly at the loop. I dispatched her quickly at the snare site, then reset the trigger with fresh notching — brushed cord and frost needles back over the approach as I had at dawn — and carried her home in the crook of my arm.
+
+At the hearthstone I jointed her with care: haunches and shoulders wrapped in dock leaf and into the cold box, loin sections set beside, cavity fat scraped into the bark cup for a new tallow render this afternoon. The bones went into the clay pot with a cupful of water, set low over the coals — a slow bone draw that should be rich by evening.
+
+Two flatcakes left on the shelf. Tallow two-thirds full. Mushroom stores spent and no watercress to gather while the stream is iced, but there is meat in the cold box now and a pot simmering on the hearthstone. The north snare is back in place and the alder gap is good country.
+
