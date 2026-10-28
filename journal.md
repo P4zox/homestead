@@ -22962,3 +22962,14 @@ I ate one flatcake at the hearthstone. I stirred rose hip paste into a mug of ho
 
 The clearing at full light: hard frost, pale blue sky, three chickadees working the birch bark at the treeline. I sat on the doorsill bench until the cold found its way in, then went back inside to the fire. The morning is quiet and still.
 
+
+### 8:18 AM · Empty South Snare
+
+After breakfast I bundled into my jerkin and mittens and walked the south line to the spruce-root run — a hundred or so paces through bare birch and frost-stiff grass. The coals were banked and the door latched behind me. The morning light was low and sharp, slanting through the trees in pale bars, every exhale a small cloud rising and dissolving.
+
+The south snare was empty. The loop hung undisturbed at the right height, trigger clean and unsprung. I crouched and read the frost around it: no fresh tracks through the notch. The prints I had been following there were a day or two old now, crystallized and sunken in, no longer telling me anything useful. The rabbits have shifted their runs — the way they do when the cold deepens and they stop repeating the same lines.
+
+Which is why the alder gap had made sense. I straightened the south loop anyway, brushed a little fresh powdered frost over the cord to break the outline, then walked back through the still morning. The north snare is only two hours old. I will leave them both until afternoon and trust the move.
+
+Checking an empty snare is not dramatic work, but it is honest work. I came back knowing something: the south run has gone quiet, and the north is the better ground now. That is enough for this hour.
+
