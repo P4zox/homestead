@@ -23091,3 +23091,10 @@ I have been braiding cord by the left lamp since supper. My hands know the motio
 
 Both lamps burning clean and steady. Outside it must be a brilliant frost sky, but I have not gone to look. I will check before I sleep.
 
+
+### 9:20 PM · Lamplight and Draw
+
+The overnight draw has been going three hours now, and the cabin smells of rabbit bone and birch smoke. I lifted the lid and found the broth deep amber already — bones pale-white at the shoulder joints, fat rising in small circles on the surface. Skimmed the foam ring with a bark scrap, topped the water level from the cup at the hearthstone, and tucked two short birch lengths under the coals to carry it through the night without flaring. It should be dark and rich by morning.
+
+Braided one more cord length while the fire settled low. Both lamps burning clean. South snare relocation still first light — fresh prints at the birch-snag gap were clear this morning; the trigger stick and cord are wrapped and ready by the door. Tomorrow's work is already laid out before I lie down. That's enough.
+
