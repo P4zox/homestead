@@ -23055,3 +23055,11 @@ The bone draw was still going on the hearth — a low, steady simmer, the pot gl
 
 The south snare components — trigger stick, cord, stake — sit in the bait box by the door, ready for tomorrow's first-light move to the birch-snag gap. The day's real catch was at 11:18; the morning doe whose bones are still giving. I'll go to bed with something in the pot and both snares set. That is enough.
 
+
+### 5:00 PM · Last Flatcakes
+
+The bone draw had been running since eleven — rabbit bones from this morning's catch in the clay pot, slow coals, barely murmuring all afternoon. By five o'clock the broth had gone that deep amber color I have learned means the marrow has given everything it had. I strained it through bark mesh into the wide bowl, carried the pot outside to cool in the frost, and brought the last two acorn flatcakes from the shelf.
+
+I ate on the doorsill bench. The light had drained out of the sky completely. The clearing lay still in the cold. Somewhere out there the north snare waits at the alder gap, and the south one still crouches at the spruce root — tomorrow I'll move that one to the birch-snag gap, where the morning prints were fresh and clear.
+
+The flatcakes are gone now. All the acorn work from autumn — the gathering, the leaching, the grinding, the shaping — it ended here with rabbit bone broth on a hard-frost evening. I don't feel the lack of them yet. The cold box has this morning's rabbit, the shelf still has cattail starch cakes, the tallow is nearly three-quarters full. But I notice the end of things when they come. The flatcakes deserved the best of the broth, and they got it.
