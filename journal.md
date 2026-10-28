@@ -23080,3 +23080,14 @@ Nine cattail starch cakes on the shelf. Tallow three-quarters. Both snares set. 
 
 I braided the second length and set it with the rest. Enough for tonight. The fire will hold till morning.
 
+
+### 8:35 PM · Lamplight Cord
+
+The pot has been running for two hours. I lifted the lid to check the water level — still covering well, a faint color starting at the edges — rebuilt the coal bed with two short birch lengths, and settled back to the bench.
+
+It is good to have something in the pot overnight. The morning will begin with broth, and that makes tomorrow feel more settled already.
+
+I have been braiding cord by the left lamp since supper. My hands know the motion now: three strands, over-under, a firm tug every few loops. The work lets the mind go quiet. I find myself going over the day — the grey doe caught at the alder gap, the bone draw strained at dusk with the last two flatcakes, the fresh prints at the birch-snag gap forty paces southeast that tell me where to move the south snare at first light tomorrow. No flatcakes left on the shelf now; nine starch cakes remain. The acorn stores carried me well into winter, but that chapter is done.
+
+Both lamps burning clean and steady. Outside it must be a brilliant frost sky, but I have not gone to look. I will check before I sleep.
+
