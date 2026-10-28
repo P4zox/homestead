@@ -2248,3 +2248,4 @@ Day 127, 06:18 — First Light Snare Set: carried north snare components to east
 Day 127, 2026-10-28, 07:18 — Morning meal at hearthstone: one acorn flatcake and rose hip paste in hot water; tended fire from overnight coals; watched clear frost-sharp morning from the doorsill bench.
 2026-10-28 Day 127 08:18 — Walked south snare line at spruce-root run; loop empty, old crystallized prints, rabbits shifted; straightened and reset south loop; north snare at alder gap two hours old, left to sit
 Day 127, 09:18 — Gathered firewood from south treeline on clear frost morning; north snare untouched at alder gap, fresh dawn prints at approach, left to sit until midday.
+2026-10-28, Day 127, 10:19 — Braided two cord lengths by hearth while north snare sits through midday; south run gone cold, prints two days old; north alder gap snare showing fresh dawn tracks; two flatcakes remaining; all mushroom and berry stores spent.

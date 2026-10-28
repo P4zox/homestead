@@ -22984,3 +22984,16 @@ On the return I circled wide around the north snare, well clear of the cord. The
 
 Inside, the coals were still breathing under their ash. I set the new wood within reach, sat on the doorsill bench, and watched the clearing settle into late morning.
 
+
+### 10:19 AM · Cord by the Fire
+
+The fire is settled and steady. I added two birch lengths to the hearth coals this morning and the bed built back up quickly — the cabin holds its warmth now, all that daubing and leaf-banking amounting to something on a morning like this. It is cold and white and still outside, the frost light hard through the doorway.
+
+I pulled the bark cordage stock and sat close to the fire to braid. My hands know the motion without thought. The north snare is out there sixty-two paces northeast, set at the alder root narrowing since first light, and there were fresh prints approaching from the northeast when I circled back past it at nine. That is the kind of sign that makes waiting easier. I will not check it until midday at the earliest — a snare needs time to become part of the silence.
+
+The south run has gone cold. Prints two days old and crystallized, no fresh sign. The rabbits have shifted. I reset the loop anyway, but I am not counting on it. Everything depends on the north set now, on whether that funnel at the alder gap is as good a place as the tracks suggest.
+
+Two remaining flatcakes on the shelf. All the mushroom stores spent. Rowan berries gone. Tallow two-thirds full. Winter is fully settled — stream iced, garden dormant, berry runs bare. The traps and the treeline duff are what I have left. So I braid cord, because cord does not spoil, and the day I need a length I have not made is the day I regret this morning.
+
+The treeline is pale through the doorway and absolutely still.
+
