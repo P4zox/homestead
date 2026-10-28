@@ -22973,3 +22973,14 @@ Which is why the alder gap had made sense. I straightened the south loop anyway,
 
 Checking an empty snare is not dramatic work, but it is honest work. I came back knowing something: the south run has gone quiet, and the north is the better ground now. That is enough for this hour.
 
+
+### 9:18 AM · The South Treeline
+
+The frost holds the whole clearing in blue shadow still. I layered up — jerkin, wrist wraps, mitten liners — and stepped out into air that bites at the edges of every breath. The north snare has been sitting for three hours now. I will leave it until midday; no use pushing past the gap twice and leaving scent all over the approach.
+
+The south treeline is worth the walk on mornings like this. Birch trunks white against pale sky, the duff beneath stiff and packed but giving up dry lengths if you root around with the digging stick. I brought back two dry birch lengths and one pine bough, split one birch at the chopping stone — it cracked apart in clean cold halves, still holding fragrance even cured and cold. The eave row is well stocked, but every piece laid by before real need is a debt I will not owe in January.
+
+On the return I circled wide around the north snare, well clear of the cord. The alder gap looked still. A single set of prints led in from the northeast, toe-punched fresh into the frost — maybe dawn. The loop stood upright, untouched. Good. I left it alone.
+
+Inside, the coals were still breathing under their ash. I set the new wood within reach, sat on the doorsill bench, and watched the clearing settle into late morning.
+

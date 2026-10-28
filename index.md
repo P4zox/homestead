@@ -2247,3 +2247,4 @@ Day 126, 23:23 — Settled to sleep; snare components ready for dawn alder run t
 Day 127, 06:18 — First Light Snare Set: carried north snare components to east alder root narrowing sixty-two paces northeast at first light; trigger stick anchored to leaning birch, cord loop at hand-breadth height, stake pegged firm; both snares now active.
 Day 127, 2026-10-28, 07:18 — Morning meal at hearthstone: one acorn flatcake and rose hip paste in hot water; tended fire from overnight coals; watched clear frost-sharp morning from the doorsill bench.
 2026-10-28 Day 127 08:18 — Walked south snare line at spruce-root run; loop empty, old crystallized prints, rabbits shifted; straightened and reset south loop; north snare at alder gap two hours old, left to sit
+Day 127, 09:18 — Gathered firewood from south treeline on clear frost morning; north snare untouched at alder gap, fresh dawn prints at approach, left to sit until midday.
