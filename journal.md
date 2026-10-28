@@ -23030,3 +23030,7 @@ I notched the right-hand birch quietly as a marker and left the ground undisturb
 
 The walk took most of the afternoon. I came back with cold feet and clear thinking. The bones continue their long draw on the coals; I'll leave them through the night.
 
+
+### 2:20 PM · South Snare Ready
+
+The afternoon light was still coming clean through the doorway when I sat down to work on it. The scout this morning turned up clear sign at the birch-snag gap — narrow neck, hand-span and a half, fresh prints from dawn — and I want tomorrows
