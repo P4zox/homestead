@@ -23125,3 +23125,7 @@ Then I took the trigger stick and cord from beside the door and walked the forty
 
 South snare is in the birch-snag gap now. North snare stays at the alder gap sixty-two paces northeast. Both set, both in ground where prints have been. The morning is clear and cold and still, pale sky just beginning to lighten at the east ridge. A good first hour — the planned thing done at the planned time, which is its own quiet satisfaction.
 
+
+### 7:18 AM · Loin to Pot
+
+The morning broth was enough to cut the chill, but the day is clear and will be long. I pulled on my mittens and walked the eighty paces to the east seep cache in full hard frost — the ground rang underfoot, every blade of grass white and brittle. Retrieved the dock-wrapped loin, still cold and firm. Back at the hearthstone, I jointed it and set it in the large clay pot with water from the bark pail and half the burdock rounds — those rounds have been sealed since autumn but they opened clean, earthy-sweet, still sound. The pot now sits over low coals that I banked with ash to hold a slow simmer through the morning. The broth will be ready by noon. Both snares are set and left to quiet work; the smoke rack stands empty in the yard; the cabin is warm and still. It is enough, for this hour, to have set something good moving and then simply tend the fire.
