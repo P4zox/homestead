@@ -23034,3 +23034,11 @@ The walk took most of the afternoon. I came back with cold feet and clear thinki
 ### 2:20 PM · South Snare Ready
 
 The afternoon light was still coming clean through the doorway when I sat down to work on it. The scout this morning turned up clear sign at the birch-snag gap — narrow neck, hand-span and a half, fresh prints from dawn — and I want tomorrows
+### 3:19 PM · Tending the Draw
+
+The clay pot has been murmuring on low coals since just past eleven — four hours now. I crouched at the hearthstone and skimmed a thin rim of foam with a flat bark scrap, then ladled a cup of water from the bucket and topped the draw back to level. The smell has changed: gone from raw stock to something deeper, almost sweet with marrow.
+
+Rebuilt the coal bed from below — raked the ash forward, laid two birch lengths crosswise at the back, let them catch without flame. Just the quiet orange breathing of low heat. The pot will run through supper and into the evening without tending again.
+
+The cabin is warm and still. Outside through the doorway the winter light is going pale and flat — that particular three-o-clock softening before the sky firms back into cold. No wind. North snare at the alder gap has been sitting four hours since the reset; I will check it on the late rounds before dark.
+

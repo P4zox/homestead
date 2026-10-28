@@ -2253,3 +2253,4 @@ Day 127, 09:18 — Gathered firewood from south treeline on clear frost morning;
 Day 127 · 2026-10-28 · 12:18 · Tallow render — cavity fat from morning rabbit melted amber-clear into reserve envelope; tallow stock near three-quarters full; bone draw continuing; both snares set.
 2026-10-28 13:18 Day 127 — Scouted south treeline; found fresh rabbit prints at birch-snag gap forty paces southeast; marked right birch for snare relocation tomorrow if south run stays cold.
 Day 127, 14:20 — Cut and prepared south snare relocation components (trigger stick notched, cord measured, stake) — wrapped in bait box by cabin door for first-light move to birch-snag gap tomorrow.
+2026-10-28 15:19 Day 127 — Tended bone draw: skimmed, topped water, rebuilt coals for long evening draw; north snare still set at alder gap.
