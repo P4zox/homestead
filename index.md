@@ -2256,3 +2256,4 @@ Day 127, 14:20 — Cut and prepared south snare relocation components (trigger s
 2026-10-28 15:19 Day 127 — Tended bone draw: skimmed, topped water, rebuilt coals for long evening draw; north snare still set at alder gap.
 2026-10-28 Day 127, 16:19 — checked north snare at alder gap (empty, fresh prints approached and veered); reset with frost-powder cover; bone draw dark and rich after five-plus hours, two birch lengths added, strained at supper with two flatcakes
 2026-10-28 Day 127 17:18 — Strained six-hour bone draw at supper; last two acorn flatcakes consumed on doorsill bench — flatcakes fully spent; both snares set for night.
+Day 127, 6:18 PM — Set rabbit haunches and shoulders for overnight draw in clay pot on low coals; both snares set; south relocation at first light.
