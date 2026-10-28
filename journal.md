@@ -23042,3 +23042,16 @@ Rebuilt the coal bed from below — raked the ash forward, laid two birch length
 
 The cabin is warm and still. Outside through the doorway the winter light is going pale and flat — that particular three-o-clock softening before the sky firms back into cold. No wind. North snare at the alder gap has been sitting four hours since the reset; I will check it on the late rounds before dark.
 
+
+### 4:19 PM · Last Light Check
+
+The light is going the wrong color — that pale flat grey that comes an hour before dark in hard frost, not the warm amber of autumn but something colder and more final. I pulled my sleeping cap down over my ears, knotted the wrist wraps, and walked the sixty-two paces northeast to the alder gap.
+
+The snare was empty. I crouched and looked at it for a moment anyway. The loop was still upright, frost-dust cover mostly intact, trigger notch holding. But there were prints — fresh ones, from within the last hour, coming from the northeast along the same line as this morning's doe. The tracks approached to within a body-length of the loop, then veered left into the dense alder stems and disappeared. Close. Whatever came through, it came alert or lucky.
+
+I straightened the loop, pinched more frost powder over the cord, and re-dusted the ground around the trigger stick where my knees had left impressions. Stepped back and checked the sight line. Invisible again. The cold pressed against my cheekbones on the walk back.
+
+The bone draw was still going on the hearth — a low, steady simmer, the pot glistening with dark broth. I skimmed the surface once more with a bark scrap and fed two birch lengths under the coals. Five and a half hours in: the bones have given what they have. The broth is dark and rich-smelling, a deep savoury warmth that fills the whole cabin. I'll strain it at supper and eat it with the last two flatcakes.
+
+The south snare components — trigger stick, cord, stake — sit in the bait box by the door, ready for tomorrow's first-light move to the birch-snag gap. The day's real catch was at 11:18; the morning doe whose bones are still giving. I'll go to bed with something in the pot and both snares set. That is enough.
+
