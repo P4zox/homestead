@@ -23008,3 +23008,12 @@ At the hearthstone I jointed her with care: haunches and shoulders wrapped in do
 
 Two flatcakes left on the shelf. Tallow two-thirds full. Mushroom stores spent and no watercress to gather while the stream is iced, but there is meat in the cold box now and a pot simmering on the hearthstone. The north snare is back in place and the alder gap is good country.
 
+
+### 12:18 PM · Fat into Gold
+
+The cavity fat I scraped from this morning's rabbit has been sitting in a bark cup by the hearthstone, slowly softening from the radiated warmth. At midday I set the cup directly on the edge of the hot stone and watched it go liquid — amber-clear almost immediately, the cold white cells relaxing and running together in minutes without scorching. I spooned it into the tallow reserve envelope carefully, a little pour at a time so none ran to the stone. Maybe a quarter cup, maybe slightly more. It does not matter how small the amount; fat is fat, and it goes into the envelope with the same care as any other supply.
+
+I pressed out the air, fit the pine pin back through its loop hole, and smoothed the resin flap down flat. Sealed. Back on the supply shelf beside the broth pot. The clay pot is still sitting over low coals — the overnight bone draw running its slow course through the afternoon hours, the whole cabin carrying a faint meaty warmth that I notice now as a kind of comfort.
+
+Both snares are set and untouched. The firewood is stacked. Outside the light is that flat, almost shadowless white of hard winter noon, the treeline standing without motion. I sat on the doorsill bench for a moment after sealing the envelope and felt the cold come in at my ankles and the warmth push back from behind me. That is the whole transaction of this life in winter: holding the line between the cold and the warm, keeping each supply a little steadier than the day before.
+
