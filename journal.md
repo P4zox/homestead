@@ -23067,3 +23067,16 @@ The flatcakes are gone now. All the acorn work from autumn — the gathering, th
 ### 6:18 PM · Coals and Quiet
 
 After supper I rinsed the clay pot at the water vessel and set it back on the hearthstone with the day's rabbit haunches and shoulders submerged in cold water. Two birch lengths went under the coals — just enough to hold a low steady heat through the night. By morning the broth will be drawing amber and the cabin will smell of it. I banked the fire around the pot and checked both lamp wicks; they are burning clean and even. Then I sat for a few minutes at the cabin door, cracked a hand-width — the cold air sharp and still, the sky clear and very dark, the line of pines black against it. Somewhere out past the alder gap, the north snare is sitting quiet. Both loops are set; the south move goes at first light. There is nothing left to do tonight. I came back inside, pulled the door latched, and let the lamps and the coals have the rest of the evening.
+
+### 7:19 PM · Lamplight and Cord
+
+The cabin holds its warmth well tonight. Both lamps burn clean and steady on their hooks, casting orange rings across the west wall. I sat on the doorsill bench for a while after banking the fire, watching the clear sky darken over the tree line — the cold pressing in from outside while the fire held its ground at my back. Frost sharp in the nostrils. No sound from either snare direction.
+
+Back inside, I settled at the hearth end and braided two more cord lengths by lamplight. Fingers have the motion memorized now; the hands work while the mind goes elsewhere. I found myself thinking about the snare relocation tomorrow — the birch-snag gap forty paces southeast, the narrow neck with fresh current tracks, the clean approach angle. If the south snare sits cold another morning, that gap is the right move. It will take ten minutes at first light and cost nothing.
+
+The clay pot sits on low coals, just breathing. Seven, eight hours into the draw now. I skimmed it once at dusk and the broth is already darkening, turning amber where the fat and collagen are releasing. By morning it will be dense and good. The loin waits dock-wrapped in the cold box — I am thinking loin broth at midday, maybe with the last of the rose hip paste stirred in for warmth.
+
+Nine cattail starch cakes on the shelf. Tallow three-quarters. Both snares set. The wood is dry under the eave.
+
+I braided the second length and set it with the rest. Enough for tonight. The fire will hold till morning.
+
