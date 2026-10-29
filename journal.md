@@ -23248,3 +23248,14 @@ It struck me tonight — watching the lamp flame settle itself after I trimmed i
 
 Both snares are set. Six starch cakes on the shelf. The cord stock is thick and plied. By any honest reckoning, I am ready for what the cold brings.
 
+
+### 9:33 PM · Before Sleep, Still
+
+Lying in the sleeping bag now, the pine needle smell still faint on my breath. The fire has settled to embers — I can hear the occasional small shift of a coal. Both lamps still burning, just, their wicks trimmed and steady.
+
+Today was good. The north snare delivered early afternoon — the small grey buck handled, pelt curing on the post, tallow reserve fuller, evening broth deep in my bones. Six starch cakes on the shelf. Both snares reset and waiting in the cold. The mittens conditioning on the bench, two lengths of cord braided, kindling added this morning. All of it quiet and in order.
+
+Hard winter has settled fully — stream locked, no watercress, no fish. But there is enough. The woodpile sound, the cabin sealed, the tallow full. I have learned not to ask for more than enough when enough is here.
+
+I am warm. The snares are set. Tomorrow the pelt gets its second tallow pass at first light. Sleep comes easy on a day like this.
+

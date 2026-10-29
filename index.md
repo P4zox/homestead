@@ -2277,3 +2277,4 @@ Day 128, 17:18 — Tallow-conditioned leather mittens by lamplight (twelve days 
 Day 128, 18:18 — Pine needle infusion by lamplight; mittens absorbing on bench, pelt on post, snares set, fire banked for night.
 Day 128, 19:18 (Thu 29 Oct 2026) — Braided two cord lengths by lamplight; fire banked, pelt and mittens absorbing overnight.
 Day 128, 2026-10-29, 20:40 — Trimmed lamp wicks by lamplight; flames settled to steady burn; quiet winter evening; settled for night.
+Day 128, 2026-10-29, 21:33 — Before Sleep, Still — lying in sleeping bag by lamplight; grey buck catch, tallow rendered, pelt curing; both snares set; sleep coming with fire banked and cabin warm.
