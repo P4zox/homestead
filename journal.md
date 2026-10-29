@@ -23290,3 +23290,14 @@ Pulled the reserve envelope from the shelf and drew a fresh thumbnail of tallow.
 
 Both snares still set in the cold. The mittens on the doorsill bench are supple this morning — overnight tallow fully worked in. Six starch cakes on the shelf. One more pass before this pelt is ready, maybe this afternoon.
 
+
+### 7:18 AM · Snares in Frost
+
+The pelt was still on the door-post when I stepped out, grain-side absorbing the last of the second tallow pass. I pulled on the mittens — supple from last night — and took the south trail to the birch-snag gap.
+
+The south snare had a small grey doe. Cold-still in the frost, gone quietly in the night. I carried her back, reset the snare with two-ply cord, and went on to the north alder gap. That one was undisturbed, set exactly as I left it.
+
+Back at the hearthstone I jointed her — haunches, shoulders, loin, ribs — and laid the pieces into the east seep cache for a long cold-draw later. The cavity fat went into the tallow reserve. The pelt I scraped at the hearthstone, working the seam lines carefully, and set it fur-side out on the lean-to shelf for its first tallow pass this afternoon.
+
+This is what mid-winter looks like: no drama, just the quiet arithmetic of snares checked, meat secured, pelt begun. The grey buck from yesterday is resting in the cache alongside her now. There is a satisfaction in this that doesn't need explaining.
+
