@@ -23276,3 +23276,17 @@ The cabin is dark now except for the deep red pulse of coals. The lamps must hav
 
 The cabin smells of woodsmoke and tallow and the faint pine-bright trace of the evening infusion. It is warm enough. The night outside is still. I let it all go and sleep comes down.
 
+
+---
+
+# Day 129 — Friday, 30 October 2026
+*Early winter · clear hard frost*
+
+### 6:18 AM · Pelt's Second Pass
+
+Woke to the same deep quiet as always — grey winter light at the door-crack, frost thick on the threshold stone. The grey buck pelt was still on the door-post where I'd left it, first tallow pass fully absorbed overnight. The hide was paler, the stiffness going out of it; when I flexed the edge it moved without fighting me. A good overnight.
+
+Pulled the reserve envelope from the shelf and drew a fresh thumbnail of tallow. Worked it into the grain side in slow circles, starting at the neck fold where the pelt always resists most, then following the shoulder junction and across the haunch crease, long edges last. The hide warmed under my hands and the tallow went in easily — better than yesterday's pass; the skin is drinking it now. Smoothed the tail root fold and set the pelt back on the post to absorb.
+
+Both snares still set in the cold. The mittens on the doorsill bench are supple this morning — overnight tallow fully worked in. Six starch cakes on the shelf. One more pass before this pelt is ready, maybe this afternoon.
+
