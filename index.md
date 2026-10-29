@@ -2273,3 +2273,4 @@ Day 128, 11:19 — Noon broth (rabbit loin and burdock, four-hour simmer) consum
 Day 128, 14:18 — Scraped grey buck pelt at doorsill; main surface fleshed from neck to haunch; shoulder seams cleared; pelt air-drying on post.
 Day 128, 15:20 — Completed second scraping pass on grey buck pelt (seam lines cleared); applied first tallow pass grain-side, neck to haunch; pelt absorbing on post.
 2026-10-29 Day 128 16:19 — Evening broth from grey buck haunches and shoulders (three-hour draw, deep amber); fire built up for the night; pelt absorbing first tallow pass on post.
+Day 128, 17:18 — Tallow-conditioned leather mittens by lamplight (twelve days since Day 116); palm panels, thumb roots, wrist lacing worked supple; mittens on doorsill bench absorbing overnight.

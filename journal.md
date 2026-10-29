@@ -23214,3 +23214,11 @@ Ate with one starch cake. The fire had burned to working coals; I built it back 
 
 The grey buck pelt is on the door-post, warm to the touch near the fire side. The first tallow is well in; I'll do a second pass tomorrow morning when I can see clearly. Both snares are set. Six starch cakes on the shelf.
 
+### 5:18 PM · Mittens by Lamplight
+
+The evening has settled into itself — fire built up to a steady burn, both lamps set on their hooks and burning clean, the grey buck pelt hanging at the door-post absorbing its first tallow pass, bones from supper stacked at the edge of the hearth. Six starch cakes on the shelf. Both snares out in the cold dark.
+
+I took the leather mittens off the doorsill bench and worked them by lamplight. The last conditioning was twelve days back — Day 116 — and in hard frost the leather stiffens faster than in autumn. Drew a thumbnail of tallow from the reserve envelope and worked it into both palm panels, the thumb roots, the wrist lacing. The doe-hide had stiffened where it runs against the rabbit-fur liner edge; I softened that seam with slow circular passes until tallow soaked through to the grain side. Both mittens supple now, joints moving freely. Set back on the doorsill bench to absorb overnight.
+
+Small work. But the hands that wear them will be glad of it at first crossing in dawn frost.
+
