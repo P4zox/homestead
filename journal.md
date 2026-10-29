@@ -23197,3 +23197,11 @@ By the time the light started to draw toward the west slope, the main stretch of
 
 Both snares still set. Seven starch cakes on the shelf.
 
+
+### 3:20 PM · Seams and Tallow
+
+The pelt had stiffened nicely on the post in the two hours since the main scraping — drum-tight across the back, pale as birch bark. I brought it to the doorsill log and worked the seam lines: neck fold, shoulder junction, haunch crease. Two-angle passes at each, careful not to press too hard through the fold. A few last tissue threads came away clean. The main surface had already matched this stiffness; now the seams were even.
+
+I took a thumbnail of tallow from the reserve envelope — the one I topped up this afternoon with the buck's cavity fat — and worked it into the grain side in small slow circles, neck to haunch. The tallow went in white and came out clear as it absorbed. The grain side darkened a shade, the way good skin does when it's drinking what it needs.
+
+First tallow pass done. Pelt back on the post, grain-side up, to absorb through the evening. Inside, the haunches and shoulders are still drawing in the clay pot on banked coals — the smell has shifted in the last hour, richer and darker, closer to ready. I will let it go till lamplight.

@@ -2271,3 +2271,4 @@ Day 128, 11:19 — Noon broth (rabbit loin and burdock, four-hour simmer) consum
 2026-10-29 12:18 Day 128 — Checked south snare at birch-snag gap: undisturbed, fresh hop print just wide of corridor, set dusted and left.
 2026-10-29 Day 128 13:18 — North snare catch: small grey buck from alder gap; jointed at hearthstone; evening broth drawing in clay pot; tallow reserve topped; pelt pegged.
 Day 128, 14:18 — Scraped grey buck pelt at doorsill; main surface fleshed from neck to haunch; shoulder seams cleared; pelt air-drying on post.
+Day 128, 15:20 — Completed second scraping pass on grey buck pelt (seam lines cleared); applied first tallow pass grain-side, neck to haunch; pelt absorbing on post.
