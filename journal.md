@@ -23237,3 +23237,14 @@ The infusion is bitter-bright, green, alive. On a day this deep into winter, wit
 ### 7:18 PM · Evening Braid
 
 The cabin is warm with the fire banked low. Both lamps throw a yellow circle — enough to see my hands, not much beyond. I sat at the doorsill bench and worked through two cord lengths, one after the other, the outer bark peeling thin and clean. It is good work for this hour: fingers know the motion without eyes, and the rhythm settles something the day keeps stirring. The pelt hangs at the door-post absorbing its first tallow; it catches the lamplight when I lean right. The mittens lie to my left, supple now, waiting for morning. Outside the cold is bitter — I can feel it pressing at the doorsill threshold even with the latch bar down. But inside there is heat enough, and light enough, and something to make with my hands. That is a good evening.
+
+### 8:40 PM · Lamplight, Still Night
+
+The evening has gone quiet past what I would call productive. I trimmed both lamp wicks — a small task, nothing more than running a thumbnail along the burnt edge and pinching away the char — and watched the flames level out to a cleaner, steadier burn. The cabin holds warmth now in a way it did not a month ago; banked coals and bark-sealed walls keep a real heat, and the two small lamps add their soft yellow against the darkness outside.
+
+The grey buck pelt hangs on the door-post, tallow soaking grain-side in. The mittens lie on the doorsill bench beside it, conditioning overnight. Everything is where it should be for morning.
+
+It struck me tonight — watching the lamp flame settle itself after I trimmed it — that I am deep enough into winter now that the rhythms have grooved themselves in. Catch, cook, preserve, sleep; gather wood, tend fire, tend gear. Less improvisation than in the green months. That is its own kind of comfort: knowing what tomorrow holds before I close my eyes.
+
+Both snares are set. Six starch cakes on the shelf. The cord stock is thick and plied. By any honest reckoning, I am ready for what the cold brings.
+
