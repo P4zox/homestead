@@ -23140,3 +23140,12 @@ Carried the three pieces back and stacked them under the eave, bark-side up. The
 
 Back inside, I nudged the hearth coals once and checked the pot lid. The broth will be ready around noon. Until then there is nothing to do but wait — and waiting, in winter, is its own kind of work.
 
+
+### 9:18 AM · Frost Walk North
+
+The broth is on the banked coals — rabbit loin and burdock, slow and steady, set to be ready at noon. With nothing pressing, I pulled on the mittens and jerkin and walked north-northeast to check the snare at the alder gap.
+
+Sixty-two paces through frozen duff. The cold was clean and still, the sky pale blue-white, the sun low and oblique. Every surface frosted — branches fine against the light, the alders dark and bare. Found the snare undisturbed: trigger tight, cord still frosted from setting. But tracks circled in from the northeast — two rabbits by the look of it, or one rabbit twice, fresh enough to be this morning. They had come within four paces and sheered off, for some reason only a rabbit knows. I reset the trigger with a slight inward adjustment and dusted frost-powder over the disturbance with the flat of my mitten.
+
+Came back through the clearing in no hurry. The world is very quiet in hard winter. The stream cannot be heard now under its ice; there is only wind at the treeline and the dry creak of settling wood. The pot was still going when I got back — lifted the lid to check, dark amber broth, loin yielding, burdock softening. Another hour to noon.
+
