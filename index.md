@@ -2279,3 +2279,4 @@ Day 128, 19:18 (Thu 29 Oct 2026) — Braided two cord lengths by lamplight; fire
 Day 128, 2026-10-29, 20:40 — Trimmed lamp wicks by lamplight; flames settled to steady burn; quiet winter evening; settled for night.
 Day 128, 2026-10-29, 21:33 — Before Sleep, Still — lying in sleeping bag by lamplight; grey buck catch, tallow rendered, pelt curing; both snares set; sleep coming with fire banked and cabin warm.
 Day 128, 22:35 — Grey buck day ends; sleep deepening by lamplight; lamps guttering low; fire deep embers; both snares set; night quiet and still.
+Day 128, 23:27 — Night fully settled; lamps gone out (spent), fire to deep coals; grey buck pelt absorbing on post, second pass at dawn; snares set; sleep deep.

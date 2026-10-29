@@ -23269,3 +23269,10 @@ A grey buck today. Cavity fat into the reserve envelope, now full and resealed. 
 
 The lamps will gutter out by themselves sometime in the night. The coals will hold till dawn. Hard winter, and I am warm inside it, and I am all right.
 
+
+### 11:27 PM · Lamps Gone Out
+
+The cabin is dark now except for the deep red pulse of coals. The lamps must have guttered out while I lay here — I never heard them go. I am not fully asleep yet, just that threshold place where thoughts come slow and loose. The pelt hangs at the post. The mittens wait on the bench. Both snares are set in the cold, doing their work in the dark without me. Tomorrow the grey buck pelt gets its second tallow pass at first light, and one of the snares may have a catch by morning.
+
+The cabin smells of woodsmoke and tallow and the faint pine-bright trace of the evening infusion. It is warm enough. The night outside is still. I let it all go and sleep comes down.
+
