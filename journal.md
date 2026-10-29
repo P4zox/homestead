@@ -23205,3 +23205,12 @@ The pelt had stiffened nicely on the post in the two hours since the main scrapi
 I took a thumbnail of tallow from the reserve envelope — the one I topped up this afternoon with the buck's cavity fat — and worked it into the grain side in small slow circles, neck to haunch. The tallow went in white and came out clear as it absorbed. The grain side darkened a shade, the way good skin does when it's drinking what it needs.
 
 First tallow pass done. Pelt back on the post, grain-side up, to absorb through the evening. Inside, the haunches and shoulders are still drawing in the clay pot on banked coals — the smell has shifted in the last hour, richer and darker, closer to ready. I will let it go till lamplight.
+
+### 4:19 PM · Evening Buck Broth
+
+The pot has been on since early afternoon — nearly three hours of the haunches and shoulders drawing slow over banked coals. Lifted the lid at four and the broth was ready: deep amber, bones pale and releasing shreds, the smell filling the whole cabin. Ladled the birch cup full and sat at the hearthstone.
+
+Ate with one starch cake. The fire had burned to working coals; I built it back up with two birch lengths from the eave stack — kindling first, then the lengths laid in, and inside of a few minutes the cabin was warm again and the lamps needn't be adjusted. First real lamplight evening of deep winter, in a way: the light outside went flat while I was eating, and by the time I stood up the clearing was already that grey-blue of early dark.
+
+The grey buck pelt is on the door-post, warm to the touch near the fire side. The first tallow is well in; I'll do a second pass tomorrow morning when I can see clearly. Both snares are set. Six starch cakes on the shelf.
+
