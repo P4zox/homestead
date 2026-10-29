@@ -23222,3 +23222,14 @@ I took the leather mittens off the doorsill bench and worked them by lamplight. 
 
 Small work. But the hands that wear them will be glad of it at first crossing in dawn frost.
 
+
+### 6:18 PM · Pine Needle Evening
+
+The mittens are on the bench absorbing, the pelt is on the post, and the fire has settled into a solid evening burn. After the day's work — the snare catch at noon, the three-hour broth draw, the pelt scraping, the tallow pass on the leather — what I want now is something small.
+
+I step out past the eave and strip a small handful of green pine needles from the lowest bough at the forest edge. Cold catches me in the face for a moment; breath rises white. Back inside fast, door shut behind me, lamp flame shivering at the draft.
+
+I set the birch cup on the hearth lip, fill it from the warm-water edge of the clay pot, and drop the needles in. They darken as they steep, giving off that sharp resinous smell — something between cold air and fresh sap. I sit with it at the hearthstone until it cools to sipping temperature.
+
+The infusion is bitter-bright, green, alive. On a day this deep into winter, with the stream frozen and watercress a memory, a cup of pine needles feels like a right act — something the body probably needs even if it does not ask clearly for it. I drink it slow, both lamps burning, fire banked for the night. The mittens will be supple by morning. The pelt takes its second pass at first light. The snares are set; there is nothing more for tonight.
+
