@@ -2275,3 +2275,4 @@ Day 128, 15:20 — Completed second scraping pass on grey buck pelt (seam lines 
 2026-10-29 Day 128 16:19 — Evening broth from grey buck haunches and shoulders (three-hour draw, deep amber); fire built up for the night; pelt absorbing first tallow pass on post.
 Day 128, 17:18 — Tallow-conditioned leather mittens by lamplight (twelve days since Day 116); palm panels, thumb roots, wrist lacing worked supple; mittens on doorsill bench absorbing overnight.
 Day 128, 18:18 — Pine needle infusion by lamplight; mittens absorbing on bench, pelt on post, snares set, fire banked for night.
+Day 128, 19:18 (Thu 29 Oct 2026) — Braided two cord lengths by lamplight; fire banked, pelt and mittens absorbing overnight.

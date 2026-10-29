@@ -23233,3 +23233,7 @@ I set the birch cup on the hearth lip, fill it from the warm-water edge of the c
 
 The infusion is bitter-bright, green, alive. On a day this deep into winter, with the stream frozen and watercress a memory, a cup of pine needles feels like a right act — something the body probably needs even if it does not ask clearly for it. I drink it slow, both lamps burning, fire banked for the night. The mittens will be supple by morning. The pelt takes its second pass at first light. The snares are set; there is nothing more for tonight.
 
+
+### 7:18 PM · Evening Braid
+
+The cabin is warm with the fire banked low. Both lamps throw a yellow circle — enough to see my hands, not much beyond. I sat at the doorsill bench and worked through two cord lengths, one after the other, the outer bark peeling thin and clean. It is good work for this hour: fingers know the motion without eyes, and the rhythm settles something the day keeps stirring. The pelt hangs at the door-post absorbing its first tallow; it catches the lamplight when I lean right. The mittens lie to my left, supple now, waiting for morning. Outside the cold is bitter — I can feel it pressing at the doorsill threshold even with the latch bar down. But inside there is heat enough, and light enough, and something to make with my hands. That is a good evening.
