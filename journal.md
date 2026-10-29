@@ -23158,3 +23158,12 @@ Two lengths of two-ply cord braided before the light shifted. My hands know the 
 
 The frost outside is absolute and quiet. I donot need to open the door to know the quality of cold sitting against the log wall. In here the fire pops once, settles. The cord coils neatly on the bench beside me.
 
+
+### 11:19 AM · Noon Broth, Still
+
+The smell had been building all morning, low and steady beneath the sound of the fire. By now the pot was ready — I lifted the lid and the steam rose thick with burdock and rabbit, the loin shreds dark and loosened, the broth deep amber with rendered fat floating at the edges. I ladled the birch cup full, pulled a starch cake from the shelf, and settled onto the doorsill bench.
+
+The sky was pale above the tree line, the clearing bright with reflected frost. No wind. The south birch-snag gap was quiet from here, and the alder gap sixty-two paces northeast showed nothing moving between the trunks. I ate slowly — broth first in small sips, warm through the hands holding the cup, then the starch cake piece by piece in the cold light at the threshold. The fire needed no touching.
+
+Seven cakes left on the shelf. The pot still held a little warmth when I set it back on the hearthstone. The afternoon will bring another check of the snares.
+
