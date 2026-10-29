@@ -23149,3 +23149,12 @@ Sixty-two paces through frozen duff. The cold was clean and still, the sky pale 
 
 Came back through the clearing in no hurry. The world is very quiet in hard winter. The stream cannot be heard now under its ice; there is only wind at the treeline and the dry creak of settling wood. The pot was still going when I got back — lifted the lid to check, dark amber broth, loin yielding, burdock softening. Another hour to noon.
 
+
+### 10:18 AM · Cord by the Fire
+
+The cabin holds warmth this hour. The rabbit loin and burdock broth has been going since before the day opened up, and the pot needs no tending beyond a quiet check every now and then — lid on, coals steady, the smell deepening from pale to rich. I shed my outer layer and settled on the doorsill bench with a length of stripped inner bark across my knees.
+
+Two lengths of two-ply cord braided before the light shifted. My hands know the motion now — thumbs rolling the strands against each other, steady pressure, no thought required. This is what winter asks of an hour like this: small useful work inside, warmth from something that has been building all morning, the patience to let it finish.
+
+The frost outside is absolute and quiet. I donot need to open the door to know the quality of cold sitting against the log wall. In here the fire pops once, settles. The cord coils neatly on the bench beside me.
+
