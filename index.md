@@ -2270,3 +2270,4 @@ Day 128, Thu 29 Oct 2026, 07:18 — Retrieved Day 127 rabbit loin from east seep
 Day 128, 11:19 — Noon broth (rabbit loin and burdock, four-hour simmer) consumed at doorsill bench with one starch cake; seven starch cakes remain on shelf.
 2026-10-29 12:18 Day 128 — Checked south snare at birch-snag gap: undisturbed, fresh hop print just wide of corridor, set dusted and left.
 2026-10-29 Day 128 13:18 — North snare catch: small grey buck from alder gap; jointed at hearthstone; evening broth drawing in clay pot; tallow reserve topped; pelt pegged.
+Day 128, 14:18 — Scraped grey buck pelt at doorsill; main surface fleshed from neck to haunch; shoulder seams cleared; pelt air-drying on post.

@@ -23187,3 +23187,13 @@ The pot will be ready by evening. Both snares are fresh-reset — south snare du
 
 Winter keeps offering, if I keep setting the traps right.
 
+### 2:18 PM · Grey Buck Hide
+
+Set up at the doorsill with the pelt stretched over the scraping log. The flesh side still had warmth left from the jointing, which made the fat come away clean — long strokes, neck to haunch, pale ribbons peeling free with each pass. The shoulder seams took more work; fat sits thick there, and it takes two angles of scraping to fully clear.
+
+An hour and a half of broth smell reaching me from inside. The haunches and shoulders are in, the fire low and steady. I did not touch it — let it run.
+
+By the time the light started to draw toward the west slope, the main stretch of the hide was fleshed clear. One more careful pass at the seam lines in the morning, and it will be ready for first tallow. I am thinking insoles from the softest belly patch — my feet have been cold at the heels in this deep frost. The rest I will decide when I can see the whole thing dry.
+
+Both snares still set. Seven starch cakes on the shelf.
+
