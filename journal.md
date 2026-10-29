@@ -23176,3 +23176,14 @@ I stood back without touching anything and scanned the corridor. The gap is tigh
 
 The pale winter sky was luminous above the treeline on the walk back — that particular clear hard-frost blue that belongs only to deep cold. Broth pot still warm on the hearthstone. Both snares holding. Afternoon ahead.
 
+
+### 1:18 PM · Buck in the Gap
+
+The inward adjustment I made to the alder gap trigger this morning proved worth the careful reset. When I walked the sixty-two paces northeast in the early afternoon, the loop was taut and low — a small grey buck, his forelegs folded neatly under him, caught clean at the neck. Still warm under my mitten.
+
+I carried him back and worked at the hearthstone in the pale afternoon light. The cavity fat came away cleanly — a good measure, poured into the tallow reserve envelope and resealed. Haunches and shoulders jointed and set in the large clay pot with water over low banked coals. The pelt pegged at the door-post and scraped before the cold could set it stiff.
+
+The pot will be ready by evening. Both snares are fresh-reset — south snare dusted and trigger re-notched at the birch gap, north snare with a new loop at the alder gap. Seven starch cakes still on the shelf, tallow reserve full and sealed, and a broth that should run dark amber by nightfall.
+
+Winter keeps offering, if I keep setting the traps right.
+
