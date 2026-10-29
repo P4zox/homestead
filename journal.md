@@ -23259,3 +23259,13 @@ Hard winter has settled fully — stream locked, no watercress, no fish. But the
 
 I am warm. The snares are set. Tomorrow the pelt gets its second tallow pass at first light. Sleep comes easy on a day like this.
 
+### 10:35 PM · Lamps Burning Low
+
+The lamps are burning very low now — both wicks barely a pale yellow above the tallow cups, just enough to make out the ridgepole overhead and the shadow of the pelt on the door-post. The hearth seams glow faint orange where the banked coals breathe. The whole cabin is warm in a settled, finished way.
+
+I do not know exactly when sleep found me tonight. I think it came slowly, the way it does on good days — not dropping off like exhaustion but easing in, the mind releasing one thing at a time. The mittens on the bench. The pelt absorbing. Both snares set and cold in the frozen ground. The pot clean on the shelf. The starch cakes counted.
+
+A grey buck today. Cavity fat into the reserve envelope, now full and resealed. The pelt will take its second tallow pass at first light and begin the slow cure. The broth was deep amber, three-hour draw; I ate it at the hearthstone with a starch cake and felt completely settled about winter. That is the measure I keep — not warmth exactly, not food exactly, but that feeling of standing squarely inside whatever is coming.
+
+The lamps will gutter out by themselves sometime in the night. The coals will hold till dawn. Hard winter, and I am warm inside it, and I am all right.
+
