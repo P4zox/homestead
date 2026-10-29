@@ -2264,3 +2264,4 @@ Day 127, 20:35 — braided cord by lamplight; tended overnight rabbit draw (two-
 Day 127, 2026-10-28, 23:29 — Last Coal, Near Midnight: woke briefly, checked overnight rabbit draw at seven-plus hours (dark broth, bones pale), added one birch length, settled back to sleep.
 Day 128 (Thu 29 Oct 2026) 06:18: South snare relocated to birch-snag gap at first light; overnight rabbit draw strained into morning broth; both snares set; loin in cold box.
 Day 128, Thu 29 Oct 2026, 07:18 — Retrieved Day 127 rabbit loin from east seep cache; set to slow-simmer in clay pot with burdock rounds for noon broth.
+2026-10-29 08:19 — Day 128: Gathered two dry birch lengths and one pine bough from south treeline duff; added to eave kindling row while rabbit loin broth slow-simmers for noon.

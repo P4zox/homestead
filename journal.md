@@ -23129,3 +23129,14 @@ South snare is in the birch-snag gap now. North snare stays at the alder gap six
 ### 7:18 AM · Loin to Pot
 
 The morning broth was enough to cut the chill, but the day is clear and will be long. I pulled on my mittens and walked the eighty paces to the east seep cache in full hard frost — the ground rang underfoot, every blade of grass white and brittle. Retrieved the dock-wrapped loin, still cold and firm. Back at the hearthstone, I jointed it and set it in the large clay pot with water from the bark pail and half the burdock rounds — those rounds have been sealed since autumn but they opened clean, earthy-sweet, still sound. The pot now sits over low coals that I banked with ash to hold a slow simmer through the morning. The broth will be ready by noon. Both snares are set and left to quiet work; the smoke rack stands empty in the yard; the cabin is warm and still. It is enough, for this hour, to have set something good moving and then simply tend the fire.
+
+### 8:19 AM · South Treeline Before Noon
+
+The broth is set — rabbit loin and the last of the burdock rounds in the clay pot, slow-simmering on banked coals. I can smell the fat rising even from the doorway: a good, thick smell. In this kind of still cold the fire eats wood quietly but steadily, and I have learned not to let the pile drift low without noticing.
+
+I pulled on the mittens and the neck wrap and walked south to the treeline. The sky was high and pale, almost white at the horizon, and the frost on the ground did not give at all underfoot — solid as stone. Two dry birch lengths from the duff beneath the canopy edge, and a short pine bough from where a branch came down sometime in autumn. The birch bark curled away in narrow strips as I handled it, and I tucked those into my coat pocket — good tinder, dry and paper-light.
+
+Carried the three pieces back and stacked them under the eave, bark-side up. The kindling row is solid. The main pile is still eave-high. I am not running short, but I am also not wasting the daylight.
+
+Back inside, I nudged the hearth coals once and checked the pot lid. The broth will be ready around noon. Until then there is nothing to do but wait — and waiting, in winter, is its own kind of work.
+
