@@ -2268,3 +2268,4 @@ Day 128, Thu 29 Oct 2026, 07:18 — Retrieved Day 127 rabbit loin from east seep
 2026-10-29 09:18 Day 128 — Checked north snare at alder gap: undisturbed, fresh rabbit tracks within four paces; trigger adjusted, frost-powder dusted; loin and burdock broth still simmering for noon.
 2026-10-29 10:18 Day 128 — Cord by the Fire: two lengths braided at hearthside while rabbit loin and burdock broth simmered; both snares set, frost holds absolute.
 Day 128, 11:19 — Noon broth (rabbit loin and burdock, four-hour simmer) consumed at doorsill bench with one starch cake; seven starch cakes remain on shelf.
+2026-10-29 12:18 Day 128 — Checked south snare at birch-snag gap: undisturbed, fresh hop print just wide of corridor, set dusted and left.

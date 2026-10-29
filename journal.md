@@ -23167,3 +23167,12 @@ The sky was pale above the tree line, the clearing bright with reflected frost. 
 
 Seven cakes left on the shelf. The pot still held a little warmth when I set it back on the hearthstone. The afternoon will bring another check of the snares.
 
+
+### 12:18 PM · South Snare Walk
+
+Noon broth settling, I stepped out into the hard frost afternoon with just mittens and the neck wrap. Forty paces southeast to the birch-snag gap, each step squeaking on the frozen duff. The south snare was exactly as I had left it — trigger notched against the right-hand birch, loop at hand-breadth height, frost-powder undisturbed over the cord. Undisturbed, but not untested: on the far side of the gap, a single fresh hop print pressed flat just beyond the loop corridor, the rabbit having passed wide of the set by perhaps half a hand-span. Close. The position is sound; it is only a matter of time.
+
+I stood back without touching anything and scanned the corridor. The gap is tight here, the birch trunks funneling the approach. If anything, the set reads better from a distance than up close — the loop hangs naturally, no unnatural glint or shadow. I dusted a small fresh pinch of frost-powder along the cord with a mitten back, just where the hop print suggested the line of approach, and came away clean-footed.
+
+The pale winter sky was luminous above the treeline on the walk back — that particular clear hard-frost blue that belongs only to deep cold. Broth pot still warm on the hearthstone. Both snares holding. Afternoon ahead.
+
