@@ -23441,3 +23441,12 @@ I find myself thinking through tomorrow already: check both snares at first ligh
 
 The nearer lamp is guttering just slightly — a thread of smoke where the wick needs another small trim. I will do it now and then sleep.
 
+
+### 11:19 PM · Drifting to Sleep
+
+The hearth holds its warmth on the banked birch log, and both lamps burn small and clean above me on their hooks. I have had the sleeping lap piece across my knees for a good while now, the grey buck fur giving back the fire's heat, and the cold that pressed at the cabin walls after dark has stopped feeling urgent.
+
+Doe broth sealed in the second clay bowl for morning. First tallow pass still soaking into the grey doe pelt on the lean-to shelf — second pass first thing, before anything else. Four starch cakes on the shelf. Everything where it should be.
+
+This late the clearing must be very still. Hard frost doing its work out there in the dark, white and absolute on every surface and every stripped branch. Here the fire breathes, the lamps hold their small flames, and it is warm and it is quiet. I am nearly asleep.
+

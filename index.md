@@ -2297,3 +2297,4 @@ Day 129, 17:18 — Doe broth (four-hour draw with smoked wood ears) strained and
 Day 129, 20:20 — Banked hearth with one heavy birch log; door latch secured; settled with sleeping lap piece for the night. Four starch cakes on shelf; doe broth sealed for morning; doe pelt first tallow pass absorbing (second pass tomorrow).
 2026-10-30 (Day 129, 21:23) — Trimmed wicks, settled with sleeping lap piece for the night; winter stores in order, doe broth sealed for morning.
 Day 129, 2026-10-30, 22:20 — Settled with sleeping lap piece by hearthlight; wick trimmed before sleep; doe pelt absorbing first tallow pass; four starch cakes on shelf.
+Day 129, 2026-10-30, 23:19 — Drifting to Sleep: settled with sleeping lap piece by hearthside, both lamps steady, hearth banked, doe broth sealed for morning, doe pelt absorbing first tallow pass, four starch cakes on shelf.
