@@ -23384,3 +23384,11 @@ The broth will be ready in two hours. There is still light.
 ### 4:18 PM · Seaming by Firelight
 
 The broth had another hour in it. I took the sleeping lap piece down from the peg rack — fold-stitched along the spine line, but both long sides still open, the fur curling loosely where the hide hadnt
+### 5:18 PM · Broth at Dusk
+
+The broth is ready at seventeen past five — four hours of slow coals and the doe's joints giving everything they had. I lifted the lid and the steam rose thick and amber, the smoked wood ears collapsed silk-soft against the bottom of the pot. I tipped it slow through the basket into the birch cup and the second clay bowl, pressing the wood ears gently against the weave to catch the last of the liquid.
+
+Ate standing at the doorsill bench, one starch cake in hand, watching the light leave the clearing. Cold came in at my ankles; fire warm behind me. The broth tasted of smoke and patience — the mushrooms' long days in the birch smoke, the doe's quiet hours in the cold seep. A whole day distilled into one cup.
+
+There's enough left in the second bowl for morning if I seal it tonight. Four starch cakes on the shelf. The sleeping lap piece hangs on the rack; the doe pelt folds its first tallow pass on the lean-to shelf, quiet and curing. Everything where it should be as dusk comes on.
+
