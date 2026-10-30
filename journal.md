@@ -23334,3 +23334,10 @@ They're on the doorsill bench now, warming slowly near the fire. This afternoon 
 
 Braiding cord while the coals hold. The day settles in.
 
+
+### 12:00 PM · Doe Pelt, First Pass
+
+The pelt has been stiffening on the lean-to shelf since first light, the cold working through the gap between shelf and rafter. By noon it had firmed just enough — the surface membrane taut, the grain side pale and dry to the touch. I brought it in near the coals, opened the tallow envelope, and started at the neck fold, pressing fat in with my thumbnail and the heel of my hand. The fibers drank it readily in the thin places; the shoulder panels took more time, being densest, needing long strokes along the grain. I worked from neck to haunch without rushing, watching the dull surface darken faintly where the fat went in. When I had covered the whole grain side, the pelt gleamed slightly — not saturated, not yet, but evenly coated. I folded it fur-side out and laid it back on the lean-to shelf to absorb through the afternoon.
+
+The smoked wood ears are still sitting on the doorsill bench, warming near the fire. The doe haunches and shoulders are cold-drawing in the east seep cache, pulling slowly into a deep broth for tonight. Everything is on schedule. Hard winter, and the days still hold their shape.
+
