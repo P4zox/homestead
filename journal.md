@@ -23428,3 +23428,16 @@ I have the sleeping lap piece across my legs. The grey buck's hide, fur-side in,
 
 Outside, the frost is absolute. No wind tonight — just cold and silence and the dark clearing. The fire is enough. This is what winter nights are supposed to be: the work done, the stores in their places, a small circle of light, and nothing left required of me. I'll be asleep soon.
 
+
+### 10:20 PM · Lap Piece and Lamplight
+
+Both lamps are burning low and clean on their hooks. The hearth is banked — one heavy birch log fed to it an hour ago, and now it breathes slowly on its own without needing me. The daubed walls hold the warmth in. Outside is hard frost and silence.
+
+I am sitting with the sleeping lap piece across my knees. The grey buck fur is denser than I expected — it holds the heat from my own legs and returns it steadily. I cut and seamed it this afternoon in maybe two hours of work: fold along the spine line, run both sides closed, leave the ends open. A simple thing, and it just works.
+
+The doe broth is sealed in the second clay bowl under a bark cover on the hearthstone shelf, dark amber and waiting for morning. The doe pelt hangs on the lean-to shelf, first tallow working in overnight — second pass first thing tomorrow, then it will cure through the day and be ready by evening. Four starch cakes on the supply shelf. The burdock rounds are spent; that chapter of the larder is closed.
+
+I find myself thinking through tomorrow already: check both snares at first light, second tallow pass on the doe pelt, braid a few cord lengths if the morning goes quietly. Nothing urgent. The store is sound enough to rest in.
+
+The nearer lamp is guttering just slightly — a thread of smoke where the wick needs another small trim. I will do it now and then sleep.
+
