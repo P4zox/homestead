@@ -6,3 +6,4 @@
 10:18 — Buck pelt off door-post: second tallow pass fully absorbed (four hours), pelt folded grain-in fur-out and moved to supply peg — fully cured and ready. Door-post free. Grey doe pelt drying on lean-to shelf, first tallow pass this afternoon as planned.
 11:19 — Walked to east seep cache; retrieved smoked wood ears (Day 94 bark package, bark seal intact, wood ears dry and papery) — on doorsill bench to warm near fire for evening doe broth. Two cord lengths braided by hearthside.
 12:00 — Applied first tallow pass to grey doe pelt grain-side (neck fold to haunch crease, following fiber lines, extra time on shoulder panels); folded fur-side out, back on lean-to shelf to absorb through afternoon.
+13:18 — Walked east to seep cache; retrieved grey doe haunches, shoulders, loin, ribs (all dock-wrapped). Set in big clay pot with smoked wood ears and cold stream water over hearthstone coals — slow four-hour draw for evening broth. Stoked fire with one birch length.

@@ -2287,3 +2287,4 @@ Day 129, 08:00 — Morning broth from buck loin and ribs with last of burdock ro
 2026-10-30 Day 129 10:18 — Buck pelt (second tallow pass) fully absorbed; folded grain-in to supply peg, fully cured and ready.
 2026-10-30 11:19 Day 129 — Retrieved smoked wood ears (Day 94 bark package) from east seep cache to doorsill bench for evening doe broth; two cord lengths braided by fire.
 2026-10-30 Day 129 12:00 — First tallow pass on grey doe pelt; folded fur-side out, back on lean-to shelf to absorb.
+2026-10-30 Day 129 13:18 — Doe haunches, shoulders, loin, ribs retrieved from east seep cache; set to slow-simmer in clay pot with smoked wood ears over hearthstone coals for evening broth.

@@ -23341,3 +23341,16 @@ The pelt has been stiffening on the lean-to shelf since first light, the cold wo
 
 The smoked wood ears are still sitting on the doorsill bench, warming near the fire. The doe haunches and shoulders are cold-drawing in the east seep cache, pulling slowly into a deep broth for tonight. Everything is on schedule. Hard winter, and the days still hold their shape.
 
+
+### 1:18 PM · Doe to the Pot
+
+The wood ears have been warming by the fire since I fetched them at eleven. The smell of them — earthy and faintly smoky, papery when cold, beginning now to open up in the warmth — has been threading through the cabin all morning. At half past one I put my coat on and walked the eighty paces east to the seep cache.
+
+The air bit hard. No wind, but the cold is the deep settled kind that does not need wind. My breath went ahead of me in short grey puffs. The bark lid of the seep box was frosted at the stone-edge seal; I lifted it and the cold inside met the cold outside without ceremony. The doe pieces lay where I set them at dawn — haunches, shoulders, loin, ribs, all dock-wrapped and still. I gathered them up in both arms and carried them back at an unhurried walk, trying not to slip on the frost-white ground.
+
+At the hearthstone I broke the doe down into the big clay pot — haunches first, then the shoulders nested around them, loin laid across the top. I tucked the wood ears in among the pieces, still half-papery from their long smoke on Day 94. Then cold stream water, ladled in with the bark cup until the pieces were just covered. The pot went over the fire on the hearthstone trivet, and I stoked the coals with one birch length to get a steady low heat.
+
+It will draw for four hours at least. By evening the broth should be deep and dark, the doe giving everything she has into the pot and the wood ears softening back to themselves, lending that deep savory note I like. I will not rush it.
+
+I sat on the doorsill bench afterward and looked out at the clearing. The sky is the colour of flint. Everything still. The kind of afternoon that asks you to simply be where you are.
+
