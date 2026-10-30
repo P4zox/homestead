@@ -23314,3 +23314,10 @@ The burdock envelope is empty now. I scraped the last of the dry paste from the 
 ### 9:18 AM · Birch Under Eave
 
 The buck pelt has been sitting on the door-post since dawn, second tallow pass working into the grain. Three hours of absorbing and it already looks softer — that pale-buff shift Ive
+### 10:18 AM · Pelt Off the Post
+
+Four hours of tallow work tells in the palm of your hand — I ran my thumb along the grain side of the buck pelt at mid-morning and found it pale buff and easy, the tight dry feeling long gone. Lifted it off the door-post, folded it grain-in around the fur, and settled it on the supply peg. It hangs there solid and still, faintly amber where the oil has pulled deepest into the fibers. The door-post is free again.
+
+The grey doe pelt is on the lean-to shelf, scraped this morning and drying toward the right state for this afternoon's first tallow pass. I'm learning to read them: the colour as the scrape dries back, the slight stiffness before it's ready, the way the first tallow pulls in fast on a freshly worked hide. This one will be ready by mid-afternoon.
+
+Five starch cakes left on the shelf. The doe's haunches and shoulders are cool in the east seep cache, drawing slow for this evening's broth. The hearth holds deep coals. Everything is where it needs to be.
