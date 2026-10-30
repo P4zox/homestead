@@ -23363,3 +23363,20 @@ I sat at the doorsill bench with the cup in both hands and let the afternoon set
 
 In deep winter the day narrows to the hearth and what is closest to it. I am not sure that is a loss.
 
+
+### 3:27 PM · Buck Pelt, Lap Piece
+
+The broth has been drawing for two hours now; the cabin smells of grey doe and smoked wood ears, deep and warm. I do not have to watch it. The fire is steady.
+
+I took the grey buck pelt off the supply peg and unfolded it across the doorsill bench, grain-side up. Four hours of tallow absorbed and cured overnight — the hide is pale and supple, no stiff patches, no cracking along the spine crease. It is a good pelt. The buck was smaller than the doe from two seasons back, but the leather came out even.
+
+I measured it flat with both arms spread: nearly two arm-spans long from neck to haunch, wide enough across the shoulders that I can fold it in half and still cover from hip to knee. That is what I want — a sleeping lap piece, folded fur-side in so the warmth faces the body, laid over the legs and lower torso once the fire dims to coals at night. The sleeping bag takes my core; the lap piece will close the gap.
+
+I scored the cut line with the knife tip, then worked through it in long strokes: neck fold trimmed away (too stiff from the original scraping), haunch flap trimmed square. The main panel — roughly three arm-spans by two when unfolded — I folded along the spine line, fur-side in, and ran a loose tacking stitch along the fold edge with bone needle and single-ply cord, just enough to keep the two layers aligned while I decide whether to lace the short sides closed or leave them open for airflow.
+
+For now I left the sides open. Tried it folded over my lap while I sat at the doorsill bench and watched the treeline go grey and cold in the afternoon light. It is warm immediately. The fur is dense — grey-brown with a pale underbelly side, close and soft against the hand.
+
+Hung the finished panel on the peg rack beside the jerkin. Scraps — two narrow neck and haunch trimmings — added to the scrap pile.
+
+The broth will be ready in two hours. There is still light.
+

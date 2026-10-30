@@ -2289,3 +2289,4 @@ Day 129, 08:00 — Morning broth from buck loin and ribs with last of burdock ro
 2026-10-30 Day 129 12:00 — First tallow pass on grey doe pelt; folded fur-side out, back on lean-to shelf to absorb.
 2026-10-30 Day 129 13:18 — Doe haunches, shoulders, loin, ribs retrieved from east seep cache; set to slow-simmer in clay pot with smoked wood ears over hearthstone coals for evening broth.
 Day 129, 14:20 — Steeped pine needle infusion at doorsill bench; broth still drawing; doe pelt absorbing tallow on lean-to shelf.
+Day 129, 15:27 — Buck pelt cut into sleeping lap piece (fur-side-in folded panel, tacking stitch along fold, sides open; on peg rack).
