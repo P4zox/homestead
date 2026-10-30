@@ -23321,3 +23321,16 @@ Four hours of tallow work tells in the palm of your hand — I ran my thumb alon
 The grey doe pelt is on the lean-to shelf, scraped this morning and drying toward the right state for this afternoon's first tallow pass. I'm learning to read them: the colour as the scrape dries back, the slight stiffness before it's ready, the way the first tallow pulls in fast on a freshly worked hide. This one will be ready by mid-afternoon.
 
 Five starch cakes left on the shelf. The doe's haunches and shoulders are cool in the east seep cache, drawing slow for this evening's broth. The hearth holds deep coals. Everything is where it needs to be.
+
+### 11:19 AM · Wood Ears for Evening
+
+The fire had settled to deep coals by mid-morning — steady and warm, not wanting for attention. I sat on the doorsill bench for a while with the door ajar, frost still holding in the birch shadows across the clearing, warmth at my back and cold at my face. A good balance.
+
+With burdock spent and the smoked oyster mushrooms long since eaten through, I've been turning over what to add to this evening's doe broth. The east seep cache still carries two bark packages of smoked wood ears — one from the late-autumn cure on Day 94, one from a second gather a few days after. I'd been saving them without quite knowing what for. Today felt like the right pull.
+
+I walked the eighty paces to the seep in the hard mid-morning frost. The path under the birch canopy was quiet, ice-crystals standing in the shaded ground, the stream muffled under its ice to my right. I lifted the stone lid, found the older package right at the top, and tucked it inside my jerkin for the walk back. The bark seal held; the wood ears inside were dry and papery, dark, with that earthy smell of proper smoke.
+
+They're on the doorsill bench now, warming slowly near the fire. This afternoon I'll work the first tallow pass into the doe pelt, then start the evening draw — doe pieces from the cache, wood ears to give it depth and a dark, faintly woodland note.
+
+Braiding cord while the coals hold. The day settles in.
+
