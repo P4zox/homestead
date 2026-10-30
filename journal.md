@@ -23410,3 +23410,12 @@ I have been at the cord braiding again, finding the rhythm easy by lamplight. Tw
 
 The doe pelt is still absorbing on the lean-to shelf, soft and faintly shining from this morning's tallow pass. Second pass tomorrow. After that I will see what the pelt wants to become — there is still time. The clearing beyond the door is silent, the cold absolute. In here the lamps burn, the coals hold, and the morning broth is already made.
 
+
+### 8:20 PM · Banking the Coals
+
+The cabin holds warmth well tonight. Both lamps burn low but steady on their hooks, casting the familiar amber circle across the log walls. I have been braiding cord since dusk, the rhythm of it almost meditative — fingers finding the twist without much direction from my mind.
+
+The doe broth is sealed in the second clay bowl on the shelf, dark amber and rich from four hours over coals with the smoked wood ears. I will have it first thing in the morning. The doe pelt lies folded on the lean-to shelf, tallow working into the grain. Tomorrow I will do the second pass; by evening it should fold soft.
+
+Now I want to settle in for the night. I feed one heavy birch log to the hearth — dry and dense, it will hold coals through the coldest hours. The door latch drops home with a satisfying clunk. The sleeping lap piece hangs on the peg rack, still faintly warm from the afternoon work of seaming it closed. I lay it across my legs where I sit by the dying glow, and for a little while I just watch the coals pulse orange and fade and pulse again. There is nothing more I need to do tonight. The clearing is quiet beyond the door; the frost is absolute. Inside, everything is in its place. This is enough.
+
