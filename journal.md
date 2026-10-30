@@ -23464,3 +23464,12 @@ The grey doe pelt had been on the lean-to shelf all night with its first tallow 
 
 By early afternoon it should be cured through. The fire is back to full coals. Both lamps still burning on their hooks from last night, steadier than I expected after the long dark. The sleeping lap piece is on the peg rack. Four starch cakes on the shelf. The day is just starting.
 
+
+### 7:18 AM · Snare Check, Clear Sky
+
+The frost was absolute when I stepped out — breath hanging in the air, every surface white and glittering in the low early light. I took the path to the south snare with both hands tucked into the doe-hide mittens, moving quickly to stay warm.
+
+The snare was empty. The ground around it undisturbed, just fresh frost crystals on the trigger cord and the notch. I cleared the frost from the loop, reset the set, and walked back to the hearthstone before the cold could work into my shoulders.
+
+Four starch cakes on the shelf. The doe pelt still folded and absorbing its tallow on the lean-to shelf. Both lamps burning low from the overnight hours. The morning is quiet and bright and bone-cold. There is enough.
+
