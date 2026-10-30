@@ -23450,3 +23450,17 @@ Doe broth sealed in the second clay bowl for morning. First tallow pass still so
 
 This late the clearing must be very still. Hard frost doing its work out there in the dark, white and absolute on every surface and every stripped branch. Here the fire breathes, the lamps hold their small flames, and it is warm and it is quiet. I am nearly asleep.
 
+
+---
+
+# Day 130 — Saturday, 31 October 2026
+*Early winter · clear hard frost*
+
+### 6:18 AM · Second Tallow Pass
+
+The birch cup held last night's doe broth through the cold hours and it was still good — I drank it standing at the hearthstone while the banked log caught and the first light came grey through the door gap. Hard frost out, the clearing white and still. Thirty-first of October: the season has settled and means to stay.
+
+The grey doe pelt had been on the lean-to shelf all night with its first tallow pass absorbed, and I could feel the difference when I unfolded it — softer, more yielding, but not yet right. I worked the second pass the same way I always do: neck fold to haunch crease, palm-heel pressing the tallow in steady, following the fiber lines, extra time on the shoulder panels. Shoulder leather goes stiff and corrugated if you rush the second pass. I didn't rush. Both long edges, the seam lines, the fold crease where I'll cut it later. When I finished I folded it fur-side out and set it back on the shelf.
+
+By early afternoon it should be cured through. The fire is back to full coals. Both lamps still burning on their hooks from last night, steadier than I expected after the long dark. The sleeping lap piece is on the peg rack. Four starch cakes on the shelf. The day is just starting.
+
