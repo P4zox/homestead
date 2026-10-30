@@ -2283,3 +2283,4 @@ Day 128, 23:27 — Night fully settled; lamps gone out (spent), fire to deep coa
 2026-10-30 Day 129 06:18 — Applied second tallow pass to grey buck pelt grain-side; pelt back on door-post absorbing. New day begun.
 Day 129 (2026-10-30) 07:18 — South snare yielded small grey doe; jointed and cached; pelt scraped, first tallow pass this afternoon.
 Day 129, 08:00 — Morning broth from buck loin and ribs with last of burdock rounds; burdock spent; five starch cakes on shelf.
+2026-10-30 09:18 Day 129 — Stepped out to south treeline in hard-frost mid-morning; brought back two dry birch lengths and a pine bough, stacked under eave. Buck pelt absorbing well on door-post; doe pelt on lean-to shelf awaiting first tallow pass this afternoon.

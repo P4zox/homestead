@@ -23310,3 +23310,7 @@ I let it simmer low for near an hour and did small things while it worked: check
 
 The burdock envelope is empty now. I scraped the last of the dry paste from the inside, folded it, and set it aside. That small supply has run a long thread through these past weeks — I remember pulling the roots up in late summer. Now it is done. Five starch cakes left on the shelf, the doe's pieces cold and waiting in the seep cache, the sky outside pale and still. A good enough morning to be warm and fed inside it.
 
+
+### 9:18 AM · Birch Under Eave
+
+The buck pelt has been sitting on the door-post since dawn, second tallow pass working into the grain. Three hours of absorbing and it already looks softer — that pale-buff shift Ive
