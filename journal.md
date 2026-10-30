@@ -23380,3 +23380,7 @@ Hung the finished panel on the peg rack beside the jerkin. Scraps — two narrow
 
 The broth will be ready in two hours. There is still light.
 
+
+### 4:18 PM · Seaming by Firelight
+
+The broth had another hour in it. I took the sleeping lap piece down from the peg rack — fold-stitched along the spine line, but both long sides still open, the fur curling loosely where the hide hadnt
