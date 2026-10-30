@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Applied second tallow pass to grey buck pelt grain-side (neck fold to haunch crease, long edges); pelt back on door-post to absorb. Mittens supple from overnight conditioning on doorsill bench. Both snares set (south at birch-snag gap, north at alder gap). Six starch cakes on shelf.
 07:18 — Checked both snares: south birch-snag gap snare yielded small grey doe (jointed at hearthstone, haunches/shoulders/loin/ribs in east seep cache for cold-draw broth this evening; cavity fat rendered to reserve; pelt scraped at hearthstone, seam lines worked, fur-side out on lean-to shelf — first tallow pass this afternoon); north alder gap snare undisturbed, reset.
+08:00 — Retrieved buck loin and ribs from east seep cache; slow-simmered in clay pot with last quarter of burdock rounds (~one hour, deep amber broth); eaten at doorsill bench with one starch cake. Burdock rounds spent. Five starch cakes remain.

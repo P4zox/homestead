@@ -23301,3 +23301,12 @@ Back at the hearthstone I jointed her — haunches, shoulders, loin, ribs — an
 
 This is what mid-winter looks like: no drama, just the quiet arithmetic of snares checked, meat secured, pelt begun. The grey buck from yesterday is resting in the cache alongside her now. There is a satisfaction in this that doesn't need explaining.
 
+
+### 8:00 AM · Loin Broth, Still Morning
+
+The fire was already built well past embers by the time the snare work was done, and the cabin was beginning to hold real warmth. I retrieved the buck's loin and the rack of ribs from the east seep cache — two days of cold draw had deepened them, the sinew gone tight against the bone — and set the clay pot over the coals with water and the last of the burdock rounds. Only a quarter portion left of those, thin grey discs at the bottom of the bark envelope, but they soften into the broth and give it something starchy and earthy underneath the sweetness of the meat.
+
+I let it simmer low for near an hour and did small things while it worked: checked the bark cord on one wrist wrap, made sure the grey doe pelt was lying flat on the lean-to shelf to dry evenly. When the broth came amber and the loin shredded cleanly from the bone, I carried the pot to the doorsill bench and ate with a starch cake balanced in my other hand.
+
+The burdock envelope is empty now. I scraped the last of the dry paste from the inside, folded it, and set it aside. That small supply has run a long thread through these past weeks — I remember pulling the roots up in late summer. Now it is done. Five starch cakes left on the shelf, the doe's pieces cold and waiting in the seep cache, the sky outside pale and still. A good enough morning to be warm and fed inside it.
+

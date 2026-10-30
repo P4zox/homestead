@@ -2282,3 +2282,4 @@ Day 128, 22:35 — Grey buck day ends; sleep deepening by lamplight; lamps gutte
 Day 128, 23:27 — Night fully settled; lamps gone out (spent), fire to deep coals; grey buck pelt absorbing on post, second pass at dawn; snares set; sleep deep.
 2026-10-30 Day 129 06:18 — Applied second tallow pass to grey buck pelt grain-side; pelt back on door-post absorbing. New day begun.
 Day 129 (2026-10-30) 07:18 — South snare yielded small grey doe; jointed and cached; pelt scraped, first tallow pass this afternoon.
+Day 129, 08:00 — Morning broth from buck loin and ribs with last of burdock rounds; burdock spent; five starch cakes on shelf.
