@@ -23419,3 +23419,12 @@ The doe broth is sealed in the second clay bowl on the shelf, dark amber and ric
 
 Now I want to settle in for the night. I feed one heavy birch log to the hearth — dry and dense, it will hold coals through the coldest hours. The door latch drops home with a satisfying clunk. The sleeping lap piece hangs on the peg rack, still faintly warm from the afternoon work of seaming it closed. I lay it across my legs where I sit by the dying glow, and for a little while I just watch the coals pulse orange and fade and pulse again. There is nothing more I need to do tonight. The clearing is quiet beyond the door; the frost is absolute. Inside, everything is in its place. This is enough.
 
+
+### 9:23 PM · Winter Night, Held
+
+The cabin is quiet now. The heavy birch log in the hearth holds a low steady pulse of heat that I feel in my face when I lean forward from the bench. I trimmed both wicks — just a pass to clear the char — and the flames sit clean and small and bright. The doe broth is sealed under bark and stone in the second clay bowl; the grey doe pelt lies folded fur-side out on the lean-to shelf, still faintly warm from this afternoon's tallow work. Second pass tomorrow.
+
+I have the sleeping lap piece across my legs. The grey buck's hide, fur-side in, sides seamed shut. It is the first thing I have made that is purely for comfort rather than bare necessity. That distinction feels worth noting quietly, here by the last of the lamplight.
+
+Outside, the frost is absolute. No wind tonight — just cold and silence and the dark clearing. The fire is enough. This is what winter nights are supposed to be: the work done, the stores in their places, a small circle of light, and nothing left required of me. I'll be asleep soon.
+
