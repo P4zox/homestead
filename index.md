@@ -2293,3 +2293,4 @@ Day 129, 15:27 — Buck pelt cut into sleeping lap piece (fur-side-in folded pan
 2026-10-30 Day 129 16:18 — Seamed both long sides of sleeping lap piece (running stitch, bone needle, single-ply cord, fur-side-in); lap bag now fully enclosed at sides, open-ended, on peg rack.
 Day 129, 17:18 — Doe broth (four-hour draw with smoked wood ears) strained and consumed at doorsill bench with one starch cake; four starch cakes remain; doe pelt absorbing first tallow pass.
 2026-10-30 18:20 — Day 129, evening: topped both bark-cup lamps from tallow reserve; both burning steady on hooks. Doe pelt first tallow pass absorbing; second pass tomorrow. Four starch cakes, leftover broth sealed for morning.
+2026-10-30 Day 129 19:21 — Two cord lengths braided by lamplight; fire tended; both lamps steady; doe broth sealed for morning; doe pelt absorbing first tallow pass (second pass tomorrow).

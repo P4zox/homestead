@@ -23401,3 +23401,12 @@ The doe broth pot sits settled in the embers. The leftover portion is bark-seale
 
 The sleeping lap piece hangs on the peg rack beside the jerkin. The doe pelt absorbs its first tallow pass on the lean-to shelf — second pass tomorrow, and then it will be ready for cutting. Four starch cakes on the shelf. Woodpile full past the eave. I count what is solid before the evening deepens: cabin sealed, fire fed, food enough, light enough, warmth enough. A long winter, but the days are manageable when you count only this one.
 
+
+### 7:21 PM · Lamplight and Cord
+
+The two lamps hold steady on their hooks, small warm circles in the dark corners. Outside, the frost has settled deep — I can feel it through the log walls, but the fire keeps good coals and the cabin holds what heat it has gathered. Earlier the doe broth came off the hearthstone dark amber and silken with wood ears; the bowl is sealed and waiting for morning. The sleeping lap piece hangs on the peg rack, sides stitched closed, smelling of fresh hide. A full day.
+
+I have been at the cord braiding again, finding the rhythm easy by lamplight. Two more lengths done, coiled and set aside. There is something settling about the repetition in the evening — it is not nothing, not busy work; good bark cord is as necessary as anything out here, and you can only make it one arm-length at a time. The pine needles I steeped at the doorsill this afternoon left the birch cup faintly fragrant; I held it a long time before it cooled.
+
+The doe pelt is still absorbing on the lean-to shelf, soft and faintly shining from this morning's tallow pass. Second pass tomorrow. After that I will see what the pelt wants to become — there is still time. The clearing beyond the door is silent, the cold absolute. In here the lamps burn, the coals hold, and the morning broth is already made.
+
