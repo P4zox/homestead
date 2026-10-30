@@ -23354,3 +23354,12 @@ It will draw for four hours at least. By evening the broth should be deep and da
 
 I sat on the doorsill bench afterward and looked out at the clearing. The sky is the colour of flint. Everything still. The kind of afternoon that asks you to simply be where you are.
 
+
+### 2:20 PM · Small Winter Cup
+
+The broth has been drawing for just over an hour — the cabin smells of wood ears and doe bones, thick and warm enough to make the cold outside feel more absolute by contrast. There is nothing to do until the pot is ready, and I found I did not want to fill the time with cord braiding or shuffling supplies. Instead I broke a small handful of fresh pine needles from the bundle against the south wall, poured a cupful of water into the birch cup, and set it in the corner of the hearthstone close enough to steam but not boil. The colour came up pale gold in a few minutes, the smell like cold air drawn down to something small and drinkable.
+
+I sat at the doorsill bench with the cup in both hands and let the afternoon settle around me. The doe pelt is laid out on the lean-to shelf, furred side down, first tallow absorbing. The buck pelt is folded grain-in on the supply peg — fully cured, soft as cloth. The broth ticks low on its coals. Through the door gap the light is flat and grey, the kind of winter light that does not seem to come from anywhere in particular but just exists as a quality of the air. I drank the cup slowly. The cold outside made it better.
+
+In deep winter the day narrows to the hearth and what is closest to it. I am not sure that is a loss.
+

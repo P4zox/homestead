@@ -7,3 +7,4 @@
 11:19 — Walked to east seep cache; retrieved smoked wood ears (Day 94 bark package, bark seal intact, wood ears dry and papery) — on doorsill bench to warm near fire for evening doe broth. Two cord lengths braided by hearthside.
 12:00 — Applied first tallow pass to grey doe pelt grain-side (neck fold to haunch crease, following fiber lines, extra time on shoulder panels); folded fur-side out, back on lean-to shelf to absorb through afternoon.
 13:18 — Walked east to seep cache; retrieved grey doe haunches, shoulders, loin, ribs (all dock-wrapped). Set in big clay pot with smoked wood ears and cold stream water over hearthstone coals — slow four-hour draw for evening broth. Stoked fire with one birch length.
+14:20 — Steeped a small handful of pine needles in the birch cup near hearthstone coals; sat at doorsill bench and drank the pale-gold infusion slowly while broth drew. Doe pelt absorbing on lean-to shelf; buck pelt fully cured on supply peg.
