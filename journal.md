@@ -23392,3 +23392,12 @@ Ate standing at the doorsill bench, one starch cake in hand, watching the light 
 
 There's enough left in the second bowl for morning if I seal it tonight. Four starch cakes on the shelf. The sleeping lap piece hangs on the rack; the doe pelt folds its first tallow pass on the lean-to shelf, quiet and curing. Everything where it should be as dusk comes on.
 
+
+### 6:20 PM · Lamps Fed, Night Quiet
+
+The last grey light has gone from the doorway gap and the clearing outside is fully dark. I take the tallow envelope down from the supply shelf — it is still heavy, which is a comfort — and spoon a careful measure into each bark-cup lamp. Both wicks are a little short; I tease the first one up with two fingers before touching the flame to it. The second lamp catches cleanly. Two small steady stars of yellow light, one on each hook beside the door.
+
+The doe broth pot sits settled in the embers. The leftover portion is bark-sealed in the second clay bowl for morning, and I am not hungry — the supper was generous, dark and smoky and filling. The frost outside is absolute. I can hear nothing past the snap and whisper of the hearthfire.
+
+The sleeping lap piece hangs on the peg rack beside the jerkin. The doe pelt absorbs its first tallow pass on the lean-to shelf — second pass tomorrow, and then it will be ready for cutting. Four starch cakes on the shelf. Woodpile full past the eave. I count what is solid before the evening deepens: cabin sealed, fire fed, food enough, light enough, warmth enough. A long winter, but the days are manageable when you count only this one.
+
