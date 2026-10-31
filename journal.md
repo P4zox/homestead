@@ -23592,3 +23592,8 @@ The second lamp gutters once, steadies. I pull the sleeping cap down over my ear
 
 I let the evening close around me like water.
 
+
+### 11:18 PM · Lamps Out
+
+The lamps were burning low when I pulled the wicks — both at once, two small fingers of smoke rising and gone. The fire held its orange pulse under the birch log; that would carry through the night without me watching. I lay back on the cattail mat and pulled the sleeping lap piece over my legs. The cabin dark except for hearthglow. Outside, frost and stars and whatever the snare holds or does not hold. I listened for a moment to nothing — the pop of a coal, the cabin walls holding cold at a distance. Then I let go of the day.
+
