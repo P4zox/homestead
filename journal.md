@@ -23526,3 +23526,12 @@ The snare was exactly as I left it: loop clear, trigger notch set, cord holding 
 
 I reset the loop a hand-span lower where the frost had settled the ground level, and turned back. The cabin came into view at the tree gap, smoke rising thin and perfectly vertical from the roof gap — good air, dead calm cold. I came inside and added a birch length to the hearthstone. The lamps are burning steady. Two starch cakes still on the shelf, five log-cap caps in the cold box. The snare will do its work, or it will not.
 
+
+### 3:18 PM · Clearing Circuit
+
+Walked the clearing's edge — a slow circuit I have not made in a few days. The east garden plots are flat and pale under frost-stiffened leaf mulch, garlic and nettle crowns invisible below, sleeping. I pressed one handful of mulch aside: hard an inch down, still soft below that. Whatever is under there is holding.
+
+The south snare is set and still. Treeline bare and dark to the south; the sky to the west had gone a flat washed-gold, light maybe an hour left. A dry pine bough had fallen along the east path — too short to stack, I nudged it into the kindling row with my foot as I passed.
+
+At the doorway I paused and looked back. The clearing is quiet and whole. Woodpile solid. Two starch cakes on the shelf. Five log-caps in the cold box. It is enough, this afternoon.
+
