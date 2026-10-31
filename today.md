@@ -1,2 +1,11 @@
 # today.md — today's actions, in detail (cleared each new morning)
-
+06:18 — Applied second tallow pass to grey doe pelt grain-side (neck fold to haunch crease, extra time on shoulder panels); folded fur-side out, back on lean-to shelf absorbing through morning. Consumed overnight doe broth at hearthstone. Fire back to full coals from banked log. Four starch cakes on shelf.
+07:18 — Walked to south snare; found empty — trigger cord frosted, ground undisturbed around loop. Cleared frost from notch, reset loop, returned to hearthstone. Doe pelt still absorbing on lean-to shelf.
+08:18 — Pulled one smoked fan-cap cluster (Day 88 cure) from cold box; crumbled into clay pot with water from yesterday's draw; steeped over hearthstone coals until amber-gold; drank from birch cup at doorway with one starch cake. Three starch cakes remaining. One fan-cap cluster remaining in cold box.
+09:18 — Walked to south treeline with wide gathering basket; collected two dry birch lengths and one dry pine bough from duff line, bark-side up; carried back and stacked under eave. Pile eave-high and past. Doe pelt still absorbing on lean-to shelf.
+10:18 — Lifted grey doe pelt from lean-to shelf; tallow fully absorbed after four hours, shoulder and haunch panels supple and sheened grain-side pale gold — folded fur-side out, carried in, hung on supply peg. Pelt cured.
+11:18 — Settled at hearthstone with birch inner bark; braided two lengths of two-ply cord. Pelt cured and hanging. South snare set. Fire steady.
+12:18 — Walked east to seep cache (eighty paces, hard frost); lid secure, seep stone weight in place. Checked inside: fan-cap cluster, wood ear package, seven log-cap caps — all cold and sound. Lid reset, walked back under pale noon sky.
+13:18 — Brought two smoked log-cap caps from east seep cache; simmered in clay pot over hearthstone coals — amber noon broth with one starch cake, taken at hearthstone. Two starch cakes remaining. Five log-cap caps in cold box.
+14:18 — Walked south snare for afternoon check; empty, ground undisturbed, no tracks. Reset loop one hand-span lower where frost settled the duff level. Returned under pale winter sky. Added birch length to hearthstone.
+15:18 — Walked the clearing's edge in afternoon frost — a slow circuit past east garden plots (mulch frost-stiffened, soil hard an inch down then soft below), south snare set and still, sky pale gold to the west. Returned to doorway at low light; nudged one fallen pine bough into the kindling row as I passed.
