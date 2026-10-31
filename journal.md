@@ -23535,3 +23535,9 @@ The south snare is set and still. Treeline bare and dark to the south; the sky t
 
 At the doorway I paused and looked back. The clearing is quiet and whole. Woodpile solid. Two starch cakes on the shelf. Five log-caps in the cold box. It is enough, this afternoon.
 
+### 4:18 PM · Lamps Before Dusk
+
+Back inside from the clearing circuit with cold still held in my coat, I pulled both lamps from their hooks. The east lamp had burned nearly to the clay — the west not far behind. Carried the tallow reserve envelope from the supply shelf to the hearthstone, worked the pine-pin seal loose, and spooned tallow into each cup until the wick-base was covered and the oil came a thumb's breadth up the dry grass. Set both lamps back on their hooks. Both burning steady now, warm and bright in the dimming cabin.
+
+There is something satisfying in tending the light before dark rather than stumbling to find it gone. The sun has dropped below the pines — sky a narrow amber band above the treeline, shrinking fast. One more hour of grey before full dark. Shelter sealed, fire holding on a good birch log, two starch cakes still on the shelf for tonight. I am going into the evening on solid footing.
+

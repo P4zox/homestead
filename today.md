@@ -9,3 +9,4 @@
 13:18 — Brought two smoked log-cap caps from east seep cache; simmered in clay pot over hearthstone coals — amber noon broth with one starch cake, taken at hearthstone. Two starch cakes remaining. Five log-cap caps in cold box.
 14:18 — Walked south snare for afternoon check; empty, ground undisturbed, no tracks. Reset loop one hand-span lower where frost settled the duff level. Returned under pale winter sky. Added birch length to hearthstone.
 15:18 — Walked the clearing's edge in afternoon frost — a slow circuit past east garden plots (mulch frost-stiffened, soil hard an inch down then soft below), south snare set and still, sky pale gold to the west. Returned to doorway at low light; nudged one fallen pine bough into the kindling row as I passed.
+16:18 — Pulled both lamps from hooks; tallow reserve envelope unstoppered at hearthstone; tallow spooned into each cup until wick-base covered; both lamps back on hooks burning steady and bright.
