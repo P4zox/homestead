@@ -23489,3 +23489,12 @@ The pile is well past eave-high now. Standing there in the cold morning light, l
 
 Back inside, the doe pelt is still absorbing on the lean-to shelf, pale and pliant looking. Three starch cakes on the shelf. The lamp wicks burning steady. The morning is doing what it should.
 
+
+### 10:18 AM · Doe Pelt, Done
+
+The doe pelt was still on the lean-to shelf where I had left it at dawn — tallow rubbed into the grain-side, folded fur-out to absorb through the morning. I lifted it now, four hours on. The hide flexed at once: no stiffness at the shoulder fold or haunch crease, grain-side pale gold and slightly tacky in the way of leather that has just taken in what it needed. I pressed my thumb into the thickest panel; it gave easily, held the press, came back supple. That is what cured feels like.
+
+I carried it inside and hung it on the supply peg beside the hare neck wrap and the sleeping cap. The stack of finished things is getting long — mittens, jerkin, sleeping lap piece, neck wrap, ear pieces, foot wraps, cap. Now this. A small grey doe who was in the south treeline yesterday morning, drawn into broth by evening, stripped, and now hanging on a peg in some other shape, keeping company with the rest.
+
+Three starch cakes on the shelf. One fan-cap cluster in the cold box. The south snare was empty this morning and the stream holds ice. The pile under the eave is past eave-high. There is a particular quiet that comes when the morning work is done before noon and everything that needs doing is already in hand.
+
