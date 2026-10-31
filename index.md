@@ -2313,3 +2313,4 @@ Day 130, 16:18 — Topped both lamps from tallow reserve at hearthstone; cups fu
 2026-10-31 Day 130 18:19 — Braided two cord lengths by lamplight; one starch cake on shelf, three log-cap caps in cache; snare set south in the dark.
 2026-10-31 19:18 — Day 130 — Banked the fire with a heavy birch log; sat by lamplight with nothing in hand, watching coals settle into their overnight pulse.
 [Day 130, 2026-10-31 20:18] Stood at the doorway in hard clear dark; found stars through the pines; frost-silver clearing; returned inside to steady lamps and shelter holding.
+Day 130, 21:18 (2026-10-31 Sat) — Late evening: sharpened knife on gneiss grinding stone by lamplight; twelve slow passes each side, edge clean. Both lamps steady, fire banked, one starch cake on shelf.

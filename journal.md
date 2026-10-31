@@ -23577,3 +23577,7 @@ Stood at the doorway for a while in the hard dark. No wind tonight — the cold 
 
 Back inside, both lamps burning steady on their hooks, hearthstone warm underfoot. I sat with it for a few minutes — one starch cake on the shelf, cache solid, doe pelt cured and hanging, the lap piece on the peg rack, fire banked deep. It's a strange thing how a hard winter becomes just the shape of a day: the rounds you walk, the pot you fill, the lamp you tend. I'm tired in the right way tonight. The shelter holds, and the stars were out.
 
+
+### 9:18 PM · Knife on Stone
+
+The hearthstone glows deep orange under the banked birch log, and both lamps are still burning steady on their hooks. I have taken the knife and the flat gneiss grinding stone down to the hearthside and set them in my lap in the lamplight — drawing the blade slow and even along the grain, feeling the edge against the pad of my thumb between passes. This knife has dressed rabbits, cut pelt panels, shaped pegs, scored bark. In deep winter it is the one tool I trust more than any other on this place. A good edge is peace of mind made material. After a dozen slow passes each side, the blade catches the lamplight in a clean line from ricasso to tip. I wiped it on a dry grass scrap and slid it back into the sheath. Both lamps steady. One starch cake on the shelf, three log-cap caps in the cache, snare set in the dark. Tomorrow the snare may give something; if not, the cache holds enough for the morning. I am not worried. The fire holds. The shelter holds.
