@@ -6,3 +6,4 @@
 10:18 — Lifted grey doe pelt from lean-to shelf; tallow fully absorbed after four hours, shoulder and haunch panels supple and sheened grain-side pale gold — folded fur-side out, carried in, hung on supply peg. Pelt cured.
 11:18 — Settled at hearthstone with birch inner bark; braided two lengths of two-ply cord. Pelt cured and hanging. South snare set. Fire steady.
 12:18 — Walked east to seep cache (eighty paces, hard frost); lid secure, seep stone weight in place. Checked inside: fan-cap cluster, wood ear package, seven log-cap caps — all cold and sound. Lid reset, walked back under pale noon sky.
+13:18 — Brought two smoked log-cap caps from east seep cache; simmered in clay pot over hearthstone coals — amber noon broth with one starch cake, taken at hearthstone. Two starch cakes remaining. Five log-cap caps in cold box.

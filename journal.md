@@ -23509,3 +23509,11 @@ Pulled on jerkin and mittens at noon and walked east through hard frost-crunch t
 
 I pressed the lid back down, nudged the stone to center, then stood a moment in the pale noon light before walking back. The clearing spread out frost-white and still, smoke rising from the cabin in a thin straight column. It is a small thing, checking what you have stored — but in hard winter, knowing everything is where you left it, sealed and cold, feels like a form of wealth.
 
+
+### 1:18 PM · Two Caps at Noon
+
+The noon sky was pale and still when I came back from the seep cache, and I had brought two of the log-cap caps with me tucked under my arm, bark wrap intact. They have been in that cold draw since Day 88, and the birch smoke still holds — a close, earthy smell when I broke the wrapping open at the hearthstone.
+
+They went into the clay pot with water from the morning draw, set over the coals to climb slow. The broth came up amber, the way log-cap smoke does — denser than fan-cap, a little more weight to it. I broke a starch cake into shards at the pot rim and let them warm while the broth finished.
+
+It is enough for a hard winter afternoon: warm hands on the clay cup, both lamps burning low on their hooks, outside nothing but pale sky and frost and silence. Five caps remain in the cache. Two starch cakes on the shelf. The south snare set and waiting in its corridor. I am fed and warm, and that is the whole job right now.
