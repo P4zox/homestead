@@ -23550,3 +23550,14 @@ Ate from the birch cup with one starch cake, standing in the doorway while the f
 
 This is what winter looks like from the inside: enough food, warm light, nothing that needs doing before morning. I pulled the door to and let the fire settle on a good log.
 
+
+### 6:19 PM · Cord After Dusk
+
+The lamps make a small warm world of the cabin, each flame reflected in the curve of the bark cup beneath it. Outside it is full dark now, the clearing invisible, the pines a solid black mass against faint stars. The fire has settled on last night's big birch log — it holds heat for hours without tending, a deep orange core.
+
+I sat at the hearthstone with a lap of stripped bark and braided two lengths of two-ply cord, working slow and even by the lamp-glow. My fingers know this movement now without watching; I could do it in the dark if I had to. The cord coils up on the floor beside me, added to the stock on the shelf when I'm done.
+
+One starch cake left on the shelf. The cache holds three log-cap caps, the fan-cap cluster, the wood ear package. That is enough for tomorrow and the day after, if the snare gives nothing. The snare is set in the dark, invisible now, eighty paces south — I think of the trigger cord, how I set the loop one hand-span lower at this afternoon's check. A rabbit coming through in the small hours wouldn't know the difference.
+
+The cord braids finished. I hung them on the peg with the rest, poured myself a last cup of plain hot water from the pot kept warm at the hearthstone edge, and sat listening. Wind in the pines. A branch shifting under frost. The lamp flames perfectly still inside.
+

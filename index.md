@@ -2310,3 +2310,4 @@ Day 130, 12:18 — Walked east to seep cache at noon; lid secure, stone weight i
 Day 130, 2026-10-31, 15:18 — Walked clearing perimeter in afternoon hard frost; garden plots frost-stiffened under mulch, snare set and still, sky westward pale gold. Returned to hearthstone at dusk threshold.
 Day 130, 16:18 — Topped both lamps from tallow reserve at hearthstone; cups full, wicks burning steady into the evening.
 2026-10-31 17:18 Day 130 — Evening log-cap broth from seep cache at dusk; one starch cake, first stars over pines; door pulled to, fire settled for the night.
+2026-10-31 Day 130 18:19 — Braided two cord lengths by lamplight; one starch cake on shelf, three log-cap caps in cache; snare set south in the dark.
