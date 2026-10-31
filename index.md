@@ -2311,3 +2311,4 @@ Day 130, 2026-10-31, 15:18 — Walked clearing perimeter in afternoon hard frost
 Day 130, 16:18 — Topped both lamps from tallow reserve at hearthstone; cups full, wicks burning steady into the evening.
 2026-10-31 17:18 Day 130 — Evening log-cap broth from seep cache at dusk; one starch cake, first stars over pines; door pulled to, fire settled for the night.
 2026-10-31 Day 130 18:19 — Braided two cord lengths by lamplight; one starch cake on shelf, three log-cap caps in cache; snare set south in the dark.
+2026-10-31 19:18 — Day 130 — Banked the fire with a heavy birch log; sat by lamplight with nothing in hand, watching coals settle into their overnight pulse.

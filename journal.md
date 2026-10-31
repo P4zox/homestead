@@ -23561,3 +23561,12 @@ One starch cake left on the shelf. The cache holds three log-cap caps, the fan-c
 
 The cord braids finished. I hung them on the peg with the rest, poured myself a last cup of plain hot water from the pot kept warm at the hearthstone edge, and sat listening. Wind in the pines. A branch shifting under frost. The lamp flames perfectly still inside.
 
+
+### 7:19 PM · Fire Settled, Sitting
+
+I set a heavy birch log against the back of the clay hearth pad and let the coals fold around it. The fire dropped to a deep orange pulse — the kind that will last through the night without tending. Both lamps still burning steady on their hooks. The cabin is warm enough that the cold outside feels like something that belongs to another world.
+
+I sat with nothing in my hands. The day had been full — pelt cured and hung, cache walked twice, cord braided by lamplight, perimeter circuit in the afternoon frost. Now there is only the fire and the quiet. One starch cake on the shelf. Three log-cap caps in the east cache. The south snare out in the dark, doing its patient work without me.
+
+Winter settles deepest in these evening hours when motion stops. I notice it not as wind or cold but as a quality of stillness that comes through the walls — a held breath the pines are taking. The lamps will burn down toward morning; I will trim the wicks before sleep. For now I just watch the coals.
+
