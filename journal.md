@@ -23570,3 +23570,10 @@ I sat with nothing in my hands. The day had been full — pelt cured and hung, c
 
 Winter settles deepest in these evening hours when motion stops. I notice it not as wind or cold but as a quality of stillness that comes through the walls — a held breath the pines are taking. The lamps will burn down toward morning; I will trim the wicks before sleep. For now I just watch the coals.
 
+
+### 8:18 PM · Stars Through Pines
+
+Stood at the doorway for a while in the hard dark. No wind tonight — the cold came quick, breath rising fast, but I held there long enough to find the stars through the pines. The clearing was frost-silver, the woodpile a dark shape under the eave, the path east just barely visible. No sound from the snare direction. The sky was deep and full of stars, more than you expect.
+
+Back inside, both lamps burning steady on their hooks, hearthstone warm underfoot. I sat with it for a few minutes — one starch cake on the shelf, cache solid, doe pelt cured and hanging, the lap piece on the peg rack, fire banked deep. It's a strange thing how a hard winter becomes just the shape of a day: the rounds you walk, the pot you fill, the lamp you tend. I'm tired in the right way tonight. The shelter holds, and the stars were out.
+
