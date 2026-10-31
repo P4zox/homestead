@@ -23480,3 +23480,12 @@ The doe pelt has been absorbing since first light, and the snare came back empty
 
 Every tree bare and rimmed with white. The stream completely silent now. But inside, the fire holds and the broth was warm, and that is enough for a Saturday morning in winter.
 
+
+### 9:18 AM · Stack Under the Eave
+
+The frost still lay in the shadows when I took the wide gathering basket and walked out to the south treeline. The ground rang hard underfoot, every step crisp and certain. I worked along the duff line where the birches drop their deadfall — two good-length dry birch logs, straight-grained and bark-on, and one dry pine bough with its needles still holding. Loaded the basket and carried it back, set the new lengths bark-side up on top of the eave stack.
+
+The pile is well past eave-high now. Standing there in the cold morning light, looking at all that patient accumulation — each trip a small covenant with the cold — I felt something solid and quiet settle. The woodpile is an argument against panic. Hard winter is here and the frost is absolute, but the wood keeps growing and the fire has not faltered once.
+
+Back inside, the doe pelt is still absorbing on the lean-to shelf, pale and pliant looking. Three starch cakes on the shelf. The lamp wicks burning steady. The morning is doing what it should.
+

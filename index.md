@@ -2301,3 +2301,4 @@ Day 129, 2026-10-30, 23:19 — Drifting to Sleep: settled with sleeping lap piec
 Day 130 (2026-10-31, Sat) — Second tallow pass applied to grey doe pelt; doe broth from overnight consumed at hearthstone; new day begins clear and hard-frost.
 Day 130 (2026-10-31) 07:18 — Checked south snare, found empty; reset loop; doe pelt absorbing second tallow pass on shelf; four starch cakes remain.
 Day 130, 08:18 — Morning broth from smoked fan-cap cluster (Day 88) steeped over hearthstone coals; eaten at doorway with one starch cake; snare empty, doe pelt still curing on lean-to shelf.
+Day 130 09:18 — Gathered firewood from south treeline; two dry birch lengths and one pine bough stacked under eave. Doe pelt absorbing second tallow pass.
