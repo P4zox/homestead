@@ -23541,3 +23541,12 @@ Back inside from the clearing circuit with cold still held in my coat, I pulled 
 
 There is something satisfying in tending the light before dark rather than stumbling to find it gone. The sun has dropped below the pines — sky a narrow amber band above the treeline, shrinking fast. One more hour of grey before full dark. Shelter sealed, fire holding on a good birch log, two starch cakes still on the shelf for tonight. I am going into the evening on solid footing.
 
+
+### 5:19 PM · Lamp-Lit Supper
+
+Walked to the east seep cache at dusk — eighty paces under a sky gone deep amber and cold between the birch trunks. Retrieved two log-cap caps from the bark package, resealed the lid, stone weight back in place. At the hearthstone I crumbled them into the clay pot with water and let the broth come slowly to a simmer while the lamps burned steady on their hooks. The cabin filled with the smell of mushroom and woodsmoke.
+
+Ate from the birch cup with one starch cake, standing in the doorway while the first stars showed over the pines. One starch cake left on the shelf. Three log-cap caps still in the seep cache, and a fan-cap cluster, and the wood ear package — enough to eat well for days yet. The snare is set somewhere in the dark to the south. The doe pelt cured and hanging on the supply peg.
+
+This is what winter looks like from the inside: enough food, warm light, nothing that needs doing before morning. I pulled the door to and let the fire settle on a good log.
+
