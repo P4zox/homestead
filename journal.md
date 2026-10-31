@@ -23597,3 +23597,19 @@ I let the evening close around me like water.
 
 The lamps were burning low when I pulled the wicks — both at once, two small fingers of smoke rising and gone. The fire held its orange pulse under the birch log; that would carry through the night without me watching. I lay back on the cattail mat and pulled the sleeping lap piece over my legs. The cabin dark except for hearthglow. Outside, frost and stars and whatever the snare holds or does not hold. I listened for a moment to nothing — the pop of a coal, the cabin walls holding cold at a distance. Then I let go of the day.
 
+
+---
+
+# Day 131 — Sunday, 1 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:19 AM · November Begins
+
+The fire held through the night. When I drew back the birch log and parted the coals with a stick, there was still heat in there — amber and breathing under the white ash. A few dry birch curls and they caught in moments. First fire of November.
+
+I walked out to the east seep cache while the hearthstone warmed, hard frost biting through the leather mittens. Pulled two smoked log-cap caps from the cold dark of the cache without disturbing the fan-cap cluster or the wood ear package. Lid reset, stone weight back in place. The walk back in the grey pre-light felt still and clean.
+
+Simmered the caps in the clay pot over the coals until the broth came amber. Ate at the hearthstone with the last starch cake — crumbled it in so it softened and thickened the broth a little. No more starch cakes on the shelf. Good enough for a new month's first morning.
+
+The lamps are low; I left them unlit — enough grey light coming through the gaps now to see by. South snare still set from last night. The cache holds one log-cap cap, the fan-cap cluster, and the wood ear package. I'll check the snare before the light goes flat.
+
