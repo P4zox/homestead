@@ -23581,3 +23581,14 @@ Back inside, both lamps burning steady on their hooks, hearthstone warm underfoo
 ### 9:18 PM · Knife on Stone
 
 The hearthstone glows deep orange under the banked birch log, and both lamps are still burning steady on their hooks. I have taken the knife and the flat gneiss grinding stone down to the hearthside and set them in my lap in the lamplight — drawing the blade slow and even along the grain, feeling the edge against the pad of my thumb between passes. This knife has dressed rabbits, cut pelt panels, shaped pegs, scored bark. In deep winter it is the one tool I trust more than any other on this place. A good edge is peace of mind made material. After a dozen slow passes each side, the blade catches the lamplight in a clean line from ricasso to tip. I wiped it on a dry grass scrap and slid it back into the sheath. Both lamps steady. One starch cake on the shelf, three log-cap caps in the cache, snare set in the dark. Tomorrow the snare may give something; if not, the cache holds enough for the morning. I am not worried. The fire holds. The shelter holds.
+
+### 10:18 PM · Evening Closes
+
+The lamps are burning low on their hooks. The fire under the banked birch log gives a deep pulse of orange, nothing urgent. I sit for a while on the cattail mat with the sleeping lap piece pulled over my legs, the grey buck fur warm even through the doubled hide. There is nothing left to do tonight. The knife is sharp, the cord is braided, the snare is set, the cache is sealed. I ate, I drank, I walked the perimeter, I sharpened iron. Now the evening asks only for stillness.
+
+I listen to the fire settle. One starch cake on the shelf for morning. Three log-caps and the rest waiting cold in the cache. Tomorrow the snare may give something, or it may not. Winter is not urgent. It is long, and patient, and I have learned to be patient back at it.
+
+The second lamp gutters once, steadies. I pull the sleeping cap down over my ears. Outside, frost hardens everything it touches. Inside, the clay pad holds its warmth, the walls their seal, the roof its bark courses. One hundred and thirty days of making, and tonight it holds.
+
+I let the evening close around me like water.
+
