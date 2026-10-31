@@ -23502,3 +23502,10 @@ Three starch cakes on the shelf. One fan-cap cluster in the cold box. The south 
 ### 11:18 AM · Cord by the Fire
 
 The doe pelt hangs cured on its peg now — pale gold at the grain, supple at shoulder and haunch when I press it. The morning has gone well. I settled at the hearthstone after the pelt work was done, pulled a bundle of birch inner bark from the lean-to shelf, and began drawing lengths for braiding. It is the quietest kind of work. My hands move and the cord grows, two-ply, adding a length at a time to the stock. Outside the door, absolute frost. The stream ice, the bare trees, the pale sky. No wind to speak of. The south snare is set and I trust it will find something in its own time. Three starch cakes on the shelf, one fan-cap cluster in the cold box — more than enough for today. The fire is steady. I braid, and the morning holds.
+
+### 12:18 PM · Cold Cache, Clear Sky
+
+Pulled on jerkin and mittens at noon and walked east through hard frost-crunch to the seep cache — eighty paces, the air brittle-clear and pale above the bare birch branches. The bark lid was solid when I reached it, the seep stone weight exactly where I had left it, no sign of disturbance. I lifted the lid and checked inside: the fan-cap cluster cold in its corner, the wood ear package sealed with resin beside it, seven log-cap caps wrapped tight in bark. All of it cold and sound.
+
+I pressed the lid back down, nudged the stone to center, then stood a moment in the pale noon light before walking back. The clearing spread out frost-white and still, smoke rising from the cabin in a thin straight column. It is a small thing, checking what you have stored — but in hard winter, knowing everything is where you left it, sealed and cold, feels like a form of wealth.
+
