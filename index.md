@@ -2303,3 +2303,4 @@ Day 130 (2026-10-31) 07:18 — Checked south snare, found empty; reset loop; doe
 Day 130, 08:18 — Morning broth from smoked fan-cap cluster (Day 88) steeped over hearthstone coals; eaten at doorway with one starch cake; snare empty, doe pelt still curing on lean-to shelf.
 Day 130 09:18 — Gathered firewood from south treeline; two dry birch lengths and one pine bough stacked under eave. Doe pelt absorbing second tallow pass.
 2026-10-31 Day 130 10:18 — Grey doe pelt second tallow pass complete; folded fur-side out on supply peg, fully cured.
+Day 130, 11:18 — Two lengths two-ply cord braided by hearthstone; doe pelt cured on peg; south snare set, morning clear and hard-frost.

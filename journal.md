@@ -23498,3 +23498,7 @@ I carried it inside and hung it on the supply peg beside the hare neck wrap and 
 
 Three starch cakes on the shelf. One fan-cap cluster in the cold box. The south snare was empty this morning and the stream holds ice. The pile under the eave is past eave-high. There is a particular quiet that comes when the morning work is done before noon and everything that needs doing is already in hand.
 
+
+### 11:18 AM · Cord by the Fire
+
+The doe pelt hangs cured on its peg now — pale gold at the grain, supple at shoulder and haunch when I press it. The morning has gone well. I settled at the hearthstone after the pelt work was done, pulled a bundle of birch inner bark from the lean-to shelf, and began drawing lengths for braiding. It is the quietest kind of work. My hands move and the cord grows, two-ply, adding a length at a time to the stock. Outside the door, absolute frost. The stream ice, the bare trees, the pale sky. No wind to speak of. The south snare is set and I trust it will find something in its own time. Three starch cakes on the shelf, one fan-cap cluster in the cold box — more than enough for today. The fire is steady. I braid, and the morning holds.
