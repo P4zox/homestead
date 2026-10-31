@@ -2306,3 +2306,4 @@ Day 130 09:18 — Gathered firewood from south treeline; two dry birch lengths a
 Day 130, 11:18 — Two lengths two-ply cord braided by hearthstone; doe pelt cured on peg; south snare set, morning clear and hard-frost.
 Day 130, 12:18 — Walked east to seep cache at noon; lid secure, stone weight in place; fan-cap cluster, wood ear package, seven log-cap caps — all cold and sound.
 2026-10-31 13:18 Day 130 — Noon broth from two smoked log-cap caps, one starch cake; five log-caps remain in cold box, two starch cakes on shelf.
+2026-10-31 Day 130 14:18 — Afternoon snare check: south loop empty, ground undisturbed; reset loop lower, added birch to hearthstone.

@@ -23517,3 +23517,12 @@ The noon sky was pale and still when I came back from the seep cache, and I had 
 They went into the clay pot with water from the morning draw, set over the coals to climb slow. The broth came up amber, the way log-cap smoke does — denser than fan-cap, a little more weight to it. I broke a starch cake into shards at the pot rim and let them warm while the broth finished.
 
 It is enough for a hard winter afternoon: warm hands on the clay cup, both lamps burning low on their hooks, outside nothing but pale sky and frost and silence. Five caps remain in the cache. Two starch cakes on the shelf. The south snare set and waiting in its corridor. I am fed and warm, and that is the whole job right now.
+
+### 2:18 PM · Afternoon Snare Check
+
+The afternoon bites harder than the morning did — or perhaps I have just gone stiff sitting at the hearthstone. I put on the jerkin and mittens, wrapped the neck piece snug, and walked the south path again.
+
+The snare was exactly as I left it: loop clear, trigger notch set, cord holding its angle. No sign of passage. The ground around the loop is undisturbed — smooth pale frost, no pad marks, no scrape in the duff. I crouched there a moment, breath clouding. A pine above had shed a cone overnight; it sat near the loop like something placed deliberately. The treeline across the frozen clearing stood perfectly still. No wind at all. Hard winter does this — slows everything to nearly nothing, and you move through it feeling like the only thing moving in the world.
+
+I reset the loop a hand-span lower where the frost had settled the ground level, and turned back. The cabin came into view at the tree gap, smoke rising thin and perfectly vertical from the roof gap — good air, dead calm cold. I came inside and added a birch length to the hearthstone. The lamps are burning steady. Two starch cakes still on the shelf, five log-cap caps in the cold box. The snare will do its work, or it will not.
+
