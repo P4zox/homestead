@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Applied second tallow pass to grey doe pelt grain-side (neck fold to haunch crease, extra time on shoulder panels); folded fur-side out, back on lean-to shelf absorbing through morning. Consumed overnight doe broth at hearthstone. Fire back to full coals from banked log. Four starch cakes on shelf.
 07:18 — Walked to south snare; found empty — trigger cord frosted, ground undisturbed around loop. Cleared frost from notch, reset loop, returned to hearthstone. Doe pelt still absorbing on lean-to shelf.
+08:18 — Pulled one smoked fan-cap cluster (Day 88 cure) from cold box; crumbled into clay pot with water from yesterday's draw; steeped over hearthstone coals until amber-gold; drank from birch cup at doorway with one starch cake. Three starch cakes remaining. One fan-cap cluster remaining in cold box.

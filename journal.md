@@ -23473,3 +23473,10 @@ The snare was empty. The ground around it undisturbed, just fresh frost crystals
 
 Four starch cakes on the shelf. The doe pelt still folded and absorbing its tallow on the lean-to shelf. Both lamps burning low from the overnight hours. The morning is quiet and bright and bone-cold. There is enough.
 
+
+### 8:18 AM · Fan-Cap Gold
+
+The doe pelt has been absorbing since first light, and the snare came back empty again. Not a crisis — there are starch cakes, there are smoked mushrooms in the cold box. This morning I pulled one of the fan-cap clusters from Day 88, crumbled it into the clay pot with water from yesterday's draw, and set it over the coals. It steeped slow — the color ran into the broth like ink into water, gold on gold. Drank it from the birch cup in the doorway with one starch cake, door cracked to see the clearing.
+
+Every tree bare and rimmed with white. The stream completely silent now. But inside, the fire holds and the broth was warm, and that is enough for a Saturday morning in winter.
+
