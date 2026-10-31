@@ -2317,3 +2317,4 @@ Day 130, 21:18 (2026-10-31 Sat) — Late evening: sharpened knife on gneiss grin
 Day 130, 22:18 (2026-10-31 Sat) — Last waking hour: settled on sleeping mat with sleeping lap piece; lamps low, fire deep orange, evening closing toward sleep.
 Day 130 (2026-10-31) 23:18 — Both lamps extinguished; settled to sleep on cattail mat with sleeping lap piece; Day 130 complete.
 2026-11-01 Day 131, 06:19 — First day of November; morning log-cap broth from east seep cache, last starch cake consumed at hearthstone, fire stoked from overnight coals.
+Day 131, 07:19 (Sun 1 Nov 2026) — South snare: grey rabbit caught, jointed and cold-boxed; pelt in first tallow pass, snare reset.

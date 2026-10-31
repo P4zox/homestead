@@ -23613,3 +23613,14 @@ Simmered the caps in the clay pot over the coals until the broth came amber. Ate
 
 The lamps are low; I left them unlit — enough grey light coming through the gaps now to see by. South snare still set from last night. The cache holds one log-cap cap, the fan-cap cluster, and the wood ear package. I'll check the snare before the light goes flat.
 
+
+### 7:19 AM · Snare in the Frost
+
+The hearthstone was still warm when I stepped out. The clearing was silver-blue in the early light — frost absolute on every surface, sky pale and clean above the pines. My breath came in white puffs as I crossed toward the south treeline, mittens on, the cold already finding the seams.
+
+The snare had caught something. A small grey rabbit, still and stiff from the night cold, a clean catch — noose at the neck, anchor stake solid in the frozen ground. I crouched there a moment before taking it, watching my breath settle. There is always a small quiet between finding and acting.
+
+I carried it back to the hearthstone and jointed it there — haunches, shoulders, loin, ribs — each piece dock-wrapped and set in the cold box. The cavity fat went into the tallow reserve. Then I scraped the pelt at the stake, grain side clean, and worked the first tallow pass in while the hearth still radiated warmth at my back.
+
+The snare is reset with a fresh length of two-ply cord, anchor stake tested firm. November one, and the snare already earning its place.
+
