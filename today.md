@@ -6,3 +6,4 @@
 10:19 — Sat at hearthstone with bark cordage stock; braided two lengths of cord while rabbit pelt absorbed first tallow pass on post and fire held midday heat.
 11:18 — Pulled rabbit haunches from cold box; set in clay pot with water over hearthstone, slow noon broth simmer. Starch cake on shelf for noon meal. Shoulders, loin, ribs remain dock-wrapped in cold box.
 12:18 — Noon broth ready; lifted clay pot lid, ladled rabbit haunch broth into birch cup with one starch cake, ate slowly at doorsill bench. Broth fat and clean, cake softened in. Five starch cakes remain on shelf. Shoulders/loin/ribs still dock-wrapped cold box. Will do second tallow pass on pelt after rest.
+13:18 — Applied second tallow pass to rabbit pelt at hearthstone — grain-side covered in slow circles with thumbs and palm, joints worked supple; folded grain-side out on post to absorb through afternoon. Should be fully cured by evening.

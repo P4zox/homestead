@@ -2323,3 +2323,4 @@ Day 131, 09:18 — Baked six pale starch cakes from remaining cattail starch pow
 Day 131 (2026-11-01) 10:19 — Braided two cord lengths at hearthstone; full morning: fire, east cache broth, south snare catch (rabbit), firewood, starch cakes baked.
 2026-11-01 11:18 — Day 131, Sunday — Noon broth started: rabbit haunches in clay pot over hearthstone, slow simmer for noon meal.
 2026-11-01 12:18 Day 131 — Hearthstone Noon — rabbit haunch broth with starch cake at doorsill bench; frost-still clearing, pale gold sky, hard winter settled
+Day 131, 13:18 — Second tallow pass on rabbit pelt; folded grain-side out on post to absorb and cure by evening.

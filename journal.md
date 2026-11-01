@@ -23667,3 +23667,10 @@ The broth is good. The rabbit gave clean this morning: good weight, a little woo
 
 One starch cake eaten. Five remain on the shelf. After this I will do a second tallow pass on the pelt.
 
+
+### 1:18 PM · Pelt, Warmed Twice
+
+The fire has settled to a steady coal bed after the noon meal. I lifted the rabbit pelt from the post — the grain-side had been drinking the first tallow pass all morning, and now it felt less like raw hide and more like something beginning to become leather: still a touch stiff in the shoulder creases, still faintly pink, but yielding at the edges. I folded it over my knee by the hearthstone and worked it with my thumbs into the joint lines while I spooned amber tallow from the reserve envelope onto the grain-side in slow circles. The fat comes out dark where it touches, then fades lighter as my hands work it in. Shoulders, flanks, the narrow strip along the spine — maybe twenty minutes to cover every inch. I could feel the stiffness releasing as I went, the hide loosening under my palms, becoming supple. When the surface would take no more I folded it grain-side out and hung it back on the post. It should be fully cured by evening, ready to join the supply peg beside the others.
+
+The afternoon clearing is very quiet. Hard frost has held all day — the ground pale, the pines motionless against a grey sky, nothing moving out on the open slope. Five starch cakes on the shelf, cold box still holding shoulders and ribs from this morning, the fire at a low steady burn. There is a particular ease to this hour after noon broth when the urgent work is done and what remains is small and careful — the kind of afternoon I am glad to have here.
+
