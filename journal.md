@@ -23755,3 +23755,8 @@ The second lamp is flickering slightly — the wick drifting. I press it level w
 
 I bank the embers a little more securely. I think: sleep.
 
+
+### 10:19 PM · Lying Down at Last
+
+The hearthstone coals are a deep-orange bank behind their slab; both lamps burn low and steady on the west-wall hooks, giving just enough amber to see by. I have pulled off my foot wraps and set them on the bench, draped the fur chest panel over the sleeping bag, settled the sleeping cap with its ear pieces onto my head. The cattail mat is still warm from the day's heat. I lie back against the stuffed floor mat, bark overhead, log walls close on every side. The snare is set. The fan-cap and wood ears are on the shelf. Four starch cakes. The cord stock is good. Everything that can be done before morning is done. Outside — nothing, or nearly nothing: the faintest creak of a pine limb somewhere in the frost. Inside, just the soft tick of cooling hearthstone clay and the small breathing of two flames. I let November hold what it holds. Tomorrow the snare and the morning fire will be the first two things in the world. Tonight I trust the walls.
+
