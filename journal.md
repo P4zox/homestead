@@ -23705,3 +23705,12 @@ The clay pot is still working. Rabbit loin, shoulders, ribs, and the last log-ca
 
 I am sitting by the hearthstone with two cord lengths' worth of nothing particular to do. The broth will be ready within the hour.
 
+
+### 5:18 PM · Evening Broth, Ready
+
+The pot had been on the hearthstone since early afternoon. When I lifted the lid at five-eighteen, the broth came up amber-dark with a clean, deep smell — rabbit and log-cap and three hours of slow heat. I shredded a few wood ears in from the package I had just brought off the east seep cache and let them steep while I set the table, such as it is: the doorsill bench, a starch cake, my birch cup.
+
+I ate as the last light went west. Pale gold sky, frost already tightening across the clearing. The bare trees at the treeline stood still. The broth was hot and good; the starch cake softened in. When the cup was empty I sat a little longer than I needed to.
+
+Four starch cakes on the shelf. Fan-cap cluster waiting for tomorrow morning. South snare set in the dark. The lamps will want topping before bed. November started hard, but today felt full enough.
+
