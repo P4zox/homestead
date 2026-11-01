@@ -23624,3 +23624,7 @@ I carried it back to the hearthstone and jointed it there — haunches, shoulder
 
 The snare is reset with a fresh length of two-ply cord, anchor stake tested firm. November one, and the snare already earning its place.
 
+
+### 8:18 AM · South Treeline Walk
+
+The frost lay thick on everything this morning — bark-ends of the woodpile rimed white, the garden mulch stiff and pale. After the rabbit work and the morning meal I pulled on mittens and jerkin and walked the south treeline. The duff had set hard overnight, the way it does in real cold: each birch length locked into a frozen tangle, needing a wrenching tug before it came free. I found a good dry pine bough on the path back, still smelling faintly of pitch even now. Carried the lot to the eave and stacked it in — birch first, bough tucked up against the wall where the drip-line cannot reach it. The pile is sound all the way through, deep and dry. I stood a moment after and looked south. Sky pale blue, clear from treeline to treeline, no cloud anywhere. My breath made small fast clouds that drifted east and were gone. A clean morning for this kind of work.

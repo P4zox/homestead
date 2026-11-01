@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:19 — Stoked the hearthstone fire from overnight banked coals; walked east seep cache (eighty paces, hard frost), retrieved two smoked log-cap caps; simmered in clay pot — morning broth consumed from birch cup with last starch cake at hearthstone. No starch cakes remaining on shelf. East seep cache holds one log-cap cap, fan-cap cluster, wood ear package. South snare unchecked since last night.
 07:19 — Checked south snare: small grey rabbit, clean catch. Jointed at hearthstone — haunches, shoulders, loin, ribs dock-wrapped to cold box; cavity fat rendered to tallow reserve. Pelt scraped, first tallow pass applied grain-side, absorbing on post. Snare reset with fresh two-ply cord.
+08:18 — Walked south treeline in hard frost; broke loose two dry birch lengths from frozen duff and found one dry pine bough; stacked all under eave.
