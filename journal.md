@@ -23722,3 +23722,16 @@ Two small points of amber on the west wall. The fire is burning down slow and I 
 
 In November the light I make matters most — sunrise comes late and goes early, and the hours of lamplight in between are the ones I live in. I sat a moment watching both flames settle into their steady low burn before the night closed in around the cabin.
 
+
+### 7:18 PM · Counting What Remains
+
+Both lamps burn steadily on the west wall, amber points in the dark. The fire is banked; the hearthstone still radiates warmth from the long day. I sit on the doorsill bench and go through the supply shelf slowly in the lamplight.
+
+The fan-cap cluster and wood ear package sit where I placed them this afternoon, cool and firm. Tomorrow morning's broth is accounted for. Beyond that: four starch cakes, the rose hip paste envelope, the elderberry reduction, the hazelnut paste, the crab apple paste. The cord stock is generous; the tallow reserve full from today's render. The rabbit pelt hangs cured on the supply peg, pale and supple.
+
+What I do not have: starch powder — spent this morning on the last six cakes. No acorn flour. No fresh watercress; the stream is shut for the winter. The east seep cache sits empty for the first time since early autumn. The south snare is set, but one snare is a slender thread in hard November.
+
+I think through tomorrow in no great hurry: check the snare at first light, use the fan-cap and wood ears for morning broth, hold the four cakes as long as they will stretch. Keep the fire going. Keep the lamps. The cabin is sound; the walls hold the frost out. I have been here long enough now to know that getting through a day is not a crisis — it is simply what a day asks.
+
+I set the empty bark tray back on the shelf. The lamp nearest me gutters once — a wick thing, quickly steadied — and burns on. Sleep will come when the hour comes.
+
