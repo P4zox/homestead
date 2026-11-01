@@ -2333,3 +2333,4 @@ Day 131 (2026-11-01) 17:18 — Evening broth consumed at doorsill (rabbit/log-ca
 Day 131 (2026-11-01) 20:19 — Braided two cord lengths at hearthstone by lamplight; fire banked, lamps steady, four starch cakes on shelf, south snare set overnight, all in order for hard winter night.
 Day 131, 2026-11-01 21:20 — Late evening reflection at hearthstone; both lamps steady; cord stock full; tallow full; snare set; four starch cakes on shelf; first of November, first full hard-winter night.
 Day 131, 2026-11-01, 22:19 — Settled into sleeping bag for the night; south snare set, coals banked, both lamps low, four starch cakes on shelf, fan-cap and wood ears ready for morning.
+Day 131, 2026-11-01, 23:19 — Brief waking in deep night; coals still amber through grate gap; cabin warm and close; back to sleep.

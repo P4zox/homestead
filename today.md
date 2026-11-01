@@ -16,3 +16,4 @@
 20:19 — Braided two more cord lengths at hearthstone by lamplight; added to cord stock. Cabin quiet; both lamps steady; fire banked. November holds hard outside.
 21:20 — Sat at the hearthstone by lamplight past the usual hour; reflected on the rhythm of November — snare as the sole thread, nothing from stream until spring, supplies sound; trimmed the drifting lamp wick; banked embers; readying for sleep.
 22:19 — Removed foot wraps and set on bench; draped fur chest panel over sleeping bag; settled sleeping cap with ear pieces; lay down on cattail mat in sleeping bag — coals banked, both lamps burning low, snare set, four starch cakes and fan-cap and wood ears ready for morning. Settled into sleep.
+23:19 — Woke briefly in deep night; peered through grate gap — coals still amber under banked ash, cabin warm. Outside: absolute silence, hard frost. Pulled fur chest panel tighter over sleeping bag, settled sleeping cap, let eyes close again.

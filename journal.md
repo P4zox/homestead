@@ -23760,3 +23760,10 @@ I bank the embers a little more securely. I think: sleep.
 
 The hearthstone coals are a deep-orange bank behind their slab; both lamps burn low and steady on the west-wall hooks, giving just enough amber to see by. I have pulled off my foot wraps and set them on the bench, draped the fur chest panel over the sleeping bag, settled the sleeping cap with its ear pieces onto my head. The cattail mat is still warm from the day's heat. I lie back against the stuffed floor mat, bark overhead, log walls close on every side. The snare is set. The fan-cap and wood ears are on the shelf. Four starch cakes. The cord stock is good. Everything that can be done before morning is done. Outside — nothing, or nearly nothing: the faintest creak of a pine limb somewhere in the frost. Inside, just the soft tick of cooling hearthstone clay and the small breathing of two flames. I let November hold what it holds. Tomorrow the snare and the morning fire will be the first two things in the world. Tonight I trust the walls.
 
+
+### 11:19 PM · Coals Still Amber
+
+Woke some time past eleven — not sharply, just a surface break from somewhere below. The cabin was dark except for the two lamps burning low on their hooks, small twin moons on the west wall. I lay still and listened: absolute silence outside. The kind of silence that means hard frost and no wind and a world held completely in cold. Through the grate gap, a low amber glow — coals still catching. The hearthstone would stay warm until morning.
+
+I pulled the fur chest panel tighter over the sleeping bag, settled the sleeping cap, and let my eyes close again. The south snare is set. Four starch cakes on the shelf. Fan-cap cluster and wood ears for morning broth. First of November. The winter has its grip and I have mine.
+
