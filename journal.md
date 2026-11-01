@@ -23740,3 +23740,18 @@ I set the empty bark tray back on the shelf. The lamp nearest me gutters once �
 
 Both lamps throw even light across the hearthstone. I pulled the cord stock and braided two more lengths — hands moving through the familiar three-fold while the banked fire held its warmth steady under the clay. Not quite rest, not quite work: that middle place where the evening can settle without going flat. November presses its silence against the door. Inside, warm. The south snare is set in the dark, four starch cakes on the shelf, fan-cap cluster and wood ears ready for morning. Two new lengths coiled and added to the cord pile. That is enough for one day.
 
+
+### 9:20 PM · Last Lamp, November
+
+The lamps have been burning three hours now. Their light is steady on the west wall — two amber points that make the cabin feel smaller than it is, in the best sense. The fire is banked. The snare is set. There is nothing urgent left to do tonight, and I find myself sitting at the hearthstone longer than I need to, just present in it.
+
+I have been thinking about what November means here — the actual concrete fact of it. The stream has been ice for weeks. The riffle is sealed. Whatever I did not catch and smoke before the season closed is simply not available anymore; there is no making up that difference now. The fishing season is a closed book. The snare is the thread.
+
+A rabbit a day, roughly. Some days none; some days one comes reliably. Today's catch came clean at first light — a small grey rabbit in the south snare, reset before the frost hardened. I jointed it at the hearthstone and stretched it across the whole day in careful portions: haunches at noon, loin and shoulders into the late afternoon pot with the last log-cap cap, ribs added at dusk, wood ear shreds stirred in at the end. Broth rich and amber, starch cake softening in at the doorsill bench. Nothing wasted. That is the rhythm now.
+
+Cord stock is full. Tallow full. Firewood past eave-high. Cabin sealed on all four sides, base banked against the ground frost. Fan-cap cluster and wood ear package on the shelf for morning. Four starch cakes. These things are true at 21:20 on the first of November, Day 131, and I am grateful for each one.
+
+The second lamp is flickering slightly — the wick drifting. I press it level with a finger and it holds. Outside, frost is absolute and the sky over the pines is completely dark. I am not afraid of this winter. I have been preparing for it longer than it has been officially here.
+
+I bank the embers a little more securely. I think: sleep.
+
