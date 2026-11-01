@@ -23674,3 +23674,12 @@ The fire has settled to a steady coal bed after the noon meal. I lifted the rabb
 
 The afternoon clearing is very quiet. Hard frost has held all day — the ground pale, the pines motionless against a grey sky, nothing moving out on the open slope. Five starch cakes on the shelf, cold box still holding shoulders and ribs from this morning, the fire at a low steady burn. There is a particular ease to this hour after noon broth when the urgent work is done and what remains is small and careful — the kind of afternoon I am glad to have here.
 
+
+### 2:19 PM · Last Log-Cap
+
+Walked east to the cache in the afternoon cold and came back with the last log-cap mushroom cap — a single dark fold in my palm, firm and faintly earthy. The fan-cap cluster and the wood ear package are still in there; I am not ready to close the cache out entirely yet.
+
+Back at the hearthstone I pulled the rabbit loin and shoulders from the cold box and set them in the clay pot with the log-cap, covered with water, lid on and pushed to the slow side of the fire. The ribs I left dock-wrapped for now — a bone broth tomorrow, maybe. The pelt is still on the post, folded grain-side out, needing the rest of the afternoon and the evening warmth to finish curing.
+
+It is the first day of November and already deep winter by feel — all the bark bare, the ground white and unmoving, the air with that hollow cold that gets in even when the fire is steady. I sat a while at the doorsill bench and listened to the pot begin to whisper. No wind. Frost on the mulch over the garden plots, catching the low November light.
+
