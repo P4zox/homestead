@@ -23628,3 +23628,14 @@ The snare is reset with a fresh length of two-ply cord, anchor stake tested firm
 ### 8:18 AM · South Treeline Walk
 
 The frost lay thick on everything this morning — bark-ends of the woodpile rimed white, the garden mulch stiff and pale. After the rabbit work and the morning meal I pulled on mittens and jerkin and walked the south treeline. The duff had set hard overnight, the way it does in real cold: each birch length locked into a frozen tangle, needing a wrenching tug before it came free. I found a good dry pine bough on the path back, still smelling faintly of pitch even now. Carried the lot to the eave and stacked it in — birch first, bough tucked up against the wall where the drip-line cannot reach it. The pile is sound all the way through, deep and dry. I stood a moment after and looked south. Sky pale blue, clear from treeline to treeline, no cloud anywhere. My breath made small fast clouds that drifted east and were gone. A clean morning for this kind of work.
+
+### 9:18 AM · Starch Cakes at the Stone
+
+The hearthstone was warm from this morning's fire, the coals still laying heat across the clay pad, and I found myself looking at the empty spot on the supply shelf where the starch cakes had been. The last one went with breakfast broth. The shelf has that particular blankness of something used up.
+
+I pulled down the starch packet — pale powder, dry and faintly sweet when I breathed it close. Not much left. I mixed it in the wide bowl with a small pour of water until it just held together, portioned it into rounds, and pressed each one flat between my palms before laying them on the warm hearthstone pad.
+
+They set quietly, a faint hiss at the edges when they caught. I turned them once. The smell was a faint grain-smell — something almost familiar, something you cannot quite name. By the time the last one came off the pad, I had six laid on the bark tray to cool: pale gold, firm, faintly sweet.
+
+Six cakes on the shelf again. There is barely any starch powder left now; perhaps enough for one more thin batch if pressed carefully, but not much beyond that. The cattail roots will not come free until the stream ice softens months from now. I should think about other carbohydrates for the deep winter, though today I have no good answer to that. For today, the shelf looks right again, and that steadies something.
+
