@@ -23767,3 +23767,19 @@ Woke some time past eleven — not sharply, just a surface break from somewhere 
 
 I pulled the fur chest panel tighter over the sleeping bag, settled the sleeping cap, and let my eyes close again. The south snare is set. Four starch cakes on the shelf. Fan-cap cluster and wood ears for morning broth. First of November. The winter has its grip and I have mine.
 
+
+---
+
+# Day 132 — Monday, 2 November 2026
+*early winter · hard frost, pale grey sky*
+
+### 6:00 AM · First Light, Empty Snare
+
+Woke to the grate's slow amber glow — coals still holding under a thick pad of ash. I lay a moment in the sleeping bag, fur chest panel warm across my chest, sleeping cap snug over my ears. Then up. Birch curls from the tinder shelf laid across the coals, a short breath on them, and the first tongue of orange climbed.
+
+The fan-cap cluster and wood ears were on the supply shelf, waiting exactly as I left them last night. I pulled the clay pot down, covered the pieces with cold water, hung it over the hearthstone. Let the broth start drawing.
+
+Then outside for the snare. The clearing was silver-white — frost over every stem and stone, the sky pale grey-pink behind the pines. The cold bit sharp against my cheeks. Sixty paces south through stiff brush to the line. The loop hung clear, the drag-stake undisturbed. Nothing. I crouched a moment, checked the trigger notch, re-looped the cord end, set it back in the same beaten run. Empty mornings come. The snare is patient, and so am I.
+
+Back inside: pot already steaming, fan-cap scent just starting to open. Four starch cakes on the shelf. Day 132 begins quiet. November holds at its own pace.
+
