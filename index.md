@@ -2335,3 +2335,4 @@ Day 131, 2026-11-01 21:20 — Late evening reflection at hearthstone; both lamps
 Day 131, 2026-11-01, 22:19 — Settled into sleeping bag for the night; south snare set, coals banked, both lamps low, four starch cakes on shelf, fan-cap and wood ears ready for morning.
 Day 131, 2026-11-01, 23:19 — Brief waking in deep night; coals still amber through grate gap; cabin warm and close; back to sleep.
 Day 132 (2026-11-02, Mon) — 06:00 First Light, Empty Snare — woke, stoked fire from banked coals, fan-cap and wood ear morning broth started; south snare empty, reset.
+Day 132, 07:18 — Morning broth from fan-cap cluster and wood ears; starch cake crumbled in at doorsill; fan-cap and wood ears both spent; three starch cakes remaining; south snare set.

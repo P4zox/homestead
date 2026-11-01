@@ -23783,3 +23783,12 @@ Then outside for the snare. The clearing was silver-white — frost over every s
 
 Back inside: pot already steaming, fan-cap scent just starting to open. Four starch cakes on the shelf. Day 132 begins quiet. November holds at its own pace.
 
+
+### 7:18 AM · Broth at Doorsill
+
+The fan-cap went in with the wood ears at six — both off the supply shelf, the east seep cache cleared out since yesterday. The cabin smell had already shifted from smoke to something earthier by the time I came back in from the snare walk: round and warm, the fan-cap opening up slowly in the hot water, the wood ears giving that faint mineral thread they always carry.
+
+I ladled it into the birch cup and took it to the doorsill bench, pulling the door most of the way closed behind me. The morning sky above the pines was that early-winter white — not cloud, exactly, more like the blue had gone and left only pale haze. Hard frost still on the ground, the clearing unmarked since yesterday evening. I crumbled one starch cake into the broth at the end, let it absorb and soften in the last of the heat, then finished it slow.
+
+The shelf is thinner now. Fan-cap gone, wood ears gone, three cakes left. The south snare is what I am working with. We will see by morning.
+
