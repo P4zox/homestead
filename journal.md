@@ -23714,3 +23714,11 @@ I ate as the last light went west. Pale gold sky, frost already tightening acros
 
 Four starch cakes on the shelf. Fan-cap cluster waiting for tomorrow morning. South snare set in the dark. The lamps will want topping before bed. November started hard, but today felt full enough.
 
+### 6:00 PM · Lamps Lit
+
+The clearing has gone fully dark, the last pale-gold dusk swallowed into hard November cloud. I brought both bark-cup lamps down from their hooks — tallow in each cup lower than I wanted heading into a long November night — and spooned from the reserve until the menisci held. Wicks trimmed to a clean short stub. Both caught from the hearthstone ember on a dry grass twist, set back on their hooks.
+
+Two small points of amber on the west wall. The fire is burning down slow and I will bank it before sleep. Four starch cakes on the shelf, the fan-cap cluster set for tomorrow morning broth. The snare is out in the frozen dark. The pelt is cured and hanging on its peg. Everything done that needed doing today.
+
+In November the light I make matters most — sunrise comes late and goes early, and the hours of lamplight in between are the ones I live in. I sat a moment watching both flames settle into their steady low burn before the night closed in around the cabin.
+

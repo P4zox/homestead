@@ -2328,3 +2328,4 @@ Day 131 (2026-11-01) 14:19 — Retrieved last log-cap cap from east seep cache; 
 Day 131, 15:18 — Added rabbit ribs to the simmering broth; loin, shoulders, log-cap, and ribs now drawing together for full evening meal.
 2026-11-01 Day 131 16:19 — Retrieved fan-cap cluster and wood ear package from east seep cache before evening drop; pelt fully cured, folded fur-side out on supply peg; evening broth still drawing.
 Day 131 (2026-11-01) 17:18 — Evening broth consumed at doorsill (rabbit/log-cap/wood ear shreds, one starch cake); four starch cakes remain; pelt cured; east seep cache empty.
+[Day 131, 2026-11-01 18:00] Topped both lamps with tallow from reserve, trimmed wicks; fire banked; settled for evening.
