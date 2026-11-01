@@ -23683,3 +23683,12 @@ Back at the hearthstone I pulled the rabbit loin and shoulders from the cold box
 
 It is the first day of November and already deep winter by feel — all the bark bare, the ground white and unmoving, the air with that hollow cold that gets in even when the fire is steady. I sat a while at the doorsill bench and listened to the pot begin to whisper. No wind. Frost on the mulch over the garden plots, catching the low November light.
 
+
+### 3:18 PM · Ribs Into the Pot
+
+The pot has been murmuring since mid-afternoon — loin and shoulders and the dark fold of log-cap doing their slow work over the hearthstone coals. I went to the cold box and lifted the dock wrapping from the ribs: small arched bones, pale red, still cold and firm from the morning. They will need longer than the rest to soften right, but there is time. I nestled them into the broth, replaced the clay lid, moved the pot a half-inch closer to the coals.
+
+Outside, the frost holds the clearing in a kind of pale patience. The pelt is still on the post, grain-side out, absorbing at its own pace. By the time I eat tonight I will fold it and see where it stands — probably good, maybe needing one final pass tomorrow morning. The east seep cache is mostly empty now, only the fan-cap cluster and wood ear package left; I will want to bring those in before the temperature drops further this evening.
+
+The broth smells right. Fat from the loin, earthiness from the log-cap, the clean iron smell of bone beginning to give. I sat back on the hearthstone edge and braided a short cord length while the pot ticked and the coals breathed. Hard winter, first day of November. The afternoon light is already going flat and pale to the west. But the cabin is warm, the food is close, and the dark when it comes will come to a fire.
+

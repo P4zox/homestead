@@ -2325,3 +2325,4 @@ Day 131 (2026-11-01) 10:19 — Braided two cord lengths at hearthstone; full mor
 2026-11-01 12:18 Day 131 — Hearthstone Noon — rabbit haunch broth with starch cake at doorsill bench; frost-still clearing, pale gold sky, hard winter settled
 Day 131, 13:18 — Second tallow pass on rabbit pelt; folded grain-side out on post to absorb and cure by evening.
 Day 131 (2026-11-01) 14:19 — Retrieved last log-cap cap from east seep cache; rabbit loin and shoulders set in clay pot for slow afternoon simmer — evening broth underway
+Day 131, 15:18 — Added rabbit ribs to the simmering broth; loin, shoulders, log-cap, and ribs now drawing together for full evening meal.
