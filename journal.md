@@ -23735,3 +23735,8 @@ I think through tomorrow in no great hurry: check the snare at first light, use 
 
 I set the empty bark tray back on the shelf. The lamp nearest me gutters once — a wick thing, quickly steadied — and burns on. Sleep will come when the hour comes.
 
+
+### 8:20 PM · Cord by Lamplight
+
+Both lamps throw even light across the hearthstone. I pulled the cord stock and braided two more lengths — hands moving through the familiar three-fold while the banked fire held its warmth steady under the clay. Not quite rest, not quite work: that middle place where the evening can settle without going flat. November presses its silence against the door. Inside, warm. The south snare is set in the dark, four starch cakes on the shelf, fan-cap cluster and wood ears ready for morning. Two new lengths coiled and added to the cord pile. That is enough for one day.
+
