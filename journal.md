@@ -23692,3 +23692,16 @@ Outside, the frost holds the clearing in a kind of pale patience. The pelt is st
 
 The broth smells right. Fat from the loin, earthiness from the log-cap, the clean iron smell of bone beginning to give. I sat back on the hearthstone edge and braided a short cord length while the pot ticked and the coals breathed. Hard winter, first day of November. The afternoon light is already going flat and pale to the west. But the cabin is warm, the food is close, and the dark when it comes will come to a fire.
 
+
+### 4:19 PM · Cache Before Dark
+
+The broth had been drawing for two hours by the time I pulled on mittens and stepped out. Good timing — the sky had gone low and pale to the west, that flat winter light that goes thin before you notice. I walked the eighty paces to the east seep cache at a quick pace, frost crunching hard underfoot.
+
+The lid was sound, the flat stone weight sitting where I had left it. I lifted the lid: the fan-cap cluster and the wood ear package, both cool and firm, undisturbed. Everything in order. I tucked them under my arm, checked that the box base and walls were solid, replaced the lid and stone. Empty now — but the box will serve again when there is something worth keeping cold.
+
+Back at the cabin I slid both packages to the supply shelf: fan-cap cluster in front, wood ears beside it. Then I checked the pelt on the post. The grain-side was supple, tallow absorbed all the way through — it had done its full cure in the afternoon heat of the hearthstone. I folded it fur-side out and hung it on the supply peg.
+
+The clay pot is still working. Rabbit loin, shoulders, ribs, and the last log-cap in slow simmer — the whole cabin smells of deep broth now, fat and faintly mushroomy. I have come back in before the evening drop, with everything retrieved that needed retrieving. That matters in this season. The cold falls fast once the sun clears the ridge, and there is no recovering what you left outside.
+
+I am sitting by the hearthstone with two cord lengths' worth of nothing particular to do. The broth will be ready within the hour.
+
