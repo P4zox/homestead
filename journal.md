@@ -23639,3 +23639,11 @@ They set quietly, a faint hiss at the edges when they caught. I turned them once
 
 Six cakes on the shelf again. There is barely any starch powder left now; perhaps enough for one more thin batch if pressed carefully, but not much beyond that. The cattail roots will not come free until the stream ice softens months from now. I should think about other carbohydrates for the deep winter, though today I have no good answer to that. For today, the shelf looks right again, and that steadies something.
 
+### 10:19 AM · Hearthside Braiding
+
+The morning burned through fast. Fire at six, the cache and broth, the snare at seven — clean catch, the rabbit already jointed and cold-boxed by eight — firewood from the south treeline, then the starch cakes baking on the hearthstone pad. By the time the cakes cooled to the shelf it was past nine and I was finally warm all the way through.
+
+Now I sit at the hearthstone with the bark cordage stock in my lap. Two lengths braided while the fire holds its midday heat. The pelt hangs on the post behind me, grain side facing the warmth — you can see the tallow darkening the surface as it absorbs, working into the hide in slow patches. It will want a second pass by tomorrow morning.
+
+Outside the frost is absolute. The clearing sits still and bright under a pale November sky, the mulched garden plots furred white, the woodpile solid under the eave. I have starch cakes on the shelf and a full rabbit in cold storage. The snare is set and waiting. A good morning, honestly. There is something satisfying about mid-morning on a full-pantry day, the fire warm, the work done for now, just the cord turning between my fingers.
+

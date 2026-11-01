@@ -2320,3 +2320,4 @@ Day 130 (2026-10-31) 23:18 — Both lamps extinguished; settled to sleep on catt
 Day 131, 07:19 (Sun 1 Nov 2026) — South snare: grey rabbit caught, jointed and cold-boxed; pelt in first tallow pass, snare reset.
 Day 131 [2026-11-01 08:18] — South treeline walk: two dry birch lengths and one dry pine bough gathered from frozen duff, stacked under eave.
 Day 131, 09:18 — Baked six pale starch cakes from remaining cattail starch powder on hearthstone pad; starch nearly exhausted.
+Day 131 (2026-11-01) 10:19 — Braided two cord lengths at hearthstone; full morning: fire, east cache broth, south snare catch (rabbit), firewood, starch cakes baked.

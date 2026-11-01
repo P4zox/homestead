@@ -3,3 +3,4 @@
 07:19 — Checked south snare: small grey rabbit, clean catch. Jointed at hearthstone — haunches, shoulders, loin, ribs dock-wrapped to cold box; cavity fat rendered to tallow reserve. Pelt scraped, first tallow pass applied grain-side, absorbing on post. Snare reset with fresh two-ply cord.
 08:18 — Walked south treeline in hard frost; broke loose two dry birch lengths from frozen duff and found one dry pine bough; stacked all under eave.
 09:18 — Mixed remaining cattail starch powder with water, pressed into rounds, baked six pale starch cakes on hearthstone clay pad; cakes on supply shelf. Starch powder nearly exhausted.
+10:19 — Sat at hearthstone with bark cordage stock; braided two lengths of cord while rabbit pelt absorbed first tallow pass on post and fire held midday heat.
