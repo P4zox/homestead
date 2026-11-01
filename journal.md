@@ -23656,3 +23656,14 @@ It is the smell of November in here now: pine smoke, cold seeping under the door
 
 Outside the sky is still clear. The frost holds everything in place. The pelt is absorbing on its post, the tallow working slowly into the grain side. I have nowhere else I need to be.
 
+
+### 12:18 PM · Hearthstone Noon
+
+The broth has been drawing since the eleventh hour — rabbit haunches, clear water, the hearthstone holding a slow even heat. I lift the lid and the steam rises thick in the cold air. Fat and savory. I ladle it into the birch cup, take a starch cake from the shelf, and sit on the doorsill bench.
+
+The clearing outside is pale gold and still. The frost has not lifted and will not today. A thin high haze has replaced the morning blue — the kind of sky that means winter is serious and settled. The mulch on the garden plots stands frost-stiff. No wind. My breath hangs white over the cup.
+
+The broth is good. The rabbit gave clean this morning: good weight, a little woodsy from whatever it had been eating in the frozen brush. The starch cake crumbles in and softens. I eat slowly, watching the treeline, feeling the fire warm at my back through the open door. This is the whole world right now: this cup, this pale light, this silence.
+
+One starch cake eaten. Five remain on the shelf. After this I will do a second tallow pass on the pelt.
+

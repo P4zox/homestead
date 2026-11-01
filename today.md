@@ -5,3 +5,4 @@
 09:18 — Mixed remaining cattail starch powder with water, pressed into rounds, baked six pale starch cakes on hearthstone clay pad; cakes on supply shelf. Starch powder nearly exhausted.
 10:19 — Sat at hearthstone with bark cordage stock; braided two lengths of cord while rabbit pelt absorbed first tallow pass on post and fire held midday heat.
 11:18 — Pulled rabbit haunches from cold box; set in clay pot with water over hearthstone, slow noon broth simmer. Starch cake on shelf for noon meal. Shoulders, loin, ribs remain dock-wrapped in cold box.
+12:18 — Noon broth ready; lifted clay pot lid, ladled rabbit haunch broth into birch cup with one starch cake, ate slowly at doorsill bench. Broth fat and clean, cake softened in. Five starch cakes remain on shelf. Shoulders/loin/ribs still dock-wrapped cold box. Will do second tallow pass on pelt after rest.
