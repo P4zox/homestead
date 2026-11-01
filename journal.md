@@ -23647,3 +23647,12 @@ Now I sit at the hearthstone with the bark cordage stock in my lap. Two lengths 
 
 Outside the frost is absolute. The clearing sits still and bright under a pale November sky, the mulched garden plots furred white, the woodpile solid under the eave. I have starch cakes on the shelf and a full rabbit in cold storage. The snare is set and waiting. A good morning, honestly. There is something satisfying about mid-morning on a full-pantry day, the fire warm, the work done for now, just the cord turning between my fingers.
 
+
+### 11:18 AM · Noon Broth Rising
+
+The morning settled into its own rhythm and now the pot is over the fire. I pulled the rabbit haunches from the cold box — still stiff from the overnight frost — and laid them in the clay pot with a cup of water drawn from the melt pail. The fire is midday-steady, the pot seated square on the hearthstone pad where the heat comes up even.
+
+It is the smell of November in here now: pine smoke, cold seeping under the doorsill, and that first faint promise of broth beginning to form. The six starch cakes are cool on their shelf. I will eat at noon, one cake and the broth, and it will be enough.
+
+Outside the sky is still clear. The frost holds everything in place. The pelt is absorbing on its post, the tallow working slowly into the grain side. I have nowhere else I need to be.
+

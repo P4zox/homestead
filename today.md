@@ -4,3 +4,4 @@
 08:18 — Walked south treeline in hard frost; broke loose two dry birch lengths from frozen duff and found one dry pine bough; stacked all under eave.
 09:18 — Mixed remaining cattail starch powder with water, pressed into rounds, baked six pale starch cakes on hearthstone clay pad; cakes on supply shelf. Starch powder nearly exhausted.
 10:19 — Sat at hearthstone with bark cordage stock; braided two lengths of cord while rabbit pelt absorbed first tallow pass on post and fire held midday heat.
+11:18 — Pulled rabbit haunches from cold box; set in clay pot with water over hearthstone, slow noon broth simmer. Starch cake on shelf for noon meal. Shoulders, loin, ribs remain dock-wrapped in cold box.
