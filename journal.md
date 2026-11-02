@@ -23889,3 +23889,14 @@ Haunches and shoulders give up a richer broth than the lean cuts. The fat enrich
 
 A good day for November.
 
+
+### 7:24 PM · Lamps Trimmed, Snares Set
+
+Both lamp wicks pulled up and trimmed of their charred nubs, tallow cups filled from the reserve until they brimmed. The lamps caught on a short breath of tinder and now swing steady on their hooks, throwing amber light across the whole of the cabin.
+
+The day felt full in the way a winter day can when things go right. Velvet shanks in the north alder run at mid-morning — pale amber caps tight at the third birch stump, two dozen taken clean. Then the south snare gave a small grey rabbit in the afternoon, clean in the loop. I drew broth from the haunches and shoulders for three hours, slow over the hearthstone, and crumbled the last starch cake into it at the doorsill as the frost thickened and the clearing went white and silent.
+
+The north snare is new — set this morning for the first time, staked into iron-frozen ground between two close alders. Having two out feels steadier somehow. Tomorrow morning I will walk both.
+
+The pelt is still folded grain-side out on the post, absorbing the first tallow pass. Loin and ribs wait in the cold box. One starch cake on the shelf. There is enough of everything for now, and the lamps are burning.
+

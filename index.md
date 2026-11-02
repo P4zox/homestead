@@ -2347,3 +2347,4 @@ Day 132, 2:21 PM — Afternoon snare check: south snare caught small grey rabbit
 Day 132 16:19 — rendered rabbit belly fat at hearthstone in second clay bowl; fat amber-clear, poured into tallow reserve envelope, resealed with pine pin and resin flap; evening broth still drawing on pot.
 2026-11-02 | Day 132 17:20 | Pelt scraped grain-side clean, first tallow pass applied, folded on post; evening broth drawing.
 Day 132, 18:19 — Evening broth consumed at doorsill bench; rabbit haunch/shoulder and velvet shank stem broth, one starch cake crumbled at rim; loin and ribs in cold box; pelt absorbing on post.
+2026-11-02 · Day 132 · 7:24 PM — Lamps trimmed and tallow-topped for evening; two snares set (north and south); south snare catch (small grey rabbit); velvet shanks from north alder run; pelt absorbing; one starch cake remaining.
