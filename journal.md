@@ -23869,3 +23869,12 @@ The rabbit haunches and shoulders have been drawing for nearly an hour now — t
 
 There is something right about tending two things at once over the same warm stone. The broth draws; the fat clears. When the bowl cools I will pour it into the reserve envelope and reseal with pine pin and resin. Outside, the frost has not lifted all day — the clearing white and still. One starch cake on the shelf. The north snare running undisturbed in the alder stand. The afternoon holds itself quiet, waiting for evening.
 
+
+### 5:20 PM · Pelt Work, Broth Drawing
+
+The broth has been drawing since half past three — rabbit haunches and shoulders and the last of the velvet shank stems in the clay pot, the cabin filling slow with a pale, sweet smell. A little over an hour left to wait. I set to pelt work while the afternoon light still held.
+
+I stretched the Day 132 pelt grain-side up across a flat bark length on the hearthstone bench, pinned it at the corners, and worked it with the dull edge of the knife — short strokes center to edge, membrane lifting clean without tearing. The belly strips came off smooth. When the whole grain-side was cool and clear under my palm, I pushed the first tallow pass in with my thumbs and the heel of my hand — the way the skin goes from stiff to yielding under pressure. Folded grain-side out on the post to absorb through the night.
+
+Outside the frost holds absolute. The west light through the door gap has gone from pale gold to grey. One starch cake on the shelf for tomorrow morning. Both snares set — north in the alder run, south in its usual loop. The pot ticks and I am warm.
+
