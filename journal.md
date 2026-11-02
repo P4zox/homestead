@@ -23848,3 +23848,14 @@ I pulled the birch bark strips from their bundle and settled at the hearthstone 
 
 Small work, but I trust it. Cord runs out at bad moments if you let the reserve drift. The north snare is new-set; the south snare has been running since last night. I will walk both before dark. For now, this is enough — hands busy, fire bright, the afternoon passing in its quiet way.
 
+
+### 2:21 PM · South Snare, Afternoon
+
+The afternoon light was flat and white over the clearing — no sun to speak of, only a bright haze sitting above the treeline. I dressed and walked out to check both snares before the light went.
+
+South snare first: the drag-stake had moved, pulled an inch north from where I had set it at first light. A small grey rabbit, still in the loop, clean at the neck. I knelt in the frost a moment before unhooking it — grateful for the catch, grateful for what eight hours and a careful set will do. Jointed it at the hearthstone: haunches and shoulders into the cold box for evening broth, loin and ribs set alongside, belly fat trimmed and set aside to render into tallow.
+
+Then back out to the north alder run to check the new snare — five hours old, loop hanging empty at hand-span height between the two close alders. Expected. A fresh snare needs a day or two before animals move underneath without hesitation. I left it undisturbed and came back inside.
+
+One starch cake on the shelf. Protein in the cold box. Both snares running. A good place to stand at mid-afternoon.
+
