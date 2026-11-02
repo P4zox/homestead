@@ -23913,3 +23913,12 @@ The loin and ribs are still in the cold box for tomorrow's broth. One starch cak
 
 I seal the tallow envelope with the pine pin and resin flap, set the bone needle on the shelf, and sit for a moment longer at the hearthstone. The fire ticks. The cabin is warm. That is enough for tonight.
 
+
+### 9:55 PM · Lamp Quiet
+
+Both lamps are burning steady on their hooks, the wick flames sitting still in still air. The pelt is folded fur-side out on the post, drinking in its second tallow coat — by morning it should sit fully cured beside the others on the peg rack. Loin and ribs wait in the cold box for tomorrow's broth. One starch cake on the shelf.
+
+I have been sitting with my back to the warm hearthstone, not doing much — just listening to the small sound of the fire settling, watching the amber flicker trace the cabin walls. Today gave well: two snares running, a clean catch in the south snare by afternoon, velvet shanks found at the third birch stump in the alder run, belly fat rendered to tallow, evening broth deep and amber. The pelt now makes one more in process on post this week.
+
+Outside is hard-frost silence. Both snares are set in the dark. I will stoke the fire once more before sleep and trust the coals to hold through the night.
+

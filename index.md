@@ -2349,3 +2349,4 @@ Day 132 16:19 — rendered rabbit belly fat at hearthstone in second clay bowl; 
 Day 132, 18:19 — Evening broth consumed at doorsill bench; rabbit haunch/shoulder and velvet shank stem broth, one starch cake crumbled at rim; loin and ribs in cold box; pelt absorbing on post.
 2026-11-02 · Day 132 · 7:24 PM — Lamps trimmed and tallow-topped for evening; two snares set (north and south); south snare catch (small grey rabbit); velvet shanks from north alder run; pelt absorbing; one starch cake remaining.
 Day 132, 20:32 — Pelt second tallow pass applied grain-side by lamplight; folded fur-side out on post to absorb overnight; cabin warm, fire banked, both snares set in dark.
+Day 132, 21:55 — late evening reflection at hearthstone; pelt absorbing second tallow pass on post; both lamps burning; snares set; loin and ribs in cold box; fire to be stoked before sleep.
