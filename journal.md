@@ -23830,3 +23830,12 @@ I crumbled one starch cake into my hand and let it soften in a little broth from
 
 It is good to have found the mushrooms. The buried log has gone quiet for the season, and I did not expect a new find. That birch stump in the north run has some life in it still.
 
+
+### 12:18 PM · Velvet Shank Noon
+
+The velvet shank broth had been drawing for an hour and the whole cabin smelled of it — earthy and mild, faintly sweet the way only freshly gathered things are. I ladled it into the birch cup and carried it to the doorsill bench, both hands around the warmth.
+
+Hard frost outside. The clearing still, each blade of dry grass stiff and white. Both snares are set somewhere in that quiet — north and south — patient. The cold box empty for now. Everything waits on what those loops catch.
+
+I crumbled one starch cake into the broth and let it soften. Ate slowly. This is the kind of noon worth sitting through — fire holding, enough to eat, the day still open ahead of me.
+
