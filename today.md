@@ -6,3 +6,4 @@
 10:19 — Scouted forest edge south treeline and north alder run for velvet shanks; found tight cluster of pale amber caps at third birch stump in alder run — two dozen caps and stems taken clean, base left intact; on bark tray beside hearthstone to dry for noon broth.
 11:18 — Noon broth started: velvet shanks (two dozen caps and stems from bark tray) set in clay pot with water over hearthstone to draw; one starch cake consumed while waiting; two starch cakes remain on shelf.
 12:18 — Noon broth consumed at doorsill bench — velvet shank broth, cap shreds pale amber and soft, one starch cake crumbled at rim; birch cup warm in both hands, clearing white with frost outside; one starch cake remaining on shelf.
+13:18 — Two lengths cord braided at hearthstone; cord stock added; afternoon quiet, fire holding steady.

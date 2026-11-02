@@ -23839,3 +23839,12 @@ Hard frost outside. The clearing still, each blade of dry grass stiff and white.
 
 I crumbled one starch cake into the broth and let it soften. Ate slowly. This is the kind of noon worth sitting through — fire holding, enough to eat, the day still open ahead of me.
 
+
+### 1:18 PM · Cord in the Quiet
+
+The velvet shanks settled warm. One starch cake left on the shelf, cold box empty, two snares running in the frost — the morning gave what it could and I am grateful for it. Afternoon falls on the clearing in that particular way of early winter: pale light, no wind, frost absolute on every surface.
+
+I pulled the birch bark strips from their bundle and settled at the hearthstone to braid. The fire holds steady, burning down to a working bed of coals that will take a log easily when evening draws near. The cabin is warm. Outside nothing moves. Two lengths of two-ply cord finished and coiled onto the supply shelf, adding to the stock that has grown through a hundred afternoons like this one.
+
+Small work, but I trust it. Cord runs out at bad moments if you let the reserve drift. The north snare is new-set; the south snare has been running since last night. I will walk both before dark. For now, this is enough — hands busy, fire bright, the afternoon passing in its quiet way.
+
