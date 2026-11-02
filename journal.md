@@ -23900,3 +23900,16 @@ The north snare is new — set this morning for the first time, staked into iron
 
 The pelt is still folded grain-side out on the post, absorbing the first tallow pass. Loin and ribs wait in the cold box. One starch cake on the shelf. There is enough of everything for now, and the lamps are burning.
 
+
+### 8:32 PM · Pelt, Second Pass
+
+The lamplight is warm and even — both wicks trimmed clean, both cups full, both lamps burning steady on hooks. The fire has settled from its draw-coals into a long bank, just enough to keep the cabin close. I have been sitting at the hearthstone bench for some time, not doing much, only listening to the quiet outside. Hard frost again, absolute silence except for the faint tick of the cooling clay pot.
+
+The pelt from this afternoon's rabbit has been folded grain-side out on the post since 17:20 — three and a half hours now. I pull it free and flex it in the lamplight. The first tallow pass has soaked in well — the grain side is darker where it drew, supple even in this cold air, no dry patches anywhere. I work the second tallow pass in slowly with my thumb, covering the whole grain surface in long strokes, paying extra care to the leg joints and the shoulder where the hide tends to stiffen first. Then I fold it fur-side out and drape it back on the post, where it will hang overnight and finish curing.
+
+By morning it should be pale-buff and ready — one more pelt for the supply peg, one more small comfort against winter.
+
+The loin and ribs are still in the cold box for tomorrow's broth. One starch cake on the shelf. Both snares running in the dark. The north snare is still new — only set this morning — and I find myself thinking about it, whether the cord sits right, whether an animal will come into that alder run at night. The south snare has proven itself many times over. We will see what morning brings to each.
+
+I seal the tallow envelope with the pine pin and resin flap, set the bone needle on the shelf, and sit for a moment longer at the hearthstone. The fire ticks. The cabin is warm. That is enough for tonight.
+
