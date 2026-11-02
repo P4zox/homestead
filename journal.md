@@ -23792,3 +23792,12 @@ I ladled it into the birch cup and took it to the doorsill bench, pulling the do
 
 The shelf is thinner now. Fan-cap gone, wood ears gone, three cakes left. The south snare is what I am working with. We will see by morning.
 
+
+### 8:19 AM · South Slope, Bare Boughs
+
+The cold this morning sits differently than yesterday — stiller, almost held in place. After broth I took the gathering basket to the south treeline and moved along the duff line looking for what had fallen and dried in the days before the hard freeze locked everything down. Two birch lengths, one pine bough — not heavy, but the weight of them felt right against my chest as I carried them back.
+
+I stacked them bark-side up under the eave and stood there a moment listening. The clearing is absolutely quiet. The snare is set somewhere south in the frost, and I have no way to know yet what it holds. Three starch cakes on the shelf. Everything else spent — the fan-cap and wood ears finished in this morning's broth, all the mushroom stores worked through these last weeks. What comes next will come from the snare and from whatever this land still offers.
+
+The woodpile is sound. The fire is sound. That is enough for eight in the morning.
+

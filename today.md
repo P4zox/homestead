@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:00 — Woke at first grey light; stoked hearthstone fire from overnight banked coals — birch curls laid on amber, caught on a short breath, fire holding steady; set fan-cap cluster and wood ears from supply shelf into clay pot with water over hearthstone for morning broth. Walked south snare in hard frost — loop empty, drag-stake undisturbed; reset and left set. Back inside: pot steaming, broth drawing. Four starch cakes on shelf.
 07:18 — Morning broth consumed at doorsill bench — fan-cap cluster shreds and wood ear strips in pale gold stock, one starch cake crumbled at rim, birch cup warm in both hands; fan-cap cluster and wood ears (second batch) both spent from supply shelf; three starch cakes remaining.
+08:19 — Walked to south treeline with gathering basket; two dry birch lengths and one pine bough retrieved from duff; carried back and stacked bark-side up under eave.
