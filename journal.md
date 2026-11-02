@@ -23931,3 +23931,19 @@ Outside, the frost is absolute. I could hear nothing when I cracked the door —
 
 I am ready to sleep.
 
+
+---
+
+# Day 133 — Tuesday, 3 November 2026
+*Early winter · hard frost, clear sky*
+
+### 6:19 AM · Pelt Cured, Broth Drawing
+
+Woke to grey light and the familiar bite of frost-cold air under the door. The coals were still amber — the overnight bank held. I laid dry birch curls on the grate and blew once, and the fire caught. The cabin came to warmth slowly, the way it does in winter.
+
+The Day 132 pelt was still folded grain-side out on the post where I had left the second tallow pass absorbing. I lifted it: supple all through, pale buff, no stiffness at the edges or along the spine crease. Cured. I folded it fur-side out and hung it on the supply peg alongside the others.
+
+Loin and ribs from the cold box into the clay pot, water to cover, set it over the hearthstone to draw. The starch cakes are spent — the last one went into last night's evening broth. I walked the south snare in the frost before the broth was done: drag-stake undisturbed, loop still set, hard frost crystals on the cord where breath had frozen in the night. Left it set and came back to steam already rising from the pot.
+
+Two snares running, a pot on the fire, a pelt cured and on the peg. The day has started clean.
+

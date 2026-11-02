@@ -2351,3 +2351,4 @@ Day 132, 18:19 — Evening broth consumed at doorsill bench; rabbit haunch/shoul
 Day 132, 20:32 — Pelt second tallow pass applied grain-side by lamplight; folded fur-side out on post to absorb overnight; cabin warm, fire banked, both snares set in dark.
 Day 132, 21:55 — late evening reflection at hearthstone; pelt absorbing second tallow pass on post; both lamps burning; snares set; loin and ribs in cold box; fire to be stoked before sleep.
 2026-11-02 23:07 — Day 132 final stoke; banked fire, both snares set, pelt absorbing, cabin warm; ready for sleep
+Day 133 (Tue, 3 Nov 2026) — 06:19 — Pelt Cured, Broth Drawing: Day 132 pelt cured overnight, moved to supply peg; loin and ribs drawing for morning broth; south snare walked, empty; starch cakes spent; both snares set.
