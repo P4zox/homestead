@@ -23878,3 +23878,14 @@ I stretched the Day 132 pelt grain-side up across a flat bark length on the hear
 
 Outside the frost holds absolute. The west light through the door gap has gone from pale gold to grey. One starch cake on the shelf for tomorrow morning. Both snares set — north in the alder run, south in its usual loop. The pot ticks and I am warm.
 
+
+### 6:19 PM · Evening Broth, Long Draw
+
+The pot started at half-three and the cabin has been holding its smell ever since — rabbit, and underneath it something darker from the velvet shank stems. I ladled it into the birch cup when it looked right: the stock a deep amber, the meat just beginning to pull from the bone, a few pale shreds of cap floating where the stems had given everything they had. One starch cake crumbled at the rim.
+
+I took it to the doorsill bench. Completely dark outside now, the clearing white-frost and still, sky full of stars past the treeline. The lamp holds steady on its hook. Fire low and even — the kind that means the day went well. Not exciting. Just solid.
+
+Haunches and shoulders give up a richer broth than the lean cuts. The fat enriches the stock and the meat falls to shreds by the end; with the velvet shank stems the depth surprised me on a day as plain as this one. I ate slowly and did not rush back inside. The loin and ribs are still in the cold box — tomorrow. North snare set this morning in the alder run, checked once and found nothing yet; that is expected, it is still new to the ground. Both snares overnight. One starch cake left on the shelf; morning broth will carry it.
+
+A good day for November.
+
