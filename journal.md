@@ -23863,3 +23863,9 @@ One starch cake on the shelf. Protein in the cold box. Both snares running. A go
 ### 3:30 PM · Evening Broth Set
 
 The haunches and shoulders from this mornings
+### 4:19 PM · Fat Over Fire
+
+The rabbit haunches and shoulders have been drawing for nearly an hour now — the clay pot speaks in slow ticks, and the velvet shank stems are softening into the stock. I have set the belly fat pieces into the second clay bowl and tilted it close to the hearthstone, where the warmth gathers steady. The fat is modest, as rabbit belly fat always is, but it renders clean: amber-clear, rising from the trimmed pieces and pooling at the low rim.
+
+There is something right about tending two things at once over the same warm stone. The broth draws; the fat clears. When the bowl cools I will pour it into the reserve envelope and reseal with pine pin and resin. Outside, the frost has not lifted all day — the clearing white and still. One starch cake on the shelf. The north snare running undisturbed in the alder stand. The afternoon holds itself quiet, waiting for evening.
+
