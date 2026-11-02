@@ -2339,3 +2339,4 @@ Day 132, 07:18 — Morning broth from fan-cap cluster and wood ears; starch cake
 Day 132, 2026-11-02 — 08:19 — Firewood run to south treeline; two dry birch lengths and one pine bough from duff stacked bark-side up under eave.
 2026-11-02 09:18 — Day 132 — Set second snare in north alder run; two snares now running; three starch cakes on shelf; cold box empty.
 Day 132, 2026-11-02 — 10:19 — Scouted south treeline and north alder run for winter mushrooms; found a small velvet shank cluster at mossy birch stump — two dozen pale amber caps, on bark tray to dry for noon broth.
+Day 132, 11:18 AM — Velvet shank noon broth started over hearthstone; caps softening on tray, set in clay pot with water to draw; one starch cake consumed, two remain; both snares running.

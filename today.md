@@ -4,3 +4,4 @@
 08:19 — Walked to south treeline with gathering basket; two dry birch lengths and one pine bough retrieved from duff; carried back and stacked bark-side up under eave.
 09:18 — Cut stake from pine pin stock, squared drive end, notched loop seat; formed two-ply cord loop; set second snare in north alder run between two close alders at hand-span height; staked into iron-frozen ground — north snare set and running. Two snares now: north and south.
 10:19 — Scouted forest edge south treeline and north alder run for velvet shanks; found tight cluster of pale amber caps at third birch stump in alder run — two dozen caps and stems taken clean, base left intact; on bark tray beside hearthstone to dry for noon broth.
+11:18 — Noon broth started: velvet shanks (two dozen caps and stems from bark tray) set in clay pot with water over hearthstone to draw; one starch cake consumed while waiting; two starch cakes remain on shelf.

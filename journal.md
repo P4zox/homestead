@@ -23819,3 +23819,14 @@ I pulled on the jerkin and mittens and walked the forest edge with the gathering
 
 Not a large find. But not nothing. Back at the cabin I set them on the bark tray beside the hearthstone to warm and dry. I will use them in the noon broth — one starch cake crumbled in as well. The shelf is lighter than I would like, but the cabin is warm, the snares are set, and I came home with something.
 
+
+### 11:18 AM · Velvet Shanks at Noon
+
+The bark tray sat close to the hearthstone all morning, the pale amber caps drawing out their moisture in the warmth. By now they have softened just enough — edges curling in, stems darkening a shade. I lifted them into the clay pot with water and set it over the hearthstone. The broth will take an hour, maybe less for young caps like these.
+
+Outside: iron-still. The frost has not softened by a degree. Both snares are running — the south alder loop I have trusted all winter, and the new north stake set this morning in ground so hard the mallet rang. I do not know yet whether the north position will hold in that frozen soil; I will check both at dusk.
+
+I crumbled one starch cake into my hand and let it soften in a little broth from the pot — ate it standing at the hearthstone, watching the steam rise. Two starch cakes remain. The velvet shank broth will be enough for noon and perhaps something for the pot tonight if I am careful.
+
+It is good to have found the mushrooms. The buried log has gone quiet for the season, and I did not expect a new find. That birch stump in the north run has some life in it still.
+
