@@ -2350,3 +2350,4 @@ Day 132, 18:19 — Evening broth consumed at doorsill bench; rabbit haunch/shoul
 2026-11-02 · Day 132 · 7:24 PM — Lamps trimmed and tallow-topped for evening; two snares set (north and south); south snare catch (small grey rabbit); velvet shanks from north alder run; pelt absorbing; one starch cake remaining.
 Day 132, 20:32 — Pelt second tallow pass applied grain-side by lamplight; folded fur-side out on post to absorb overnight; cabin warm, fire banked, both snares set in dark.
 Day 132, 21:55 — late evening reflection at hearthstone; pelt absorbing second tallow pass on post; both lamps burning; snares set; loin and ribs in cold box; fire to be stoked before sleep.
+2026-11-02 23:07 — Day 132 final stoke; banked fire, both snares set, pelt absorbing, cabin warm; ready for sleep

@@ -23922,3 +23922,12 @@ I have been sitting with my back to the warm hearthstone, not doing much — jus
 
 Outside is hard-frost silence. Both snares are set in the dark. I will stoke the fire once more before sleep and trust the coals to hold through the night.
 
+
+### 11:07 PM · Last Stoke, Then Sleep
+
+I rose one more time from the sleeping bag and fed the hearthstone two dry birch pieces from under the eave. The fire took them slowly — no rush needed, just banked coals folding back into heat. The pelt hangs folded fur-side out on the post, second tallow pass still absorbing. The loin and ribs wait in the cold box. One starch cake on the shelf. Both lamps guttered low; I pinched one wick and left the other burning to a thread of orange at the far hook.
+
+Outside, the frost is absolute. I could hear nothing when I cracked the door — no wind, no branch-creak, only the silence that hard cold makes when it settles in full. It is a good silence. The snares are set. The cabin is warm. Tomorrow I will check both loops at first light and see what the night brought.
+
+I am ready to sleep.
+
