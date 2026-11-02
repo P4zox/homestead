@@ -23801,3 +23801,12 @@ I stacked them bark-side up under the eave and stood there a moment listening. T
 
 The woodpile is sound. The fire is sound. That is enough for eight in the morning.
 
+
+### 9:18 AM · Second Snare Set
+
+After the firewood run I stood at the hearthstone longer than usual, watching the new birch lengths catch and settle. The shelf was on my mind: three starch cakes, tallow full, cord coiled and ready — but the mushroom stores gone and the cold box empty. The south snare checks in once a day. One loop is one chance.
+
+The north alder run has looked like a used trail for a week now: frost grass pressed flat in a thin line, a few dark pellets against the white. I cut a fresh stake from the split pine pin stock, squared the drive end with the axe heel, and notched the loop seat clean near the tip. Chose a length of two-ply cord, formed the loop at hand-span height above the trail between two close alders. The ground is iron — it took the heel of my hand and real weight to drive the stake home — but the loop hangs right and the snap is clean.
+
+North snare is set. Two now, running different runs. The shelf is thin but not empty; the wood is stacked and dry; the fire is steady. Not concerned yet — just careful.
+

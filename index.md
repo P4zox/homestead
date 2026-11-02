@@ -2337,3 +2337,4 @@ Day 131, 2026-11-01, 23:19 — Brief waking in deep night; coals still amber thr
 Day 132 (2026-11-02, Mon) — 06:00 First Light, Empty Snare — woke, stoked fire from banked coals, fan-cap and wood ear morning broth started; south snare empty, reset.
 Day 132, 07:18 — Morning broth from fan-cap cluster and wood ears; starch cake crumbled in at doorsill; fan-cap and wood ears both spent; three starch cakes remaining; south snare set.
 Day 132, 2026-11-02 — 08:19 — Firewood run to south treeline; two dry birch lengths and one pine bough from duff stacked bark-side up under eave.
+2026-11-02 09:18 — Day 132 — Set second snare in north alder run; two snares now running; three starch cakes on shelf; cold box empty.
