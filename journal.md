@@ -23859,3 +23859,7 @@ Then back out to the north alder run to check the new snare — five hours old, 
 
 One starch cake on the shelf. Protein in the cold box. Both snares running. A good place to stand at mid-afternoon.
 
+
+### 3:30 PM · Evening Broth Set
+
+The haunches and shoulders from this mornings

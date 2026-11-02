@@ -2343,3 +2343,4 @@ Day 132, 11:18 AM — Velvet shank noon broth started over hearthstone; caps sof
 [2026-11-02] Day 132, 12:18 — Noon velvet shank broth consumed at doorsill bench with one starch cake; one starch cake remaining on shelf.
 2026-11-02 13:18 Day 132 — Cord in the Quiet: two lengths cord braided at hearthstone, afternoon, cold box empty, two snares running, one starch cake remaining.
 Day 132, 2:21 PM — Afternoon snare check: south snare caught small grey rabbit (jointed, cold box); north snare empty, expected (set same morning).
+2026-11-02 15:30 Day 132 — Started evening broth: rabbit haunches and shoulders with velvet shank stems in clay pot over hearthstone; one starch cake on shelf; loin and ribs in cold box.

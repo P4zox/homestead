@@ -8,3 +8,4 @@
 12:18 — Noon broth consumed at doorsill bench — velvet shank broth, cap shreds pale amber and soft, one starch cake crumbled at rim; birch cup warm in both hands, clearing white with frost outside; one starch cake remaining on shelf.
 13:18 — Two lengths cord braided at hearthstone; cord stock added; afternoon quiet, fire holding steady.
 14:21 — Walked both snares in hard frost: south snare drag-stake moved, small grey rabbit clean in loop; jointed at hearthstone — haunches, shoulders, loin, ribs in cold box; belly fat set aside for tallow render; north snare (set 09:18) empty and undisturbed — expected; left set.
+15:30 — Rabbit haunches and shoulders removed from cold box; set in clay pot with water and velvet shank stem remnants over hearthstone for slow three-hour evening broth draw; loin and ribs remain in cold box.
