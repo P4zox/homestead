@@ -23947,3 +23947,14 @@ Loin and ribs from the cold box into the clay pot, water to cover, set it over t
 
 Two snares running, a pot on the fire, a pelt cured and on the peg. The day has started clean.
 
+
+### 7:18 AM · Alder Run Yield
+
+The loin and ribs had been drawing an hour by the time I pulled on the jerkin and mittens and stepped out into the full hard frost. Breath came in long clouds. I walked north along the alder run to check the snare I had set there yesterday morning — the cord was new and the loop sat at a good height, so I had held some hope for it overnight.
+
+The loop was sprung. A small grey buck, stiff and cold at the drag-stake, clean and still. I freed the snare cord, reset the loop on a fresh stake, and carried him back to the cabin in the crook of my arm, the cold air keeping everything firm and the crust of frost not yet softening underfoot.
+
+Back at the hearthstone, the broth had gone a warm pale gold — rabbit loin and ribs, slow morning heat. I strained it into the birch cup and stood at the doorsill drinking it slowly, watching the frost hold hard on the clearing, the trees bare and still against an open sky. Then I jointed the buck at the hearthstone: haunches, shoulders, loin, ribs all dock-wrapped and into the cold box; belly fat trimmed for the tallow envelope. The pelt I stretched grain-side out on the post for its first scrape.
+
+Two snares running, cold box freshly stocked, morning broth warm in the belly. A good start to the day.
+
