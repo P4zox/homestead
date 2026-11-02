@@ -23810,3 +23810,12 @@ The north alder run has looked like a used trail for a week now: frost grass pre
 
 North snare is set. Two now, running different runs. The shelf is thin but not empty; the wood is stacked and dry; the fire is steady. Not concerned yet — just careful.
 
+
+### 10:19 AM · Cold Cluster Search
+
+The north snare has been running less than two hours; I will not rush it. Three starch cakes sit on the shelf and no powder left to press more. With the cold box empty and all the stored mushroom packages spent, the snares are carrying most of the weight now — but a snare is a thing that waits, and I am not good at only waiting.
+
+I pulled on the jerkin and mittens and walked the forest edge with the gathering basket, looking for velvet shanks — the small amber-capped clusters that push out of fallen logs in deep cold, almost as if the frost loosens something in them. I worked along the south treeline first, crouching at each downed birch and pine where the bark had started to peel. Nothing. Then north toward the alder run, where the ground stays wetter even in freeze. At the third moss-covered birch stump I almost walked past them: a tight cluster of pale amber caps, button-sized, stems thin and dark — two dozen at least, pressed close at the base of the stump just above the frost line. Velvet shanks. I took them clean, caps and upper stems, left the base intact.
+
+Not a large find. But not nothing. Back at the cabin I set them on the bark tray beside the hearthstone to warm and dry. I will use them in the noon broth — one starch cake crumbled in as well. The shelf is lighter than I would like, but the cabin is warm, the snares are set, and I came home with something.
+
