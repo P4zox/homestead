@@ -24118,3 +24118,14 @@ Then the pelt. The buck hide had been folded grain-side out on the post since no
 
 Both snares still to check. The north ran through the night in the alder run; the south was widened and reset at 15:19 yesterday. Clear cold sky outside. Day 134.
 
+
+### 7:18 AM · Snares at First Light
+
+The frost was absolute underfoot as I crossed to the north snare — breath coming in clouds, pines holding their cold silence. The alder run had done its work: a small grey rabbit, pulled clean at the drag-stake, neck taken cleanly in the loop. I stood there a moment in the dark-blue morning light before unhooking it.
+
+The south snare was untouched, loop still set, ground around the stake unmarked. It was only reset yesterday afternoon — not long enough to smell right to anything cautious. I left it undisturbed and came back.
+
+Jointed the rabbit at the hearthstone while the fire rebuilt itself from last night's coals. Haunches, shoulders, loin, ribs dock-wrapped into the cold box alongside the buck from yesterday. Good depth of stores now — the box is full in the best way. Belly fat trimmed and set aside for a tallow render later this morning. The buck pelt is still on the post, folded fur-side out, drawing in the second pass. By evening it should be pale and supple.
+
+A good morning. The land provides in winter as in summer, if you stay patient and keep the loops set.
+
