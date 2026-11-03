@@ -24093,3 +24093,8 @@ The pelt is on the post, first tallow pass absorbed. Tomorrow morning, second pa
 
 I let my eyes close. The lamps will burn down on their own.
 
+
+### 10:00 PM · Night Deepens
+
+Both lamps have burned down to a soft waver — I will not feed them again tonight. The hearthstone is banked hard, coals holding steady beneath the ash cover, the bone broth clay pot seated just above them in the slow overnight draw. I can hear nothing from outside; the frost presses every sound flat. Somewhere the north snare is set and running in the alder dark, and the south snare waits empty in its widened loop. Tomorrow at first light: south snare east along the scuff line, second tallow pass on the buck pelt, strain the bone broth. The lamp flames lean once and settle. Sleep comes.
+
