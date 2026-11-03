@@ -24014,3 +24014,14 @@ The buck pelt is still on the post, folded grain-side out, first tallow pass abs
 
 The coals hold an easy, regular heat. Outside: bright and absolutely still, frost locking every surface. From the doorsill, the tree line stands dark against pale sky, bare branches fine as scratches in slate. I pulled the door nearly closed against the cold and came back to the hearthstone. Quiet afternoon. Broth on. Pelt working. Good enough.
 
+
+### 3:19 PM · Late Frost Walk
+
+The broth has been drawing for two hours, the velvet shank note settled in and gone earthen, the clay pot just barely speaking over the coals. I stepped out into the hard cold to walk the south snare while there is still pale light to see by.
+
+The frost has held all day without softening. The clearing crunches underfoot, every blade of dead grass sheathed white, and the cold has a stillness to it that only hard-frozen ground makes — no give, no creak, just compression and silence. The path south is familiar enough now that I go without thinking, just watching the treeline and the sky, pale blue going chalky at the south margin.
+
+South snare: loop intact, drag-stake undisturbed, no catch since morning. I reset the trigger placement, eased the loop open a finger-width wider to catch smaller prints, and left it set for tonight. Better odds at first light. On the way back I paused at the edge of the stream bed — all sound from it gone now, sealed under grey ice bank to bank at every pool and eddy. I stood and listened to the absence of water. Not silence exactly; the treeline still makes small noises, a branch releasing, distant pine settling. But the stream itself has gone quiet for the season. Deep winter in earnest.
+
+Back inside, the cabin came warm around me in one breath. The broth is speaking softly still in the pot. Another hour, maybe less, before I strain it and eat at the doorsill.
+
