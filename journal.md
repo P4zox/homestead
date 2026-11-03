@@ -24036,3 +24036,12 @@ The buck pelt still on the post, grain side slightly tacky, drinking in the tall
 
 South snare empty at half past three; I widened the loop and reset. North snare set and waiting. The stream entirely silent under ice. I can feel the winter has its full weight on the land now — settled, unhurried, absolute. But the cabin holds heat, the tallow reserve is good, the firewood piled high. A long night begins well.
 
+
+### 5:19 PM · Lamplight, Cord
+
+The supper is done and the pot is empty, clean on the hearthstone. Both lamps burn steady, throwing amber against the log walls. Outside the temperature is falling hard — I can feel it through the planks when I press a hand against the door. The buck pelt hangs heavy on the post, grain-side folded out, the first tallow pass drawing slowly in; tomorrow morning I'll work the second pass.
+
+I settled onto the doorsill bench with the cord stock and let my hands move without much thought. Two more lengths braided, one after the other, the fibers pulling even under my thumbs. The cabin around me: warm, closed, holding. The north snare running in the alder run through the darkness. I don't know what it will find. Maybe nothing. Maybe the same small grey shape, still and cold.
+
+This is the rhythm of winter — tend what's in reach, wait out what isn't. The cord stock grows. The cold box holds. Slowly, an evening passes.
+

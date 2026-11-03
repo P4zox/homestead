@@ -2362,3 +2362,4 @@ Day 133, 2026-11-03, 13:19 — Afternoon rabbit broth started; Day 132 loin and 
 Day 133, 14:19 — Crumbled dried velvet shanks into simmering rabbit loin-and-rib broth; shanks dry after 28 hours on bark tray; buck pelt absorbing first tallow pass on post; supper broth drawing.
 2026-11-03 15:19 Day 133 — Walked south snare in late afternoon frost; loop empty, reset trigger and loop width; stream fully silent under ice; back to hearthstone for supper broth.
 2026-11-03 Day 133 16:18 — Supper broth (rabbit loin, ribs, velvet shanks) consumed at doorsill in last pink light; lamps lit early; buck pelt absorbing first tallow pass; cold box stocked.
+Day 133, 17:19 — Braided two cord lengths by lamplight; supper done, lamps steady, buck pelt absorbing first tallow pass, north snare running through the dark.
