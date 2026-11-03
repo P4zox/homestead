@@ -23967,3 +23967,11 @@ When I came back to it I ran the flat of the bone scraper from base to edge, pul
 
 I set the scraper down and pressed the surface with my palm. Firm and even. This afternoon I'll work in the first tallow pass — the fat trimmed from the belly this morning is sitting in its bark fold, ready to render when the hearth fire is steady. The pelt should cure well; this buck was fat and his hide is thick.
 
+
+### 9:00 AM · Firewood, Frost-Bright
+
+The pelt hangs on its post, grain side pale and smooth in the low winter light. Belly fat folded in bark on the hearthstone, patient until noon. I pulled on my jerkin, laced my mittens, and went out to the south treeline while the frost still held hard on every blade and stone.
+
+Two dry birch lengths under the deadfall, and one dry pine bough beneath the needle-cover — all sound and dry. I carried them back and laid them under the eave, bark-side up beside the rest of the winter stack. The pile has grown tall this season, course after course of careful gathering. It gives me something like ease to look at it.
+
+Winter is measured in small acts. Each length of wood is an hour of warmth the cold can't reach. The cabin holds well now — base banked, gables sealed, both lamps steady each night. The hearthstone is warm underfoot when I come back inside. I'll render the belly fat at noon, start the first tallow pass on the pelt late afternoon. The day is quiet and orderly and mine.
