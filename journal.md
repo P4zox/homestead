@@ -24025,3 +24025,14 @@ South snare: loop intact, drag-stake undisturbed, no catch since morning. I rese
 
 Back inside, the cabin came warm around me in one breath. The broth is speaking softly still in the pot. Another hour, maybe less, before I strain it and eat at the doorsill.
 
+
+### 4:18 PM · Broth at Dusk
+
+Three hours over steady coals. The rabbit loin and ribs, the velvet shank crumble from midafternoon — at four I lifted the lid and the smell hit full: pale gold gone amber, deep mushroom underneath. I strained it into the birch cup at the hearthstone and carried it to the doorsill.
+
+The sky was pink above the treeline. Temperature already falling fast, the kind of cold that settles the moment the sun dips below the pines. I stood at the threshold with the cup in both hands, steam rising between them, and drank it slow. Good and deep and warming — the best kind of meal in winter, the kind that starts in the hands.
+
+The buck pelt still on the post, grain side slightly tacky, drinking in the tallow. Second pass tomorrow morning; by noon it should be pale-buff and supple. Both lamps lit early as the light dropped — the cabin glows now, amber and warm against the dark clearing. Cold box still has the buck haunches and shoulders, loin and ribs from today. Several good meals remaining.
+
+South snare empty at half past three; I widened the loop and reset. North snare set and waiting. The stream entirely silent under ice. I can feel the winter has its full weight on the land now — settled, unhurried, absolute. But the cabin holds heat, the tallow reserve is good, the firewood piled high. A long night begins well.
+
