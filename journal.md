@@ -23975,3 +23975,12 @@ The pelt hangs on its post, grain side pale and smooth in the low winter light. 
 Two dry birch lengths under the deadfall, and one dry pine bough beneath the needle-cover — all sound and dry. I carried them back and laid them under the eave, bark-side up beside the rest of the winter stack. The pile has grown tall this season, course after course of careful gathering. It gives me something like ease to look at it.
 
 Winter is measured in small acts. Each length of wood is an hour of warmth the cold can't reach. The cabin holds well now — base banked, gables sealed, both lamps steady each night. The hearthstone is warm underfoot when I come back inside. I'll render the belly fat at noon, start the first tallow pass on the pelt late afternoon. The day is quiet and orderly and mine.
+
+### 10:18 AM · Pine Needles, Doorsill Light
+
+The cabin is warm enough that I leave the door unlatched while I step out. Just a minute — long enough to reach up into the pine boughs overhanging the wood stack and strip a small double-handful of needles from the nearest branch, bright green still, faintly resinous on the fingers. The cold hits the face like a wall, clean and hard, sky pale blue from edge to edge, no wind. The clearing is entirely still.
+
+Back inside. I set the needles in the birch cup, poured water from the clay pot (still warm from the morning broth fire), and let them steep by the hearthstone while I watched the coals. The infusion turned a quiet gold, faintly sharp, the way cold air smells brought indoors. I drank it slowly at the doorsill bench, the door open just a hands width, the frost-silver ground and the bare treeline visible in the gap.
+
+The pelt is firming well on the post — pale and tight across the grain side, holding shape without curling. Good. It will be ready for the first tallow pass after noon, once the belly fat has rendered down. Im in no hurry. The cold box is full, both snares set, the fire has coal enough for the render. For now, just this: the smell of pine and hot water, the light moving across the floor, a quiet morning in winter.
+

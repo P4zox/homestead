@@ -2355,3 +2355,4 @@ Day 133 (Tue, 3 Nov 2026) — 06:19 — Pelt Cured, Broth Drawing: Day 132 pelt 
 Day 133, 07:18 (2026-11-03) — Walked north alder run snare; found small grey buck sprung and cold; reset snare; returned to cabin; strained and consumed morning broth (rabbit loin and ribs, pale gold); jointed buck at hearthstone — cold box freshly stocked, pelt on post for first scrape.
 2026-11-03 Day 133 08:19 — First scrape of Day 133 grey buck pelt complete; grain side smooth and pale, membrane off clean; first tallow pass planned for afternoon.
 Day 133 · 2026-11-03 · 9:00 AM · Firewood, Frost-Bright — fetched two dry birch lengths and one dry pine bough from south treeline duff; laid under eave beside winter stack.
+2026-11-03 Day 133 10:18 — Pine needle infusion gathered and brewed; rested at doorsill with birch cup while pelt firms and belly fat awaits noon tallow render.
