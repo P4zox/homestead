@@ -2365,3 +2365,4 @@ Day 133, 14:19 — Crumbled dried velvet shanks into simmering rabbit loin-and-r
 Day 133, 17:19 — Braided two cord lengths by lamplight; supper done, lamps steady, buck pelt absorbing first tallow pass, north snare running through the dark.
 2026-11-03 Day 133 18:18 — Topped both lamp cups from tallow reserve; stood at supply shelf surveying stores by lamplight; hard frost outside, cabin warm and answered for.
 Day 133, 19:18 — set buck rack bones and spine scraps into clay pot with cold water on banked hearthstone coals for overnight bone draw; morning broth ready at wake.
+2026-11-03 Day 133 20:18 — Evening wind-down; checked bone broth clay pot on banked coals (heat right, faint amber draw beginning); settled into sleeping bag; planning south snare relocation east tomorrow if empty at first light.

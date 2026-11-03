@@ -24065,3 +24065,16 @@ Both lamps burning even. Pelt still on the post, grain-side out, faintly tacky a
 
 Cabin answered for. Bones in the pot. Sleep will come easy.
 
+
+### 8:18 PM · Last Lamp Watch
+
+Both lamps are holding steady. I checked the bone broth clay pot one more time — coals banked low, pot just barely warm to the back of the hand. That is the right heat: a hard boil would cloud the draw and drive off what the bones are slowly giving. I drew the birch paddle through once and felt the water already beginning to carry color, faint amber even now. Pot settled back on the stone. Tomorrow morning it should be dark and good.
+
+I climbed into the sleeping bag after that, back against the south wall, watching the lamp flames. The first lamp gutters occasionally — just the wick shifting in the cup, nothing to worry about. The cabin smells of tallow, old smoke, and the dry animal warmth of the buck pelt still hanging on its post. The first tallow pass has had all day to absorb. Tomorrow I will work the second pass in at first light, before the snare walks.
+
+I have been thinking about the south snare. It has run empty the last two checks. The loop is widened and reset, but I wonder if the line is simply too familiar now — the brush there is pressed flat, the drag-stake obvious. Thirty paces east there is a place where tracks branch toward the birch stand, a crossing I noticed two days ago and have not set. That is worth trying tomorrow if south comes up empty at first light.
+
+North alder run has been good. I will leave that one undisturbed.
+
+The cold is absolute beyond the walls. The coals and the lamps make their own small season in here, and it is enough.
+
