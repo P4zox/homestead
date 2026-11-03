@@ -24003,3 +24003,14 @@ The morning gave good things — a buck in the north snare, a clean scrape, noon
 
 I pulled the rabbit loin and ribs from yesterday's catch out of the cold box — they've been waiting their turn — and settled them into the clay pot with a ladleful of clean water. The pot is over steady coals now, just barely speaking. Three hours of slow draw will give me a good supper broth in the darkening afternoon. There is something right about a pot on the fire when everything outside is frozen. The cold box is full, the tallow is full, the cord stock is long, and the fire needs no tending for a while. I sit on the doorsill bench and let the cold air hold still around me while warmth collects behind me in the cabin. The lamps are not yet lit — midday light through the gable still does the work. Later.
 
+
+### 2:19 PM · Shanks in the Pot
+
+The drying shelf beside the hearthstone has been doing its work. Yesterday's velvet shanks — the small cluster from the north alder run birch stump, pale amber caps and thin dark stems — have been lying there on the bark tray since mid-morning yesterday. I reached out and pressed one cap between thumb and finger: it gave no moisture back, just a dry papery flex, the edge crisp. Dry enough.
+
+I crumbled the caps and stems into the simmering broth in three handfuls, pressing the pieces small before they went in. The pot took them without complaint. Within a minute the liquid had deepened, a faint earthen note rising from the steam. The rabbit loin and ribs are still two hours from done — the shanks will have time to soften and give themselves fully to the stock.
+
+The buck pelt is still on the post, folded grain-side out, first tallow pass absorbing. I pressed a palm to the grain surface: still slightly tacky but not wet. It will be ready for its second pass tomorrow morning. The belly fat envelope is sealed on the supply shelf; the reserve is full. Nothing urgent between now and supper.
+
+The coals hold an easy, regular heat. Outside: bright and absolutely still, frost locking every surface. From the doorsill, the tree line stands dark against pale sky, bare branches fine as scratches in slate. I pulled the door nearly closed against the cold and came back to the hearthstone. Quiet afternoon. Broth on. Pelt working. Good enough.
+
