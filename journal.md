@@ -24078,3 +24078,18 @@ North alder run has been good. I will leave that one undisturbed.
 
 The cold is absolute beyond the walls. The coals and the lamps make their own small season in here, and it is enough.
 
+
+### 9:20 PM · Ember and Quiet
+
+The lamps are burning low, both of them, steady little flames on their hooks. I am already inside the sleeping bag, not quite asleep, not quite awake either — that threshold place where the body stops asking anything of you.
+
+The bone broth is on the banked coals. I drew the paddle through it an hour ago and felt the heat steady underneath, the color just beginning to amber. By morning it should be dark and full. The buck gave a good rack — heavy-boned for a small grey, with knobs at the joint that will release a long, slow richness into the water if I leave it undisturbed through the night.
+
+I am thinking about the south snare. Three empty checks now — trigger intact, drag-stake undisturbed, loop sitting right. The rabbits are moving somewhere else. Maybe the alder run has better shelter with the stream fully iced; maybe they are pressed back into the treeline where the duff holds deeper. Tomorrow at first light I will walk it one more time, and if it is still empty I will pull the stake and reset it thirty paces east, where I noticed a scuff line in the frost last week — just a faint disturbance in the white crust, the kind of thing that might be nothing or might be a regular path.
+
+The cabin is warm. Every wall is answered for: the daubing, the bark layering on the west gable, the banked-leaf insulation around the base. I can feel the cold pressing at the door and walls but not entering — just presence, the way the dark is present without being threatening.
+
+The pelt is on the post, first tallow pass absorbed. Tomorrow morning, second pass.
+
+I let my eyes close. The lamps will burn down on their own.
+
