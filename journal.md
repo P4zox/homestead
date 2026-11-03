@@ -23958,3 +23958,12 @@ Back at the hearthstone, the broth had gone a warm pale gold — rabbit loin and
 
 Two snares running, cold box freshly stocked, morning broth warm in the belly. A good start to the day.
 
+
+### 8:19 AM · First Scrape, Buck Pelt
+
+The morning frost held all through the early hours, and the pelt needed that stillness before the blade could run across it properly. I let it hang grain-side out on the post while I ate, watching the clearing settle into its sharp winter quiet. The pines stood dark against a pale sky. Nothing moved but my breath.
+
+When I came back to it I ran the flat of the bone scraper from base to edge, pulling the membrane off in thin curling strips. The grey buck's hide was still pliable enough in the hard cold — stiff at the edges but workable through the center where the grain is thickest. I worked it methodically: haunches first, where the fat pockets sit deepest and need a second pass; then the long back panel; then up through the shoulders and neck where the skin thins. By the end the grain side was pale and smooth, faintly damp, nothing left on it but good clean leather in waiting.
+
+I set the scraper down and pressed the surface with my palm. Firm and even. This afternoon I'll work in the first tallow pass — the fat trimmed from the belly this morning is sitting in its bark fold, ready to render when the hearth fire is steady. The pelt should cure well; this buck was fat and his hide is thick.
+

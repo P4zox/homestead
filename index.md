@@ -2353,3 +2353,4 @@ Day 132, 21:55 — late evening reflection at hearthstone; pelt absorbing second
 2026-11-02 23:07 — Day 132 final stoke; banked fire, both snares set, pelt absorbing, cabin warm; ready for sleep
 Day 133 (Tue, 3 Nov 2026) — 06:19 — Pelt Cured, Broth Drawing: Day 132 pelt cured overnight, moved to supply peg; loin and ribs drawing for morning broth; south snare walked, empty; starch cakes spent; both snares set.
 Day 133, 07:18 (2026-11-03) — Walked north alder run snare; found small grey buck sprung and cold; reset snare; returned to cabin; strained and consumed morning broth (rabbit loin and ribs, pale gold); jointed buck at hearthstone — cold box freshly stocked, pelt on post for first scrape.
+2026-11-03 Day 133 08:19 — First scrape of Day 133 grey buck pelt complete; grain side smooth and pale, membrane off clean; first tallow pass planned for afternoon.
