@@ -23984,3 +23984,12 @@ Back inside. I set the needles in the birch cup, poured water from the clay pot 
 
 The pelt is firming well on the post — pale and tight across the grain side, holding shape without curling. Good. It will be ready for the first tallow pass after noon, once the belly fat has rendered down. Im in no hurry. The cold box is full, both snares set, the fire has coal enough for the render. For now, just this: the smell of pine and hot water, the light moving across the floor, a quiet morning in winter.
 
+
+### 11:18 AM · Cord at the Hearth
+
+The buck pelt is firming on the post, grain side pale and taut — a good stretch, clean from the morning scrape. Noon is still an hour away and the belly fat in its bark fold will wait. There is a particular quality to this interval: the main work done, the next not yet begun, the hearth steady and amber.
+
+I sat on the doorsill bench and drew out a length of bark cordage, split it fine, and began braiding. The motion is almost thoughtless now — fingers finding the twist, tension checking itself. Two more lengths finished and coiled onto the stock. Outside through the doorway the clearing lay bright under hard frost, the sky a pale cold blue above the treeline. Nothing moved. The pines looked white at their crowns where the night had left rime.
+
+Winter has settled in completely. I think about what I have: cold box stocked with the morning's buck, tallow reserve full, firewood past the eave, both snares reset and running. The starch cakes are gone — I should think about the cattail starch again, whether any new roots are reachable under the ice. But for now the cord grows between my hands and the morning holds quiet around me.
+

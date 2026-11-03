@@ -2356,3 +2356,4 @@ Day 133, 07:18 (2026-11-03) — Walked north alder run snare; found small grey b
 2026-11-03 Day 133 08:19 — First scrape of Day 133 grey buck pelt complete; grain side smooth and pale, membrane off clean; first tallow pass planned for afternoon.
 Day 133 · 2026-11-03 · 9:00 AM · Firewood, Frost-Bright — fetched two dry birch lengths and one dry pine bough from south treeline duff; laid under eave beside winter stack.
 2026-11-03 Day 133 10:18 — Pine needle infusion gathered and brewed; rested at doorsill with birch cup while pelt firms and belly fat awaits noon tallow render.
+2026-11-03 Day 133 11:18 — Cord at the Hearth (braided two cord lengths at hearthstone while pelt firms on post; noon tallow render pending)
