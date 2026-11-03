@@ -24056,3 +24056,12 @@ There is a particular quietness that comes over the cabin at this hour when ever
 
 Enough for one day.
 
+
+### 7:18 PM · Overnight Bones Set
+
+The cabin held its heat well into this last lamp-hour. I sat on the doorsill bench for a few minutes with the door cracked — just watching the cold and the dark press in from the treeline — then came back to the warmth. The buck rack from this morning, the spine and neck and the small trim pieces I had set aside in the cold-box corner with a bit of dock wrap, I brought them out now. Settled them into the clay pot with cold water from the tin. Nested the pot on the lowest banked hearthstone coals with the damper opened back a notch. Not to boil — just to draw slow overnight, pulling everything left in those bones into dark, warming stock.
+
+Both lamps burning even. Pelt still on the post, grain-side out, faintly tacky at the edge of the tallow pass — second pass tomorrow in the morning light before the day gets away. North snare running in the alder run. South snare reset and widened, loop open a finger more.
+
+Cabin answered for. Bones in the pot. Sleep will come easy.
+
