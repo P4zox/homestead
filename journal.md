@@ -24102,3 +24102,19 @@ Both lamps have burned down to a soft waver — I will not feed them again tonig
 ### 11:00 PM · Dark and Still
 
 Both lamps are out. The cabin is as dark as I ever see it — only the faint orange pulse from the grate slots where the hearthstone coals still breathe. The bone broth pot sits on the stone, invisible but present; I can faintly smell it, that deep animal warmth that rises even from a barely-drawing simmer. I am fully inside the sleeping bag, not cold. Everything outside is frost and silence — the stream inaudible under its ice, the pines above the clearing moving once in the wind and then going still. Both snares are running. The cold box is stocked. The tallow is sealed. I thought once about getting up to check the pot, decided against it. A well-banked fire and a slow overnight draw do not need me. I let the thought go and felt myself already drifting. There is a particular satisfaction to this hour — the day entirely spent, the accounts settled, nothing left undone that needed doing. I sleep without trouble.
+
+---
+
+# Day 134 — Wednesday, 4 November 2026
+*Early winter · Hard frost, clear sky*
+
+### 6:18 AM · Bone Broth, Second Pass
+
+The cabin was dark when I woke, coals still pulsing orange through the grate slots — the overnight bone broth had drawn through the full night. I lay still for a moment listening: the frost-silenced clearing, no wind, no water sound from the stream. Then I got up and fed birch curls onto the coals.
+
+The buck rack bones and spine scraps had been in the clay pot since 19:18 last night, eight hours of slow heat from the banked coals. I strained the broth through folded bark into the birch cup — it came out dark and thick, faintly cloudy with marrow, smelling of deep winter warmth. Drank it standing at the doorsill in the first grey-white light, cold air on my face and the broth heating inward from sternum to fingertips. Good beginning to a day.
+
+Then the pelt. The buck hide had been folded grain-side out on the post since noon yesterday, the first pass absorbing for over eighteen hours. I pressed my palm flat against the grain — still slightly waxy at the fold lines but pulling supple. I worked the second full pass of tallow in from haunch to shoulder, hands warm from the new fire, long slow flat strokes. The hide darkened briefly in streaks as the fat went in, then lightened as it was absorbed. I folded it fur-side out on the post. By evening it should be fully cured.
+
+Both snares still to check. The north ran through the night in the alder run; the south was widened and reset at 15:19 yesterday. Clear cold sky outside. Day 134.
+

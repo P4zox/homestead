@@ -2369,3 +2369,4 @@ Day 133, 19:18 — set buck rack bones and spine scraps into clay pot with cold 
 Day 133, 2026-11-03, 21:20 — Quiet before sleep; lying in sleeping bag by lamplight; bone broth drawing on banked coals overnight for morning; south snare relocation planned at first light.
 Day 133, 2026-11-03, 22:00 — Night deepens; lamps low, bone broth on overnight draw, settled to sleep.
 Day 133, 23:00 — Last hour; lying in sleeping bag in dark cabin; both lamps out; bone broth on overnight draw; both snares running; frost deep outside; asleep.
+Day 134, 06:18 — Woke; bone broth (overnight buck rack bones, 8-hour draw) strained and consumed at doorsill; second tallow pass applied to buck pelt grain-side, folded fur-side out on post to cure; both snares pending morning check; hard frost, clear sky.
