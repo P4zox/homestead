@@ -23996,3 +23996,10 @@ Winter has settled in completely. I think about what I have: cold box stocked wi
 ### 12:18 PM · Noon Render, First Pass
 
 Noon came and the belly fat had been waiting in its bark fold long enough. I set the clay bowl over the hearthstone coals, unfolded the bark, and watched the fat melt down — three minutes, maybe four — running clear amber before the last chunk dissolved. No smoke, no scorch. Poured it into the reserve tallow envelope and resealed with pine pin and resin flap. Then I carried the envelope warm to the post and worked the first tallow pass into the buck pelt grain-side: long strokes from haunch to neck, pressing until the hide went from pale and stiff to darker and faintly glossy in streaks. Folded it grain-side out and draped it back over the post. Two more passes before it is ready — but the first one is the hardest, when the hide is driest and drinks the fat fastest. The cabin smells of warm fat and wood smoke. The render went clean.
+
+### 1:19 PM · A Pot on to Draw
+
+The morning gave good things — a buck in the north snare, a clean scrape, noon fat rendered and worked into the hide. Now the cabin has gone still in that particular early-afternoon way. The pelt hangs grain-side out on the post, steadily absorbing. Outside, the frost holds absolute; the clearing is bright with winter light and utterly quiet.
+
+I pulled the rabbit loin and ribs from yesterday's catch out of the cold box — they've been waiting their turn — and settled them into the clay pot with a ladleful of clean water. The pot is over steady coals now, just barely speaking. Three hours of slow draw will give me a good supper broth in the darkening afternoon. There is something right about a pot on the fire when everything outside is frozen. The cold box is full, the tallow is full, the cord stock is long, and the fire needs no tending for a while. I sit on the doorsill bench and let the cold air hold still around me while warmth collects behind me in the cabin. The lamps are not yet lit — midday light through the gable still does the work. Later.
+

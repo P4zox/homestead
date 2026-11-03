@@ -2358,3 +2358,4 @@ Day 133 · 2026-11-03 · 9:00 AM · Firewood, Frost-Bright — fetched two dry b
 2026-11-03 Day 133 10:18 — Pine needle infusion gathered and brewed; rested at doorsill with birch cup while pelt firms and belly fat awaits noon tallow render.
 2026-11-03 Day 133 11:18 — Cord at the Hearth (braided two cord lengths at hearthstone while pelt firms on post; noon tallow render pending)
 Day 133, 12:18 — Noon tallow render: buck belly fat melted clear amber, added to reserve envelope, resealed; first tallow pass applied to buck pelt grain-side, absorbing on post.
+Day 133, 2026-11-03, 13:19 — Afternoon rabbit broth started; Day 132 loin and ribs in clay pot over hearthstone coals; three-hour slow simmer for supper broth.
