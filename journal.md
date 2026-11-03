@@ -24045,3 +24045,14 @@ I settled onto the doorsill bench with the cord stock and let my hands move with
 
 This is the rhythm of winter — tend what's in reach, wait out what isn't. The cord stock grows. The cold box holds. Slowly, an evening passes.
 
+
+### 6:18 PM · Two Flames
+
+Both lamps burning steady on their hooks when I came back to check them — wicks trimmed from the morning trim, cups holding a good fill. I tipped a small spoon from the reserve tallow envelope into each cup to bring them level, resealed the envelope with its pine pin and resin flap, set it back on the shelf. Better full than close, with the temperature dropping hard outside.
+
+I stood at the supply shelf awhile after that, just holding what is there in mind: the tallow reserve, the two clay pots, the sealed bark envelopes in their row, the cord bundled on its peg, the resin trays, the tools each in their place. The cold box has the buck — haunches, shoulders, loin, ribs — several days of eating, secure. The pelt is on the post still, first pass absorbing, second pass tomorrow. Both snares running. The woodpile past eave-high under the lean-to.
+
+There is a particular quietness that comes over the cabin at this hour when everything is answered for. Hard frost pressed against the walls; inside, two small flames, the smell of birch smoke, the low conversation of coals settling. I stood a little longer than I needed to. Then I pulled the door nearly closed and sat back on the doorsill bench, the lamps warm behind me, the dark treeline pale and still beyond.
+
+Enough for one day.
+
