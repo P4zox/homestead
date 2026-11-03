@@ -23993,3 +23993,6 @@ I sat on the doorsill bench and drew out a length of bark cordage, split it fine
 
 Winter has settled in completely. I think about what I have: cold box stocked with the morning's buck, tallow reserve full, firewood past the eave, both snares reset and running. The starch cakes are gone — I should think about the cattail starch again, whether any new roots are reachable under the ice. But for now the cord grows between my hands and the morning holds quiet around me.
 
+### 12:18 PM · Noon Render, First Pass
+
+Noon came and the belly fat had been waiting in its bark fold long enough. I set the clay bowl over the hearthstone coals, unfolded the bark, and watched the fat melt down — three minutes, maybe four — running clear amber before the last chunk dissolved. No smoke, no scorch. Poured it into the reserve tallow envelope and resealed with pine pin and resin flap. Then I carried the envelope warm to the post and worked the first tallow pass into the buck pelt grain-side: long strokes from haunch to neck, pressing until the hide went from pale and stiff to darker and faintly glossy in streaks. Folded it grain-side out and draped it back over the post. Two more passes before it is ready — but the first one is the hardest, when the hide is driest and drinks the fat fastest. The cabin smells of warm fat and wood smoke. The render went clean.
