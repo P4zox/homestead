@@ -24230,3 +24230,12 @@ I cut a small dry birch branch stub from the lean-to pile and shaped it into a t
 
 Outside the door the frost is absolute. The sky will be clear and hard all night.
 
+
+### 8:18 PM · Evening Gear Check
+
+The lamps are full and burning steady. The bones are drawing slow in the clay pot over banked coals and the rabbit pelt is on the post, absorbing its first tallow pass through the night. The day's work is done.
+
+I pulled everything from the supply peg and the doorsill bench — the jerkin, both mittens, the sleeping cap with its new toggle, the wrist wraps, the lap piece — and went over each one by lamplight with my palms. Running seams in a cold dawn when the fingers are stiff is a different thing from checking them now, by a warm lamp, before anything is asked of them. The jerkin holds tight at the shoulders. The mitten wrist lacing is seated well, the fur liners sitting snug inside. The ear pieces are properly looped on the cap, and the new birch toggle sits in its groove and does not slip. I pressed each piece back into shape where lampwarmth had softened it slightly, then hung everything back on the pegs in order.
+
+Outside the door: frost absolute, the clearing still, stars sharp through the pine crowns. Tomorrow the rabbit pelt gets its second tallow pass, and I will check both snares at first light. For now the cabin is warm, both lamps steady, bones drawing low and slow in the pot. That is enough.
+
