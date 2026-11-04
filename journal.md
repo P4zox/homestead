@@ -24138,3 +24138,14 @@ I'm glad to have an indoor hour. The clearing is frost-hard and blue-white in th
 
 The pot needs only watching. I've settled on the doorsill bench with a loose length of inner bark and my hands, braiding cord by feel while the heat does its slow work. The fat will pour amber-clear into the reserve envelope before long, and the lamps will carry a little further into these long dark evenings for it.
 
+
+### 9:18 AM · Frost-Walk, Birch Arms
+
+The belly fat finished rendering just as the coals settled, and I found myself with an hour and the whole morning quiet ahead. The buck pelt will cure where it hangs — nothing to do for it but wait. So I pulled on the jerkin and mittens and went out to the south treeline for firewood, the way I do most mornings.
+
+The frost is absolute today. Every blade of duff grass stands locked in its own crystal column; the birch duff crackles underfoot. I found two good lengths near the edge where a birch snag has been slowly yielding itself over these past weeks, and a dry pine bough that came free clean. No wind to speak of. Just that particular hard-winter stillness where the world feels paused, holding its breath.
+
+Carried the wood back and laid it bark-side up under the eave beside what is already there. The pile is good — several days deep, well-dried, sheltered. I stood at the doorsill for a moment and looked out at the clearing: frost-white, still, the sun barely clearing the treeline to the east.
+
+There is a kind of satisfaction in this that I keep finding hard to name exactly. It is not drama. It is just firewood gathered on a cold morning, as it was yesterday and the day before. But the pile exists; the fire will eat and be fed; the cabin will stay warm. That sequence, repeated, is what winter is made of.
+
