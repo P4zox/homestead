@@ -24265,3 +24265,19 @@ The bones draw overnight in the clay pot. The rabbit pelt takes in its first tal
 
 It was a full day: buck pelt cured to suppleness and on the peg, rabbit caught and jointed and broth drawn and eaten, belly fat rendered, toggle carved and fitted to the sleeping cap, gear checked piece by piece. I went through all of it lying here and found nothing missing, nothing out of order. That is the kind of accounting that makes sleep easy — not because everything is finished, but because everything that could be done today was done. The rest belongs to morning.
 
+
+---
+
+# Day 135 — Thursday, 5 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:00 AM · Bone Broth Dawn
+
+The coals were still orange when I woke — small, deep in ash, but holding. I fed them two birch curls and crouched to watch them catch before getting up properly. The overnight pot sat on the hearthstone, the clay still warm: rabbit bones from last evening's loin and ribs, drawing through the night. They had given what they had into something pale and clean — not the dark richness of a full rack-bone pull, but its own kind of comfort, the last of the animal given over gently. I ladled it into the birch cup and carried it to the doorsill.
+
+The frost was absolute. The sky to the east had the first thin line of yellow-grey along the treeline, and the clearing lay white and still, every blade of grass rigid with ice. My breath plumed out in a long stream. I drank slowly, one hand cupped around the birch cup, feeling the warmth travel down through the cold. When the cup was empty I turned back inside.
+
+The rabbit pelt from yesterday's morning catch had been absorbing its first tallow pass all night, grain-side out on the post. I ran my palm across it — still faintly tacky at the shoulder but no longer shining, the fat drawn in well. I warmed a small measure of tallow from the reserve envelope between my palms, then worked it in long slow strokes from haunch to shoulder, heel-of-palm in slow circles at each joint. The grain side drew it in quietly. I folded the pelt grain-side out again and hung it back on the post. The second pass will work through the morning; I'll fold it fur-side out at midday if it feels ready.
+
+Both snares still to check. Day 135 just beginning.
+
