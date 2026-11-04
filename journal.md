@@ -24222,3 +24222,11 @@ After the last mouthful I sit a moment longer at the doorsill. The clearing is c
 ### 6:18 PM · Cord by Lamplight
 
 The bones are drawing in the clay pot, low and slow on banked coals, and the rabbit pelt hangs grain-side out on the post letting the first tallow pass work in. I pulled the bench close to the south wall where the lamp throws best and started braiding. Two lengths of two-ply cord — the rhythm comes without thinking now, thumb and forefinger pulling the twist even, the strand growing down from my hands into a loose coil on the shelf beside me. Outside it is hard frost and full dark, the pines just visible as black shapes against a sky gone deep blue. The day ran full: snare check, render, scrape, broth, pelt curing, lamps topped. All of it done. This is the quiet hour that makes it possible to have them — to work all day and then sit and braid by lamplight without needing it to be more. The fire pops once. The cup of bones ticks faintly as the water moves.
+### 7:18 PM · Lamp and Toggle
+
+Both lamps are full tonight, the flames steady in still cabin air. Bones are drawing in the clay pot over banked coals — a slow overnight pull I will not touch until morning. The rabbit pelt is on the post, absorbing its first tallow pass grain-side out through the dark.
+
+I cut a small dry birch branch stub from the lean-to pile and shaped it into a toggle — thumb-length, straight grain, a narrow groove notched around its middle. It is for the sleeping cap ear-piece ties. On the coldest mornings, finding those bark cord loops with mittened hands is slow and clumsy work; a solid wooden toggle will thread through them quickly. Twenty minutes of careful knife-work by lamplight. I fitted it to the cap ties before hanging the cap back on the supply peg — it seats well, turns easily in the cord loop, holds without slipping.
+
+Outside the door the frost is absolute. The sky will be clear and hard all night.
+
