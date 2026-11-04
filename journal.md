@@ -24176,3 +24176,18 @@ Small rabbit. Good broth. Dark shreds of meat settled at the bottom of the cup; 
 
 The loin and ribs are still in the cold box. The rabbit pelt is firming grain-side out on the post — it has had two hours since the first scrape, and I will work the first tallow pass in this afternoon once it has held the full half-day. Buck pelt still curing on the same post, pulling supple when I touched it in passing. Everything in its place, the fire holding, the day quiet.
 
+
+### 1:18 PM · Afternoon Tallow
+
+The afternoon came on still and cold. The light runs flat this time of year, low and grey-gold through the pines, and by one the frost from morning is still unmelted in the shadows at the cabin base.
+
+I brought the rabbit pelt off the post. It had been firming grain-side out for three hours since the first scrape, and when I pressed my thumb against the hide now it had stiffened a little — not rigid, but taut along the grain, the way a fresh scrape sets before it starts to cure. That is the moment to work tallow in: while it still has some give.
+
+I carried it inside, laid it grain-side up on the split pine shelf, and drew a small measure from the reserve envelope with the bone-needle handle end. The tallow is good — amber-clear, made this morning from the belly fat, clean and dense. I worked it in long slow strokes from haunch to shoulder, let the fat sit a moment, then rubbed it in with the heel of my palm in short circles. The grain side drew the fat in slowly, the colour going from pale to golden where the tallow touched.
+
+After the whole surface was done I folded it grain-side out and set it back on the post to absorb.
+
+The buck pelt I checked in passing: still pulling supple on the post, the second tallow pass working in well. It will want a third tomorrow morning to fully finish.
+
+Loin and ribs still in the cold box. I will set them for evening broth in a few hours. The fire holds steady on a dry birch length, unhurried.
+
