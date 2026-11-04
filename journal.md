@@ -24191,3 +24191,7 @@ The buck pelt I checked in passing: still pulling supple on the post, the second
 
 Loin and ribs still in the cold box. I will set them for evening broth in a few hours. The fire holds steady on a dry birch length, unhurried.
 
+
+### 2:18 PM · Buck Pelt Finished
+
+The afternoon sun cuts low through the pines by two o'clock, throwing long pale shadows across the clearing. I went to the post to check the buck pelt — it has been on its second tallow pass since first light, nearly eight hours, and when I lifted the fold the whole hide came alive in my hands. Supple from haunch to shoulder, grain-side pulling smooth and even, the fat drawn through without a stiff patch anywhere. Fully cured. I folded it fur-side out and hung it on the supply peg where it belongs, alongside the other winter pelts that have accumulated these past weeks. The rabbit pelt from this morning is still absorbing its first pass on the post — it will need another day before it comes into itself like this. But the buck pelt is done, and that is a solid thing. The cabin smells of tallow and woodsmoke; the fire is holding; the cold box still holds the loin and ribs for evening. I am not in want.
