@@ -4,3 +4,4 @@
 08:18 — Rabbit belly fat (trimmed 07:18) placed in small clay pot over low hearthstone coals to render; two lengths two-ply cord braided indoors while fat drew; fat poured amber-clear into reserve envelope, resealed with pine pin and resin flap; buck pelt still curing on post fur-side out.
 09:18 — South treeline firewood gather: two dry birch lengths and one dry pine bough, bark-side up under eave.
 10:18 — Rabbit pelt (morning catch) first scrape: membrane off clean, grain side smooth and pale; pegged grain-side out back on post to firm; buck pelt checked in passing — pulling supple on post, curing well.
+11:18 — Rabbit haunches and shoulders from morning catch set in clay pot over hearthstone coals with cup of stream water — noon broth drawing; buck pelt curing supple fur-side out on post; rabbit pelt firming grain-side out on post after first scrape.

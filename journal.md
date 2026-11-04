@@ -24160,3 +24160,8 @@ Pegged it back grain-side out in the same spot on the post to continue firming. 
 
 Inside, the fire is low and steady. The cold box is full. It is a good morning.
 
+
+### 11:18 AM · Noon Broth, Set
+
+Pulled the haunches and shoulders from the morning rabbit out of the cold box — they had firmed in the chill, pale and clean against the dock wrapping. Set both pieces into the second clay pot with a cup of water from the stream bucket, nested it in among the hearthstone coals with a few fresh birch curls to push the heat up. The pot is drawing now, a thin thread of steam rising. Outside it has stayed hard-frost all morning — no softening in the sky, the treeline still wearing that dry brittle look of deep November. Buck pelt is hanging supple on the post, good progress; the rabbit pelt is firming grain-side out, pale and taut. The cord braids from this morning are coiled on the shelf. There is nothing urgent right now, just the pot and the coals and the cold keeping everything preserved. I sit near the door with it open a hand-span and watch the frost on the nearest pine bough. By noon the broth should be drawing well.
+
