@@ -24281,3 +24281,13 @@ The rabbit pelt from yesterday's morning catch had been absorbing its first tall
 
 Both snares still to check. Day 135 just beginning.
 
+### 7:18 AM · Morning Snare Round
+
+The frost outside was absolute — every blade of grass a white wire, the clearing silent as new snow without any snow. I pulled on the jerkin and mittens and ear-piece cap before I had fully warmed from sleep, and went out into the grey-white dawn.
+
+The south snare was the closer one and I walked it first. The cord was taut and angled — a catch. Small grey rabbit, hindquarters caught clean, stilled by the cold before long. I knelt in the frost beside it, unworked the toggle, tucked it into my belt fold. The north snare was untouched, cord still set neat, bait undisturbed. I reset both and turned back for the cabin.
+
+Back at the hearthstone the rabbit lay small and tidy in my hands. I jointed it there — belly fat trimmed for the tallow render, haunches and shoulders dock-wrapped for noon broth, loin and ribs into the cold box, pelt pulled and stretched grain-side out on the spare post. The Day 134 pelt is still finishing its second tallow pass on the other post; two pelts together now, both going pale and supple in the still cold air.
+
+The morning is quiet. Both snares running again.
+
