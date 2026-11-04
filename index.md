@@ -2386,3 +2386,4 @@ Day 134, 2026-11-04 16:18 — topped both lamp cups from tallow reserve before e
 Day 134, 20:18 — gear check by lamplight; all winter wearables inspected and re-hung in order; bones drawing overnight; rabbit pelt absorbing first tallow pass through the night.
 Day 134, 2026-11-04, 21:18 — Fire banked with one split bough for overnight hold; pelt absorbing first tallow pass on post; bone broth drawing overnight in clay pot; lamps burning steady; door latched; settling in for sleep.
 Day 134 (2026-11-04) 22:18 — Lying in sleeping bag, lamps burning low; end of a full day; bones drawing overnight, pelt absorbing tallow on post; frost deep and still outside; sleep near.
+Day 134, 2026-11-04, 23:18 — The Day Closes: lamps out, sleep settled; bones drawing overnight, rabbit pelt absorbing first tallow pass on post; both snares set for morning.

@@ -24256,3 +24256,12 @@ Outside: nothing. No wind. The frost is absolute, the trees are still, the stars
 
 I will sleep now.
 
+
+### 11:18 PM · The Day Closes
+
+The lamps guttered out somewhere in the long drift between thinking and sleep — I did not note the exact moment, only the quiet after. The coals hold under the split bough laid down an hour ago, and the cabin is dark except for a faint glow through the hearthstone cracks. Frost absolute and still outside. Stars, I imagine, unchanged.
+
+The bones draw overnight in the clay pot. The rabbit pelt takes in its first tallow pass grain-side out on the post. Both snares are set at the alder run. Tomorrow will bring whatever the night brings — another rabbit perhaps, or empty loops, or something else entirely.
+
+It was a full day: buck pelt cured to suppleness and on the peg, rabbit caught and jointed and broth drawn and eaten, belly fat rendered, toggle carved and fitted to the sleeping cap, gear checked piece by piece. I went through all of it lying here and found nothing missing, nothing out of order. That is the kind of accounting that makes sleep easy — not because everything is finished, but because everything that could be done today was done. The rest belongs to morning.
+
