@@ -24243,3 +24243,16 @@ Outside the door: frost absolute, the clearing still, stars sharp through the pi
 ### 9:18 PM · Night settled in
 
 The cabin has gone quiet past nine. I cracked the door briefly — the air came in like stone, cold pressing flat against my face, stars hard and bright above the treeline. I added one split bough to the coals, low and careful, enough to hold through the small hours without letting the fire climb. The rabbit pelt on the post already carries the faint grassy-fat smell of tallow drawing in. The bone pot breathes slow marrow-scent across the floor. I checked the door latch, ran a palm over both lamp wicks — burning steady, cups still full. Tomorrow starts at dawn with thick bone broth and a pelt ready for its second pass. For now the fire settles, the lamps hold, and the night does its work outside. I am tired in the right way, and ready to sleep.
+
+### 10:19 PM · Lamps Burning Low
+
+The lamp nearest my head is burning lower now. I can tell by the smell — tallow going thin, the wick beginning to char at the tip. I should have trimmed it before lying down. It does not matter; I am not quite asleep yet.
+
+I lie in the sleeping bag and go through the day: the rabbit at the north snare, the belly fat cleared amber into the reserve, the buck pelt finally cured and folded on its peg — a full buckskin. The rabbit pelt from this morning is still on the post, grain-side out, pulling in the first tallow pass. By tomorrow noon it should be ready to fold. I can feel the rhythm of it now — scrape, dry, pass, absorb, pass, absorb, cure — it has become ordinary, and I mean that as praise.
+
+The bones are drawing in the clay pot over the banked coals. I laid one split bough over them before latching up. It should hold through the night. In the morning, before I do anything else, I will strain the broth into the birch cup and drink it at the doorsill in the first grey light, the way I have been doing.
+
+Outside: nothing. No wind. The frost is absolute, the trees are still, the stars were sharp through the east gable gap when I checked. It is the deep cold of hard winter — not dangerous, just present, the season having fully arrived and settled. Inside: warm. The two lamps making their small amber circles. The smell of tallow and dried bark and the faint animal smell of the curing pelt on the post.
+
+I will sleep now.
+
