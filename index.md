@@ -2375,3 +2375,4 @@ Day 134, 8:18 AM — Rabbit belly fat in clay pot rendering over hearthstone coa
 Day 134 09:18 — Firewood gathered; two dry birch lengths and one dry pine bough added bark-side up under eave in hard frost.
 Day 134, 10:18 — first scrape on morning rabbit pelt, membrane off clean, grain side smooth, pegged back grain-side out on post to firm
 2026-11-04 Day 134 11:18 — noon rabbit broth set on hearthstone coals; buck pelt curing supple, rabbit pelt firming grain-side out on post.
+2026-11-04 12:18 — Day 134 — Noon rabbit broth consumed at doorsill; buck pelt curing, rabbit pelt firming for afternoon tallow pass.

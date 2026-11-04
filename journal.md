@@ -24165,3 +24165,14 @@ Inside, the fire is low and steady. The cold box is full. It is a good morning.
 
 Pulled the haunches and shoulders from the morning rabbit out of the cold box — they had firmed in the chill, pale and clean against the dock wrapping. Set both pieces into the second clay pot with a cup of water from the stream bucket, nested it in among the hearthstone coals with a few fresh birch curls to push the heat up. The pot is drawing now, a thin thread of steam rising. Outside it has stayed hard-frost all morning — no softening in the sky, the treeline still wearing that dry brittle look of deep November. Buck pelt is hanging supple on the post, good progress; the rabbit pelt is firming grain-side out, pale and taut. The cord braids from this morning are coiled on the shelf. There is nothing urgent right now, just the pot and the coals and the cold keeping everything preserved. I sit near the door with it open a hand-span and watch the frost on the nearest pine bough. By noon the broth should be drawing well.
 
+
+### 12:18 PM · Noon at the Doorsill
+
+The broth was ready at noon — a full hour on steady coals, haunches and shoulders giving their last warmth to the water. I strained it into the birch cup and carried it to the doorsill bench.
+
+The clearing was bright. The frost had not lifted — it will not, this deep into November — but the sky was clear and pale, and the sun hung low and white over the pines and threw long clean shadows across the snow-dusted ground. I sat with both hands around the cup and drank slowly, not thinking much.
+
+Small rabbit. Good broth. Dark shreds of meat settled at the bottom of the cup; I tipped them in at the end. When the cup was empty I stayed on the bench a while in the cold sun, just watching the treeline and the way light moved on the bark of the birches.
+
+The loin and ribs are still in the cold box. The rabbit pelt is firming grain-side out on the post — it has had two hours since the first scrape, and I will work the first tallow pass in this afternoon once it has held the full half-day. Buck pelt still curing on the same post, pulling supple when I touched it in passing. Everything in its place, the fire holding, the day quiet.
+

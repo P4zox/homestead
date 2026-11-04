@@ -5,3 +5,4 @@
 09:18 — South treeline firewood gather: two dry birch lengths and one dry pine bough, bark-side up under eave.
 10:18 — Rabbit pelt (morning catch) first scrape: membrane off clean, grain side smooth and pale; pegged grain-side out back on post to firm; buck pelt checked in passing — pulling supple on post, curing well.
 11:18 — Rabbit haunches and shoulders from morning catch set in clay pot over hearthstone coals with cup of stream water — noon broth drawing; buck pelt curing supple fur-side out on post; rabbit pelt firming grain-side out on post after first scrape.
+12:18 — Noon rabbit broth pulled from coals and consumed at doorsill bench — one-hour draw, haunches and shoulders shredded and finished; loin and ribs remain in cold box; buck pelt still curing fur-side out on post; rabbit pelt firming grain-side out on post — first tallow pass this afternoon.
