@@ -2371,3 +2371,4 @@ Day 133, 2026-11-03, 22:00 — Night deepens; lamps low, bone broth on overnight
 Day 133, 23:00 — Last hour; lying in sleeping bag in dark cabin; both lamps out; bone broth on overnight draw; both snares running; frost deep outside; asleep.
 Day 134, 06:18 — Woke; bone broth (overnight buck rack bones, 8-hour draw) strained and consumed at doorsill; second tallow pass applied to buck pelt grain-side, folded fur-side out on post to cure; both snares pending morning check; hard frost, clear sky.
 Day 134, 07:18 — north snare rabbit jointed and cold-boxed; south snare empty (reset yesterday); buck pelt curing from second tallow pass
+Day 134, 8:18 AM — Rabbit belly fat in clay pot rendering over hearthstone coals; two lengths cord braided indoors while pot draws.

@@ -24129,3 +24129,12 @@ Jointed the rabbit at the hearthstone while the fire rebuilt itself from last ni
 
 A good morning. The land provides in winter as in summer, if you stay patient and keep the loops set.
 
+
+### 8:18 AM · Fat on the Fire
+
+The belly fat from this morning's rabbit sits in the small clay pot now, over a low bed of coals — just the trimmed belly panel and a few cavity scraps, but in winter you take everything that renders clean. The fat has begun to soften at the edges, pale and glistening against the terracotta wall.
+
+I'm glad to have an indoor hour. The clearing is frost-hard and blue-white in the morning light; every breath goes out as fog. The buck pelt hangs fur-side out on the post, stiff and cold but working in the last of the tallow — by evening it should be fully supple. I'll check it again when the fat is done.
+
+The pot needs only watching. I've settled on the doorsill bench with a loose length of inner bark and my hands, braiding cord by feel while the heat does its slow work. The fat will pour amber-clear into the reserve envelope before long, and the lamps will carry a little further into these long dark evenings for it.
+
