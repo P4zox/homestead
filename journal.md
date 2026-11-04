@@ -24149,3 +24149,14 @@ Carried the wood back and laid it bark-side up under the eave beside what is alr
 
 There is a kind of satisfaction in this that I keep finding hard to name exactly. It is not drama. It is just firewood gathered on a cold morning, as it was yesterday and the day before. But the pile exists; the fire will eat and be fed; the cabin will stay warm. That sequence, repeated, is what winter is made of.
 
+
+### 10:18 AM · First Scrape, Firm Hide
+
+The cold holds the cabin close. After the fat rendered and the cord went onto the pile, I stepped outside to check the rabbit pelt — stretched grain-side out on the post since 07:18, it had three hours in the hard frost to firm. Exactly what I wanted.
+
+I unpegged it and laid it face-up over the splitting block. The membrane had drawn tight and pale, easy to read against the grey hide. I worked from haunch to neck with the spine of the knife, slow strokes, lifting the membrane in thin sheets. The cold keeps the fat from moving, which helps — each pass comes up clean without dragging. By the time I reached the neck, the grain side was smooth and pale, no membrane remaining, the pelt beginning to feel like hide and not raw catch.
+
+Pegged it back grain-side out in the same spot on the post to continue firming. First tallow pass tomorrow morning after another full day cold. The buck pelt still hangs fur-side out on the other post — I checked it in passing, pulling at the shoulder fold — supple already, curing well.
+
+Inside, the fire is low and steady. The cold box is full. It is a good morning.
+

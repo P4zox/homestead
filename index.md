@@ -2373,3 +2373,4 @@ Day 134, 06:18 — Woke; bone broth (overnight buck rack bones, 8-hour draw) str
 Day 134, 07:18 — north snare rabbit jointed and cold-boxed; south snare empty (reset yesterday); buck pelt curing from second tallow pass
 Day 134, 8:18 AM — Rabbit belly fat in clay pot rendering over hearthstone coals; two lengths cord braided indoors while pot draws.
 Day 134 09:18 — Firewood gathered; two dry birch lengths and one dry pine bough added bark-side up under eave in hard frost.
+Day 134, 10:18 — first scrape on morning rabbit pelt, membrane off clean, grain side smooth, pegged back grain-side out on post to firm

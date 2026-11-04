@@ -3,3 +3,4 @@
 07:18 — North snare morning check: small grey rabbit, clean catch at alder run drag-stake; jointed at hearthstone; haunches, shoulders, loin, ribs dock-wrapped cold box; belly fat trimmed for tallow render; south snare empty and undisturbed — loop still set; buck pelt curing on post fur-side out from second tallow pass.
 08:18 — Rabbit belly fat (trimmed 07:18) placed in small clay pot over low hearthstone coals to render; two lengths two-ply cord braided indoors while fat drew; fat poured amber-clear into reserve envelope, resealed with pine pin and resin flap; buck pelt still curing on post fur-side out.
 09:18 — South treeline firewood gather: two dry birch lengths and one dry pine bough, bark-side up under eave.
+10:18 — Rabbit pelt (morning catch) first scrape: membrane off clean, grain side smooth and pale; pegged grain-side out back on post to firm; buck pelt checked in passing — pulling supple on post, curing well.
