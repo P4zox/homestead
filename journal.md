@@ -24209,3 +24209,12 @@ Both cups have been running since Day 131 — three days on those wicks. I lifte
 
 The light outside is already angling flat and cold through the door gap. By supper the cabin will be dark. Having the lamps full before that moment matters — it means the evening broth can be eaten in decent light, and the pelt checked over in the morning without fumbling. Small preparation, but it's this kind of small preparation that makes the dark hours feel less pressing.
 
+
+### 5:18 PM · Broth and Quiet Dark
+
+The pot has been drawing two hours. I pull it from the coals at last light, the loin and ribs giving off a thin steam that curls sideways in the cold air coming under the eave. I carry the clay pot out to the doorsill bench and eat there, the sky already deep blue-grey overhead and one pale star showing south of the ridge. The broth is clean and warming, the loin tender to the bone. I work each rib clean with my teeth and set the bones on the bench edge to cool before collecting them for the overnight draw tomorrow.
+
+The rabbit pelt is still on the post absorbing its first tallow pass, grain-side out. I leave it through the night — the fat will keep working in cold air, and by morning the grain should be drawing supple. The buck pelt hangs cured on the supply peg inside, pale and dense-furred; the reserve envelope sits sealed on the shelf. Both lamps are full and burning steady on their hooks, throwing warm circles on the wall.
+
+After the last mouthful I sit a moment longer at the doorsill. The clearing is completely still — no wind, no branch sound, only the frost settling. Sky sharp with cold. The fire holds inside; both snares are set. This is the hour before the cabin goes quiet, and there is nothing pressing, nothing missing. I collect the rabbit bones into the clay pot, add a cup of cold water, bank the fire low for an overnight draw, and pull the door shut behind me. The latch drops into its keeper with a clean knock.
+
