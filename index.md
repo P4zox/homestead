@@ -2381,3 +2381,4 @@ Day 134, 2026-11-04 13:18 — First tallow pass on morning rabbit pelt (grain-si
 Day 134, 15:18 (Wed 4 Nov 2026) — Evening broth set: rabbit loin and ribs from morning catch in clay pot over hearthstone for slow draw; rabbit pelt absorbing first tallow pass on post.
 Day 134, 2026-11-04 16:18 — topped both lamp cups from tallow reserve before evening; rabbit loin broth still drawing over hearthstone; rabbit pelt absorbing first tallow pass on post
 2026-11-04 17:18 Day 134 — Rabbit loin and ribs evening broth consumed at doorsill; bones set on overnight draw in clay pot, fire banked low.
+2026-11-04 18:18 Day 134 — Two lengths cord braided by lamplight; bones on overnight draw; rabbit pelt absorbing first tallow pass on post; hard frost, clear sky.

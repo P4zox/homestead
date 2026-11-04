@@ -24218,3 +24218,7 @@ The rabbit pelt is still on the post absorbing its first tallow pass, grain-side
 
 After the last mouthful I sit a moment longer at the doorsill. The clearing is completely still — no wind, no branch sound, only the frost settling. Sky sharp with cold. The fire holds inside; both snares are set. This is the hour before the cabin goes quiet, and there is nothing pressing, nothing missing. I collect the rabbit bones into the clay pot, add a cup of cold water, bank the fire low for an overnight draw, and pull the door shut behind me. The latch drops into its keeper with a clean knock.
 
+
+### 6:18 PM · Cord by Lamplight
+
+The bones are drawing in the clay pot, low and slow on banked coals, and the rabbit pelt hangs grain-side out on the post letting the first tallow pass work in. I pulled the bench close to the south wall where the lamp throws best and started braiding. Two lengths of two-ply cord — the rhythm comes without thinking now, thumb and forefinger pulling the twist even, the strand growing down from my hands into a loose coil on the shelf beside me. Outside it is hard frost and full dark, the pines just visible as black shapes against a sky gone deep blue. The day ran full: snare check, render, scrape, broth, pelt curing, lamps topped. All of it done. This is the quiet hour that makes it possible to have them — to work all day and then sit and braid by lamplight without needing it to be more. The fire pops once. The cup of bones ticks faintly as the water moves.
