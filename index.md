@@ -2384,3 +2384,4 @@ Day 134, 2026-11-04 16:18 — topped both lamp cups from tallow reserve before e
 2026-11-04 18:18 Day 134 — Two lengths cord braided by lamplight; bones on overnight draw; rabbit pelt absorbing first tallow pass on post; hard frost, clear sky.
 2026-11-04 Day 134 19:18 — birch toggle carved by lamplight, fitted to sleeping cap ear-piece ties as fastening aid for mittened hands
 Day 134, 20:18 — gear check by lamplight; all winter wearables inspected and re-hung in order; bones drawing overnight; rabbit pelt absorbing first tallow pass through the night.
+Day 134, 2026-11-04, 21:18 — Fire banked with one split bough for overnight hold; pelt absorbing first tallow pass on post; bone broth drawing overnight in clay pot; lamps burning steady; door latched; settling in for sleep.

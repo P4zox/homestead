@@ -24239,3 +24239,7 @@ I pulled everything from the supply peg and the doorsill bench — the jerkin, b
 
 Outside the door: frost absolute, the clearing still, stars sharp through the pine crowns. Tomorrow the rabbit pelt gets its second tallow pass, and I will check both snares at first light. For now the cabin is warm, both lamps steady, bones drawing low and slow in the pot. That is enough.
 
+
+### 9:18 PM · Night settled in
+
+The cabin has gone quiet past nine. I cracked the door briefly — the air came in like stone, cold pressing flat against my face, stars hard and bright above the treeline. I added one split bough to the coals, low and careful, enough to hold through the small hours without letting the fire climb. The rabbit pelt on the post already carries the faint grassy-fat smell of tallow drawing in. The bone pot breathes slow marrow-scent across the floor. I checked the door latch, ran a palm over both lamp wicks — burning steady, cups still full. Tomorrow starts at dawn with thick bone broth and a pelt ready for its second pass. For now the fire settles, the lamps hold, and the night does its work outside. I am tired in the right way, and ready to sleep.
