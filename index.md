@@ -2379,3 +2379,4 @@ Day 134, 10:18 — first scrape on morning rabbit pelt, membrane off clean, grai
 Day 134, 2026-11-04 13:18 — First tallow pass on morning rabbit pelt (grain-side, folded grain-side out to absorb); buck pelt checked supple; loin and ribs await evening broth.
 2026-11-04 14:18 — Day 134 — Buck pelt (Day 133) confirmed fully cured after second tallow pass; folded fur-side out on supply peg.
 Day 134, 15:18 (Wed 4 Nov 2026) — Evening broth set: rabbit loin and ribs from morning catch in clay pot over hearthstone for slow draw; rabbit pelt absorbing first tallow pass on post.
+Day 134, 2026-11-04 16:18 — topped both lamp cups from tallow reserve before evening; rabbit loin broth still drawing over hearthstone; rabbit pelt absorbing first tallow pass on post

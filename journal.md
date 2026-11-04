@@ -24200,3 +24200,12 @@ The afternoon sun cuts low through the pines by two o'clock, throwing long pale 
 
 The pelt is still warming on the post, grain side out, the first tallow pass working in slow and steady — I will check it again at dark but it will not want a second coat until morning. What needed doing this hour was the cold box. I pulled the rabbit loin and ribs — good lean pieces from this morning's catch — and set them in the clay pot over a slow heap of coals with a cup of cold stream water. It draws better unhurried, so I banked the fire down to a low even heat and left the pot to do its work. The sky is still clear above the treeline, pale blue going whitish toward the west. The frost never lifted from the shadow of the cabin wall — these November days barely warm past freezing even at their height. I crouched at the threshold for a moment, watching the trees, feeling the stillness. Everything in hand: pelt curing, broth drawing, fire steady, wood stacked past need. Some hours are only maintenance, and that is enough.
 
+
+### 4:18 PM · Evening Lamp Top
+
+The broth draws low and slow over the coals, rabbit loin and ribs releasing into the water in that patient way they have when you don't rush them. The rabbit pelt is still absorbing the first tallow pass on the post — it won't be ready for a second until morning, the fat needs the night to draw fully into the grain. So I turned to the lamps.
+
+Both cups have been running since Day 131 — three days on those wicks. I lifted the first lamp from its hook and tilted the cup toward the small window light; the tallow level had dropped to thin. Same with the second. I drew the reserve envelope from the shelf, unsealed the pine pin, and spooned tallow into each cup until they sat full and clear, the wick tips just above the surface. Resealed the envelope with pine pin and resin flap.
+
+The light outside is already angling flat and cold through the door gap. By supper the cabin will be dark. Having the lamps full before that moment matters — it means the evening broth can be eaten in decent light, and the pelt checked over in the morning without fumbling. Small preparation, but it's this kind of small preparation that makes the dark hours feel less pressing.
+
