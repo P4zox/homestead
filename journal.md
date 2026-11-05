@@ -24404,3 +24404,12 @@ What I don't have: any dried fruit or herb stores beyond the pastes. The berry e
 I got up and added one birch stick from the kindling row under the eave, to bring the coal bed up before the long night. Then sat back down at the bench with the lamps. Outside: frost absolute, clearing silent and white, no wind. Inside: warm enough.
 
 The lamps are company. The bones draw. The snares run. It's enough.
+
+### 9:19 PM · Into the Coal Dark
+
+The bones are still drawing. The clay pot sits on the hearthstone doing its slow patient work, and I can hear nothing except the occasional faint tick of cooling stone. I went to each lamp and pinched the wick down to its quietest flame — just an amber bead of light hanging in the dark. The cabin holds its warmth. That pressed, animal warmth of a space that has been held against cold all day.
+
+Somewhere around the third hour of braiding cord tonight a thought settled on me and would not leave: what I have is enough. Not in an abundance way — the mushrooms are spent, the haws are gone, the acorn flour ran out weeks ago. But enough is not a mountain of things. It is the gap between what you carry and what tonight needs, and by that measure I am fine. Tallow reserve healthy. Cordage healthy. Paste jars all present and good weight. Two new pelts cured and on the supply peg. Fire banked to deep orange coals with a final birch stick. Both snares running in the dark outside the cabin wall.
+
+I will sleep now. The bones will finish their draw on the hearthstone's last warmth, and by morning there will be pale amber broth in the pot. The snares will have been working while I was gone from the world for a few hours. That is enough to wake up to.
+

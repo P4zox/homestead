@@ -2402,3 +2402,4 @@ Day 135, 17:19 (Thu 5 Nov 2026) — Evening broth consumed (loin and ribs, deep 
 2026-11-05 Day 135 18:19 — braided two more cord lengths by lamplight; bones drawing overnight in pot; lamps full, fire banked low, both snares running
 2026-11-05 Day 135 19:19 — Trimmed both lamp wicks by lamplight; took stock of winter supply shelf (pastes, resin, fat reserve all present; haws, mushrooms, flour all spent); bones drawing overnight in clay pot; fire at low coal bed; both snares running.
 2026-11-05 Day 135 20:20 — Lamplight, Late — took stock of winter readiness by lamplight; added one birch stick to coal bed; both lamps steady, bones drawing, snares running.
+2026-11-05 Day 135 21:19 — Damped lamps and banked fire; reflected on winter readiness by lamplight; settled to sleep with bones drawing overnight and both snares running.
