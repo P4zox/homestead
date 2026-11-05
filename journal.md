@@ -24301,3 +24301,12 @@ By the time the pot was clear and clean, the fat had given everything it had —
 The reserve envelope is growing heavier week by week. That is the winter logic: render what comes, store what you can, spend slowly. The lamps burn low and steady and the envelope gets a little fuller.
 
 Both pelts on their posts — Day 134 almost done absorbing, Day 135 still grey and stiff. Cold box full. Broth to come at noon. The morning is doing what it should.
+
+### 9:18 AM · First Tallow Pass
+
+The Day 135 pelt has been grain-side out on the spare post for two hours now, grey and beginning to stiffen in the cold cabin air. I take it down — it comes off the post stiff at the edges, still a little yielding along the spine where the scraper went deepest. I pinch a small wedge of tallow from the reserve, cup it between both palms, and rub slow circles until it softens. Then I work it into the pelt: heel-of-palm circles at the haunch joint first, where the hide is thickest, then long slow strokes from haunch to shoulder along the grain. The pelt is a small one — the rabbit was compact, not much more than a handful of weight — so it goes quickly, though I take my time at the leg seams and along the belly edge where the scraper tends to thin things out. The grain absorbs the tallow evenly, darkening from grey to pale cream wherever the fat reaches. When the first pass is done I fold it grain-side out again and peg it back on the spare post. It will firm there through the morning and be ready for the second pass by afternoon, or perhaps tomorrow morning if I want the absorption full.
+
+Day 134's pelt is still on the first post — it had its second pass started at 06:00 and has been absorbing grain-side out since then. I press a thumb against the shoulder panel: supple already, with a faint give to it, the grain side dark cream and smooth. By this evening it should be fully cured, ready to come off the post and fold fur-side out on the supply peg. Two pelts working at once; the small rhythm of this season.
+
+Outside the frost holds hard and white. The clearing is still and soundless. Noon broth will be the haunches and shoulders from this morning's rabbit — a slow draw through the late morning — and by then the cabin will be warm enough that I might sit at the doorsill bench and eat in the open air.
+
