@@ -2391,3 +2391,4 @@ Day 134, 2026-11-04, 23:18 — The Day Closes: lamps out, sleep settled; bones d
 Day 135, 07:18 — Morning snare round: south snare catch (small grey rabbit, jointed at hearthstone); noon broth pending; both snares reset.
 Day 135, 08:18 — Rendered Day 135 rabbit belly fat into tallow reserve; envelope sealed and heavier; both pelts curing on posts; noon broth ahead.
 Day 135, 09:18 — First tallow pass worked into Day 135 rabbit pelt grain-side; folded on spare post to absorb; Day 134 pelt supple and curing on first post.
+Day 135 (2026-11-05) 10:18 — Noon broth set: Day 135 rabbit haunches and shoulders in clay pot over hearthstone, slow draw begun; both pelts curing on posts.

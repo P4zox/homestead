@@ -24310,3 +24310,9 @@ Day 134's pelt is still on the first post — it had its second pass started at 
 
 Outside the frost holds hard and white. The clearing is still and soundless. Noon broth will be the haunches and shoulders from this morning's rabbit — a slow draw through the late morning — and by then the cabin will be warm enough that I might sit at the doorsill bench and eat in the open air.
 
+### 10:18 AM · Noon Broth Set
+
+The pelt from this morning's catch hangs grain-side out on the spare post, absorbing tallow in the warmth near the hearthstone. I pulled the haunches and shoulders from the cold box — still firm, pale in my hands — rinsed them quickly in cold stream water from the bark bucket, then nestled them into the coil-built clay pot. Cold water to cover, pot settled over the coals. The fire underneath is small and steady: not a boil, just a slow shiver at the surface.
+
+Winter broth has become its own kind of work. No mushrooms to fold in today, no watercress — just the meat and water and time. The pot will draw for two hours or a little longer while I do smaller things nearby: keep the coals even, check on the curing pelts, braid a cord length by lamplight if the morning quiet holds. Outside the frost has not moved. I've come to trust this hour, the pause between morning's work and noon's meal, when everything that needs tending is already set in motion.
+
