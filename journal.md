@@ -24345,3 +24345,9 @@ The spare post still held the Day 135 pelt from the morning's first pass. Four h
 
 Two pelts working at different stages now, the cabin warm and smelling faintly of tallow — a low animal warmth, not unpleasant. Through the door gap the sky is still blue and sharp, clearing white underfoot, treeline silent. By evening the Day 135 pelt should be ready for its own folding-over. The loin and ribs wait in the cold box for the evening broth. For now there is little to do but let the tallow do its slow work.
 
+### 2:18 PM · Afternoon Firewood Run
+
+Afternoon light sat low and pale, the sun already behind the ridge. I went out before the cold deepened further — south treeline duff, two dry birch lengths and a dry pine bough, the usual haul. Carried back under my arm and laid under the eave, bark-side up. Outside: white clearing, frost absolute, the air still and bright, no wind, nothing moving in the treeline. My footprints from this morning's snare check still cut sharp across the clearing — no other marks.
+
+The Day 135 pelt is absorbing its second tallow pass on the spare post. I turned the fold a quarter while I was near it, let the other face breathe and work. The noon bones sit pale on the hearthstone; the fire is drawing low and steady. Loin and ribs still in the cold box. Evening broth will start soon.
+
