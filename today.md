@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke; fed coal bed birch curls; strained overnight rabbit bone broth from clay pot — pale amber, consumed at doorsill bench in first grey light; north snare catch (small grey rabbit), jointed at hearthstone — belly fat trimmed for tallow render, haunches and shoulders dock-wrapped cold box, loin and ribs cold box; pelt first-scraped, stretched grain-side out on spare post; south snare empty, reset; both snares running.
+07:18 — Rendered rabbit belly fat in second clay pot over coal bed — amber-clear, ladled through bark strainer into reserve envelope, sealed with pine pin and resin flap.

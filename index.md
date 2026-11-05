@@ -2406,3 +2406,4 @@ Day 135, 17:19 (Thu 5 Nov 2026) — Evening broth consumed (loin and ribs, deep 
 Day 135 (2026-11-05) 22:00 — Brief night-waking: tended coal bed, listened to winter silence, returned to sleep.
 Day 135, 23:18 — Briefly stirred near midnight; pressed short birch to coal bed to sustain overnight bone draw; both snares silent, stars clear; returned to sleep.
 2026-11-06 06:18 — Day 136: Woke; consumed overnight bone broth at doorsill; north snare catch (small grey rabbit), jointed and cold-boxed; both snares running; hard frost, clear sky.
+Day 136, 07:18 — Rendered rabbit belly fat amber-clear into reserve envelope; tallow supply resealed and healthy.

@@ -24441,3 +24441,9 @@ The coals were still orange when I woke — that particular glow you feel before
 Both snares had run all night. North snare: a small grey rabbit, clean through the hindquarters. South snare empty, undisturbed. I brought the catch back and jointed it at the hearthstone — belly fat trimmed for the tallow pot, haunches and shoulders dock-wrapped in the cold box for noon broth, loin and ribs alongside. The pelt first-scraped and stretched grain-side out on the spare post; it will firm through the morning.
 
 Day 136. Frost absolute, no wind, sky clear winter blue. Everything is cold and steady and mine.
+
+### 7:18 AM · Fat to Amber
+
+The belly fat had been sitting in the clay bowl since the morning jointing — white and cool, waiting. I set the second clay pot over the coal bed and let it warm, then tipped the fat in and let it render slow. The small scraps went from white to translucent, then curled and browned at the edges as the clear amber fat pooled beneath them. I stirred occasionally with the birch paddle, watching it settle. When it ran clean and clear with no grey cloud, I ladled it through a folded bark strip into the reserve envelope, pressed the pine pin through the flap, and sealed it with a smear of resin.
+
+The reserve is sound again. It is a plain satisfaction, this — nothing left on the counter, everything put away. Pelt firming on the post. Meat cold-held in the box. The day is still early, the frost is absolute, and I have everything I need.
