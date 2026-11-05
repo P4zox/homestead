@@ -24417,3 +24417,14 @@ I will sleep now. The bones will finish their draw on the hearthstone's last war
 ### 10:00 PM · Winter Night Check
 
 Stirred from first sleep around ten — not fully awake, just the half-conscious nudge that says *tend the fire*. Added one birch stick to the deep coal bed; sparks rose and settled. The bones are drawing steady in the clay pot, the room faintly warm and amber-smelling from tallow and old smoke. I cracked the door an inch: the clearing white and still, sky very black, stars sharp as ice. No wind. No sound from either snare. Everything right. I let the door fall shut and went back to sleep.
+
+### 11:18 PM · Coals at Midnight
+
+Something near midnight half-woke me again — not a sound, just the particular quality of the cold pressing through the cabin walls at this hour. I lay still for a moment, listening. The clay pot was giving off the faintest simmer: bones still drawing. Through the clay gap in the hearth I left as a check, I could see orange ember-light, low but holding.
+
+I got up, pressed one short birch length against the back of the coal bed. Not to raise the fire — just to sustain the overnight draw; bones need this warmth all the way to morning. The lamps were still at their lowest flame, burning even on the hooks. I checked both by eye. Good.
+
+Cracked the door a hand's width. Stars thick and cold over the clearing. Both snares still, no disturbance. The night was absolute and quiet in a way that only this late hour gets.
+
+Latched the door. Climbed back in. Everything accounted for: heat in the hearth, bones drawing, lamps holding, snares set. What comes tomorrow I will meet at six.
+

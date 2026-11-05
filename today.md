@@ -16,3 +16,4 @@
 20:20 — Sat by lamplight; went through the states of things — tallow reserve healthy, cordage stock healthy, cold box holds only drawing bones, both pelts cured and on peg, paste jars present; added one birch stick to coal bed for overnight draw; both lamps burning steady; both snares running.
 Day 135, 21:19 — damped lamps to lowest flame; banked fire to deep coal bed with final birch stick; bones drawing overnight in clay pot; settled for sleep.
 22:00 — Briefly stirred from sleep; added one birch stick to coal bed; cracked door — clearing still, stars sharp, both snares silent; bones drawing steady in clay pot; returned to sleep.
+23:18 — Briefly stirred near midnight; pressed one short birch length to back of coal bed to sustain overnight bone draw; lamps steady at lowest flame; cracked door — clearing still, stars sharp, both snares silent; latched door and returned to sleep.
