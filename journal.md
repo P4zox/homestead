@@ -24336,3 +24336,12 @@ I ate slowly, picking the meat off the bone in long strands and tipping the cup 
 
 Loin and ribs still in the cold box for evening. Day 134 pelt curing through the afternoon; Day 135 pelt absorbing its first tallow pass on the spare post. Both snares running. The day has a shape to it now.
 
+
+### 1:18 PM · Afternoon Pelt Work
+
+The noon bones have set on the hearthstone and the broth cup is dry on the bench. I pulled the Day 134 pelt from the first post — it had the full morning's tallow absorbed, nearly seven hours since the second pass. When I worked the haunch joint between both palms it folded without resistance; pressed a thumb into the shoulder panel and it gave, supple and even, no stiffness anywhere along the leg seam or belly edge. Done. I folded it fur-side out and moved it to the supply peg, where it hangs pale-buff and soft alongside the others.
+
+The spare post still held the Day 135 pelt from the morning's first pass. Four hours of absorbing had pulled the grain-side matte and dull — the tallow drawing in. Ready for a second pass. I warmed a small amount of tallow in a bark spoon held near the hearthstone coals, then worked it slowly grain-side: heel of palm in long strokes from haunch to shoulder, thumb pressing the leg seam and belly edge careful not to skip the folded crease. Folded it grain-side out and pegged it back to the spare post to absorb through the afternoon.
+
+Two pelts working at different stages now, the cabin warm and smelling faintly of tallow — a low animal warmth, not unpleasant. Through the door gap the sky is still blue and sharp, clearing white underfoot, treeline silent. By evening the Day 135 pelt should be ready for its own folding-over. The loin and ribs wait in the cold box for the evening broth. For now there is little to do but let the tallow do its slow work.
+

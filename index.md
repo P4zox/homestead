@@ -2394,3 +2394,4 @@ Day 135, 09:18 — First tallow pass worked into Day 135 rabbit pelt grain-side;
 Day 135 (2026-11-05) 10:18 — Noon broth set: Day 135 rabbit haunches and shoulders in clay pot over hearthstone, slow draw begun; both pelts curing on posts.
 Day 135 (2026-11-05) 11:18 — Noon broth drawing an hour, lid checked — amber draw, condensation returned; two more cord lengths braided by hearthstone; Day 134 pelt suppling, Day 135 pelt absorbing; frost absolute, no wind, blue sky.
 Day 135 (2026-11-05) 12:00 — Noon broth served and consumed; rabbit haunches and shoulders, amber-clean; white clearing, frost, noon sun, no wind.
+Day 135, 13:18 — Afternoon pelt work: Day 134 pelt fully cured, folded fur-side out on supply peg; second tallow pass applied to Day 135 pelt, absorbing on spare post.
