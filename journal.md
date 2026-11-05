@@ -24369,3 +24369,8 @@ The broth in the clay pot has been drawing for an hour. I lifted the lid and hel
 
 Outside the shadows have crossed the clearing and the frost is coming back early. The sky holds a cold blue that will be dark in another hour. I went as far as the cabin door and stood there a moment, watching the treeline go still. Everything in order. Two pelts cured this week, tallow reserves full, broth on the fire. The warmth of the cabin against the cold at the threshold — that contrast is one of the small pleasures winter teaches you to notice.
 
+
+### 5:19 PM · Broth, Lamp, Dusk
+
+The loin and ribs have drawn for two hours. I lifted the lid at the hearthstone — broth gone deep amber, the loin fallen from the bone, ribs arched pale in the pot. I ladled it into the birch cup and carried it to the doorsill bench. Outside the clearing has fallen to deep shadow; frost absolute again, sky that cold clear dark of a hard November evening. The loin meat pulled apart easily and I ate it in the doorway, the warmth of the cup in my hands, cold pressing at my back. Bones went back into the pot with a little hearthstone-warmed water — overnight draw begun. Both snares running in the treeline dark. Second lamp lit and set on its hook. The cabin is warm and close, fire banked to a low amber coal bed. I braided a few lengths of cord by lamplight and was glad for it.
+
