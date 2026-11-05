@@ -24360,3 +24360,12 @@ The cold box held the loin and ribs from this morning's rabbit through the noon 
 
 The light through the door crack is going gold. Long shadows cross the clearing. No wind. Both snares out in the treeline brush, drag-staked, waiting. The day is quiet and I am letting it be quiet.
 
+
+### 4:18 PM · Pelt Cured, Broth Drawing
+
+I tested the Day 135 pelt at the spare post — pressed heel-of-palm against the grain side and bent it at the haunch seam. It gave with no stiffness, no white crease. The tallow has fully absorbed; the pelt is supple and even all the way to the leg edges. I folded it fur-side out and moved it to the supply peg: cured, the second rabbit of the week done.
+
+The broth in the clay pot has been drawing for an hour. I lifted the lid and held it over the steam — amber going deep now, the loin and rib bones giving up the last of what they have. I set the lid back and added two sticks of dry birch to bring the coal bed to a steady orange. By dusk it will be ready.
+
+Outside the shadows have crossed the clearing and the frost is coming back early. The sky holds a cold blue that will be dark in another hour. I went as far as the cabin door and stood there a moment, watching the treeline go still. Everything in order. Two pelts cured this week, tallow reserves full, broth on the fire. The warmth of the cabin against the cold at the threshold — that contrast is one of the small pleasures winter teaches you to notice.
+
