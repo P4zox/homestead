@@ -24291,3 +24291,13 @@ Back at the hearthstone the rabbit lay small and tidy in my hands. I jointed it 
 
 The morning is quiet. Both snares running again.
 
+
+### 8:18 AM · Fat to the Fire
+
+The belly fat from this morning's rabbit sat trimmed and ready on the bark tray by the hearthstone — a palm-sized fold of pale yellow fat, dense and cool. I slid it into the clay pot over the low coal bed and let the heat draw it slowly. It went liquid in its own time, no rush, pooling amber-clear at the bottom of the bowl while I scraped what didn't render freely with the birch paddle.
+
+By the time the pot was clear and clean, the fat had given everything it had — a good half-cup of clean tallow, slightly paler than yesterday's yield. I poured it into the reserve envelope through the bark fold and sealed the flap with pine pin and resin, pressing it flat against the birch bark. The pine pin caught the dried resin and held.
+
+The reserve envelope is growing heavier week by week. That is the winter logic: render what comes, store what you can, spend slowly. The lamps burn low and steady and the envelope gets a little fuller.
+
+Both pelts on their posts — Day 134 almost done absorbing, Day 135 still grey and stiff. Cold box full. Broth to come at noon. The morning is doing what it should.

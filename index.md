@@ -2389,3 +2389,4 @@ Day 134 (2026-11-04) 22:18 — Lying in sleeping bag, lamps burning low; end of 
 Day 134, 2026-11-04, 23:18 — The Day Closes: lamps out, sleep settled; bones drawing overnight, rabbit pelt absorbing first tallow pass on post; both snares set for morning.
 2026-11-05 (Day 135, 06:00) — Woke; overnight rabbit bone broth strained pale amber and consumed at doorsill; second tallow pass begun on Day 134 rabbit pelt grain-side; first tick of Day 135, hard frost, clear sky.
 Day 135, 07:18 — Morning snare round: south snare catch (small grey rabbit, jointed at hearthstone); noon broth pending; both snares reset.
+Day 135, 08:18 — Rendered Day 135 rabbit belly fat into tallow reserve; envelope sealed and heavier; both pelts curing on posts; noon broth ahead.
