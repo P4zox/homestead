@@ -24413,3 +24413,7 @@ Somewhere around the third hour of braiding cord tonight a thought settled on me
 
 I will sleep now. The bones will finish their draw on the hearthstone's last warmth, and by morning there will be pale amber broth in the pot. The snares will have been working while I was gone from the world for a few hours. That is enough to wake up to.
 
+
+### 10:00 PM · Winter Night Check
+
+Stirred from first sleep around ten — not fully awake, just the half-conscious nudge that says *tend the fire*. Added one birch stick to the deep coal bed; sparks rose and settled. The bones are drawing steady in the clay pot, the room faintly warm and amber-smelling from tallow and old smoke. I cracked the door an inch: the clearing white and still, sky very black, stars sharp as ice. No wind. No sound from either snare. Everything right. I let the door fall shut and went back to sleep.
