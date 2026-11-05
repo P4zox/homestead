@@ -24383,3 +24383,12 @@ I sit with two more lengths of cord, braiding by feel now, the motion familiar a
 
 The two new pelts hang cured on their pegs, pale fur-side out. The lamps are full. The broth will be ready by morning. There is a plain satisfaction in this — not grand, just the fit of a day that closed where it was supposed to.
 
+
+### 7:19 PM · Wick Trim, Stock Count
+
+Both lamps have been burning since I lit the second one at six—long enough that the wicks need attention. I took each bark cup down in turn, nipped the char from the first wick with my thumbnail, pressed it into the tallow to hold, watched the flame reestablish itself smaller and clean. The second the same. They both settled back to a steadier, paler burn, throwing less smoke, and that made the whole cabin feel quieter somehow—like a room that stops fidgeting.
+
+By that calmer light I went along the supply shelf, unhurried, touching each envelope and parcel in turn. Rose hip paste: still dense, one envelope holding. Hazelnut paste: good weight. Crab apple paste. Elderberry reduction, two envelopes. Strained pine resin, six. The fired pots sat in their places—the wide storage crock, the two broth pots, the shallow bowls. Two new pelts on the supply peg, pale and supple, cured today, still carrying the faint smell of tallow. The haws are gone, the smoked mushrooms gone, the acorn flour gone—spent through the weeks the way good stores should be, gradually and usefully. What remains is a kind of honest inventory: preserved paste, some cord, some resin, some fat in the reserve envelope. And the two snares in the dark outside, and what they bring.
+
+The bones in the clay pot kept drawing, filling the cabin with a thin clean smell—marrow and time. I did not add wood; the coal bed held on its own. Outside the frost had the clearing locked, and the stars were the hard kind that come with real cold. I stayed by the doorsill a moment, long enough for the cold to settle the warmth of the cabin into me by contrast, then came back in and drew the latch bar down. Quiet enough to hear the cord stock shift slightly on its peg when I brushed past it.
+
