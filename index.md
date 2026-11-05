@@ -2396,3 +2396,4 @@ Day 135 (2026-11-05) 11:18 — Noon broth drawing an hour, lid checked — amber
 Day 135 (2026-11-05) 12:00 — Noon broth served and consumed; rabbit haunches and shoulders, amber-clean; white clearing, frost, noon sun, no wind.
 Day 135, 13:18 — Afternoon pelt work: Day 134 pelt fully cured, folded fur-side out on supply peg; second tallow pass applied to Day 135 pelt, absorbing on spare post.
 2026-11-05 14:18 | Day 135 | Afternoon Firewood Run — two dry birch lengths and one dry pine bough added under eave; Day 135 pelt second tallow pass absorbing; evening broth pending.
+Day 135 (2026-11-05) 15:18 — Evening broth set: Day 135 loin and ribs pulled from cold box, in clay pot over hearthstone for slow simmer; Day 135 pelt second tallow pass still absorbing on spare post.

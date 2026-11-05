@@ -24351,3 +24351,12 @@ Afternoon light sat low and pale, the sun already behind the ridge. I went out b
 
 The Day 135 pelt is absorbing its second tallow pass on the spare post. I turned the fold a quarter while I was near it, let the other face breathe and work. The noon bones sit pale on the hearthstone; the fire is drawing low and steady. Loin and ribs still in the cold box. Evening broth will start soon.
 
+
+### 3:18 PM · Evening Broth Set
+
+The pelt is still absorbing on the post — two hours into the second tallow pass, grain-side out, folded quiet. I ran my palm along it at the fold edge: barely tacky now, the hide underneath beginning to yield. Another hour and it should be ready to fold fur-side out and move to the supply peg.
+
+The cold box held the loin and ribs from this morning's rabbit through the noon hours. I pulled them now — still firm and cold — rinsed them in the birch cup and lowered them into the clay pot with water to cover. The hearthstone coals were banked to a good orange bed. The pot settled in without protest. A slow three-hour draw from here should pull the broth to dark amber by evening.
+
+The light through the door crack is going gold. Long shadows cross the clearing. No wind. Both snares out in the treeline brush, drag-staked, waiting. The day is quiet and I am letting it be quiet.
+
