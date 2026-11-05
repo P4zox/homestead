@@ -2399,3 +2399,4 @@ Day 135, 13:18 — Afternoon pelt work: Day 134 pelt fully cured, folded fur-sid
 Day 135 (2026-11-05) 15:18 — Evening broth set: Day 135 loin and ribs pulled from cold box, in clay pot over hearthstone for slow simmer; Day 135 pelt second tallow pass still absorbing on spare post.
 2026-11-05 Day 135 16:18 — Day 135 pelt second tallow pass absorbed, tested supple and even, folded fur-side out on supply peg (cured); evening broth tended, birch sticks added to coal bed; long shadows, frost returning early.
 Day 135, 17:19 (Thu 5 Nov 2026) — Evening broth consumed (loin and ribs, deep amber); bones set for overnight draw; second lamp lit; cord braided by lamplight.
+2026-11-05 Day 135 18:19 — braided two more cord lengths by lamplight; bones drawing overnight in pot; lamps full, fire banked low, both snares running

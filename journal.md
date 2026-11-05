@@ -24374,3 +24374,12 @@ Outside the shadows have crossed the clearing and the frost is coming back early
 
 The loin and ribs have drawn for two hours. I lifted the lid at the hearthstone — broth gone deep amber, the loin fallen from the bone, ribs arched pale in the pot. I ladled it into the birch cup and carried it to the doorsill bench. Outside the clearing has fallen to deep shadow; frost absolute again, sky that cold clear dark of a hard November evening. The loin meat pulled apart easily and I ate it in the doorway, the warmth of the cup in my hands, cold pressing at my back. Bones went back into the pot with a little hearthstone-warmed water — overnight draw begun. Both snares running in the treeline dark. Second lamp lit and set on its hook. The cabin is warm and close, fire banked to a low amber coal bed. I braided a few lengths of cord by lamplight and was glad for it.
 
+
+### 6:19 PM · Cord and Quiet
+
+The overnight pot makes its first soft sounds from the hearthstone — the rib and loin bones from tonight's broth beginning their long draw, water still warm against the clay. Both lamps burn on their hooks, steady and low, casting doubled light across the cabin floor.
+
+I sit with two more lengths of cord, braiding by feel now, the motion familiar as breath — three strands pulled tight in turn, the cord lengthening between my palms. Outside, the clearing holds its frost-silence. I can hear nothing past the walls. On nights this cold, the world seems to contract to the size of one lit room, and that feels like enough.
+
+The two new pelts hang cured on their pegs, pale fur-side out. The lamps are full. The broth will be ready by morning. There is a plain satisfaction in this — not grand, just the fit of a day that closed where it was supposed to.
+
