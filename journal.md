@@ -24428,3 +24428,16 @@ Cracked the door a hand's width. Stars thick and cold over the clearing. Both sn
 
 Latched the door. Climbed back in. Everything accounted for: heat in the hearth, bones drawing, lamps holding, snares set. What comes tomorrow I will meet at six.
 
+
+---
+
+# Day 136 — Friday, 6 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · First Grey Light
+
+The coals were still orange when I woke — that particular glow you feel before you look. I fed them birch curls and a stick; they answered. Then the clay pot on the hearthstone: I lifted the lid, strained the overnight draw into the birch cup — pale amber, thin, clean, the last service from last night's rabbit bones. I carried it to the doorsill and sat in the cold with it, watching the clearing come up white and still in first grey light.
+
+Both snares had run all night. North snare: a small grey rabbit, clean through the hindquarters. South snare empty, undisturbed. I brought the catch back and jointed it at the hearthstone — belly fat trimmed for the tallow pot, haunches and shoulders dock-wrapped in the cold box for noon broth, loin and ribs alongside. The pelt first-scraped and stretched grain-side out on the spare post; it will firm through the morning.
+
+Day 136. Frost absolute, no wind, sky clear winter blue. Everything is cold and steady and mine.
