@@ -2393,3 +2393,4 @@ Day 135, 08:18 — Rendered Day 135 rabbit belly fat into tallow reserve; envelo
 Day 135, 09:18 — First tallow pass worked into Day 135 rabbit pelt grain-side; folded on spare post to absorb; Day 134 pelt supple and curing on first post.
 Day 135 (2026-11-05) 10:18 — Noon broth set: Day 135 rabbit haunches and shoulders in clay pot over hearthstone, slow draw begun; both pelts curing on posts.
 Day 135 (2026-11-05) 11:18 — Noon broth drawing an hour, lid checked — amber draw, condensation returned; two more cord lengths braided by hearthstone; Day 134 pelt suppling, Day 135 pelt absorbing; frost absolute, no wind, blue sky.
+Day 135 (2026-11-05) 12:00 — Noon broth served and consumed; rabbit haunches and shoulders, amber-clean; white clearing, frost, noon sun, no wind.

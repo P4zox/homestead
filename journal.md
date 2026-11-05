@@ -24325,3 +24325,14 @@ I settled on the doorsill bench with a coil of inner bark and braided two more l
 
 Outside: white clearing, blue sky, frost absolute. No wind today. I could hear nothing from the treeline, not even a bird. This kind of silence only happens in hard winter, when everything that moves has either left or found a hollow. I am neither. I am here, holding steady with a warm pot and cord in my lap.
 
+
+### 12:00 PM · Noon Broth, Clear Sky
+
+The pot had been drawing since mid-morning and the cabin smelled of it by the time I pulled the lid — amber-clean all through, no murkiness, just a warm animal clarity. I ladled it into the birch cup in two passes and took the haunches out to cool on the hearthstone, then sat on the doorsill bench.
+
+Outside: white clearing, blue sky, no wind, treeline perfectly still. The frost on the snowcrust caught the high noon sun and made everything bright without any warmth in it.
+
+I ate slowly, picking the meat off the bone in long strands and tipping the cup often. Hot broth in the middle of a hard winter day has a satisfying plainness to it — there is nothing complicated happening, just fuel and warmth and the particular smell of the clay pot. By the time I finished, the cup was empty and the bones were pale and clean on the hearthstone.
+
+Loin and ribs still in the cold box for evening. Day 134 pelt curing through the afternoon; Day 135 pelt absorbing its first tallow pass on the spare post. Both snares running. The day has a shape to it now.
+
