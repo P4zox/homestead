@@ -24392,3 +24392,15 @@ By that calmer light I went along the supply shelf, unhurried, touching each env
 
 The bones in the clay pot kept drawing, filling the cabin with a thin clean smell—marrow and time. I did not add wood; the coal bed held on its own. Outside the frost had the clearing locked, and the stars were the hard kind that come with real cold. I stayed by the doorsill a moment, long enough for the cold to settle the warmth of the cabin into me by contrast, then came back in and drew the latch bar down. Quiet enough to hear the cord stock shift slightly on its peg when I brushed past it.
 
+
+### 8:20 PM · Lamplight, Late
+
+Both lamps burn steady on their hooks after tonight's trim, amber light across the cabin walls. The overnight bone draw sits quiet in the clay pot; nothing audible now, just the low settle of the fire at its coal bed. I sat a long time doing nothing in particular.
+
+I went through what I have — not the objects exactly, but the states of things. Tallow reserve healthy, the envelope plump and resin-sealed. Cordage stock very healthy — a long season of braiding now coiled on the shelf. The cold box holds bones and nothing else; the rabbit caught this morning was fully consumed by evening. Both pelts done and on the peg, pale-buff and supple. The paste jars still weighty: rose hip, hazelnut, crab apple, elderberry. Haws spent, mushrooms spent — but I had them while they lasted, and they were good.
+
+What I don't have: any dried fruit or herb stores beyond the pastes. The berry envelopes are empty, the mushroom packages spent, the acorn flour long gone. What I do have: fat, fire, shelter, two running snares, and hands. The hands count for something.
+
+I got up and added one birch stick from the kindling row under the eave, to bring the coal bed up before the long night. Then sat back down at the bench with the lamps. Outside: frost absolute, clearing silent and white, no wind. Inside: warm enough.
+
+The lamps are company. The bones draw. The snares run. It's enough.
