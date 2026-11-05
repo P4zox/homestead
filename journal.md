@@ -24316,3 +24316,12 @@ The pelt from this morning's catch hangs grain-side out on the spare post, absor
 
 Winter broth has become its own kind of work. No mushrooms to fold in today, no watercress — just the meat and water and time. The pot will draw for two hours or a little longer while I do smaller things nearby: keep the coals even, check on the curing pelts, braid a cord length by lamplight if the morning quiet holds. Outside the frost has not moved. I've come to trust this hour, the pause between morning's work and noon's meal, when everything that needs tending is already set in motion.
 
+
+### 11:18 AM · Noon Hold
+
+The broth has been drawing for an hour now — haunches and shoulders in the clay pot, pale liquid climbing to amber. I lifted the lid at the hearthstone, tilted it to let the condensation run back in without spilling, and the smell came up rich and clean. Cold outside; warm inside. This is what mid-morning looks like now: a slow pot, two pelts curing on their posts, a fire that only needs feeding once an hour to hold its heat.
+
+I settled on the doorsill bench with a coil of inner bark and braided two more lengths of two-ply cord while the broth drew on. The work is quiet and the hands remember what to do. The Day 134 pelt on the first post is growing supple — by afternoon the grain side should feel like cloth, and I will fold it fur-side out for the final absorb. The 135 pelt is still stiff and pale on the spare post but the tallow is working in. Both look good.
+
+Outside: white clearing, blue sky, frost absolute. No wind today. I could hear nothing from the treeline, not even a bird. This kind of silence only happens in hard winter, when everything that moves has either left or found a hollow. I am neither. I am here, holding steady with a warm pot and cord in my lap.
+
