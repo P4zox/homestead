@@ -24510,3 +24510,12 @@ Then the loin and ribs from the cold box — still firm, cold-clean, good smell.
 
 The jerkin still hangs grain-side out on the peg rack. I press a knuckle into the shoulder panel — the tallow is soaking in well, the leather already softer than it was an hour ago. By evening I will test the seams and either fold it back to the peg or give the collar join one more pass if it needs it.
 
+
+### 4:18 PM · Jerkin Back, Lamps Lit
+
+The cabin has that particular late-afternoon stillness — the light going grey-flat behind the frost, the broth beginning to smell right, everything already done that needed doing. I pulled the jerkin off the peg rack and worked it between my hands: shoulder seams move freely, the collar join is soft, the grain-side has that dull sheen that means the tallow seated properly. Two hours was enough. I folded it grain-side in and hung it back on the supply peg.
+
+One birch stick to the coal bed — the broth wants a steady low heat for another hour at least. I can smell the fat and bone releasing, slow and clean. Outside, the light is already going; mid-November dusk comes early here, too early to trust the grey. I lit the second lamp on its hook. Both burning steady now, two small fires against the dark.
+
+There is something very ordinary and good about an evening like this: fire settled, broth drawing, two lamps lit, the new pelt cured and hung, the jerkin supple again. The cold is absolute outside. In here there is warmth and enough.
+
