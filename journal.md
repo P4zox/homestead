@@ -24487,3 +24487,7 @@ The Day 136 pelt had its first tallow pass at eight this morning. Four hours is 
 
 The loin and ribs are still in the cold box. They will go in for evening broth when the coal bed is ready. The fire is at good amber coals. Both lamps hang unlit on their hooks in midday light. The cold outside is still and clean.
 
+
+### 1:18 PM · Snare Check, Cold Light
+
+The loin and ribs can wait until late afternoon. By one oclock
