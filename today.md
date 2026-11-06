@@ -5,3 +5,4 @@
 09:18 — Firewood run to south treeline — two dry birch lengths and one dry pine bough added to kindling row under eave.
 10:18 — Rabbit haunches and shoulders pulled from cold box, set in clay pot over hearthstone for noon broth — coal bed steady amber, pot covered loosely with bark scrap, slow draw begun.
 11:18 — Tended coal bed with one dry birch stick; broth drawing steadily, pale amber forming; braided two more cord lengths on bench while pot draws; Day 136 pelt absorbing tallow well on spare post.
+12:18 — Noon broth consumed at doorsill bench — haunches and shoulders, pale amber, birch cup drained; bones set in pot with cold water for overnight draw; second tallow pass applied grain-side to Day 136 pelt, folded grain-side out on spare post absorbing; loin and ribs remain in cold box for evening broth.

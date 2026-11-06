@@ -2411,3 +2411,4 @@ Day 136, 07:18 — Rendered rabbit belly fat amber-clear into reserve envelope; 
 2026-11-06 09:18 (Day 136) — Firewood run: two dry birch lengths and one pine bough added under eave.
 Day 136, 2026-11-06, 10:18 — Rabbit haunches and shoulders set in clay pot over hearthstone for noon broth; pelt first tallow pass still absorbing grain-side.
 Day 136, 11:18 — Tended noon broth and braided two cord lengths by fire while pelt absorbs first tallow pass.
+2026-11-06 12:18 — Day 136 — noon broth (haunches and shoulders) consumed at doorsill; bones to pot for overnight draw; second tallow pass applied to Day 136 pelt grain-side out on post

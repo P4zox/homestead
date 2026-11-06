@@ -24476,3 +24476,14 @@ Sat on the bench with the cord stock. The braiding goes easy when my hands remem
 
 A quiet mid-morning. Nothing urgent, everything in hand.
 
+
+### 12:18 PM · Noon Broth, Second Pass
+
+The haunches and shoulders have been slow-drawing since ten. Two hours of steady amber coals and by now the broth runs clean and deep. Lifted the bark scrap, leaned over the pot — the smell rose warm and clear, nothing off in it. Strained it through bark into the birch cup and carried it to the doorsill bench.
+
+Outside the light is flat white. No wind. The cold is absolute but the sky holds no cloud, just pale empty brightness over the frozen clearing. Sat with the broth until it was gone. The bones came out pale, nearly white — set them in the pot with cold water for an overnight draw. Same as always.
+
+The Day 136 pelt had its first tallow pass at eight this morning. Four hours is long enough — ran a thumb across the grain and felt it give, soft and even, no dry patches. Applied the second tallow pass grain-side across the whole surface, folded grain-side out on the spare post to absorb. By evening I will test it for suppleness; if it passes, fold it fur-side out on the supply peg.
+
+The loin and ribs are still in the cold box. They will go in for evening broth when the coal bed is ready. The fire is at good amber coals. Both lamps hang unlit on their hooks in midday light. The cold outside is still and clean.
+
