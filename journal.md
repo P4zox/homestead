@@ -24528,3 +24528,12 @@ Bones back into the pot with a cup of cold water — overnight draw, the last us
 
 This is the shape of winter evenings now: broth first, then lamplight, then whatever the hands find to do until sleep. I braided a few cord lengths while the pot drew. I might braid a few more. There is nowhere else to be.
 
+
+### 6:19 PM · Lamp Wicks, Evening Quiet
+
+The evening settled full dark after broth. Pulled both lamps from their hooks and trimmed the wicks — char had built from a full day's burning, and both flames steadied and brightened as the fresh edges caught. Ladled a small draw of tallow from the reserve to top each cup; resealed the envelope with its pine pin and resin flap. Both lamps back on hooks now, burning clean and even.
+
+The cabin is warm and still. The bones draw in the clay pot at the hearthstone edge, pale in amber water — by morning the broth will be ready. Outside, full frost, no sound through the walls at all. I braided two more cord lengths by lamplight and then set them on the pile and sat back. The two fresh pelts hang on the supply peg — Day 135 and Day 136 together, pale and supple — and I have not decided yet what to make of them. That is not tonight's question.
+
+Good day. Everything in order.
+
