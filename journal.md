@@ -24557,3 +24557,7 @@ I held the larger of the two against my back, crouched by the lamp. A strip cut 
 
 Both lamps burning steady. Bones drawing in the clay pot. Tomorrow I'll cut.
 
+
+### 9:18 PM · Lamplight Fading
+
+The night is fully in now — no colour left in the sky, frost absolute against the bark walls. Ive
