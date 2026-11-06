@@ -24453,3 +24453,8 @@ The reserve is sound again. It is a plain satisfaction, this — nothing left on
 The pelt has been stretched for two hours now, grain-side out on the spare post, firming in the frost air. I brought it inside and laid it across the hearthstone — the cold outside has drawn the moisture off the surface and left the grain pale and tight. I drew the reserve envelope from the shelf, spooned out a small measure of tallow, and began working it into the grain side with the heel of my palm: circular first, then long strokes following the spine line. The tallow warms quickly at that pressure and the pelt pulls it in steadily. After a quarter hour the grain had gone from pale to a low amber sheen, the kind that tells you the fat is seated rather than sitting on top. I folded it grain-side out and set it back on the spare post to absorb the rest of the morning.
 
 The cabin smells faintly of rendered fat — a winter smell I know now. Behind me the coal bed held steady from the overnight birch stick, just glowing embers rather than active flame. Outside the frost is absolute, the light clean and low along the clearing. Everything is in order.
+
+### 9:18 AM · Birch and Pine
+
+The pelt is hanging grain-side out on the spare post, tallow working in. I went to the south treeline while the morning was still sharp — frost sitting on every stick, the pines holding their usual quiet. Pulled two dry birch lengths and a pine bough from the duff at the forest edge, carried them back across the frozen clearing, and laid them under the eave with the rest. The woodpile is well past what I need; it fills the whole lean-to run and crowds the eave overhang. I keep adding anyway. Some part of me measures safety in arm-loads, and winter only gets longer from here.
+

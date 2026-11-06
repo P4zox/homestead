@@ -2408,3 +2408,4 @@ Day 135, 23:18 — Briefly stirred near midnight; pressed short birch to coal be
 2026-11-06 06:18 — Day 136: Woke; consumed overnight bone broth at doorsill; north snare catch (small grey rabbit), jointed and cold-boxed; both snares running; hard frost, clear sky.
 Day 136, 07:18 — Rendered rabbit belly fat amber-clear into reserve envelope; tallow supply resealed and healthy.
 2026-11-06 Day 136 08:18 — First tallow pass applied grain-side to Day 136 rabbit pelt; folded grain-side out on spare post absorbing.
+2026-11-06 09:18 (Day 136) — Firewood run: two dry birch lengths and one pine bough added under eave.
