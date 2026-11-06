@@ -2424,3 +2424,4 @@ Day 136, 21:18 — Banked fire, damped lamps to lowest flame, sleeping. [Lamplig
 2026-11-06 Day 136 22:19 — Brief wakefulness in the dark; coals steady, bone draw overnight, lacing strip planned for morning; both snares running; settled back to sleep.
 2026-11-06 Day 136 23:00 — lay still in deep night, both lamps dark and fire banked, bones drawing; planned lacing strip for morning to close lower-back gap between jerkin hem and lap piece; settled into sleep.
 Day 137, 2026-11-07, Sat — 06:00: New day; strained overnight bone broth at doorsill; south snare rabbit caught and jointed, cold box provisioned; north snare empty; both running; lacing strip planned for morning.
+2026-11-07 Day 137 07:00 — Rendered morning rabbit belly fat; amber-clear, added to tallow reserve; pelt firming grain-side out on post.

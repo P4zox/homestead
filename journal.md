@@ -24596,3 +24596,12 @@ Both snares were running. The south path had a small grey rabbit — loop well-p
 
 The cold box is provisioned again. The lacing strip is still waiting in my mind from last night — three fingers wide from a shoulder panel, to close the gap at my lower back between the jerkin hem and the lap piece. That feels like this morning's work, once the fire builds and the cabin warms enough to work leather well.
 
+
+### 7:00 AM · Fat to the Fire
+
+The belly fat from this morning's rabbit sat in the small bark fold by the hearthstone. I pulled a dry birch curl from the kindling row and worked the coal bed up to a steady amber glow, then set the fold over the heat. The fat rendered slow and even — the cabin filling with that faint clean smell, almost sweet — and after a few minutes it ran clear and amber into the reserve cup. I tipped it into the reserve envelope, sealed the pine pin through the resin flap, and set it back on the shelf. Half a cupful, maybe a little more. The reserve holds well now.
+
+Outside the air bites. The pelt from this morning's rabbit sits grain-side out on the spare post, firming slowly in the cabin warmth. I'll give it until mid-morning before the first tallow pass. The lacing strip — the shoulder-panel cut to close the gap at my lower back — that is next, once the fat is settled and the coal bed steadied again. I had planned it for this morning and I mean to do it.
+
+Day 137. November. The mornings are very cold.
+
