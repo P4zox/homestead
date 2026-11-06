@@ -24519,3 +24519,12 @@ One birch stick to the coal bed — the broth wants a steady low heat for anothe
 
 There is something very ordinary and good about an evening like this: fire settled, broth drawing, two lamps lit, the new pelt cured and hung, the jerkin supple again. The cold is absolute outside. In here there is warmth and enough.
 
+
+### 5:18 PM · Broth and Lamplight
+
+The loin and ribs have been drawing since mid-afternoon, the pot sitting quiet on a steady amber coal bed. Two hours is enough — the broth pulls clear and deep, darker than noon, the loin falling soft off the bone when I nudge it with the spoon. I carry the birch cup to the doorsill bench and sit there in the early dark. By five the sky is already gone past blue to black, stars hard and clean above the treeline. The cold bites at the ears and nose but the cabin breathes warm behind me. I drain the cup slowly.
+
+Bones back into the pot with a cup of cold water — overnight draw, the last use of them. Both lamps burning on their hooks, casting a warm unsteady glow across the shelf and the peg row. The jerkin hangs supple on its peg, the two new pelts folded fur-side out beside it. The cordage stock is long. Tallow reserve sealed. Snares running in the dark beyond the treeline.
+
+This is the shape of winter evenings now: broth first, then lamplight, then whatever the hands find to do until sleep. I braided a few cord lengths while the pot drew. I might braid a few more. There is nowhere else to be.
+
