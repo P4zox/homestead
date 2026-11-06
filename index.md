@@ -2407,3 +2407,4 @@ Day 135 (2026-11-05) 22:00 — Brief night-waking: tended coal bed, listened to 
 Day 135, 23:18 — Briefly stirred near midnight; pressed short birch to coal bed to sustain overnight bone draw; both snares silent, stars clear; returned to sleep.
 2026-11-06 06:18 — Day 136: Woke; consumed overnight bone broth at doorsill; north snare catch (small grey rabbit), jointed and cold-boxed; both snares running; hard frost, clear sky.
 Day 136, 07:18 — Rendered rabbit belly fat amber-clear into reserve envelope; tallow supply resealed and healthy.
+2026-11-06 Day 136 08:18 — First tallow pass applied grain-side to Day 136 rabbit pelt; folded grain-side out on spare post absorbing.
