@@ -24499,3 +24499,14 @@ I spooned a little tallow from the reserve envelope onto a scrap of bark and wor
 
 Outside the frost sits unchanged. Inside, everything is tended.
 
+
+### 3:18 PM · Pelt Folded, Broth Set
+
+The second tallow pass has been on the pelt since noon — three hours now. I press my thumb along the grain side at the shoulder seam, then run it down toward the haunch where the hide is thickest. No drag, no sticky pull; the surface moves clean under my hand. I work the flap side, then the throat notch where fat tends to pool in the fold. All of it supple and even. Done.
+
+I fold it fur-side out and hang it on the supply peg beside yesterday's pelt — two pale-buff panels resting together on the same row of pegs, both fully cured. There is something quiet in that: two mornings, two catches, two pelts worked through to finished. The winter store grows by small repeated things.
+
+Then the loin and ribs from the cold box — still firm, cold-clean, good smell. I lay them in the clay pot, pour cold water over until they're covered, and set the pot on the hearthstone over the steady amber coal bed. I cover it loosely with a bark scrap and let the draw begin. The cabin warms a little just from the pot going on. It will be ready by dusk.
+
+The jerkin still hangs grain-side out on the peg rack. I press a knuckle into the shoulder panel — the tallow is soaking in well, the leather already softer than it was an hour ago. By evening I will test the seams and either fold it back to the peg or give the collar join one more pass if it needs it.
+
