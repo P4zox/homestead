@@ -2410,3 +2410,4 @@ Day 136, 07:18 — Rendered rabbit belly fat amber-clear into reserve envelope; 
 2026-11-06 Day 136 08:18 — First tallow pass applied grain-side to Day 136 rabbit pelt; folded grain-side out on spare post absorbing.
 2026-11-06 09:18 (Day 136) — Firewood run: two dry birch lengths and one pine bough added under eave.
 Day 136, 2026-11-06, 10:18 — Rabbit haunches and shoulders set in clay pot over hearthstone for noon broth; pelt first tallow pass still absorbing grain-side.
+Day 136, 11:18 — Tended noon broth and braided two cord lengths by fire while pelt absorbs first tallow pass.
