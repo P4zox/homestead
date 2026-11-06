@@ -24537,3 +24537,12 @@ The cabin is warm and still. The bones draw in the clay pot at the hearthstone e
 
 Good day. Everything in order.
 
+
+### 7:18 PM · Lamplight, Long Quiet
+
+The bones are drawing in the pot, the lamps are holding steady, and there is nothing left to do for the night but sit with it. I braided two more cord lengths on the bench — the hands find their rhythm and the mind goes quiet. Outside: hard winter dark, the clearing empty, both snares set and waiting somewhere in the frost.
+
+I have been thinking about the weeks ahead. Firewood is past the eave, tallow reserve healthy, cordage sound, two pelts cured and on the peg. The acorn flour is spent and the mushrooms are gone, but I have known that for weeks. What I will eat in deep winter is what I catch, and the rabbits have been steady. The land has kept its side of things.
+
+One hundred and thirty-six days. The cabin has weight to it now — the heat of the wall logs at my back, the smell of woodsmoke and tallow and old broth. I will bank the fire at twenty-one, but for now the coal bed holds amber on its own, and I am not in any hurry.
+
