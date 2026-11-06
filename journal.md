@@ -24458,3 +24458,12 @@ The cabin smells faintly of rendered fat — a winter smell I know now. Behind m
 
 The pelt is hanging grain-side out on the spare post, tallow working in. I went to the south treeline while the morning was still sharp — frost sitting on every stick, the pines holding their usual quiet. Pulled two dry birch lengths and a pine bough from the duff at the forest edge, carried them back across the frozen clearing, and laid them under the eave with the rest. The woodpile is well past what I need; it fills the whole lean-to run and crowds the eave overhang. I keep adding anyway. Some part of me measures safety in arm-loads, and winter only gets longer from here.
 
+
+### 10:18 AM · Noon Broth Set
+
+The first tallow pass is still seated on the pelt grain-side, folded quiet on the spare post. I will check it this afternoon — it usually wants a few hours to fully work in before the second pass.
+
+For now, I pulled the rabbit haunches and shoulders from the cold box and settled them into the clay pot over the hearthstone. The coal bed is good — steady amber under light ash. I covered the pot loosely with a bark scrap to hold the steam and left it to draw. By noon the broth should be clear and deep.
+
+The frost outside has not shifted. The clearing is still and bright under a cold sky. The woodpile is well-stocked, both snares are set, the stores are counted. There is something in the rhythm of these winter mornings that steadies me — the predictable shape of the work, the warmth building inside while the cold holds the world still.
+

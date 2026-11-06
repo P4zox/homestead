@@ -3,3 +3,4 @@
 07:18 — Rendered rabbit belly fat in second clay pot over coal bed — amber-clear, ladled through bark strainer into reserve envelope, sealed with pine pin and resin flap.
 08:18 — First tallow pass applied grain-side to Day 136 rabbit pelt — tallow seated, amber sheen on grain side; folded grain-side out on spare post to absorb.
 09:18 — Firewood run to south treeline — two dry birch lengths and one dry pine bough added to kindling row under eave.
+10:18 — Rabbit haunches and shoulders pulled from cold box, set in clay pot over hearthstone for noon broth — coal bed steady amber, pot covered loosely with bark scrap, slow draw begun.
