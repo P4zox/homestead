@@ -24561,3 +24561,13 @@ Both lamps burning steady. Bones drawing in the clay pot. Tomorrow I'll cut.
 ### 9:18 PM · Lamplight Fading
 
 The night is fully in now — no colour left in the sky, frost absolute against the bark walls. Ive
+### 10:19 PM · Coals and Quiet
+
+Woke in the dark to nothing — no sound from outside, no shift in the wind, just the deep orange of the coal bed through the grate and the faint smell of bone broth drawing in the clay pot. I lay still for a moment checking things the way you do at night: fire sound (low, steady), lamps (both dark, damped as I left them), cabin walls (no draft, no cold coming through the base logs). Everything held.
+
+I thought about the lacing strip — the shoulder panel from one of the cured pelts, three fingers wide, to close the gap at my lower back between the jerkin hem and the lap piece. I have the shape of it in my mind already. Tomorrow morning after the bone broth I will mark and cut, then work the stitching by daylight. It is a small thing but I have felt that cold gap in the small hours before, and small things matter here when winter is long.
+
+The two snares are out in the dark. I cannot hear them, of course. They are just cord and bent sapling in the frost, doing their work without me. I find that thought settling — that something is tending the morning while I sleep.
+
+Back under the sleeping bag. Coals holding their warmth. The night is quiet and long and mine.
+
