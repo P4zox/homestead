@@ -2422,3 +2422,4 @@ Day 136, 2026-11-06, 19:18 — Evening quiet by lamplight; braided cord; reflect
 Day 136 20:19 — examined two cured pelts by lamplight; planned lower-back lacing strip from shoulder panel to close jerkin-to-lap-piece gap; will cut tomorrow
 Day 136, 21:18 — Banked fire, damped lamps to lowest flame, sleeping. [Lamplight Fading]
 2026-11-06 Day 136 22:19 — Brief wakefulness in the dark; coals steady, bone draw overnight, lacing strip planned for morning; both snares running; settled back to sleep.
+2026-11-06 Day 136 23:00 — lay still in deep night, both lamps dark and fire banked, bones drawing; planned lacing strip for morning to close lower-back gap between jerkin hem and lap piece; settled into sleep.

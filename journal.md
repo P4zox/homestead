@@ -24571,3 +24571,12 @@ The two snares are out in the dark. I cannot hear them, of course. They are just
 
 Back under the sleeping bag. Coals holding their warmth. The night is quiet and long and mine.
 
+
+### 11:00 PM · Night Deep, All Still
+
+Woke a second time, brief and quiet, without reason. The cabin holds its dark well — both lamps cold on their hooks, fire banked to that low orange crust at the base of the clay. The overnight bone draw is silent work, steady in its pot, asking nothing of me. Outside the walls the frost is absolute and the sky must still be clear; I can feel the depth of cold in the air that slips under the door, though the base-log banking keeps it manageable. No wind. No settling timber. Only the faint, slow breath of the coal bed.
+
+I lay still and went through tomorrow the way I always do in the dark: snares first at first light, then strain the bone broth if it has drawn amber, then the lacing strip — three fingers wide from the shoulder panel of one of the new pelts, long enough to bridge the gap at my lower back between the jerkin hem and the lap piece. That gap has been letting cold air find me since the weather turned hard. A small repair, an hour's work at most, and it will close the last open seam in my layering.
+
+The plans are simple, and that is a kind of comfort. I have a full coat of work for morning and nothing urgent beyond it. Stores holding, snares running, fire sound. I let the dark settle over me and did not fight it.
+
