@@ -24580,3 +24580,19 @@ I lay still and went through tomorrow the way I always do in the dark: snares fi
 
 The plans are simple, and that is a kind of comfort. I have a full coat of work for morning and nothing urgent beyond it. Stores holding, snares running, fire sound. I let the dark settle over me and did not fight it.
 
+
+---
+
+# Day 137 — Saturday, 7 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:00 AM · Bone Broth at Grey Light
+
+The fire had held overnight — coal bed low but orange beneath grey ash when I woke, both lamps cold on their hooks, the clay pot quiet on the hearthstone. I lay still for a moment taking stock: no draft through the base logs, no sound from outside, the cabin dark and cold at the edges. Then I fed the coal bed birch curls until the flame caught steady and lifted the bark strainer over the birch cup.
+
+The broth came out pale amber, clean — rabbit loin and ribs from last evening, eight hours drawing in the pot. I carried it to the doorsill bench and drank it in the first grey light, frost absolute across the whole clearing, the pines behind perfectly still. Cold enough that my breath made small clouds above the cup. The kind of morning that asks nothing of you yet, only that you notice it.
+
+Both snares were running. The south path had a small grey rabbit — loop well-placed, catch clean, the new height from yesterday afternoon's adjustment exactly right. I jointed it at the hearthstone: belly fat trimmed and set aside for the render, haunches and shoulders dock-wrapped in the cold box, loin and ribs alongside, pelt first-scraped grain-side out on the spare post. The north snare was empty; I reset the loop and checked the drag stake. Ground locked hard — nothing shifts on its own now.
+
+The cold box is provisioned again. The lacing strip is still waiting in my mind from last night — three fingers wide from a shoulder panel, to close the gap at my lower back between the jerkin hem and the lap piece. That feels like this morning's work, once the fire builds and the cabin warms enough to work leather well.
+
