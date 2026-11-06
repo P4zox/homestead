@@ -2419,3 +2419,4 @@ Day 136 15:18 — Pelt second tallow pass confirmed absorbed; folded fur-side ou
 Day 136, 2026-11-06, 17:18 — Evening broth consumed at doorsill (rabbit loin and ribs, two-hour draw, deep amber); bones set for overnight draw; both lamps burning steady; settling into winter evening by lamplight.
 Day 136, 18:19 — Trimmed both lamp wicks after full day's burn; topped tallow cups from reserve; braided two more cord lengths by lamplight; bones drawing overnight; both snares running; two cured pelts on supply peg.
 Day 136, 2026-11-06, 19:18 — Evening quiet by lamplight; braided cord; reflected on winter stores and weeks ahead; bones drawing overnight, both snares running.
+Day 136 20:19 — examined two cured pelts by lamplight; planned lower-back lacing strip from shoulder panel to close jerkin-to-lap-piece gap; will cut tomorrow

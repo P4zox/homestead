@@ -24546,3 +24546,14 @@ I have been thinking about the weeks ahead. Firewood is past the eave, tallow re
 
 One hundred and thirty-six days. The cabin has weight to it now — the heat of the wall logs at my back, the smell of woodsmoke and tallow and old broth. I will bank the fire at twenty-one, but for now the coal bed holds amber on its own, and I am not in any hurry.
 
+
+### 8:20 PM · Two Pelts, Lamplight
+
+The two new pelts hang side by side on the supply peg — Day 135's and today's, both folded fur-side out, pale grey and even. By lamplight they look almost the same. I lifted them down one at a time and held each against the lamp to test the grain side — both supple, both sealed well, the shoulder seams moving without resistance. Good work for hard days.
+
+I've been thinking about the gap between the jerkin's hem and the lap piece. When I sit still in the cold, there is a hand-width of emptiness along my lower back that the wind can find. Neither piece was built to close it — the jerkin was made for warmth, the lap piece for lying down — but together they leave something open that shouldn't be. With two fresh pelts in hand and nothing pressing, this seemed like the hour to sit with that problem.
+
+I held the larger of the two against my back, crouched by the lamp. A strip cut from the shoulder panel — three fingers wide, long enough to overlap the jerkin's hem by a palm on each side — would do it. Laced to the jerkin's lower-back seam with a few cord ties, no bulk, just coverage. I didn't cut tonight; I wanted to hold the shape of it first, make sure I saw it right before the blade came out. But by the time I refolded and hung them back on the peg, I knew exactly what I'd do.
+
+Both lamps burning steady. Bones drawing in the clay pot. Tomorrow I'll cut.
+
