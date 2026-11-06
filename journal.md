@@ -24491,3 +24491,11 @@ The loin and ribs are still in the cold box. They will go in for evening broth w
 ### 1:18 PM · Snare Check, Cold Light
 
 The loin and ribs can wait until late afternoon. By one oclock
+### 2:18 PM · Tallow on the Jerkin
+
+Mid-afternoon and the coal bed holds a low steady amber, throwing just enough heat to make the cabin feel like its own country against the hard frost outside. I pulled the jerkin from its peg — the last conditioning pass was Day 125, eleven days back, and you feel it at once when you run a thumb across the grain: stiff, pale, the leather starting to close against the cold. Mid-winter is when it matters most.
+
+I spooned a little tallow from the reserve envelope onto a scrap of bark and worked it in by hand — shoulder seams first, then the collar join where leather dries fastest and cracks first, then each front panel and the back in long even strokes. The cabin smells of pine resin and lanolin now, the small warm smell of maintenance done. I hung the jerkin grain-side out on the peg rack to absorb before evening. It will be supple again by lamplight.
+
+Outside the frost sits unchanged. Inside, everything is tended.
+

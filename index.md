@@ -2413,3 +2413,4 @@ Day 136, 2026-11-06, 10:18 — Rabbit haunches and shoulders set in clay pot ove
 Day 136, 11:18 — Tended noon broth and braided two cord lengths by fire while pelt absorbs first tallow pass.
 2026-11-06 12:18 — Day 136 — noon broth (haunches and shoulders) consumed at doorsill; bones to pot for overnight draw; second tallow pass applied to Day 136 pelt grain-side out on post
 2026-11-06 13:18 — Day 136: mid-afternoon snare check; south loop adjusted, north drag stake retied; both snares running; pelt absorbing second tallow pass.
+Day 136, 14:18 — Tallow-conditioned leather jerkin: grain stiff after 11 days, worked tallow into shoulder seams and panels, hung grain-side out on peg rack to absorb before evening.
