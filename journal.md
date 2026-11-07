@@ -24691,3 +24691,16 @@ The frost outside was absolute. The clearing had gone the colour of pewter in th
 
 Bones went back into the clay pot with a ladle of cold water, covered and set to draw overnight. The lamps are burning steady on their hooks. Tomorrow morning the first thing will already be waiting: pale amber in the clay pot, the whole night working on it.
 
+
+### 6:18 PM · Lamp-lit Stocktaking
+
+Both lamps are burning on their hooks — the cabin orange-gold, shadows pooling in the rafters. I have already eaten: loin and ribs in deep amber broth, birch cup drained at the doorsill bench. The bones are drawing overnight in the clay pot. Outside, it is fully dark and hard frost.
+
+I sit with the cord and braid by lamplight. Three strands tonight instead of two, testing the weave. It holds tighter, closes denser, but costs more inner bark per length — something to remember when the bark stock thins in deep winter. For now there is enough.
+
+What I keep returning to is this morning's lacing strip. Three fingers of cured leather, over-under through the jerkin hem stitches, lower end looped to the lap piece side cords. I went to the doorsill to test it in the frost and there was nothing — no draft pulling at the lower back, no cold finding the gap. The whole layering system finally closed on itself the way a fitted door settles into its frame. That is not a small thing in this season.
+
+I take stock: the reserve tallow envelope is heavy. Three rabbits this week, each contributing their fat. The woodpile is past eave-high, the cord stock is deep, two lamps burning steady. The overnight bone draw will give me pale amber at dawn. Both snares are running in the dark beyond the treeline.
+
+I braid until my hands are ready to stop, then damp the lamps and sleep.
+
