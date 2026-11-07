@@ -2430,3 +2430,4 @@ Day 137, 2026-11-07, Sat — 06:00: New day; strained overnight bone broth at do
 Day 137, 10:18 — Noon broth set: haunches and shoulders from cold box into clay pot over hearthstone; coal bed steady amber, pot covered loosely with bark scrap, slow draw begun.
 Day 137, 11:18 AM — Tended noon broth drawing (haunches and shoulders, pale amber forming); added birch stick to coal bed; checked Day 137 pelt first tallow pass absorbing — grain side firming.
 2026-11-07 Day 137 12:00 — noon broth consumed (rabbit haunches and shoulders, pale amber, birch cup drained); Day 137 pelt second tallow pass applied grain-side, absorbing on spare post; loin and ribs cold box for evening; bones in clay pot for overnight draw; coal bed tended, one birch stick added
+2026-11-07 Day 137 13:18 — firewood run to south treeline; two dry birch lengths and one dry pine bough added to kindling row under eave; Day 137 pelt second tallow pass still absorbing grain-side out on spare post

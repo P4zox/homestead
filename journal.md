@@ -24648,3 +24648,14 @@ The broth had been drawing since mid-morning — nearly two hours of slow pull o
 
 Afterward I checked the Day 137 pelt. Three and a half hours grain-side out on the spare post, and the first tallow pass had done its work — the hide drawing up the fat, the grain side pale and taking a dull sheen across the full surface, supple when bent. I warmed a small measure of tallow in my palm over the hearthstone and worked a second pass across the grain, pressing steadily at the neck fold and shoulder where the hide thickens most. Folded grain-side out on the spare post to absorb. The bones went into the clay pot with cold hearthstone-warmed water — overnight draw begun. One birch stick added to the coal bed; the fire will hold through afternoon.
 
+
+### 1:18 PM · Winter Wood
+
+The second tallow pass is still absorbing on the spare post — won't need attention for another hour or two. The bones are drawing overnight in the clay pot. The afternoon is clear and cold, so I pulled on mittens and jerkin and walked the south treeline for firewood.
+
+The duff was frozen solid beneath a hard crust of frost. I found two dry birch lengths near the base of the deadfall I've been working since late autumn, and a good dry pine bough beside them — all well-cured and ready. I hauled them back and stacked them in the kindling row under the eave, bark-side up.
+
+The clearing looks smaller in hard winter. The sky is very blue above the stripped birch canopy. I stood at the woodpile for a moment and just listened: nothing, only the faint sound of wind threading the high branches. Even the stream is silent now — no riffle, no eddy sound, just the frost pressing everything flat. It is a particular kind of quiet, the kind the season earns after weeks of wind and work.
+
+The cabin looks good from out here. The base banking holds. The roof is solid. The smoke from the hearthstone rises straight up into the blue sky and disappears.
+
