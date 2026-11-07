@@ -24750,3 +24750,12 @@ I lay down into the sleeping bag and held still, listening to the coal bed settl
 
 Glad to be here. That is the last thought before sleep.
 
+
+### 11:18 PM · Bones and Embers
+
+Woke into the dark — not from cold or worry, just the natural floating-up that happens sometimes near midnight. The cabin was still and black except for a faint orange pulse from the coal bed, the only light in the room. I lay still a moment taking stock: no draft through the base logs, no sound from outside, both lamps cold on their hooks, the clay pot sitting quiet over the dying coals with the bones drawing inside.
+
+The system is working. The lacing strip sealed the last cold gap this morning. The tallow reserve is heavy. The woodpile runs past the eave. Both snares are running out there in the frost.
+
+There is nothing left to do tonight. I pulled the sleeping bag closer and let the dark have me again.
+

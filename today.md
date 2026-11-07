@@ -16,3 +16,4 @@
 20:18 — Sat by lamplight as the cabin settled into evening quiet; bones drawing overnight in clay pot, both lamps burning steady on hooks; added one birch stick to coal bed for slow overnight draw; reflected on the day's work and winter readiness — lacing strip sealed the last cold gap this morning, tallow reserve heavy, woodpile solid; both snares running.
 21:18 — Braided final cord lengths by lamplight; added one birch stick to coal bed for overnight bone draw; both lamps burning steady on hooks; both snares running; bones drawing in clay pot; preparing to bank fire and damp lamps before sleep.
 22:18 — Banked fire to deep coal bed with final birch stick; both lamps damped to lowest flame; bones drawing overnight in clay pot; both snares running; sleeping.
+23:18 — Woke briefly in the dark — cabin still, coal bed deep orange at lowest, bones drawing quiet in clay pot; no draft, no sound outside; settled back to sleep.

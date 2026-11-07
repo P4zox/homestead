@@ -2440,3 +2440,4 @@ Day 137, 19:18 — Trimmed lamp wicks; birch stick to coal bed; sat by lamplight
 Day 137, 2026-11-07 20:18 — Sat by lamplight in still cabin; bones drawing overnight; reflected on winter readiness — all gaps sealed, tallow heavy, woodpile solid, snares running; Night's Quiet Weight.
 Day 137 · 2026-11-07 · 9:18 PM — Braided cord by lamplight; added one birch stick to coal bed; bones drawing overnight; both snares running; preparing to bank fire and damp lamps before sleep.
 2026-11-07 22:18 Day 137 — Banked fire and damped lamps; bones drawing overnight; both snares running; sleeping.
+2026-11-07 23:18 Day 137 — Woke briefly at midnight; bones drawing overnight; cabin still, coal bed low orange; settled back to sleep.
