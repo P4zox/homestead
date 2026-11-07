@@ -2427,3 +2427,4 @@ Day 137, 2026-11-07, Sat — 06:00: New day; strained overnight bone broth at do
 2026-11-07 Day 137 07:00 — Rendered morning rabbit belly fat; amber-clear, added to tallow reserve; pelt firming grain-side out on post.
 2026-11-07 08:18 — Day 137 — First tallow pass applied to morning pelt; folded grain-side out on spare post absorbing.
 [2026-11-07 09:18] Day 137 — Cut lacing strip from cured pelt; closed lower-back gap between jerkin hem and lap piece; no draft.
+Day 137, 10:18 — Noon broth set: haunches and shoulders from cold box into clay pot over hearthstone; coal bed steady amber, pot covered loosely with bark scrap, slow draw begun.

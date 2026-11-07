@@ -24622,3 +24622,14 @@ Held it at my lower back — top edge overlapping the jerkin's hem by two finger
 
 It is a small thing. But every cold morning I have felt that place — a finger-width of open air at the small of my back, the one gap the layers did not cover. It will not be there anymore. I came back inside and sat by the coal bed, warming my hands on the hearthstone. The pelt on the spare post still firming in its first tallow pass. Outside, hard frost on every surface and no wind — a good morning for finishing what had been left undone.
 
+
+### 10:18 AM · Noon Broth Set
+
+The lacing strip held. I pressed myself against the doorsill in the hard frost — not a thread of cold through the lower back now, jerkin hem and lap piece sealed end to end. A small repair, but the kind that matters when you are standing still for a long while.
+
+Haunches and shoulders from the morning rabbit are in the cold box, waiting. I pulled them now — cool and firm, dock-wrapping still snug — and laid them into the clay pot with a cup of cold water. Pot over the hearthstone, coal bed steady amber. One dry birch stick added, pot covered loosely with a bark scrap. The draw will start slow.
+
+The Day 137 pelt is grain-side out on the post, first tallow pass absorbing. I pressed the surface once — not dry, still drawing in. I left it. By the time the broth is pale amber, the pelt will be ready for its second check.
+
+Outside, the frost has not broken. The clearing is still and bright, birch stands pale against a hard blue sky. It is the kind of morning that holds itself very quietly.
+
