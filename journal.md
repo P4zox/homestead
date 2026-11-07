@@ -24704,3 +24704,14 @@ I take stock: the reserve tallow envelope is heavy. Three rabbits this week, eac
 
 I braid until my hands are ready to stop, then damp the lamps and sleep.
 
+
+### 7:18 PM · Wicks Trimmed, Fire Tended
+
+Both lamp wicks had gathered char through the evening burn — small dark buds at the flame's base, the light a shade dimmer than it should be. I drew each cup from its hook and pinched the char away, reset the wicks, and both flames steadied and brightened at once. Small satisfaction in that.
+
+Added one birch stick to the coal bed, not to push heat but to keep the overnight bone draw at a low simmer. Day 137's rabbit has given two broth draws already; the bones are pale and the smell almost nothing now. Still going.
+
+Sat a while by the second lamp. The cabin is as sealed as it has ever been — lacing strip closing the last gap this morning, base logs banked on all four sides, daub solid in both gables. Hard frost outside; steady amber light inside. The tallow envelope is heavy. The woodpile runs past the eave. Both snares are set in the dark.
+
+Winter is fully here, and I am, by any honest measure, ready for it.
+
