@@ -24679,3 +24679,7 @@ Then I pulled the loin and ribs from the cold box — still cold, stiff from the
 
 The clearing outside is still. Bare sky, bare treeline, the frost absolute and white at the base of everything. Inside the cabin it smells like warming rabbit fat and old smoke and cured leather, and the pot is making its small steady sound. I have enough for today. That keeps being true, and I keep being grateful for it.
 
+
+### 4:18 PM · Broth and Lamplight
+
+Loin and ribs have been drawing since mid-afternoon, and by now the clay pot holds a good amber — meat yielding slowly off the bone. Added two dry birch sticks to hold the coal bed steady through dark, then lit both lamps as long shadows reached clear across the clearing and the frost-blue sky paled toward evening. Topped both cups from the tallow reserve, resealed the envelope with the pine pin and resin flap. The wicks caught clean and both flames burned even on their hooks. Outside, locked hard frost and no wind; in here, amber broth and two small steady lights. The homestead in its element.
