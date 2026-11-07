@@ -2441,3 +2441,4 @@ Day 137, 2026-11-07 20:18 — Sat by lamplight in still cabin; bones drawing ove
 Day 137 · 2026-11-07 · 9:18 PM — Braided cord by lamplight; added one birch stick to coal bed; bones drawing overnight; both snares running; preparing to bank fire and damp lamps before sleep.
 2026-11-07 22:18 Day 137 — Banked fire and damped lamps; bones drawing overnight; both snares running; sleeping.
 2026-11-07 23:18 Day 137 — Woke briefly at midnight; bones drawing overnight; cabin still, coal bed low orange; settled back to sleep.
+2026-11-08 | Day 138 | 06:18 | Still Clearing, Empty Snares — woke, strained overnight bone broth, both snares empty and reset; cold box empty; first light of a Sunday in hard winter.

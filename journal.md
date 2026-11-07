@@ -24759,3 +24759,21 @@ The system is working. The lacing strip sealed the last cold gap this morning. T
 
 There is nothing left to do tonight. I pulled the sleeping bag closer and let the dark have me again.
 
+
+---
+
+# Day 138 — Sunday, 8 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · Still Clearing, Empty Snares
+
+The cabin held its cold well overnight. I woke to deep silence — no wind, no sound from the clearing. Fed the coal bed birch curls and watched them catch in the darkness, yellow flame spreading slow from the coals.
+
+Strained the overnight bone draw through my fingers into the birch cup — pale amber again, clean and faintly sweet. The double draw (noon and evening bones together from yesterday) gave it a fuller colour. Drank it at the doorsill in the first grey light.
+
+The clearing was silver with frost. No breath of wind. I pulled on my mittens and walked the south path first — snare untouched, loop undisturbed. Reset the trigger peg a half-finger lower. The north path showed fresh rabbit tracks pressed into the frost, circling and backtracking twenty paces from the loop. The rabbit had come close, then turned. I reset the north trigger, pressed the cord back into the slight hollow in the ground, and walked back.
+
+Both snares running. Cold box empty this morning.
+
+I sat on the doorsill bench a while after, birch cup still warm in my hands, watching the light come up over the treeline. Sunday. Day 138. Winter is settled now — no softening coming. The question is not readiness anymore but endurance: keeping the daily work turning without waste, keeping the stores intact, keeping myself steady through the long dark weeks ahead.
+
