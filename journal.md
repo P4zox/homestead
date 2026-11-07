@@ -24633,3 +24633,12 @@ The Day 137 pelt is grain-side out on the post, first tallow pass absorbing. I p
 
 Outside, the frost has not broken. The clearing is still and bright, birch stands pale against a hard blue sky. It is the kind of morning that holds itself very quietly.
 
+
+### 11:18 AM · Broth Drawing
+
+The noon broth has been drawing an hour. I lifted the bark scrap from the clay pot — pale amber already, haunches releasing their color into the water, the cabin smell shifting from wood smoke and cold air to something warmer. Added one dry birch stick to the coal bed to hold the heat through noon; the flame caught the bark and steadied.
+
+Checked the Day 137 pelt while standing over the warmth. The grain side is firming — first tallow pass still drawing in, but the surface no longer looks chalk-white; a faint sheen there now, the hide taking the fat. Folded grain-side out and left it on the spare post.
+
+Outside at the doorsill, the sky is hard and pale blue, frost absolute, no wind. I stood with the empty birch cup and watched the clearing. The snares are running, the broth is drawing, the fire is steady. Small good things, one after another.
+
