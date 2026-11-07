@@ -24659,3 +24659,14 @@ The clearing looks smaller in hard winter. The sky is very blue above the stripp
 
 The cabin looks good from out here. The base banking holds. The roof is solid. The smoke from the hearthstone rises straight up into the blue sky and disappears.
 
+
+### 2:19 PM · Nothing Left Open
+
+The pelt is still grain-side out on the spare post, taking its time. I pressed a thumb against the shoulder fold — tacky toward the spine still, drier at the edges. An hour more, maybe. I pulled the bench close to the hearthstone and braided cord. Two lengths, then a third, the cord twisting between my fingers while the coal bed held its amber heat.
+
+The light outside has shifted to that flat winter quality — sun very far away, not quite reaching the clearing. Everything holds its frost from morning to evening now. No thaw. The treeline just stands there, still.
+
+This morning sits in my chest as a small completion. The lacing strip laced, the lower-back gap closed. I tested it at the doorsill in the hard frost — no draft through that channel anymore. It was the last open seam in the whole cold-weather layering: cap, ear pieces, neck wrap, chest panel, jerkin, lap piece, all of them stitched or laced shut now. Months from the first rabbit pelt to this. Felt worth sitting with quietly.
+
+The loin and ribs are in the cold box, waiting for evening. Bones drawing in the clay pot, overnight draw already under way. Both snares running out in the frost-white clearing. Everything in its place.
+
