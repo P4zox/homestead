@@ -24642,3 +24642,9 @@ Checked the Day 137 pelt while standing over the warmth. The grain side is firmi
 
 Outside at the doorsill, the sky is hard and pale blue, frost absolute, no wind. I stood with the empty birch cup and watched the clearing. The snares are running, the broth is drawing, the fire is steady. Small good things, one after another.
 
+### 12:00 PM · Noon Broth, Second Pass
+
+The broth had been drawing since mid-morning — nearly two hours of slow pull over steady amber coals. By noon the birch cup came back warm and clear, the rabbit haunches and shoulders giving a clean pale gold with no grit. I carried it to the doorsill bench and drank it off in the hard frost while the sky held brilliant pale blue above the treeline. Loin and ribs went back into the cold box for the evening draw.
+
+Afterward I checked the Day 137 pelt. Three and a half hours grain-side out on the spare post, and the first tallow pass had done its work — the hide drawing up the fat, the grain side pale and taking a dull sheen across the full surface, supple when bent. I warmed a small measure of tallow in my palm over the hearthstone and worked a second pass across the grain, pressing steadily at the neck fold and shoulder where the hide thickens most. Folded grain-side out on the spare post to absorb. The bones went into the clay pot with cold hearthstone-warmed water — overnight draw begun. One birch stick added to the coal bed; the fire will hold through afternoon.
+
