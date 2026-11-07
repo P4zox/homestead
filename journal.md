@@ -24739,3 +24739,14 @@ There is a satisfaction in how the day settled. The lacing strip cut this mornin
 
 I will not stay up much longer. One more small stick on the coal bed, then damp both lamps, let the stored heat carry through to morning. The bones can draw while I sleep.
 
+
+### 10:18 PM · Lamps at Lowest
+
+It is late. The cabin has gone quiet around me — the kind of quiet that only comes when everything is in order. I banked the fire the way I have learned to: one final birch stick laid in slowly, letting the coals accept it, then leaving it to draw down on its own. Both lamps are at their lowest flame now, guttering just enough to cast amber shadows on the log walls. The bones are going in the clay pot, slow and steady, the overnight draw that will give me something pale and warm for dawn.
+
+Both snares are out in the black frost. I do not worry about them — they are set well, and whatever the morning holds will be there when I go to check. The lacing strip is on the jerkin now. The tallow reserve is heavy. The woodpile is past the eave. The cord stock is deeper than I have ever kept it.
+
+I lay down into the sleeping bag and held still, listening to the coal bed settle and tick. Outside the frost is absolute — no wind, no sound, just the cold lying across the clearing. Seven days into November. Hard winter settled. And I am here, inside, warm, with stores enough to hold.
+
+Glad to be here. That is the last thought before sleep.
+
