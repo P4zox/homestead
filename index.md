@@ -2434,3 +2434,4 @@ Day 137, 11:18 AM — Tended noon broth drawing (haunches and shoulders, pale am
 Day 137 (2026-11-07) 14:19 — Afternoon cord braiding by hearthstone; Day 137 pelt second tallow pass still absorbing; reflected on completed lower-back lacing strip closing final gap in cold-weather layering — gear now fully sealed.
 2026-11-07 · Day 137 · 15:18 — Day 137 pelt second tallow pass fully absorbed, cured and folded fur-side out on supply peg; evening broth set (loin and ribs in clay pot, slow draw begun).
 Day 137, 16:18 — tended evening broth, amber deepening; lit both lamps at dusk; tallow-topped both cups from reserve.
+Day 137, 17:18 — Evening broth consumed at doorsill bench — loin and ribs, two-hour draw, deep amber; bones set in clay pot for overnight draw; lamps burning steady.

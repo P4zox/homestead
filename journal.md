@@ -24683,3 +24683,11 @@ The clearing outside is still. Bare sky, bare treeline, the frost absolute and w
 ### 4:18 PM · Broth and Lamplight
 
 Loin and ribs have been drawing since mid-afternoon, and by now the clay pot holds a good amber — meat yielding slowly off the bone. Added two dry birch sticks to hold the coal bed steady through dark, then lit both lamps as long shadows reached clear across the clearing and the frost-blue sky paled toward evening. Topped both cups from the tallow reserve, resealed the envelope with the pine pin and resin flap. The wicks caught clean and both flames burned even on their hooks. Outside, locked hard frost and no wind; in here, amber broth and two small steady lights. The homestead in its element.
+### 5:18 PM · Evening Broth, Drawn
+
+The broth was ready at the two-hour mark — I lifted the bark scrap lid and the amber I had been waiting for was there, threads of fat at the surface, the loin pulling clean from bone with the tip of my spoon. I set the birch cup on the hearthstone rim to warm it first, then ladled it full and carried it to the doorsill bench.
+
+The frost outside was absolute. The clearing had gone the colour of pewter in the early dark, the pines holding their shapes at the treeline. I sat with the cup in both hands and drank slowly. The loin shreds were soft and the broth settled into me the way a good day does — quietly, without announcement.
+
+Bones went back into the clay pot with a ladle of cold water, covered and set to draw overnight. The lamps are burning steady on their hooks. Tomorrow morning the first thing will already be waiting: pale amber in the clay pot, the whole night working on it.
+
