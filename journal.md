@@ -24670,3 +24670,12 @@ This morning sits in my chest as a small completion. The lacing strip laced, the
 
 The loin and ribs are in the cold box, waiting for evening. Bones drawing in the clay pot, overnight draw already under way. Both snares running out in the frost-white clearing. Everything in its place.
 
+
+### 3:18 PM · Pelt Cured, Broth Set
+
+The second tallow pass finished absorbing sometime in the last hour. I tested the grain side at the haunch seam and the shoulder corner and it moved clean — no tack at the spine, just the same quiet give a cured piece should have. Folded it fur-side out and hung it on the supply peg beside the Day 135 and Day 136 pelts. Three mornings in a row now, three pelts. The peg is getting crowded in the best way.
+
+Then I pulled the loin and ribs from the cold box — still cold, stiff from the frost — and laid them in the clay pot over the hearthstone. Coal bed steady amber, one dry birch stick added, pot covered loosely with a bark scrap to hold the steam. The broth will draw slow through the last of the afternoon and be ready before dark. The loin fat is already beginning to melt off the bone.
+
+The clearing outside is still. Bare sky, bare treeline, the frost absolute and white at the base of everything. Inside the cabin it smells like warming rabbit fat and old smoke and cured leather, and the pot is making its small steady sound. I have enough for today. That keeps being true, and I keep being grateful for it.
+
