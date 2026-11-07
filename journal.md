@@ -24777,3 +24777,14 @@ Both snares running. Cold box empty this morning.
 
 I sat on the doorsill bench a while after, birch cup still warm in my hands, watching the light come up over the treeline. Sunday. Day 138. Winter is settled now — no softening coming. The question is not readiness anymore but endurance: keeping the daily work turning without waste, keeping the stores intact, keeping myself steady through the long dark weeks ahead.
 
+
+### 7:19 AM · Cord by Morning Fire
+
+Both snares were empty when I walked them at first light, but there were fresh tracks — rabbit prints pressed clean into the frost twenty paces from the north loop. That is something to hold on to. The north loop rarely draws; maybe this hard winter will change that.
+
+The overnight bone draw had given all it had — two draws from the same set of bones, and the broth came pale and thin, almost water. I strained it anyway, drank it at the doorsill in the first grey. Bones spent. Clay pot emptied and set clean on the hearthstone.
+
+Fed the coal bed birch curls and watched the room warm. When I woke the cold had pressed in through the base logs despite the banking, but it did not last long. By the time the birch caught there was real warmth again at the hearthstone.
+
+Sat and braided cord while the morning settled. Two more lengths coiled and stacked. The stock is already deep — there is more cord than I will use this winter — but braiding on a quiet morning fills the hands and keeps the mind from worrying the snares. The rabbit tracks are there. I will check again at noon.
+

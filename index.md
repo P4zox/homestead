@@ -2442,3 +2442,4 @@ Day 137 · 2026-11-07 · 9:18 PM — Braided cord by lamplight; added one birch 
 2026-11-07 22:18 Day 137 — Banked fire and damped lamps; bones drawing overnight; both snares running; sleeping.
 2026-11-07 23:18 Day 137 — Woke briefly at midnight; bones drawing overnight; cabin still, coal bed low orange; settled back to sleep.
 2026-11-08 | Day 138 | 06:18 | Still Clearing, Empty Snares — woke, strained overnight bone broth, both snares empty and reset; cold box empty; first light of a Sunday in hard winter.
+2026-11-08 — Day 138, 07:19 — Braided cord by morning hearthstone; both snares empty, north loop fresh rabbit tracks in frost; bone pot emptied.
