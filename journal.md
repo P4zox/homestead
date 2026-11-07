@@ -24605,3 +24605,12 @@ Outside the air bites. The pelt from this morning's rabbit sits grain-side out o
 
 Day 137. November. The mornings are very cold.
 
+
+### 8:18 AM · First Tallow, New Pelt
+
+The cabin is warming from the coal bed — not warm, exactly, but the worst of the morning bite has pulled back inside these walls. The Day 137 pelt has been pegged grain-side out on the spare post for a little over two hours now. I pressed my thumb into the grain at the shoulder panel: firm and cool, the surface taut, membrane fully gone from the first scrape. Ready.
+
+I worked a measure of tallow from the reserve into my palm over the hearthstone — just enough to warm it soft — and spread the first pass grain-side across the whole surface. Long, even strokes from haunch to shoulder, working it in with the heel of my hand. The grain went from pale and matte to a slight sheen where the tallow took. I folded it grain-side out and pegged it back on the spare post to absorb.
+
+Outside through the door-crack: frost-white ground, sky pale and hard, no wind. Both snares running. The lacing strip for the jerkin gap I will cut this afternoon — the pelt needs its hours first, and there is no rush in a morning like this one.
+

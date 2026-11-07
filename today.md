@@ -1,3 +1,4 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — Woke; fed coal bed birch curls; strained overnight rabbit bone broth from clay pot — pale amber, consumed at doorsill bench in first grey light; south snare catch (small grey rabbit), jointed at hearthstone — belly fat trimmed for tallow render, haunches and shoulders dock-wrapped cold box, loin and ribs cold box; pelt first-scraped grain-side out on spare post; north snare empty, reset; both snares running.
 07:00 — Rendered rabbit belly fat from morning catch — amber-clear, added to reserve envelope, resealed with pine pin and resin flap; pelt firming grain-side out on spare post for first tallow pass; lacing strip cut pending.
+08:18 — Day 137 pelt first tallow pass applied grain-side — tallow warmed in palm over hearthstone, spread grain-side across full surface; folded grain-side out on spare post absorbing; lacing strip cut deferred to afternoon.
