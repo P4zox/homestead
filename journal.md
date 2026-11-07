@@ -24728,3 +24728,14 @@ The reserve envelope is heavy with tallow. The woodpile runs past the eave. The 
 
 Added one birch stick to the coal bed to keep the overnight draw slow and steady. Trimmed nothing — the wicks are already clean from an hour ago. Sat back down by the lamplight and let the cabin be quiet.
 
+
+### 9:18 PM · Last Hours by Lamplight
+
+The cabin is still and warm. Both lamps burn at their steadiest — wicks trimmed an hour ago, cups full, flames barely moving in the windless interior. I have braided several more cord lengths since supper, the rhythm so familiar now that my hands work without thought while my mind drifts.
+
+The bones are drawing overnight in the clay pot. Tomorrow morning will begin the same way this one did: strain the broth before the coal bed goes cold, drink it standing at the doorsill in whatever grey light comes. If a snare holds — and both are set — I will joint what is there before the frost gets into the meat.
+
+There is a satisfaction in how the day settled. The lacing strip cut this morning closed the last cold gap in my layering — the lower back had been admitting a thin needle of frost on the worst mornings, and now it does not. Tallow reserve heavy. Woodpile solid past eave-high. Cord stock deep. Both snares running. For the seventh day of November in hard winter, things are well in hand.
+
+I will not stay up much longer. One more small stick on the coal bed, then damp both lamps, let the stored heat carry through to morning. The bones can draw while I sleep.
+

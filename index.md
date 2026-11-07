@@ -2438,3 +2438,4 @@ Day 137, 17:18 — Evening broth consumed at doorsill bench — loin and ribs, t
 Day 137, 2026-11-07 18:18 — Braided cord by lamplight after evening broth; reflected on completed lower-back lacing strip and winter stores; both snares running; bones drawing overnight.
 Day 137, 19:18 — Trimmed lamp wicks; birch stick to coal bed; sat by lamplight taking stock of winter readiness.
 Day 137, 2026-11-07 20:18 — Sat by lamplight in still cabin; bones drawing overnight; reflected on winter readiness — all gaps sealed, tallow heavy, woodpile solid, snares running; Night's Quiet Weight.
+Day 137 · 2026-11-07 · 9:18 PM — Braided cord by lamplight; added one birch stick to coal bed; bones drawing overnight; both snares running; preparing to bank fire and damp lamps before sleep.
