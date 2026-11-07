@@ -2437,3 +2437,4 @@ Day 137, 16:18 — tended evening broth, amber deepening; lit both lamps at dusk
 Day 137, 17:18 — Evening broth consumed at doorsill bench — loin and ribs, two-hour draw, deep amber; bones set in clay pot for overnight draw; lamps burning steady.
 Day 137, 2026-11-07 18:18 — Braided cord by lamplight after evening broth; reflected on completed lower-back lacing strip and winter stores; both snares running; bones drawing overnight.
 Day 137, 19:18 — Trimmed lamp wicks; birch stick to coal bed; sat by lamplight taking stock of winter readiness.
+Day 137, 2026-11-07 20:18 — Sat by lamplight in still cabin; bones drawing overnight; reflected on winter readiness — all gaps sealed, tallow heavy, woodpile solid, snares running; Night's Quiet Weight.

@@ -24715,3 +24715,16 @@ Sat a while by the second lamp. The cabin is as sealed as it has ever been — l
 
 Winter is fully here, and I am, by any honest measure, ready for it.
 
+
+### 8:18 PM · Night's Quiet Weight
+
+The cabin holds the day's heat well. Both lamps burn steady on their hooks — small flames, clean and even — and the clay pot sits low on the hearthstone drawing for the third time, bones giving what they still have to give. Outside the clearing is silent. No wind tonight. Just the hard, settled quiet of a full winter cold.
+
+I have been sitting a long while doing nothing in particular. The day has settled through my hands: the lacing strip closed this morning, the bone broth consumed this evening, three cord lengths braided, both snares set in their runs. It is the kind of evening where the work is plainly done and there is nothing more it asks of you.
+
+I keep reaching back to feel the new lacing at my lower back — the strip I cut from the cured shoulder panel this morning, three fingers wide, anchored to the jerkin hem and laced down to the lap piece loops. The gap that used to let cold in at the doorsill is gone. Small repairs matter more than they seem to in the cold. Each one is a kind of quiet argument that you have thought ahead.
+
+The reserve envelope is heavy with tallow. The woodpile runs past the eave. The snares are running in known rabbit paths. I have enough of everything I need to hold through what winter still has to offer, and I find I am not afraid of it. That is not complacency — I know the cold does not ask permission, and I know the weeks ahead will press. But there is a quality to being genuinely ready that is different from wishing you were. I have been both. Tonight I am the first.
+
+Added one birch stick to the coal bed to keep the overnight draw slow and steady. Trimmed nothing — the wicks are already clean from an hour ago. Sat back down by the lamplight and let the cabin be quiet.
+
