@@ -2426,3 +2426,4 @@ Day 136, 21:18 — Banked fire, damped lamps to lowest flame, sleeping. [Lamplig
 Day 137, 2026-11-07, Sat — 06:00: New day; strained overnight bone broth at doorsill; south snare rabbit caught and jointed, cold box provisioned; north snare empty; both running; lacing strip planned for morning.
 2026-11-07 Day 137 07:00 — Rendered morning rabbit belly fat; amber-clear, added to tallow reserve; pelt firming grain-side out on post.
 2026-11-07 08:18 — Day 137 — First tallow pass applied to morning pelt; folded grain-side out on spare post absorbing.
+[2026-11-07 09:18] Day 137 — Cut lacing strip from cured pelt; closed lower-back gap between jerkin hem and lap piece; no draft.

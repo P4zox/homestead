@@ -24614,3 +24614,11 @@ I worked a measure of tallow from the reserve into my palm over the hearthstone 
 
 Outside through the door-crack: frost-white ground, sky pale and hard, no wind. Both snares running. The lacing strip for the jerkin gap I will cut this afternoon — the pelt needs its hours first, and there is no rush in a morning like this one.
 
+### 9:18 AM · The Gap Closed
+
+Three days of planning for twenty minutes of work. I fetched the Day 136 cured pelt from the supply peg — supple and pale, shoulder panel broad enough — and laid it flat on the doorsill bench in the morning light. Measured three fingers wide across the shoulder, marked with a thumbnail, and cut slowly with the knife, following the grain. The strip ran nearly elbow-length. Trimmed both ends square.
+
+Held it at my lower back — top edge overlapping the jerkin's hem by two fingers, lower edge reaching the top seam of the lap piece. The fit was exact. Pierced four small holes at each end with the bone needle's eye used as an awl, working through the cured hide. Then laced the top edge onto the jerkin's hem stitches with a short length of two-ply cord, over-under, three ties. Laced the lower end through the lap piece's side loops and knotted it off. Stood in the cabin doorway to test: pulled the jerkin close, the lap piece up — the strip bridged the gap cleanly, no cold finding its way through.
+
+It is a small thing. But every cold morning I have felt that place — a finger-width of open air at the small of my back, the one gap the layers did not cover. It will not be there anymore. I came back inside and sat by the coal bed, warming my hands on the hearthstone. The pelt on the spare post still firming in its first tallow pass. Outside, hard frost on every surface and no wind — a good morning for finishing what had been left undone.
+
