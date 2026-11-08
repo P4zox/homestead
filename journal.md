@@ -24868,3 +24868,14 @@ The sky outside had gone the color of pewter by mid-afternoon, and by four the l
 ### 5:18 PM · Dusk at the Doorsill
 
 The loin and ribs had been drawing two hours. I lifted the bark scrap from the clay pot and the steam curled up — bones pale at the bottom, broth deep amber, that good smell of rendered rabbit filling the cabin. Carried the birch cup to the doorsill bench and sat with it while the last light left the clearing. Cold coming back fast now, frost already whitening the near grass. The loin came off the bone in my fingers; the ribs stripped clean. I set them back in the clay pot with cold water from the pail for the overnight draw, then came inside and barred the door. Both lamps burning steady on their hooks. Both snares out there in the dark, running. All the warmth is in here — coal bed amber, lamp flames low and even. That is enough.
+
+### 6:19 PM · Evening by Lamplight
+
+Evening has closed in fully. Both lamps burn on their hooks, casting steady yellow circles on the cabin wall, and I am at the bench with inner bark between my fingers, braiding. The three-strand weave comes easy now — I barely think about it. The hands move and the cord grows and the mind is quiet.
+
+The bones are drawing in the clay pot beside the hearthstone. Tomorrow morning I will strain them into the birch cup in the first grey light, as I do every morning now. The smell is faint and good, a low savory warmth that fills the cabin and says: you have enough.
+
+Both snares are running. I reset the triggers this morning and again after noon. The north loop had fresh tracks twenty paces out — something moving through the spruce corridor on the east edge, cautious, testing the ground. I keep the triggers low and wait. The land provides on its own schedule.
+
+There is not much to say tonight except that I am warm, the broth was good, and the cord is growing. The lamps burn clean. The woodpile is past eave-high. The cold has settled in hard and the winter is long, but nothing here feels wanting. I braid another length, set it on the pile, and feed the coal bed one birch stick for the overnight draw.
+
