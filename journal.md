@@ -24833,3 +24833,10 @@ The cabin is quiet. Light comes in flat and grey through the gable, frost on eve
 The haunches and shoulders have been drawing for an hour over the steady coal bed. I lifted the bark scrap lid at noon and found the broth a clean pale amber — the kind that tells you the morning work was good. Ladled it into the birch cup and took it to the doorsill bench. The sky overhead was open and clear, the frost absolute and unmoving. Cold is settled in now, the full weight of it, but inside the layering I am warm enough. I drained the cup slowly.
 
 After, I set the bones into the clay pot with cold water — tonight's overnight draw already begun. Loin and ribs tucked back into the cold box for the evening. The Day 138 pelt is still absorbing its first tallow pass grain-side out on the spare post; a good sheen forming at the edges. Second pass will go on this afternoon.
+
+### 1:18 PM · Second Tallow, Quiet Afternoon
+
+The pelt had been folded grain-side out on the spare post since eleven this morning. I checked it at the shoulder corner and along the spine — firm, taking sheen, the first pass worked in clean. Two hours is usually enough when the coal bed holds and the cabin stays warm. I warmed a small measure of tallow from the reserve against my palm, then worked it into the grain surface methodically: spine first, then out to the edges, heel of hand pressing slow and even. The whole surface took it evenly. Folded it grain-side out again on the spare post to absorb through the afternoon.
+
+The loin and ribs are still in the cold box waiting for the evening broth. The bones have been drawing since noon. Outside the clearing is bright under a hard frost sky — that particular winter light that sharpens every edge, every bare branch precise against pale blue. I sat at the doorsill bench for a moment after and just looked out. The snares are running. The woodpile is solid. The stores are deep. It is strange and good to feel this settled in the middle of hard winter.
+
