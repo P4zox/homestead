@@ -24788,3 +24788,14 @@ Fed the coal bed birch curls and watched the room warm. When I woke the cold had
 
 Sat and braided cord while the morning settled. Two more lengths coiled and stacked. The stock is already deep — there is more cord than I will use this winter — but braiding on a quiet morning fills the hands and keeps the mind from worrying the snares. The rabbit tracks are there. I will check again at noon.
 
+
+### 8:18 AM · Frost Walk, Firewood
+
+The cabin held its warmth through the night, coal bed deep and slow. With the bone pot emptied and cord braided, there was nothing pressing at the hearthstone — so I pulled on the full layering and stepped outside into the hard frost.
+
+The clearing was still and sharp. My breath came out in white gusts. The south treeline was fifty paces off, birch trunks pale against the grey morning sky. I made my way to the duff and scanned for sound dry material — bark loose from trunks, branches brought down by the last hard freeze. Found two good birch lengths and a dry pine bough, picked them up, carried them back across the frost-crusted ground.
+
+Under the eave I laid them in: bark-side up, ends flush. The woodpile needs no dramatic effort now, just steady tending — a few pieces each day so there is always more than I need. The lacing strip I finished yesterday sits in the back of my mind as proof that the system works. Something patched, something sealed, something added to the pile. That is the rhythm.
+
+Both snares are running. The cold box is empty, but it will not stay that way. The tracks this morning near the north loop — twenty paces out, fresh and sharp in the frost — say a rabbit has been circling. I am patient.
+
