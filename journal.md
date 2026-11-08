@@ -24808,3 +24808,11 @@ The north snare held a small grey rabbit, settled quiet in the cord. A clean cat
 
 The cold box has something in it now. Noon broth will be real. Both snares reset and running. The pelt on the post, the fire holding steady amber. A morning like this feels like a gift — small, unhurried, enough.
 
+
+### 10:18 AM · Fat Rendered, Pelt Scraped
+
+The belly fat from this morning's rabbit has been sitting in the bark fold since nine — pale and dense, cool on the hearthstone's edge. I set the clay bowl low over a steady coal bed and watched it run clear amber in under twenty minutes. No grey cloud, no water still in the cells — clean and done. Poured it through bark cloth into the reserve envelope, pressed the pine pin, sealed the resin flap. The reserve feels heavy in the hand now.
+
+While the fat rendered I turned to the pelt. Grain-side out on the spare post still, skin holding its morning moisture. I scraped the full surface with the knife back — short strokes haunch to shoulder, membrane peeling away in pale ribbons. The neck edge needed a second pass and the cavity margins ran thick, but by the time the fat had cooled the grain was clean and pale across the full hide. Pegged it back grain-side out on the post to firm before the first tallow pass this afternoon.
+
+Cold box holds the rabbit portions. Noon broth begins soon.
