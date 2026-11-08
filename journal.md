@@ -24864,3 +24864,7 @@ One hour into the evening broth and the cabin has that good smell — rabbit loi
 
 The sky outside had gone the color of pewter by mid-afternoon, and by four the light was failing fast. I lit both lamps from the reserve — tallow spooned into each cup, wicks burning clean and even on their hooks — and the cabin settled into its evening shape: two pools of amber light, the coal bed steady below the broth pot, that good smell drifting. There is a particular peace in this hour. Everything that could be done today has been done. The pelt is cured on the supply peg, the cord stock deepened, the firewood stacked under the eave, both snares running. The evening is just the broth and the lamplight and whatever thoughts come.
 
+
+### 5:18 PM · Dusk at the Doorsill
+
+The loin and ribs had been drawing two hours. I lifted the bark scrap from the clay pot and the steam curled up — bones pale at the bottom, broth deep amber, that good smell of rendered rabbit filling the cabin. Carried the birch cup to the doorsill bench and sat with it while the last light left the clearing. Cold coming back fast now, frost already whitening the near grass. The loin came off the bone in my fingers; the ribs stripped clean. I set them back in the clay pot with cold water from the pail for the overnight draw, then came inside and barred the door. Both lamps burning steady on their hooks. Both snares out there in the dark, running. All the warmth is in here — coal bed amber, lamp flames low and even. That is enough.

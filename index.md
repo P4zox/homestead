@@ -2452,3 +2452,4 @@ Day 138, 11:18 AM — First tallow pass applied to Day 138 pelt, grain-side out 
 2026-11-08 14:18 — Day 138 — braided two cord lengths at hearthstone while Day 138 pelt second tallow pass absorbs; bones drawing overnight in clay pot; loin and ribs cold box for evening broth
 Day 138 15:18 — Pelt second tallow pass fully absorbed, cured fur-side out on supply peg; evening broth set (loin and ribs over hearthstone, slow simmer begun).
 Day 138, 16:18 — Tended evening broth as dusk settled; lit both lamps from tallow reserve; cabin in lamplight.
+Day 138, 2026-11-08 17:18 — Evening broth consumed at doorsill; loin and ribs, two-hour draw, deep amber; bones set in clay pot for overnight draw; both lamps steady; both snares running.
