@@ -24888,3 +24888,14 @@ Outside, everything is settled for the night. Both snares are running. Bones dra
 
 I sit a while at the hearthstone bench, hands empty. This is the best kind of winter evening — when there is nothing left undone and I can simply notice how well-fitted things feel. The cabin holds the heat. The lamps do their work. The quiet inside is a made quiet, different from the cold silence beyond the walls. I sit with it.
 
+
+### 8:18 PM · Evening Reckoning
+
+The cabin is quiet. Both lamp wicks burn steady on their hooks and the coal bed holds a low amber pulse. Bones draw overnight in the clay pot. Both snares are out in the frost doing their quiet work.
+
+I find myself going through the supply shelf by lamplight — running a hand along the bark envelopes, lifting each one, putting it back. The tallow reserve is heavy. Cord stock is deep, more than I could use in a month. The acorn flour is long gone, the dried mushrooms spent, the rose hips and rowan berries and hawthorn haws all used through the first weeks of cold — but the snares have been generous in a way I had not quite expected. Fourteen consecutive days of rabbit now, the routine worn smooth: catch, joint, render, cure. The pelt cured today is on the supply peg. Tomorrow there will likely be another.
+
+What strikes me tonight is how the winter has become manageable. Early on, before the fish runs ended and the stream iced, there was a tightness to the days — always one more preparation undone, one more gap to close. That feeling is quieter now. The woodpile is past the eave. The base logs are banked on all four sides. The layering is sealed all the way down to the lower-back gap closed yesterday. Everything I could think to do, I have done.
+
+I do not know what February will ask. But tonight the cabin holds warmth without effort, and the lamps burn without my attention, and the bones draw slowly in the dark. There is a peace in that — not complacency, just the particular stillness of a thing that is, for now, sufficient. I will sit here a little longer, then bank the fire and sleep.
+
