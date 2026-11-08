@@ -2446,3 +2446,4 @@ Day 137 · 2026-11-07 · 9:18 PM — Braided cord by lamplight; added one birch 
 2026-11-08 Day 138 08:18 — firewood run to south treeline; two dry birch lengths and one dry pine bough added under eave; cold box empty, both snares running, north loop has fresh rabbit tracks
 2026-11-08 Day 138 09:18 — North loop snare catch: small grey rabbit; jointed at hearthstone; cold box loaded for noon broth.
 2026-11-08 | Day 138 10:18 | Belly fat rendered amber-clear into tallow reserve; Day 138 pelt first-scraped grain-side clean, firming on post.
+Day 138, 11:18 AM — First tallow pass applied to Day 138 pelt, grain-side out absorbing on spare post; haunches and shoulders set in clay pot over hearthstone for noon broth.

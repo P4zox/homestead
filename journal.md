@@ -24816,3 +24816,14 @@ The belly fat from this morning's rabbit has been sitting in the bark fold since
 While the fat rendered I turned to the pelt. Grain-side out on the spare post still, skin holding its morning moisture. I scraped the full surface with the knife back — short strokes haunch to shoulder, membrane peeling away in pale ribbons. The neck edge needed a second pass and the cavity margins ran thick, but by the time the fat had cooled the grain was clean and pale across the full hide. Pegged it back grain-side out on the post to firm before the first tallow pass this afternoon.
 
 Cold box holds the rabbit portions. Noon broth begins soon.
+
+### 11:18 AM · First Pass and Noon Set
+
+The pelt has been firming on the spare post since ten — grain side out, edges drying pale while the center still held a trace of damp. After an hour I pressed my thumb to the shoulder corner and found it smooth, not tacky: ready.
+
+I warmed a small pinch of tallow in my palm over the hearthstone until it softened to oil, then spread it across the full grain surface in long even strokes, working into the haunch seam and up toward the shoulder. The hide accepted it steadily, no dry patches skipping the tallow. Folded grain-side out on the spare post to absorb.
+
+Then I pulled the haunches and shoulders from the cold box — still firm and cold, good smell — and set them in the clay pot over the hearthstone. Added one dry birch stick to the coal bed, covered the pot loosely with a bark scrap, and let the slow draw begin. It will be ready by noon.
+
+The cabin is quiet. Light comes in flat and grey through the gable, frost on every log end. A raven called once from the pines and then went silent. Both snares running. The pelt is absorbing its first pass. Noon broth underway.
+
