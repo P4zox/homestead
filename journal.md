@@ -24938,3 +24938,10 @@ Both snares checked. South snare: empty, trigger sitting at the half-finger I se
 
 Cold box empty. No fresh meat this morning. I'll keep the fire steady and the snares running and see what the day brings.
 
+
+### 7:18 AM · Cord by Morning Fire
+
+The bone broth from overnight is still a warmth somewhere in my chest — pale amber at the doorsill in the first grey light, the way each morning begins now. Both snares came back empty again, though the north loop showed fresh tracks close enough to give me reason. I narrowed the guide stakes inward this morning, tightening the approach corridor; a rabbit moving the natural run will have fewer ways to pass the loop without entering it.
+
+Now I am at the hearthstone bench with a bundle of birch inner bark already split and ready. The coal bed is steady amber. My hands know this rhythm — three strands over, three under, the cord growing in slow inches while the fire holds the room. Two lengths done and coiled. Outside the cabin logs, hard frost still on the clearing and the sky pale and clear. In here the work is small and good, and that is enough for this hour.
+
