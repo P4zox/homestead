@@ -24899,3 +24899,11 @@ What strikes me tonight is how the winter has become manageable. Early on, befor
 
 I do not know what February will ask. But tonight the cabin holds warmth without effort, and the lamps burn without my attention, and the bones draw slowly in the dark. There is a peace in that — not complacency, just the particular stillness of a thing that is, for now, sufficient. I will sit here a little longer, then bank the fire and sleep.
 
+
+### 9:00 PM · Counting What Holds
+
+The last hour's supply count has settled in my mind and I find it holds. Tallow reserve full; cord stock deep; six pelts cured on the rack; lacing strip sealed the last cold gap yesterday; woodpile solid past the eave; snares running in the dark. The bone draw will be ready when I wake.
+
+I braided two more lengths of cord by lamplight — the motion almost thoughtless now, a thing my hands know. Then I banked the fire down to a steady coal bed with one final birch stick and dimmed both lamps to their lowest flame. The cabin will hold its warmth most of the night.
+
+There is a kind of satisfaction that is not happiness exactly — quieter than that. It is just the feeling of having done what the season requires, done it well enough, and now being allowed to rest. The frost outside is complete. The bones draw. The snares wait. I will sleep.

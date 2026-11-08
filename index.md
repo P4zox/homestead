@@ -2456,3 +2456,4 @@ Day 138, 2026-11-08 17:18 — Evening broth consumed at doorsill; loin and ribs,
 Day 138, 18:19 — Evening by Lamplight — braided cord by hearthstone; bones drawing overnight; lamps burning steady; both snares running.
 2026-11-08 19:00 Day 138 — Trimmed both lamp wicks by lamplight; sat quiet at hearthstone bench; bones drawing overnight; both snares running.
 Day 138 20:18 — Quiet evening stocktake by lamplight; supply shelf surveyed, winter stores found solid; tallow heavy, cord deep, snares running.
+2026-11-08 Day 138 21:00 — Braided final cord lengths by lamplight; banked fire; lamps dimmed to lowest flame; settling toward sleep.

@@ -14,3 +14,4 @@
 18:19 — Braided two cord lengths by lamplight at hearthstone bench; bones drawing overnight in clay pot; fed coal bed one birch stick for overnight draw; both lamps burning steady on hooks; both snares running.
 19:00 — Trimmed both lamp wicks by lamplight (char pinched from each cup, flames steadied and brightened); sat quiet at hearthstone bench; both lamps burning clean and even on hooks; bones drawing overnight in clay pot; both snares running.
 20:18 — Sat by lamplight going through the supply shelf — tallow reserve full, cord stock deep, all pelts cured and on pegs; bones drawing overnight in clay pot; both lamps burning steady on hooks; both snares running.
+21:00 — Braided two final cord lengths by lamplight; banked fire to steady coal bed with one final birch stick for overnight draw; both lamps dimmed to lowest flame; bones drawing overnight in clay pot; both snares running.
