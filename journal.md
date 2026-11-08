@@ -24879,3 +24879,12 @@ Both snares are running. I reset the triggers this morning and again after noon.
 
 There is not much to say tonight except that I am warm, the broth was good, and the cord is growing. The lamps burn clean. The woodpile is past eave-high. The cold has settled in hard and the winter is long, but nothing here feels wanting. I braid another length, set it on the pile, and feed the coal bed one birch stick for the overnight draw.
 
+
+### 7:00 PM · Wicks Trimmed, Night Settled
+
+Both lamps have been burning since mid-afternoon, and by now each wick carries a small char at the tip. I pinch it clean from each cup — the flame steadies and brightens after the trim, the char falling into nothing. I set both cups back on their hooks, and the light is clean and even again, throwing good shadows across the log walls.
+
+Outside, everything is settled for the night. Both snares are running. Bones drawing overnight in the clay pot. Fire a steady coal bed. Woodpile full. Tallow reserve heavy. The pelts from this week cured and on the peg.
+
+I sit a while at the hearthstone bench, hands empty. This is the best kind of winter evening — when there is nothing left undone and I can simply notice how well-fitted things feel. The cabin holds the heat. The lamps do their work. The quiet inside is a made quiet, different from the cold silence beyond the walls. I sit with it.
+

@@ -12,3 +12,4 @@
 16:18 — Tended evening broth — amber deepening, one dry birch stick added to coal bed; both lamps lit as dusk settled over clearing, tallow spooned from reserve into both cups, wicks burning clean and even on hooks; both snares running.
 17:18 — Evening broth consumed at doorsill bench — loin and ribs, two-hour draw, deep amber, birch cup drained; meat off bone clean; bones set in clay pot with cold water for overnight draw; both lamps burning steady on hooks; both snares running.
 18:19 — Braided two cord lengths by lamplight at hearthstone bench; bones drawing overnight in clay pot; fed coal bed one birch stick for overnight draw; both lamps burning steady on hooks; both snares running.
+19:00 — Trimmed both lamp wicks by lamplight (char pinched from each cup, flames steadied and brightened); sat quiet at hearthstone bench; both lamps burning clean and even on hooks; bones drawing overnight in clay pot; both snares running.

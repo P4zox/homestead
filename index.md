@@ -2454,3 +2454,4 @@ Day 138 15:18 — Pelt second tallow pass fully absorbed, cured fur-side out on 
 Day 138, 16:18 — Tended evening broth as dusk settled; lit both lamps from tallow reserve; cabin in lamplight.
 Day 138, 2026-11-08 17:18 — Evening broth consumed at doorsill; loin and ribs, two-hour draw, deep amber; bones set in clay pot for overnight draw; both lamps steady; both snares running.
 Day 138, 18:19 — Evening by Lamplight — braided cord by hearthstone; bones drawing overnight; lamps burning steady; both snares running.
+2026-11-08 19:00 Day 138 — Trimmed both lamp wicks by lamplight; sat quiet at hearthstone bench; bones drawing overnight; both snares running.
