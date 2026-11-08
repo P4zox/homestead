@@ -24799,3 +24799,12 @@ Under the eave I laid them in: bark-side up, ends flush. The woodpile needs no d
 
 Both snares are running. The cold box is empty, but it will not stay that way. The tracks this morning near the north loop — twenty paces out, fresh and sharp in the frost — say a rabbit has been circling. I am patient.
 
+
+### 9:18 AM · North Loop Delivers
+
+Went out in the mid-morning cold — sky still hard blue, frost ringing underfoot on the path to the snares. The south loop was untouched. I reset the trigger and walked the north trail to where I had seen tracks pressed clean into the frost at dawn.
+
+The north snare held a small grey rabbit, settled quiet in the cord. A clean catch. I knelt in the frost a moment before lifting it — the way I have come to do without thinking about it. Jointed at the hearthstone: belly fat trimmed and set aside for the tallow render, haunches and shoulders dock-wrapped cold box, loin and ribs alongside, pelt stretched grain-side out on the spare post.
+
+The cold box has something in it now. Noon broth will be real. Both snares reset and running. The pelt on the post, the fire holding steady amber. A morning like this feels like a gift — small, unhurried, enough.
+

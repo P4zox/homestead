@@ -2444,3 +2444,4 @@ Day 137 · 2026-11-07 · 9:18 PM — Braided cord by lamplight; added one birch 
 2026-11-08 | Day 138 | 06:18 | Still Clearing, Empty Snares — woke, strained overnight bone broth, both snares empty and reset; cold box empty; first light of a Sunday in hard winter.
 2026-11-08 — Day 138, 07:19 — Braided cord by morning hearthstone; both snares empty, north loop fresh rabbit tracks in frost; bone pot emptied.
 2026-11-08 Day 138 08:18 — firewood run to south treeline; two dry birch lengths and one dry pine bough added under eave; cold box empty, both snares running, north loop has fresh rabbit tracks
+2026-11-08 Day 138 09:18 — North loop snare catch: small grey rabbit; jointed at hearthstone; cold box loaded for noon broth.
