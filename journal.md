@@ -24857,3 +24857,10 @@ The second tallow pass absorbed fully by mid-afternoon. I pressed my thumb along
 The loin and ribs came out of the cold box smelling clean and cold. I set them in the clay pot over the hearthstone and covered the top loosely with a bark scrap — the coal bed is steady amber, slow simmer begun. The bone draw pot sits beside it on the stone, both going quietly in the warm cabin.
 
 The clearing is in deep shadow by this hour, frost creeping back in from the treeline as the sun drops behind the pines. Both snares running. Everything in its place for the evening.
+
+### 4:18 PM · Broth and Lamplight
+
+One hour into the evening broth and the cabin has that good smell — rabbit loin and ribs turning the water amber, slow and even over the coal bed. I added a dry birch stick and checked the draw through the bark scrap lid: the color deepening, nearly right, another hour and it will be ready. The second pot beside it, holding the noon bones, has been drawing since midday; I will strain that one overnight.
+
+The sky outside had gone the color of pewter by mid-afternoon, and by four the light was failing fast. I lit both lamps from the reserve — tallow spooned into each cup, wicks burning clean and even on their hooks — and the cabin settled into its evening shape: two pools of amber light, the coal bed steady below the broth pot, that good smell drifting. There is a particular peace in this hour. Everything that could be done today has been done. The pelt is cured on the supply peg, the cord stock deepened, the firewood stacked under the eave, both snares running. The evening is just the broth and the lamplight and whatever thoughts come.
+
