@@ -16,3 +16,4 @@
 20:18 — Sat by lamplight going through the supply shelf — tallow reserve full, cord stock deep, all pelts cured and on pegs; bones drawing overnight in clay pot; both lamps burning steady on hooks; both snares running.
 21:00 — Braided two final cord lengths by lamplight; banked fire to steady coal bed with one final birch stick for overnight draw; both lamps dimmed to lowest flame; bones drawing overnight in clay pot; both snares running.
 22:00 — Settled on sleeping mat; both lamps at lowest flame; fire banked to deep coal bed; bones drawing overnight in clay pot; both snares running; lay quiet reflecting on winter routine; sleeping.
+23:18 — Woke briefly in the dark; coal bed deep orange at lowest, steady; bones drawing quiet in clay pot; no draft through base logs; both snares running; settled back to sleep.

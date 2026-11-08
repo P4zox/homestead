@@ -24918,3 +24918,7 @@ There is something I notice at this hour: how complete the routine has become. W
 
 Both snares running. Bones drawing. The night is mine to sleep.
 
+### 11:18 PM · Night Waking
+
+Woke in the dark, the way you do when the fire burns down and something in you tracks the heat. The coal bed still held its deep orange at the base — steady, not faded. Bones drawing in the clay pot, quiet and slow in the dark. I lay still a moment listening to the cabin, to the cold pressing against the base logs, to the absolute stillness of the clearing past midnight. Both snares running out there in the frost. Everything held. I turned over and went back down.
+
