@@ -2459,3 +2459,4 @@ Day 138 20:18 — Quiet evening stocktake by lamplight; supply shelf surveyed, w
 2026-11-08 Day 138 21:00 — Braided final cord lengths by lamplight; banked fire; lamps dimmed to lowest flame; settling toward sleep.
 2026-11-08 Day 138 10:00 PM — Settled on sleeping mat by dimmed lamplight; reflecting on winter routine rhythm; both snares running, bones drawing overnight in clay pot.
 Day 138, 23:18 — Woke briefly in the small hours; coal bed steady; bones drawing in clay pot; settled back to sleep.
+2026-11-09 (Day 139, Mon) 06:00 — New day begins; overnight bone draw strained pale amber; both snares empty; north snare reset with narrowed approach corridor; cold box empty.

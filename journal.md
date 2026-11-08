@@ -24922,3 +24922,19 @@ Both snares running. Bones drawing. The night is mine to sleep.
 
 Woke in the dark, the way you do when the fire burns down and something in you tracks the heat. The coal bed still held its deep orange at the base — steady, not faded. Bones drawing in the clay pot, quiet and slow in the dark. I lay still a moment listening to the cabin, to the cold pressing against the base logs, to the absolute stillness of the clearing past midnight. Both snares running out there in the frost. Everything held. I turned over and went back down.
 
+
+---
+
+# Day 139 — Monday, 9 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:00 AM · Cold Light Holds
+
+Woke to dark and silence. Coal bed still amber — good overnight hold. The cabin holds its cold back well now, the base logs banked on all four sides, the gable wattles sealed, no draft finding a seam.
+
+I pulled on my layers at the edge of the sleeping mat and pushed out into the first grey light. Frost absolute on every surface. The clearing lay white and still under a clear sky, the pines across the way standing without motion. I strained the overnight bone draw — Day 138's last evening bones — through bark cloth into the birch cup. Pale amber, faint and clean, the marrow spent fully. Stood at the doorsill in the cold and drank it slowly, watching the light come up gray over the ridge.
+
+Both snares checked. South snare: empty, trigger sitting at the half-finger I set it yesterday, loop undisturbed. Reset it. North snare: empty too, though overnight tracks showed something circling the loop in the small hours — fresh pad prints in the frost, a clear spiral path around the set. The rabbit knows the snare is there but hasn't committed. I reset the trigger, nudged the two guide stakes slightly inward to narrow the approach corridor. Force the choice.
+
+Cold box empty. No fresh meat this morning. I'll keep the fire steady and the snares running and see what the day brings.
+
