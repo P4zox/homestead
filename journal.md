@@ -24827,3 +24827,9 @@ Then I pulled the haunches and shoulders from the cold box — still firm and co
 
 The cabin is quiet. Light comes in flat and grey through the gable, frost on every log end. A raven called once from the pines and then went silent. Both snares running. The pelt is absorbing its first pass. Noon broth underway.
 
+
+### 12:18 PM · Noon Broth, Clear Sky
+
+The haunches and shoulders have been drawing for an hour over the steady coal bed. I lifted the bark scrap lid at noon and found the broth a clean pale amber — the kind that tells you the morning work was good. Ladled it into the birch cup and took it to the doorsill bench. The sky overhead was open and clear, the frost absolute and unmoving. Cold is settled in now, the full weight of it, but inside the layering I am warm enough. I drained the cup slowly.
+
+After, I set the bones into the clay pot with cold water — tonight's overnight draw already begun. Loin and ribs tucked back into the cold box for the evening. The Day 138 pelt is still absorbing its first tallow pass grain-side out on the spare post; a good sheen forming at the edges. Second pass will go on this afternoon.
