@@ -24849,3 +24849,11 @@ It is the kind of afternoon that asks nothing dramatic. A rabbit already jointed
 
 Something in that accounting settles me. Not pride exactly — more like the particular ease of having done the small things well, over and over, until they are simply the shape of a day.
 
+
+### 3:18 PM · Pelt Cured, Broth Set
+
+The second tallow pass absorbed fully by mid-afternoon. I pressed my thumb along the grain at the haunch seam and found it supple and even, no tacky spots — the hide moving freely under the fold. I lifted it from the spare post, folded it fur-side out, and hung it on the supply peg. Day 138, fully cured.
+
+The loin and ribs came out of the cold box smelling clean and cold. I set them in the clay pot over the hearthstone and covered the top loosely with a bark scrap — the coal bed is steady amber, slow simmer begun. The bone draw pot sits beside it on the stone, both going quietly in the warm cabin.
+
+The clearing is in deep shadow by this hour, frost creeping back in from the treeline as the sun drops behind the pines. Both snares running. Everything in its place for the evening.
