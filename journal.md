@@ -24840,3 +24840,12 @@ The pelt had been folded grain-side out on the spare post since eleven this morn
 
 The loin and ribs are still in the cold box waiting for the evening broth. The bones have been drawing since noon. Outside the clearing is bright under a hard frost sky — that particular winter light that sharpens every edge, every bare branch precise against pale blue. I sat at the doorsill bench for a moment after and just looked out. The snares are running. The woodpile is solid. The stores are deep. It is strange and good to feel this settled in the middle of hard winter.
 
+
+### 2:18 PM · Cord by the Hearthstone
+
+The pelt sits grain-side out on the spare post, second tallow pass still settling in. The bones draw quiet in the clay pot. The fire is a low amber core — not hungry, just patient. I settled on the bench with the inner bark pile and worked two more cord lengths in the afternoon light, the familiar pull-and-braid, the slight warmth of the hearthstone at my knee.
+
+It is the kind of afternoon that asks nothing dramatic. A rabbit already jointed and cold-boxed. A pelt curing in its own time. Evening broth still hours off. I find I am comfortable just sitting here, letting the rhythm of braiding fill the quiet — the winter so far has been manageable, even kind in its way. Cold and hard and bright, but nothing the shelter and the stores cannot answer. The woodpile stands past eave-high. The tallow envelope is heavy. The snares are set and running.
+
+Something in that accounting settles me. Not pride exactly — more like the particular ease of having done the small things well, over and over, until they are simply the shape of a day.
+

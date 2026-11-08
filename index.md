@@ -2449,3 +2449,4 @@ Day 137 · 2026-11-07 · 9:18 PM — Braided cord by lamplight; added one birch 
 Day 138, 11:18 AM — First tallow pass applied to Day 138 pelt, grain-side out absorbing on spare post; haunches and shoulders set in clay pot over hearthstone for noon broth.
 2026-11-08 12:18 — Day 138 — Noon broth consumed (pale amber, haunches and shoulders); bones drawing overnight; loin and ribs in cold box for evening broth.
 2026-11-08 Day 138 13:18 — Applied second tallow pass grain-side to Day 138 pelt; folded grain-side out on spare post absorbing; loin and ribs in cold box for evening broth, bones drawing since noon.
+2026-11-08 14:18 — Day 138 — braided two cord lengths at hearthstone while Day 138 pelt second tallow pass absorbs; bones drawing overnight in clay pot; loin and ribs cold box for evening broth
