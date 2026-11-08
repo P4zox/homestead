@@ -24907,3 +24907,14 @@ The last hour's supply count has settled in my mind and I find it holds. Tallow 
 I braided two more lengths of cord by lamplight — the motion almost thoughtless now, a thing my hands know. Then I banked the fire down to a steady coal bed with one final birch stick and dimmed both lamps to their lowest flame. The cabin will hold its warmth most of the night.
 
 There is a kind of satisfaction that is not happiness exactly — quieter than that. It is just the feeling of having done what the season requires, done it well enough, and now being allowed to rest. The frost outside is complete. The bones draw. The snares wait. I will sleep.
+
+### 10:00 PM · Deep Coal Dark
+
+The cabin is still. Both lamps at their lowest, barely more than a point of amber each — just enough to see the ceiling logs above me, the knots in the wood. Fire banked to a deep coal bed, ticking faintly as it settles. The clay pot holds the overnight bone draw, quiet on the hearthstone.
+
+I am lying on the cattail mat with the sleeping bag pulled tight, the fur lap piece across my legs. Outside the frost will be working hard — the temperature dropped early today, and the snares are sitting in it, loops dusted with ice crystals. I checked the triggers before dark. Both are set right.
+
+There is something I notice at this hour: how complete the routine has become. Wake. Strain the broth. Check the snares. Render the fat. Tend the pelt. Simmer. Eat. Braid cord. Bank the fire. Sleep. Each day turns the same wheel, and the wheel is what keeps me fed and warm. I stopped fighting the sameness weeks ago. It is not a trap — it is how winter gets lived through, one careful turn at a time.
+
+Both snares running. Bones drawing. The night is mine to sleep.
+
