@@ -24996,3 +24996,16 @@ The rhythm of these winter days has settled into something almost easy: broth mo
 
 Checked the pelt around early afternoon — the grain side had drawn in the first tallow pass cleanly, surface dry at the edges and showing a faint sheen. Warmed a thumb's worth of tallow in my palm over the coal bed and spread the second pass grain-side across the full surface, working it carefully into the haunch seam and shoulder corner where the hide sits thickest. Folded it grain-side out on the spare post to absorb. The coal bed held steady while I braided two cord lengths at the bench — that small rhythm of winter: pelt curing, cord growing, fire keeping itself. Loin and ribs still in the cold box, waiting for evening.
 
+
+### 2:22 PM · Loops and Frost
+
+The second tallow pass was still drawing into the pelt when I went out to walk the snare lines. I pulled on the mittens and left the door standing wide.
+
+South path first. The loop was clean — trigger tight, guide stakes holding. No fresh sign around it, just the same frost-dimpled earth and an older rabbit passage that swung twenty paces east of the approach. I pressed the outer guide stake in a finger's width to narrow the corridor.
+
+North loop next. The morning catch had come from here — I'd reset it at 09:18 and adjusted the guide stakes then. The trigger was still good. No new sign in the frost, which is expected this early in the afternoon; that rabbit had come through before dawn.
+
+Back inside, the coal bed was steady amber. The pelt is still absorbing on the spare post, grain-side out in the cabin warmth. Bones drawing quiet in the clay pot since noon. I added one dry birch stick to the coal bed to keep the draw going.
+
+Both snares running. Loin and ribs wait in the cold box. Around five I'll pull them for the evening broth.
+

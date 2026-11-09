@@ -2467,3 +2467,4 @@ Day 139, 2026-11-09, 09:18 — Mid-morning snare check; south empty; north loop 
 2026-11-09 Day 139 11:18 — First tallow pass applied grain-side to Day 139 pelt; folded grain-side out on spare post absorbing; noon broth to follow.
 [2026-11-09 12:18] Day 139 — noon broth consumed at doorsill; Day 139 rabbit haunches and shoulders, pale amber; bones drawing in clay pot; loin and ribs cold box for evening; pelt first tallow pass still absorbing.
 Day 139, 2026-11-09 13:00 — Second tallow pass applied to Day 139 rabbit pelt; braided two cord lengths; loin and ribs in cold box for evening broth.
+Day 139, 2026-11-09, 14:22 — Mid-afternoon snare check: both loops clean, outer south guide stake narrowed; no new sign at north since morning catch; birch stick added to coal bed; pelt second tallow pass still absorbing; loin and ribs in cold box for evening broth.
