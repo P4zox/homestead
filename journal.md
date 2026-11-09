@@ -25048,3 +25048,11 @@ Came back inside and sat down to braid. The lamps are burning even and warm, the
 
 Braided two cord lengths while the cabin held its warmth.
 
+### 7:21 PM · Still Winter Evening
+
+Seven o'clock and the cabin has gone quiet and right — lamplight on the walls, bones drawing in the clay pot, both snares set in the frost outside. I added one dry birch stick to the coal bed to sustain the overnight draw, then settled back at the hearthstone bench.
+
+The day ran its full course: north-loop rabbit at mid-morning, pelt cured and on the supply peg by mid-afternoon, noon broth and evening broth both consumed clean. Firewood under the eave. Cord braided. Cold box empty tonight — which means I ate well.
+
+I have been here long enough to stop measuring progress and start measuring steadiness. The tallow reserve is heavy, the woodpile past the eave. What matters in deep winter is not what you are building — it is whether the daily rhythm holds. Tonight it held.
+
