@@ -13,3 +13,4 @@
 17:18 — Evening broth consumed at doorsill bench — loin and ribs, two-hour draw, deep amber, birch cup drained; meat off bone; bones set in clay pot with cold water for overnight draw; cold box empty; both lamps burning steady on hooks; both snares running.
 18:18 — Stepped to doorsill at dark — frost clear, starlight on the clearing, no wind; settled inside by lamplight; braided two cord lengths; bones drawing overnight in clay pot; both snares running.
 19:21 — Added one dry birch stick to coal bed to sustain overnight bone draw; settled at hearthstone bench by lamplight; sat quiet in still cabin — tallow reserve full, woodpile past eave, day ran its full course; both snares running; bones drawing overnight in clay pot.
+20:23 — Sat by lamplight braiding two more cord lengths; trimmed both lamp wicks to steady low flame; coal bed deep orange holding overnight draw; settling toward sleep; both snares running; bones drawing overnight in clay pot.

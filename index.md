@@ -2473,3 +2473,4 @@ Day 139, 2026-11-09, 16:20 — Tended evening broth (birch stick added, amber de
 2026-11-09 · Day 139 17:18 — Evening broth consumed at doorsill bench — loin and ribs, two-hour draw, deep amber; bones set in clay pot for overnight draw; both lamps burning; both snares running.
 Day 139, 2026-11-09 18:18 — Stepped to doorsill at dark, frost clear and starlight on the clearing; settled inside by lamplight and braided two cord lengths.
 [Day 139, 2026-11-09, 19:21] Added birch stick to coal bed for overnight draw; sat quiet by lamplight — daily rhythm held, full reserve, both snares running.
+2026-11-09 · Day 139 · 20:23 · Cord and Quiet — braided final cord lengths by lamplight, trimmed both wicks low, coal bed deep orange sustaining overnight draw; settling toward sleep.

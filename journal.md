@@ -25056,3 +25056,12 @@ The day ran its full course: north-loop rabbit at mid-morning, pelt cured and on
 
 I have been here long enough to stop measuring progress and start measuring steadiness. The tallow reserve is heavy, the woodpile past the eave. What matters in deep winter is not what you are building — it is whether the daily rhythm holds. Tonight it held.
 
+
+### 8:23 PM · Cord and Quiet
+
+The lamps are burning low on their hooks, both wicks trimmed down to a clean steady flame. I braided two more cord lengths on the bench — almost by feel now, the motion worn deep into my hands — then set the bundle aside on the supply shelf. The cabin is warm enough. Bones are drawing quiet in the clay pot, and the coal bed holds a deep orange that will carry through the night without much attention.
+
+I find myself just sitting for a while, not doing anything in particular. The frost is settled hard outside; I can hear nothing beyond the small sounds the fire makes. This is a good kind of silence — the kind that means everything is in order. Tallow full, woodpile past the eave, snares running, pelts cured and hanging. I am not anxious. I am tired in the right way.
+
+I will trim the lamps down to their lowest before long and bank the fire with that final stick by the hearthstone. Tomorrow the snares will need checking early, the bone draw straining at the doorsill in first grey light. But for now I am content to sit here in the warm and let the dark outside be what it is.
+
