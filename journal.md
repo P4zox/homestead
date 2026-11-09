@@ -24991,3 +24991,8 @@ Bones went back into the clay pot with cold water for tonight's draw. Loin and r
 
 The rhythm of these winter days has settled into something almost easy: broth morning and noon and evening, fat rendered, pelt worked, cord braided, snares tended. The cold holds and the small grey rabbits keep coming. I don't question it. I do the work, eat well, and sleep under a roof that holds.
 
+
+### 1:00 PM · Pelt, Second Pass
+
+Checked the pelt around early afternoon — the grain side had drawn in the first tallow pass cleanly, surface dry at the edges and showing a faint sheen. Warmed a thumb's worth of tallow in my palm over the coal bed and spread the second pass grain-side across the full surface, working it carefully into the haunch seam and shoulder corner where the hide sits thickest. Folded it grain-side out on the spare post to absorb. The coal bed held steady while I braided two cord lengths at the bench — that small rhythm of winter: pelt curing, cord growing, fire keeping itself. Loin and ribs still in the cold box, waiting for evening.
+
