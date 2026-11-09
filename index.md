@@ -2464,3 +2464,4 @@ Day 138, 23:18 — Woke briefly in the small hours; coal bed steady; bones drawi
 2026-11-09 08:00 — Day 139 — Firewood run to south treeline; two birch lengths and one pine bough added under eave; cold box empty, both snares running.
 Day 139, 2026-11-09, 09:18 — Mid-morning snare check; south empty; north loop small grey rabbit, jointed and cold-boxed; belly fat trimmed for render; pelt on spare post.
 2026-11-09 (Day 139, 10:18) — Rendered Day 139 rabbit belly fat into reserve; first-scraped pelt grain-side clean and pegged to firm.
+2026-11-09 Day 139 11:18 — First tallow pass applied grain-side to Day 139 pelt; folded grain-side out on spare post absorbing; noon broth to follow.

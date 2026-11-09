@@ -24973,3 +24973,12 @@ The belly fat trimmed from this morning's rabbit has been melting over the coals
 Then the pelt. It's been grain-side out on the spare post for an hour, stiffening in the cold as the membrane dries to the surface. I work around it with my knife — short angled strokes, pulling membrane in thin sheets, the grain underneath coming up pale and smooth. The haunch seams take longer; there's always a little more fat worked into the tight fold there. But when I'm done the grain side is clean, and I peg it back grain-side out to firm before tallow.
 
 Coals steady. Rabbit portions in the cold box. Both snares running. The morning has gone as well as a morning can.
+
+### 11:18 AM · First Tallow Pass
+
+An hour on the spare post and the grain side has firmed — the pulled edge has gone from soft to taut, and when I press a thumb flat against the surface it springs back without leaving a dent. Good sign. I carried the pelt to the hearthstone, laid it grain-up, and worked a palmful of tallow from the reserve into the full surface, slow circles from the hip joint outward to the shoulder corners, then back along the spine line. The tallow warmed in my hands before it hit the hide, so it sank in rather than sitting on top. When every inch had taken its first coat, I folded the pelt grain-side out and draped it over the spare post to absorb.
+
+The coal bed is steady amber — the right warmth for a slow absorption. Haunches and shoulders are still dock-wrapped in the cold box waiting for noon. I will set them in the clay pot at the coal bed then, let them draw through the warmest part of the day, and have broth ready by twelve or one.
+
+The clearing outside is still and very cold. No wind. The frost that settled last night is still on the ground at eleven in the morning, which means the sun has not found much angle today. The riffle is gone under ice — has been for weeks. Everything that moves out there now moves on frozen ground.
+
