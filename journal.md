@@ -24956,3 +24956,12 @@ I went to the south treeline and hauled back two dry birch lengths and one dry p
 
 Cold box empty. Snares running. Fire steady. The morning is clear and still.
 
+
+### 9:18 AM · North Loop Delivers
+
+The cold hit clean the moment I stepped out — no wind, just the flat open chill of a frost that never quite lifted. I pulled my hood close and walked the south path first. The south snare was empty, trigger resting, nothing through overnight or this morning. Reset it one more time, loop hanging level.
+
+The north path showed tracks right away — small pressed marks in the frost leading close to the guide stakes. I went careful from there, slow through the brush. The north loop held a small grey rabbit, clean catch, throat, went still quick. I stood a moment in the frost beside it, glad.
+
+Back at the hearthstone now. Jointed and portions into the cold box, belly fat trimmed and setting beside the hearth to render. The pelt is stretched grain-side out on the spare post. Coal bed steady amber. The cold box is no longer empty.
+
