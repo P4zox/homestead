@@ -25065,3 +25065,8 @@ I find myself just sitting for a while, not doing anything in particular. The fr
 
 I will trim the lamps down to their lowest before long and bank the fire with that final stick by the hearthstone. Tomorrow the snares will need checking early, the bone draw straining at the doorsill in first grey light. But for now I am content to sit here in the warm and let the dark outside be what it is.
 
+
+### 9:26 PM · Night Banked
+
+The cabin has gone quiet. I banked the fire to a deep coal bed with one final birch stick and damped both lamps to their lowest flame. The bones are drawing overnight in the clay pot, slow and steady. Snares are set. Outside, the frost is sharp and the clearing empty under stars. There is nothing left to do today — that is its own kind of satisfaction. I pulled on the sleeping cap with its ear pieces, lay down on the cattail mat, and let the warmth hold me.
+

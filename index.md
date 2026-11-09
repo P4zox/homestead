@@ -2474,3 +2474,4 @@ Day 139, 2026-11-09, 16:20 — Tended evening broth (birch stick added, amber de
 Day 139, 2026-11-09 18:18 — Stepped to doorsill at dark, frost clear and starlight on the clearing; settled inside by lamplight and braided two cord lengths.
 [Day 139, 2026-11-09, 19:21] Added birch stick to coal bed for overnight draw; sat quiet by lamplight — daily rhythm held, full reserve, both snares running.
 2026-11-09 · Day 139 · 20:23 · Cord and Quiet — braided final cord lengths by lamplight, trimmed both wicks low, coal bed deep orange sustaining overnight draw; settling toward sleep.
+Day 139, 2026-11-09, 21:26 — Night Banked — banked fire, damped both lamps to lowest flame, settled to sleep; bones drawing overnight, both snares running.

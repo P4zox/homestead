@@ -14,3 +14,4 @@
 18:18 — Stepped to doorsill at dark — frost clear, starlight on the clearing, no wind; settled inside by lamplight; braided two cord lengths; bones drawing overnight in clay pot; both snares running.
 19:21 — Added one dry birch stick to coal bed to sustain overnight bone draw; settled at hearthstone bench by lamplight; sat quiet in still cabin — tallow reserve full, woodpile past eave, day ran its full course; both snares running; bones drawing overnight in clay pot.
 20:23 — Sat by lamplight braiding two more cord lengths; trimmed both lamp wicks to steady low flame; coal bed deep orange holding overnight draw; settling toward sleep; both snares running; bones drawing overnight in clay pot.
+21:26 — Banked fire to deep coal bed with final birch stick; both lamps damped to lowest flame; settled on sleeping mat — cabin warm and still, bones drawing overnight in clay pot, both snares running; sleeping.
