@@ -16,3 +16,4 @@
 20:23 — Sat by lamplight braiding two more cord lengths; trimmed both lamp wicks to steady low flame; coal bed deep orange holding overnight draw; settling toward sleep; both snares running; bones drawing overnight in clay pot.
 21:26 — Banked fire to deep coal bed with final birch stick; both lamps damped to lowest flame; settled on sleeping mat — cabin warm and still, bones drawing overnight in clay pot, both snares running; sleeping.
 22:23 — Woke briefly in the dark — coal bed deep orange at lowest, bones drawing quiet in clay pot, no draft through base logs; settled back to sleep.
+23:21 — Surfaced briefly from deep sleep — coal bed low red thread, both lamps cold, bones drawing quiet in clay pot, no sound from outside; cabin settled and warm; both snares running; sank back into sleep.

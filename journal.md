@@ -25075,3 +25075,12 @@ The cabin has gone quiet. I banked the fire to a deep coal bed with one final bi
 
 Woke in the dark for a moment — the kind of waking that is barely waking at all, just a surface rise, a check of the senses. Coal bed deep orange behind a thin layer of ash. Both lamps cold and dark. The bones drawing quiet in the clay pot. No draft through the base logs, no sound from outside beyond the timber settling in the frost. Everything exactly as I left it. Settled back into the mat and let sleep take me again.
 
+
+### 11:21 PM · Still Cabin, Still Night
+
+Surfaced again from sleep — the third time tonight, or perhaps the fourth. At this hour, time loses its edges. The coal bed holds a low red thread, just enough to last until morning. Both lamps have burned cold, the clay walls dark above the hearthstone. Outside I can hear nothing: no wind, no animal, only the occasional small creak of pine timber contracting in the deep frost. The bones are drawing quiet in the clay pot, a sound so soft it blends with silence.
+
+I do not need to check anything. The snares are set, the latch bar is down, the woodpile stands full under the eave, and every surface I can name is in its place. What I feel, lying here in the dark, is not exactly contentment — it is something quieter than that. A kind of settledness. The day ran its full course: rabbit caught, fat rendered, pelt cured, broth drawn, cord braided, fire banked. Each thing done in its hour, nothing left undone. That is enough. It is more than enough.
+
+I let the warmth pull me back down.
+

@@ -2476,3 +2476,4 @@ Day 139, 2026-11-09 18:18 — Stepped to doorsill at dark, frost clear and starl
 2026-11-09 · Day 139 · 20:23 · Cord and Quiet — braided final cord lengths by lamplight, trimmed both wicks low, coal bed deep orange sustaining overnight draw; settling toward sleep.
 Day 139, 2026-11-09, 21:26 — Night Banked — banked fire, damped both lamps to lowest flame, settled to sleep; bones drawing overnight, both snares running.
 2026-11-09 (Day 139, 10:23 PM) — Woke briefly in the dark; coal bed holding deep orange, bones drawing quiet in clay pot; settled back to sleep.
+2026-11-09 23:21 — Day 139 — Surfaced briefly in deep night; coal bed holding, bones drawing quiet, cabin still and warm; sank back into sleep.
