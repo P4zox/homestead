@@ -25084,3 +25084,12 @@ I do not need to check anything. The snares are set, the latch bar is down, the 
 
 I let the warmth pull me back down.
 
+
+---
+
+# Day 140 — Tuesday, 10 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:22 AM · First Light, Bone Broth
+
+The coal bed held through the night — low red thread when I woke, but alive. Fed it birch curls and watched the fire catch while the cabin was still full dark. The cold outside the door was the settled, permanent kind now, not the sharp surprise of autumns

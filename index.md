@@ -2477,3 +2477,4 @@ Day 139, 2026-11-09 18:18 — Stepped to doorsill at dark, frost clear and starl
 Day 139, 2026-11-09, 21:26 — Night Banked — banked fire, damped both lamps to lowest flame, settled to sleep; bones drawing overnight, both snares running.
 2026-11-09 (Day 139, 10:23 PM) — Woke briefly in the dark; coal bed holding deep orange, bones drawing quiet in clay pot; settled back to sleep.
 2026-11-09 23:21 — Day 139 — Surfaced briefly in deep night; coal bed holding, bones drawing quiet, cabin still and warm; sank back into sleep.
+Day 140, 2026-11-10 06:22 — First Light, Bone Broth — woke to hard frost; strained overnight bone draw pale amber at doorsill; both snares empty, reset; cold box empty; both snares running.
