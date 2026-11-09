@@ -2461,3 +2461,4 @@ Day 138 20:18 — Quiet evening stocktake by lamplight; supply shelf surveyed, w
 Day 138, 23:18 — Woke briefly in the small hours; coal bed steady; bones drawing in clay pot; settled back to sleep.
 2026-11-09 (Day 139, Mon) 06:00 — New day begins; overnight bone draw strained pale amber; both snares empty; north snare reset with narrowed approach corridor; cold box empty.
 2026-11-09 (Day 139, Mon) 07:18 — Braided two cord lengths at hearthstone bench; coal bed steady amber; both snares running; cold box empty.
+2026-11-09 08:00 — Day 139 — Firewood run to south treeline; two birch lengths and one pine bough added under eave; cold box empty, both snares running.

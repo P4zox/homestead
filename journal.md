@@ -24945,3 +24945,14 @@ The bone broth from overnight is still a warmth somewhere in my chest — pale a
 
 Now I am at the hearthstone bench with a bundle of birch inner bark already split and ready. The coal bed is steady amber. My hands know this rhythm — three strands over, three under, the cord growing in slow inches while the fire holds the room. Two lengths done and coiled. Outside the cabin logs, hard frost still on the clearing and the sky pale and clear. In here the work is small and good, and that is enough for this hour.
 
+
+### 8:00 AM · Cold Morning Carry
+
+The clearing was bright and hard this morning — frost absolute on every surface, sky pale blue over the treetops with no clouds at all. I carried the bone broth in at six, let the warmth of the cabin settle around me for an hour while my hands worked cord at the hearthstone bench. By eight the cold was softening just slightly, enough to make the treeline walk reasonable.
+
+Both snares still empty. The north loop had fresh tracks again overnight — something circling, testing the approach. I nudged the guide stakes inward at six to narrow the corridor; now I leave it alone and let the snare do its work. Patience is the whole of trapping.
+
+I went to the south treeline and hauled back two dry birch lengths and one dry pine bough, tucking them under the eave beside the existing stack. The woodpile is well past eave-high, but I keep adding. In deep winter the question is never whether you have enough wood now — it is whether future-you, in the coldest week of the year, will be glad you carried one more armful today. The answer is always yes.
+
+Cold box empty. Snares running. Fire steady. The morning is clear and still.
+
