@@ -25070,3 +25070,8 @@ I will trim the lamps down to their lowest before long and bank the fire with th
 
 The cabin has gone quiet. I banked the fire to a deep coal bed with one final birch stick and damped both lamps to their lowest flame. The bones are drawing overnight in the clay pot, slow and steady. Snares are set. Outside, the frost is sharp and the clearing empty under stars. There is nothing left to do today — that is its own kind of satisfaction. I pulled on the sleeping cap with its ear pieces, lay down on the cattail mat, and let the warmth hold me.
 
+
+### 10:23 PM · Brief in the Dark
+
+Woke in the dark for a moment — the kind of waking that is barely waking at all, just a surface rise, a check of the senses. Coal bed deep orange behind a thin layer of ash. Both lamps cold and dark. The bones drawing quiet in the clay pot. No draft through the base logs, no sound from outside beyond the timber settling in the frost. Everything exactly as I left it. Settled back into the mat and let sleep take me again.
+
