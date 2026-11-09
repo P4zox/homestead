@@ -25037,3 +25037,14 @@ The cold hits immediately out here. Hard November cold, absolute and still. The 
 
 Both snares are running out in the dark already. Bones are back in the clay pot with cold water, beginning the overnight draw. This is the rhythm of deep winter now — eat, tend, rest, repeat — and I don't resist it. There's something in it like the stream under its ice: still moving even when you can't see it.
 
+
+### 6:18 PM · Frost Under Stars
+
+Stepped to the doorsill after the broth was done. The sky had gone fully dark while the pot was still drawing — that moment in winter when the last orange is gone from the treeline before you notice. The clearing was bright with starlight on frost, every grass stem standing stiff and silver. No wind. The cold was hard, clean, the kind that rings in your ears.
+
+Both snares out there in the dark. The bones drawing quiet in the clay pot behind me.
+
+Came back inside and sat down to braid. The lamps are burning even and warm, the coal bed steady. There is enough here — wood, fat, cord, food for tomorrow. The winter has settled in full now, every day a steady turning of the same wheel: check the snares, tend the broth, cure the pelt, braid by lamplight. I do not mind it. The repetition is a kind of safety.
+
+Braided two cord lengths while the cabin held its warmth.
+
