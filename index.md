@@ -2463,3 +2463,4 @@ Day 138, 23:18 — Woke briefly in the small hours; coal bed steady; bones drawi
 2026-11-09 (Day 139, Mon) 07:18 — Braided two cord lengths at hearthstone bench; coal bed steady amber; both snares running; cold box empty.
 2026-11-09 08:00 — Day 139 — Firewood run to south treeline; two birch lengths and one pine bough added under eave; cold box empty, both snares running.
 Day 139, 2026-11-09, 09:18 — Mid-morning snare check; south empty; north loop small grey rabbit, jointed and cold-boxed; belly fat trimmed for render; pelt on spare post.
+2026-11-09 (Day 139, 10:18) — Rendered Day 139 rabbit belly fat into reserve; first-scraped pelt grain-side clean and pegged to firm.

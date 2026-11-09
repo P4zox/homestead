@@ -24965,3 +24965,11 @@ The north path showed tracks right away — small pressed marks in the frost lea
 
 Back at the hearthstone now. Jointed and portions into the cold box, belly fat trimmed and setting beside the hearth to render. The pelt is stretched grain-side out on the spare post. Coal bed steady amber. The cold box is no longer empty.
 
+
+### 10:18 AM · Fat Rendered, Pelt Scraped
+
+The belly fat trimmed from this morning's rabbit has been melting over the coals since the jointing. By ten the cabin smells faintly of hot tallow — that dry animal warmth that's become ordinary here. I strain it into the reserve bark envelope: amber-clear, half-cup, good and clean. Pine pin through the fold, resin flap pressed. The reserve stays full.
+
+Then the pelt. It's been grain-side out on the spare post for an hour, stiffening in the cold as the membrane dries to the surface. I work around it with my knife — short angled strokes, pulling membrane in thin sheets, the grain underneath coming up pale and smooth. The haunch seams take longer; there's always a little more fat worked into the tight fold there. But when I'm done the grain side is clean, and I peg it back grain-side out to firm before tallow.
+
+Coals steady. Rabbit portions in the cold box. Both snares running. The morning has gone as well as a morning can.
