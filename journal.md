@@ -25028,3 +25028,12 @@ Both snares still set. The north path is running tight — guide stakes narrowed
 
 Sitting here with the broth deepening and the two lamps burning, I find I am not thinking about anything in particular. Just this: the fire, the smell of the pot, the dark coming on outside. Day 139 and I am warm and fed and occupied in a small and sufficient way. That is exactly what this life asks for, and I have it.
 
+
+### 5:18 PM · Amber at Doorsill
+
+The broth has been drawing since half past three — two hours over steady coals. I pulled the pot to the edge of the hearthstone, poured it into the birch cup, and carried it to the doorsill bench.
+
+The cold hits immediately out here. Hard November cold, absolute and still. The loin came off the bone first, then the ribs with their thin dark meat. The broth itself deep amber, almost brown at the cup's edge, fat rings floating quiet on the surface. I drank it slowly and watched the last gray light flatten over the clearing.
+
+Both snares are running out in the dark already. Bones are back in the clay pot with cold water, beginning the overnight draw. This is the rhythm of deep winter now — eat, tend, rest, repeat — and I don't resist it. There's something in it like the stream under its ice: still moving even when you can't see it.
+
