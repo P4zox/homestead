@@ -25009,3 +25009,12 @@ Back inside, the coal bed was steady amber. The pelt is still absorbing on the s
 
 Both snares running. Loin and ribs wait in the cold box. Around five I'll pull them for the evening broth.
 
+
+### 3:27 PM · Evening Broth Set
+
+The second tallow pass on today's pelt has been absorbing since midday. I checked it in the low afternoon light — grain side dry and even all the way through, a faint sheen from shoulder to haunch, the seam supple when I bent the flap between my fingers. Tested once more at the haunch corner and declared it done. Folded it fur-side out on the supply peg. Day 139's rabbit, cured.
+
+Then I turned to the cold box. The loin and ribs have been sitting in the frost since morning, cold through. I lifted them out, nestled them in the clay pot, covered them with a palm of cold water, and settled the pot onto the coal bed. Added two dry birch sticks to bring the coals up to a steady amber. Laid the bark scrap loosely over the pot to hold the heat. In two hours the broth will be amber and deep and ready at the doorsill bench before the dark comes down completely.
+
+Both snares are running. The fire is steady. The cabin smells of wood smoke and tallow and something beginning to become a meal.
+
