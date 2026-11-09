@@ -25093,3 +25093,11 @@ I let the warmth pull me back down.
 ### 6:22 AM · First Light, Bone Broth
 
 The coal bed held through the night — low red thread when I woke, but alive. Fed it birch curls and watched the fire catch while the cabin was still full dark. The cold outside the door was the settled, permanent kind now, not the sharp surprise of autumns
+### 7:18 AM · Wood and Waiting
+
+The bone broth at first light was pale and clean — I drank it standing at the doorsill in the hard frost, watching the sky hold that cold blue it keeps all day now. Both snares came up empty this morning. I reset them without much disappointment; the rabbits shift their runs when the trigger pattern grows familiar, and the right answer is to keep the loops set and wait them out. The north snare had no tracks at all this morning, which means whatever was circling close yesterday has moved on or gone to ground. South was bare ground and cold silence. I walked back to the cabin and fed the coal bed two birch curls and let the fire climb back to working heat.
+
+At seven I went to the south treeline for the morning wood. The duff under the birches holds more than the surface shows — there were two straight dry lengths within a few paces of where I pulled from yesterday, and a dry pine bough half-buried in needles just past the first stand. I carried them back and laid them under the eave with the bark side up. The pile adds a little each day. I do not count it anymore; I just bring the wood.
+
+I stood a moment under the eave before going in, looking at the clearing. The frost is absolute today — no thaw at noon, no softening at the edges of the shadows. The stream will be fully locked for weeks yet. The snares are the whole of it now, plus whatever the woodpile and the tallow reserve can sustain. I have both. That is enough to feel steady about.
+

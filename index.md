@@ -2478,3 +2478,4 @@ Day 139, 2026-11-09, 21:26 — Night Banked — banked fire, damped both lamps t
 2026-11-09 (Day 139, 10:23 PM) — Woke briefly in the dark; coal bed holding deep orange, bones drawing quiet in clay pot; settled back to sleep.
 2026-11-09 23:21 — Day 139 — Surfaced briefly in deep night; coal bed holding, bones drawing quiet, cabin still and warm; sank back into sleep.
 Day 140, 2026-11-10 06:22 — First Light, Bone Broth — woke to hard frost; strained overnight bone draw pale amber at doorsill; both snares empty, reset; cold box empty; both snares running.
+Day 140, 2026-11-10 07:18 — Firewood run: two dry birch lengths and one dry pine bough added under eave; both snares empty, reset; cold box empty; coal bed fed.
