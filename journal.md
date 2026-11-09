@@ -24982,3 +24982,12 @@ The coal bed is steady amber — the right warmth for a slow absorption. Haunche
 
 The clearing outside is still and very cold. No wind. The frost that settled last night is still on the ground at eleven in the morning, which means the sun has not found much angle today. The riffle is gone under ice — has been for weeks. Everything that moves out there now moves on frozen ground.
 
+
+### 12:18 PM · Noon Broth, Still Sky
+
+The haunches and shoulders had been drawing since I set them on the coals just before noon — by the time I carried the birch cup to the doorsill, they had gone pale amber and the meat was lifting off the bone. I drank it slowly in the cold air, watching the clearing. Sky the same hard clear blue it was at dawn, frost absolute, nothing moving out there.
+
+Bones went back into the clay pot with cold water for tonight's draw. Loin and ribs still in the cold box for evening broth. The pelt is on the spare post taking in the first tallow pass — I'll press a second pass through this afternoon once the grain side firms.
+
+The rhythm of these winter days has settled into something almost easy: broth morning and noon and evening, fat rendered, pelt worked, cord braided, snares tended. The cold holds and the small grey rabbits keep coming. I don't question it. I do the work, eat well, and sleep under a roof that holds.
+
