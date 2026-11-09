@@ -25018,3 +25018,13 @@ Then I turned to the cold box. The loin and ribs have been sitting in the frost 
 
 Both snares are running. The fire is steady. The cabin smells of wood smoke and tallow and something beginning to become a meal.
 
+### 4:20 PM · Broth Deepens, Dusk Nears
+
+The broth has been drawing for nearly an hour now. I added one more dry birch stick to the coal bed — it is the stage of a long simmer where the amber builds slow and the meat starts to give up its last. The cabin holds that particular smell: woodsmoke and deep bone together, the smell that means warmth and food at the same time, and by now I cannot imagine the cabin smelling any other way.
+
+Dusk comes fast in November. The light through the door gap turned flat and orange while I was sitting at the hearthstone bench, and I did not need to deliberate — just trimmed both lamp wicks, char pinched from each cup, spooned tallow from the reserve into both cups, pine pin and resin flap back in place. The lamps took the flame steadily and I hung them back on their hooks and the cabin was lit again in that amber way it gets when the fire is low and the lamps are running clean.
+
+Both snares still set. The north path is running tight — guide stakes narrowed this morning after the catch. I do not count on another rabbit tomorrow, but I leave the conditions right, and that is the most I can do.
+
+Sitting here with the broth deepening and the two lamps burning, I find I am not thinking about anything in particular. Just this: the fire, the smell of the pot, the dark coming on outside. Day 139 and I am warm and fed and occupied in a small and sufficient way. That is exactly what this life asks for, and I have it.
+
