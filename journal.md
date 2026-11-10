@@ -25217,3 +25217,8 @@ I am going to sleep before long.
 ### 9:21 PM · Still and Settled
 
 Stepped to the doorsill one last time before lying down. No wind — stars hard and clear above the frost-white clearing, the ground already bone-pale. Inside, both lamp flames burned small and steady on their hooks. I pinched the wicks to their lowest draw, pressed a final birch stick in beside the clay pot on the coal bed, and listened to the overnight draw begin its slow pull. Supply shelf in order. Tallow envelope sealed. Both snares set and running in the dark beyond the treeline. I unrolled the sleeping mat and lay down. The cabin is warm and entirely quiet.
+
+### 10:22 PM · Dark waking
+
+Surfaced once in the quiet. The coal bed held deep orange at its lowest pulse, the bones drawing silent in the clay pot beside it. Both lamps cold — their tallow stilled. No sound from outside, only the faint tick of cooling wood somewhere in the walls. The cabin held its warmth. I lay still a long moment, taking stock of nothing at all. Everything was as I had left it. Frost clear outside, no wind. Pressed my hand to the sleeping mat and let the quiet carry me back down.
+
