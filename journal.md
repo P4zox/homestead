@@ -25177,3 +25177,8 @@ Then the loin and ribs out of the cold box — still firm and cold — lowered i
 
 The snares are set, the fire is tended, the pelt is cured. I have made the most of this day.
 
+
+### 4:18 PM · Dusk Lamps and Broth
+
+The broth has been drawing since the pelt came off the post — loin and ribs turning the cabin warm and amber-smelling. Dusk comes early now; the clearing goes grey while there is still full day in my mind. I added a dry birch stick to the coal bed to keep the draw steady, then lit both lamps from the coal flame before it needed coaxing. Tallow-topped both cups from the reserve, sealed the envelope back with pine pin and resin flap. The two wicks burn clean and even on their hooks. Outside, the frost is already hard on the ground; the clearing brightens briefly under last light before the cold closes in. The broth deepens and darkens toward amber. The evening is small and contained and good.
+

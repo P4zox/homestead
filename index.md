@@ -2487,3 +2487,4 @@ Day 140, 2026-11-10 11:00 — Pelt to Tallow: first tallow pass applied grain-si
 Day 140, 13:18 (Tue 10 Nov 2026) — Noon broth consumed (pale amber); Day 140 pelt second tallow pass applied grain-side on spare post; loin and ribs cold-boxed for evening broth; both snares running.
 2026-11-10 Day 140 14:21 — Afternoon snare check: south clear, north tracks found, guide stakes narrowed; both snares running
 2026-11-10 15:25 — Day 140: Day 140 pelt second tallow pass absorbed, tested supple, folded fur-side out on supply peg (cured); loin and ribs set in clay pot over hearthstone for evening broth — slow two-hour draw begun.
+Day 140, 2026-11-10 (Tue) 4:18 PM — Tended evening broth, lit both lamps at dusk, tallow-topped lamp cups from reserve; wicks burning clean and even on hooks.
