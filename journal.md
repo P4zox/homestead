@@ -25148,3 +25148,12 @@ Outside: hard frost holding, sky clear, sun low and white over the southern tree
 
 Both snares are running.
 
+
+### 1:18 PM · Broth and Second Pass
+
+The haunches and shoulders had been drawing since half past noon — when I pulled the bark scrap from the clay pot, the broth was pale amber, clean-smelling. One hour's simmer on a steady coal bed is enough in cold weather; the meat falls willing, the liquid goes clear. I drained the birch cup at the doorsill bench and held the warmth a moment in both hands before setting the bones in cold water for tonight's draw.
+
+Back at the hearthstone, I checked the pelt from this morning's catch. Two and a half hours since the first tallow pass, and the grain side was still faintly tacky at the spine — the skin drinking it steadily. I warmed a small palmful from the reserve envelope over the coal bed until it softened, then worked it grain-side: full surface, long strokes, more attention at the shoulder seam where the hide runs taut. Folded grain-side out on the spare post to absorb through the afternoon.
+
+Loin and ribs stay cold-boxed for evening broth. Both snares running in the frost. The afternoon opens quietly.
+
