@@ -25110,3 +25110,14 @@ I pulled the cord stock down from the supply peg and sat at the hearthstone benc
 
 Both snares came up empty this morning. The tracks have been sparser these last few days — not gone, just moving differently, testing the corridors. I will check again at mid-morning and read what the frost has to say.
 
+
+### 9:18 AM · South Loop Delivers
+
+The frost stayed hard through mid-morning — the kind of cold that rings in your ears when you step outside. I went east first along the south path, moving quiet through the birch gap, breath coming in white plumes.
+
+The south loop had a small grey rabbit, clean across the front legs. I knelt and unworked the cord from the trigger, tucked the rabbit under my arm, and walked the north loop on the return — empty, trigger undisturbed. Reset both and came back to the cabin.
+
+Jointed it at the hearthstone. Belly fat trimmed clean into the bark bowl for rendering. Haunches, shoulders, loin, ribs dock-wrapped and into the cold box. Pelt stretched grain-side out on the spare post to begin firming.
+
+The cold box had been empty since morning. It is a certain kind of relief to close its lid on something solid — not hunger-relief, not exactly, more the feeling that the day is running the way it should. Both snares reset and running. Belly fat starting to render over the coals.
+
