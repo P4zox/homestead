@@ -25130,3 +25130,10 @@ Turned to the pelt. This one thin-coated for early winter, but the skin is tight
 
 Both snares reset and running. Cold box holds today's portions. The cabin is warm and quiet at mid-morning.
 
+
+### 11:00 AM · Pelt to Tallow
+
+The Day 140 pelt has been firming grain-side out on the spare post for forty minutes now — the membrane scraped clean this morning, the surface drawing tight in the cold. I warmed a small pinch of tallow between my palms over the hearthstone, worked it in firm strokes from the spine outward, edge to edge. The grain side took it evenly, darkened slightly then steadied. Folded grain-side out and set back on the post to absorb.
+
+Noon broth will follow in an hour — the haunches and shoulders are waiting in the cold box. The coal bed is steady amber. Outside, through the door left ajar a finger-width for the lamp draft, the clearing is white and still. This is the rhythm now: broth, wood, pelt, cord, broth again. I do not mind it. There is something right about a day that fits its own shape.
+
