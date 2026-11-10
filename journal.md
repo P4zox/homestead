@@ -25195,3 +25195,12 @@ Outside it is hard winter dark. Frost absolute on the clearing, the pines only a
 
 There is something I keep noticing at this hour — the day done, supper consumed, everything I need to tend now tending itself. The snares are set and running. The woodpile holds past the eave. The tallow envelope stays sealed and heavy. I braid. The fire breathes. The bones draw. That is enough for tonight.
 
+
+### 7:19 PM · Lamp Trim, Still Night
+
+Trimmed both lamp wicks by lamplight — the char built up evenly through the day, and pinching it off steadied each flame to a clean, even burn. Tallow warmed between my palms, poured into both cups from the reserve, envelope resealed with its pine pin and the resin flap pressed back down.
+
+One birch stick on the coal bed to keep the overnight bone draw going. The pot sits quiet on the hearthstone, drawing pale and slow in the dark.
+
+I settled on the bench after. The cabin smells of tallow smoke and the faint sweetness of bones in water. Both snares are running in the frost outside. It is Day 140 — close to five months on this land — and I find myself thinking not about what is missing but about how much is simply here: the cord stock wound and coiled, the cured pelts on the peg rack, the woodpile eave-high and past, both lamps burning steady and clean. Winter has settled in hard, but the homestead has settled in harder. That feels like something worth noticing in the dark.
+

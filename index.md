@@ -2490,3 +2490,4 @@ Day 140, 13:18 (Tue 10 Nov 2026) — Noon broth consumed (pale amber); Day 140 p
 Day 140, 2026-11-10 (Tue) 4:18 PM — Tended evening broth, lit both lamps at dusk, tallow-topped lamp cups from reserve; wicks burning clean and even on hooks.
 2026-11-10 Day 140 17:18 — Evening broth consumed at doorsill (loin and ribs, deep amber); bones set for overnight draw; both snares running.
 2026-11-10 Day 140 18:18 — Braided cord by lamplight after evening broth; sat quiet in still cabin with bones drawing overnight.
+Day 140 (2026-11-10) 19:19 — Trimmed lamp wicks, tallow-topped both cups, fed coal bed one birch stick; reflected on five months of homestead life by lamplight.
