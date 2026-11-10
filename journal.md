@@ -25157,3 +25157,14 @@ Back at the hearthstone, I checked the pelt from this morning's catch. Two and a
 
 Loin and ribs stay cold-boxed for evening broth. Both snares running in the frost. The afternoon opens quietly.
 
+
+### 2:21 PM · Frost Walk, Both Loops
+
+The pelt second tallow pass is still absorbing on the post, folded grain-side out in the still air of the cabin. I stepped outside to walk both snare loops in the mid-afternoon light — the frost has not softened at all today, the ground rang underfoot, breath rising white in a sky that holds no cloud.
+
+South loop was clear: no catch, no sign, trigger sitting at exactly the height I left it. Left it as it is.
+
+North loop told a different story. Fresh tracks in the frost, pressed clean, coming in from the treeline — a rabbit working the same approach it used yesterday. The loop itself was untouched, trigger sound. I nudged both guide stakes one finger closer on the forest side to narrow the corridor, steer any animal coming down that line into the loop rather than around it. If it comes back tonight it will have fewer options.
+
+Both snares running now. The loin and ribs wait in the cold box for evening broth. The bones from noon are drawing in the clay pot, the pot sitting quiet on the warm hearthstone. I stepped back through the doorsill with cold hands and fed the coal bed a birch curl — the cabin smelled of warm wood and tallow and drying pelt, and I was glad to be inside.
+

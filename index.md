@@ -2485,3 +2485,4 @@ Day 140, 09:18 — Mid-morning snare check: south path rabbit (clean catch), joi
 Day 140, 2026-11-10 11:00 — Pelt to Tallow: first tallow pass applied grain-side to Day 140 pelt; folded grain-side out on spare post absorbing; noon broth to follow.
 2026-11-10 12:18 — Day 140, noon: hauled rabbit haunches and shoulders from cold box, set in clay pot over hearthstone for noon broth draw; pelt first tallow pass absorbing; loin and ribs in cold box for evening
 Day 140, 13:18 (Tue 10 Nov 2026) — Noon broth consumed (pale amber); Day 140 pelt second tallow pass applied grain-side on spare post; loin and ribs cold-boxed for evening broth; both snares running.
+2026-11-10 Day 140 14:21 — Afternoon snare check: south clear, north tracks found, guide stakes narrowed; both snares running
