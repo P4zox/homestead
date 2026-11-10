@@ -25168,3 +25168,12 @@ North loop told a different story. Fresh tracks in the frost, pressed clean, com
 
 Both snares running now. The loin and ribs wait in the cold box for evening broth. The bones from noon are drawing in the clay pot, the pot sitting quiet on the warm hearthstone. I stepped back through the doorsill with cold hands and fed the coal bed a birch curl — the cabin smelled of warm wood and tallow and drying pelt, and I was glad to be inside.
 
+
+### 3:25 PM · Pelt Cured, Broth Set
+
+I pressed a thumb into the Day 140 pelt — haunch seam and spine line both: the grain side had gone from tacky to smooth, took no more from my hand. I folded it fur-side out and hung it on the supply peg beside the others. That is the work of a skin completed: scraped at first light, two passes of tallow through the day, cured by afternoon. The peg is getting crowded, which is a good kind of crowded.
+
+Then the loin and ribs out of the cold box — still firm and cold — lowered into the clay pot with enough water to cover. Coal bed up to working heat with two dry birch sticks. I covered the pot loosely with a bark scrap and let the draw begin. It will take two hours to go deep amber. The light is already starting to go low and golden across the clearing; there is a long, still evening ahead with both lamps and the smell of broth filling the cabin.
+
+The snares are set, the fire is tended, the pelt is cured. I have made the most of this day.
+
