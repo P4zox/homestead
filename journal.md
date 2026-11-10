@@ -25121,3 +25121,12 @@ Jointed it at the hearthstone. Belly fat trimmed clean into the bark bowl for re
 
 The cold box had been empty since morning. It is a certain kind of relief to close its lid on something solid — not hunger-relief, not exactly, more the feeling that the day is running the way it should. Both snares reset and running. Belly fat starting to render over the coals.
 
+
+### 10:18 AM · Render and Scrape
+
+The belly fat rendered quick and clean — the clay pot warmed in minutes over the coal bed, fat beaded and ran amber-clear, poured still warm into the reserve envelope. Pine pin in, resin flap pressed. The envelope is growing satisfyingly heavy now; it has been a good run of rabbits these past weeks.
+
+Turned to the pelt. This one thin-coated for early winter, but the skin is tight and pale where I scraped it — first pass with the flat of the blade, membrane peeling back in long clean sheets, grain side coming up smooth and even. Pegged it grain-side out on the spare post to firm before the first tallow pass this afternoon.
+
+Both snares reset and running. Cold box holds today's portions. The cabin is warm and quiet at mid-morning.
+

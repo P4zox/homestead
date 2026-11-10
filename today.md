@@ -3,3 +3,4 @@
 07:18 — Firewood run to south treeline — two dry birch lengths and one dry pine bough added under eave; both snares empty, reset, running; cold box empty; coal bed fed to working heat.
 08:19 — Braided two cord lengths at hearthstone bench; snares running, cold box empty; mid-morning snare check to follow.
 09:18 — Mid-morning snare check: south path loop — small grey rabbit, clean catch; jointed at hearthstone; belly fat trimmed for tallow render; haunches, shoulders, loin, ribs dock-wrapped cold box; pelt stretched grain-side out on spare post; north snare empty, reset; both snares running; cold box: rabbit portions.
+10:18 — Belly fat rendered amber-clear, half-cup added to reserve envelope, resealed with pine pin and resin flap; Day 140 pelt first-scraped grain-side — membrane off clean, pegged grain-side out on spare post to firm; cold box: rabbit portions; both snares running.

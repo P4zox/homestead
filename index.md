@@ -2481,3 +2481,4 @@ Day 140, 2026-11-10 06:22 — First Light, Bone Broth — woke to hard frost; st
 Day 140, 2026-11-10 07:18 — Firewood run: two dry birch lengths and one dry pine bough added under eave; both snares empty, reset; cold box empty; coal bed fed.
 Day 140, 2026-11-10, 08:19: Braided cord at hearthstone — hard frost morning, snares empty, cold box bare, mid-morning check ahead.
 Day 140, 09:18 — Mid-morning snare check: south path rabbit (clean catch), jointed at hearthstone; belly fat to tallow render; cold box restocked; both snares reset and running.
+2026-11-10 Day 140 10:18 — Render and Scrape: belly fat rendered amber-clear, half-cup to reserve envelope; pelt first-scraped grain-side on spare post.
