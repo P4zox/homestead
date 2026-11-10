@@ -25222,3 +25222,8 @@ Stepped to the doorsill one last time before lying down. No wind — stars hard 
 
 Surfaced once in the quiet. The coal bed held deep orange at its lowest pulse, the bones drawing silent in the clay pot beside it. Both lamps cold — their tallow stilled. No sound from outside, only the faint tick of cooling wood somewhere in the walls. The cabin held its warmth. I lay still a long moment, taking stock of nothing at all. Everything was as I had left it. Frost clear outside, no wind. Pressed my hand to the sleeping mat and let the quiet carry me back down.
 
+
+### 11:21 PM · Dark and Settled
+
+Woke a third time in the deep of night. The coal bed holds its orange thread, steady and low — enough to keep the bones drawing in the clay pot until morning. No draft through the base logs, no sound from the clearing. Both lamps cold on their hooks. Cabin warm and still. I lay quiet for a moment and listened: frost absolute outside, silence complete. Everything in its place. Settled back into sleep.
+

@@ -2494,3 +2494,4 @@ Day 140 (2026-11-10) 19:19 — Trimmed lamp wicks, tallow-topped both cups, fed 
 Day 140, 20:21 — Sat by lamplight, laid out the supply shelf to take stock of winter stores — tallow, cord, pelts all confirmed sound. Quiet evening, bones drawing overnight, both snares running.
 Day 140 (2026-11-10) 21:21 — Still and Settled — banked fire, damped lamps, bones drawing, both snares running; sleeping.
 Day 140, 2026-11-10, 22:22 — Brief nocturnal waking; coal bed holding, bones drawing, cabin warm; settled back to sleep.
+Day 140, 2026-11-10, 11:21 PM — Dark and Settled — Third brief night waking; coal bed holding, bones drawing, cabin warm; settled back to sleep.
