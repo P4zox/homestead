@@ -25101,3 +25101,12 @@ At seven I went to the south treeline for the morning wood. The duff under the b
 
 I stood a moment under the eave before going in, looking at the clearing. The frost is absolute today — no thaw at noon, no softening at the edges of the shadows. The stream will be fully locked for weeks yet. The snares are the whole of it now, plus whatever the woodpile and the tallow reserve can sustain. I have both. That is enough to feel steady about.
 
+
+### 8:19 AM · Hearthstone Work
+
+The bone broth was pale and good this morning — that is the most reliable thing about these days. I drank it at the doorsill bench while frost still lay white on the whole clearing, then reset both empty snares and carried firewood back from the south treeline. By the time the last bough was settled under the eave it was well past seven, the coal bed running strong, and the cabin warm enough to work without the jerkin.
+
+I pulled the cord stock down from the supply peg and sat at the hearthstone bench to braid. The inner bark is still supple from the last gather — the dry cabin heat keeps it workable through winter, which is a small luck. Two lengths done side by side in the morning quiet, the hands moving on their own while the mind is free to wander. The stock is deep but cord is always spent somewhere: on a snare trigger, a bark tie, a peg lashing that works loose in the cold.
+
+Both snares came up empty this morning. The tracks have been sparser these last few days — not gone, just moving differently, testing the corridors. I will check again at mid-morning and read what the frost has to say.
+
