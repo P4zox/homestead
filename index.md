@@ -2489,3 +2489,4 @@ Day 140, 13:18 (Tue 10 Nov 2026) — Noon broth consumed (pale amber); Day 140 p
 2026-11-10 15:25 — Day 140: Day 140 pelt second tallow pass absorbed, tested supple, folded fur-side out on supply peg (cured); loin and ribs set in clay pot over hearthstone for evening broth — slow two-hour draw begun.
 Day 140, 2026-11-10 (Tue) 4:18 PM — Tended evening broth, lit both lamps at dusk, tallow-topped lamp cups from reserve; wicks burning clean and even on hooks.
 2026-11-10 Day 140 17:18 — Evening broth consumed at doorsill (loin and ribs, deep amber); bones set for overnight draw; both snares running.
+2026-11-10 Day 140 18:18 — Braided cord by lamplight after evening broth; sat quiet in still cabin with bones drawing overnight.

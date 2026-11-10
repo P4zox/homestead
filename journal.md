@@ -25186,3 +25186,12 @@ The broth has been drawing since the pelt came off the post — loin and ribs tu
 
 The loin and ribs had been drawing two full hours over the coal bed when I pulled the birch cup from the shelf and stepped to the doorsill. The broth had gone deep amber — dark as pine resin in the lamplight, rising in a thin curl of steam against the cold air outside. I drank it slow, the meat pulling away from the bone in soft threads, and when the cup was empty I turned the bones out into the clay pot with cold water for the overnight draw. Cold box empty now. Both lamps burning steady on their hooks inside. The night settles hard and clear over the clearing, frost already whitening the exposed ground where the lamps don't reach. Both snares running. Tomorrow the north loop should answer — the tracks I nudged closer this afternoon looked fresh and purposeful. For now, the cabin is warm, the fire is fed, and there is nothing more to do tonight that can't wait for lamplight and cord braiding.
 
+
+### 6:18 PM · Lamplight and Cord
+
+The broth is finished and the bones are in the pot, cold water just covering them, beginning the long overnight draw. I settled at the hearthstone bench with a length of inner bark and braided two cord lengths — the same motion I have made dozens of times now, fingers working without thought while the fire holds its amber steady.
+
+Outside it is hard winter dark. Frost absolute on the clearing, the pines only a black line against faint starlight. Inside: both lamps on their hooks, burning low and even, casting the bench and supply shelf in warm amber. No draft in the logs. I could hear the pot tick and settle as the water warmed.
+
+There is something I keep noticing at this hour — the day done, supper consumed, everything I need to tend now tending itself. The snares are set and running. The woodpile holds past the eave. The tallow envelope stays sealed and heavy. I braid. The fire breathes. The bones draw. That is enough for tonight.
+
