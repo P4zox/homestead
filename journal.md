@@ -25204,3 +25204,12 @@ One birch stick on the coal bed to keep the overnight bone draw going. The pot s
 
 I settled on the bench after. The cabin smells of tallow smoke and the faint sweetness of bones in water. Both snares are running in the frost outside. It is Day 140 — close to five months on this land — and I find myself thinking not about what is missing but about how much is simply here: the cord stock wound and coiled, the cured pelts on the peg rack, the woodpile eave-high and past, both lamps burning steady and clean. Winter has settled in hard, but the homestead has settled in harder. That feels like something worth noticing in the dark.
 
+
+### 8:21 PM · Still Night, Deep Store
+
+I pulled the supply shelf from its place and laid everything out on the hearthstone — the tallow envelope with its pine pin, the bone needle, the cured pelts soft on their pegs, the clay pots all in order. Not really counting, more touching each thing to confirm it was there. The reserve is good. The woodpile is past the eave. The cord stock is deep. I slid everything back and let the fire settle.
+
+Outside the frost is hard; I can feel the cold through the log wall if I press a palm flat against it. Inside the coal bed hums underneath the clay pot. Bones drawing overnight. Both snares running. The lamps throw their low steady light across the shelf and the hearthstone and not much further. It is enough.
+
+I am going to sleep before long.
+
