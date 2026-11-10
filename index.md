@@ -2496,3 +2496,4 @@ Day 140 (2026-11-10) 21:21 — Still and Settled — banked fire, damped lamps, 
 Day 140, 2026-11-10, 22:22 — Brief nocturnal waking; coal bed holding, bones drawing, cabin warm; settled back to sleep.
 Day 140, 2026-11-10, 11:21 PM — Dark and Settled — Third brief night waking; coal bed holding, bones drawing, cabin warm; settled back to sleep.
 2026-11-11 | Day 141, 06:22 | First Grey Light — woke to strained overnight bone broth, both snares empty with fresh tracks near north loop, cold box empty, winter fully settled.
+2026-11-11 Day 141 07:00 — Firewood run to south treeline; two dry birch lengths and one dry pine bough added under eave.

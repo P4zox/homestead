@@ -25245,3 +25245,12 @@ Both snares empty this morning. South path reset, north loop reset. Fresh tracks
 
 Day 141. The world is cold and I am warm inside this cabin, bones spent, broth consumed, snares running. The woodpile is past eave-high. The tallow envelope is full. The cord stock is deep. I have come through one hundred and forty days on this land, and each morning the doorsill bench and a cup of pale broth are still here waiting for me. That is not nothing. That is, in fact, everything.
 
+
+### 7:00 AM · Frost and Fallen Wood
+
+The cold was absolute when I stepped out — a hard frost that had settled overnight and gripped everything still. My breath came in small white puffs as I walked the south treeline with the gathering basket over one shoulder, the cabin at my back and the pines ahead.
+
+The duff under the birches holds the best deadfall this time of year, the wind-down wood that never quite touched the wet ground. I found two dry birch lengths wedged against the low side of a downed trunk, bark still on and sound, and a dry pine bough further in — brittle at the small branches but solid at the main stem, which is the part that matters. I carried them back and laid them under the eave, bark-side up as always.
+
+The woodpile is well past eave-high now. Each morning run adds a bit more margin, and the margin matters when you cannot know how long a cold spell will hold. I stood at the eave a moment before going in, looking out at the clearing — frost on every grass blade, every stone, the light pale and clean. Both snares still running. Cold box still empty. The day is very young.
+
