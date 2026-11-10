@@ -25227,3 +25227,21 @@ Surfaced once in the quiet. The coal bed held deep orange at its lowest pulse, t
 
 Woke a third time in the deep of night. The coal bed holds its orange thread, steady and low — enough to keep the bones drawing in the clay pot until morning. No draft through the base logs, no sound from the clearing. Both lamps cold on their hooks. Cabin warm and still. I lay quiet for a moment and listened: frost absolute outside, silence complete. Everything in its place. Settled back into sleep.
 
+
+---
+
+# Day 141 — Wednesday, 11 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:22 AM · First Grey Light
+
+The cabin was dark when I woke, the coal bed still holding a low orange thread. I lay still for a moment, listening — no wind, no draft, the bones in the clay pot drawing quiet beside the hearthstone. Then I rose.
+
+Fed birch curls to the coal bed until they caught. Lifted the bark lid from the clay pot and strained the overnight draw through folded dock — pale amber, steady and clean. Carried it to the doorsill bench and drank it in the first grey light coming over the treeline.
+
+The frost was total. My breath hung in small clouds above the cup. The clearing lay still under a pale sky, every blade and stem rimmed white. It is the kind of cold that feels earned — winter fully arrived, settled deep into the earth.
+
+Both snares empty this morning. South path reset, north loop reset. Fresh tracks in the frost heading toward the north loop from the treeline edge, but nothing caught yet. The corridor is well set. It is only a matter of time.
+
+Day 141. The world is cold and I am warm inside this cabin, bones spent, broth consumed, snares running. The woodpile is past eave-high. The tallow envelope is full. The cord stock is deep. I have come through one hundred and forty days on this land, and each morning the doorsill bench and a cup of pale broth are still here waiting for me. That is not nothing. That is, in fact, everything.
+
