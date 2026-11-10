@@ -2483,3 +2483,4 @@ Day 140, 2026-11-10, 08:19: Braided cord at hearthstone — hard frost morning, 
 Day 140, 09:18 — Mid-morning snare check: south path rabbit (clean catch), jointed at hearthstone; belly fat to tallow render; cold box restocked; both snares reset and running.
 2026-11-10 Day 140 10:18 — Render and Scrape: belly fat rendered amber-clear, half-cup to reserve envelope; pelt first-scraped grain-side on spare post.
 Day 140, 2026-11-10 11:00 — Pelt to Tallow: first tallow pass applied grain-side to Day 140 pelt; folded grain-side out on spare post absorbing; noon broth to follow.
+2026-11-10 12:18 — Day 140, noon: hauled rabbit haunches and shoulders from cold box, set in clay pot over hearthstone for noon broth draw; pelt first tallow pass absorbing; loin and ribs in cold box for evening

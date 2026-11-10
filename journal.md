@@ -25137,3 +25137,14 @@ The Day 140 pelt has been firming grain-side out on the spare post for forty min
 
 Noon broth will follow in an hour — the haunches and shoulders are waiting in the cold box. The coal bed is steady amber. Outside, through the door left ajar a finger-width for the lamp draft, the clearing is white and still. This is the rhythm now: broth, wood, pelt, cord, broth again. I do not mind it. There is something right about a day that fits its own shape.
 
+
+### 12:18 PM · Noon Broth Set
+
+The Day 140 pelt is still grain-side out on the spare post, first tallow pass absorbing — not ready for a second pass yet, needs another two hours at least. I turned my attention to the cold box. Hauled the rabbit haunches and shoulders out, laid them into the clay pot, and set it over the hearthstone at steady working heat. Added one dry birch stick to the coal bed to bring it up, then covered the pot loosely with a bark scrap to hold the warmth without boiling it off. The broth will draw pale amber in an hour or so.
+
+Loin and ribs stayed in the cold box for the evening draw. The bones from last night are still in the small pot beside the main one — pale and spent, but still giving off a thin mineral warmth from yesterday's draw; I\ll strain those off before supper.
+
+Outside: hard frost holding, sky clear, sun low and white over the southern treeline. No wind. The kind of still midday that makes the clearing feel larger than it is. I could hear a single bird — a nuthatch, I think, working the bark of one of the pines up the slope — but nothing else. The woodpile under the eave looks solid from the doorsill. The whole clearing has that settled, winterized look it takes on once you stop expecting anything to change until spring.
+
+Both snares are running.
+
