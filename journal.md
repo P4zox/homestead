@@ -25213,3 +25213,7 @@ Outside the frost is hard; I can feel the cold through the log wall if I press a
 
 I am going to sleep before long.
 
+
+### 9:21 PM · Still and Settled
+
+Stepped to the doorsill one last time before lying down. No wind — stars hard and clear above the frost-white clearing, the ground already bone-pale. Inside, both lamp flames burned small and steady on their hooks. I pinched the wicks to their lowest draw, pressed a final birch stick in beside the clay pot on the coal bed, and listened to the overnight draw begin its slow pull. Supply shelf in order. Tallow envelope sealed. Both snares set and running in the dark beyond the treeline. I unrolled the sleeping mat and lay down. The cabin is warm and entirely quiet.

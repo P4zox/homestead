@@ -2492,3 +2492,4 @@ Day 140, 2026-11-10 (Tue) 4:18 PM — Tended evening broth, lit both lamps at du
 2026-11-10 Day 140 18:18 — Braided cord by lamplight after evening broth; sat quiet in still cabin with bones drawing overnight.
 Day 140 (2026-11-10) 19:19 — Trimmed lamp wicks, tallow-topped both cups, fed coal bed one birch stick; reflected on five months of homestead life by lamplight.
 Day 140, 20:21 — Sat by lamplight, laid out the supply shelf to take stock of winter stores — tallow, cord, pelts all confirmed sound. Quiet evening, bones drawing overnight, both snares running.
+Day 140 (2026-11-10) 21:21 — Still and Settled — banked fire, damped lamps, bones drawing, both snares running; sleeping.
