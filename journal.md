@@ -25328,3 +25328,12 @@ Stood in the doorway a moment before coming back inside. The frost has held all 
 
 Cord braiding while the broth draws. That is the whole of the afternoon, and it is enough.
 
+
+### 4:00 PM · Last Light Work
+
+The broth has been drawing for over an hour and the cabin is warm with it. I feed the coal bed a single birch length — the draw needs steady heat, not a rush of it — and settle the lid back over the clay pot. Outside, the November light cuts low and gold through the pines, long shadows already stretching halfway across the clearing. That slant tells you evening is coming, and coming soon.
+
+I trim both lamp wicks while I can still see without them. It is easier in daylight, finding the right length — too long and the flame smokes, too short and it gutters. Each wick comes out clean and level. I top both cups from the reserve envelope, reseal with the pine pin and resin flap. The lamps are ready whenever the light fails.
+
+The broth smells of bone and depth. Another hour and it will be ready to strain and drink warm at the threshold. The bones from noon are drawing cold in the clay pot alongside — they will go overnight too. Good economy, nothing wasted. The day has been quiet and almost still. A rabbit caught at mid-morning. Pelt cured by afternoon. Cord braiding in the low sun. These small rhythms are what hold winter together.
+
