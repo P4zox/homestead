@@ -25355,3 +25355,12 @@ The bones draw overnight in cold water on the hearthstone — set after supper, 
 
 I have been braiding cord since the light failed outside. Strip by strip from the bark stock, the work going easy in the quiet rhythm of it. The pelt is cured on the supply peg, the cold box is empty, both snares are running out there in the hard frost. The day ends with nothing left undone — a full day: catch, cure, broth, all complete.
 
+
+### 7:23 PM · Lamplight Hours
+
+The pot sits at the hearthstone edge, bones drawing slowly in cold water, and both lamps burn with their low amber light. Outside the frost is absolute — I can hear the cabin timbers contracting with it, small pops and shifts that have become familiar by now, almost reassuring. The shelter holds.
+
+I am still braiding. There is a rhythm to it at this hour that I find difficult to give up: strip the inner bark, divide, work each half with slow turns, feel the cord tighten into itself. Two more lengths done and coiled with the rest. The stock is healthy. I do not know exactly what winter will ask of me, but cordage is never the wrong thing to have. Snares, lashings, repairs I cannot predict — it always finds a use.
+
+Both snares running out there in the dark. The fire banked to a deep coal bed, steady enough to keep the draw gentle through the night. I am warm and fed, and there is enough of everything that matters. It is a good way to end an evening.
+
