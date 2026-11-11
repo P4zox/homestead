@@ -25373,3 +25373,14 @@ It is good to have enough of everything tonight: enough fuel in the coal bed, en
 
 I will braid a few more lengths before I bank the fire for the night. The bones will draw until morning and I will strain them at the doorsill in first grey light. The snares will tell me what they tell me. For now the lamp is enough.
 
+
+### 9:22 PM · Settling Into Dark
+
+The lamps are at their lowest thread of flame, the coal bed a steady amber under the clay pot. I added one last birch stick to the fire — a small addition, just enough to keep the overnight bone draw gentle and even — then damped both wicks until they burned thin and calm. Outside, the frost has deepened into its full winter silence. The pines make no sound at all.
+
+This is the hour I have come to know best, maybe. The day done, the cabin warm and held, both snares running out in the dark with their loops set where the tracks have been. I do not worry about them anymore. They work while I sleep, and in the morning I will find what I find. There is a steadiness in that — in trusting the small mechanisms I have set in motion and letting them run.
+
+The bone draw will take all night to come into itself. I will strain it at the doorsill tomorrow in the first grey light, the same as every morning now, and begin again. It is strange how the repetition has stopped feeling like mere survival and started feeling like something worth having. The broth, the fire, the cord braiding, the lamp trimming — each small act is part of the shape of a life here, and the shape has begun to feel like mine.
+
+Lamps dimmed to their lowest. Fire banked for the night.
+
