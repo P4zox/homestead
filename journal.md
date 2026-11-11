@@ -25348,3 +25348,10 @@ Bones went into the clay pot with cold water — overnight draw started early, s
 
 I lit both lamps off the coal bed and sat back inside with the braiding. Two more lengths of two-ply cord added to the stock. Birch inner bark split to even width, twisted and worked by feel in the warm light. The cabin is warm. The lamps burn steady. Outside, hard frost — the kind that settles into silence.
 
+
+### 6:19 PM · Evening Cord, Steady Fire
+
+The bones draw overnight in cold water on the hearthstone — set after supper, the clay pot resting in low residual heat from the coal bed. I added one birch length to keep the overnight pull gentle and even through the dark hours. Both lamps burn steady on their hooks.
+
+I have been braiding cord since the light failed outside. Strip by strip from the bark stock, the work going easy in the quiet rhythm of it. The pelt is cured on the supply peg, the cold box is empty, both snares are running out there in the hard frost. The day ends with nothing left undone — a full day: catch, cure, broth, all complete.
+

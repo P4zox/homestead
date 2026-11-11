@@ -11,3 +11,4 @@
 15:18 — Loin and ribs pulled from cold box; set in clay pot over hearthstone for evening broth — slow simmer begun; cold box now empty; bones drawing cold in clay pot; both snares running; cord braiding at doorsill bench.
 16:00 — Tended evening broth — added one birch length to coal bed, steady slow draw; trimmed both lamp wicks in last afternoon light; topped both cups from tallow reserve, resealed with pine pin and resin flap; lamps ready for evening; both snares running; cord braiding at doorsill bench.
 17:18 — Evening broth consumed at doorsill bench — loin and ribs deep amber, meat off bone in long shreds; bones set in clay pot with cold water for overnight draw; both lamps lit off coal bed; cord braiding by lamplight; cold box empty; both snares running.
+18:19 — Added one birch length to coal bed to keep overnight bone draw gentle and even; cord braiding by lamplight — two more lengths braided; both lamps burning steady; cold box empty; both snares running.
