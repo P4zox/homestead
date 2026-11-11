@@ -2504,3 +2504,4 @@ Day 141 (2026-11-11 11:18) — Noon broth started: haunches and shoulders from m
 2026-11-11 Day 141 12:18 — Noon broth consumed (haunches and shoulders, pale amber, birch cup drained); second tallow pass on Day 141 pelt complete; bones set in clay pot for overnight draw early; loin and ribs in cold box for evening broth.
 Day 141 · 2026-11-11 · 13:19 — Braided cord lengths at doorsill bench; pelt absorbing second tallow pass grain-side out on spare post; bones drawing cold in clay pot; loin and ribs in cold box for evening broth.
 2026-11-11 Day 141 14:23 — Day 141 pelt second tallow pass fully absorbed; folded fur-side out on supply peg (cured); afternoon cord braiding at doorsill bench.
+Day 141, 3:18 PM — Evening broth set (loin and ribs in clay pot, slow coal-bed simmer begun; pelt cured on supply peg; cord braiding at doorsill bench).

@@ -25317,3 +25317,14 @@ The second tallow pass took well. I checked the pelt late in the afternoon and f
 Cord braiding at the doorsill in the cold clear light. There is something settling about hands busy with a known task while the afternoon moves quietly. The bones are already drawing cold in the clay pot, waiting for the hearthstone's warmth this evening. The loin and ribs will come out at the fire edge in a few hours; the broth should run deep amber before dark.
 
 Both snares out. Woodpile solid. Reserve sealed. Hard winter but nothing that cannot be outlasted.
+
+### 3:18 PM · Evening Broth Set
+
+Finished the cord braiding with the afternoon going cold and still. The pelt is cured and on its peg, the cord lengths coiled on the bench beside me. Everything settled.
+
+Pulled the loin and ribs from the cold box — still firm and cold from the morning catch — and set them in the clay pot over the hearthstone on a slow coal bed. No hurry here. Three hours at least before evening fully comes down, and the fire does not need to race. The bones from noon are already drawing cold in their pot alongside, the water going slowly amber on the cabin floor. Two pots, two different kinds of time.
+
+Stood in the doorway a moment before coming back inside. The frost has held all day without wind. The clearing is very still, the sky going pale at the edges where the treeline cuts it. A birch branch snapped somewhere to the north — the sound carried a long way. Both snares out there in the quiet.
+
+Cord braiding while the broth draws. That is the whole of the afternoon, and it is enough.
+
