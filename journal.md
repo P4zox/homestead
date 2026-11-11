@@ -25278,3 +25278,14 @@ The cold box holds the portions. Noon broth will come from the haunches and shou
 
 Checked the pelt at the spare post around mid-morning — the grain side had firmed well in the cold air, membrane-clean and taut, pulling slightly at the pegs in a satisfying way. I warmed a small cup of tallow at the edge of the fire until it ran liquid-clear, then worked it into the hide with a smooth river stone, pressing in slow circles from the center out toward the edges. The pelt drank it in at first, then began to resist — which is what I want, the fibers taking what they need and no more. Set it back on the post to draw through before the second pass later in the afternoon. The cabin is warm and quiet at this hour. Both snares running. Cold box still holds the rabbit portions from this morning.
 
+
+### 11:18 AM · Broth to the Fire
+
+The pelt has been drawing on the spare post since the first tallow pass, grain side pale and firming in the cold air. With the second pass still a few hours off, I turned to the cold box and pulled this morning's haunches and shoulders.
+
+The clay pot went over the hearthstone — water from the cedar bucket, the rabbit pieces settled in, coals raked together under the base. The draw will take an hour and a half, maybe more. It is cold enough today that every broth feels earned, the kind of cold where you feel the warmth of the fire on your shins even before you sit down.
+
+Both snares are still running. The north loop gave me this rabbit at 08:18, and nothing from the south since reset. Fresh tracks near the north loop this morning tell me the animals are still moving, which is something — mid-November and the rabbits haven't gone deep yet.
+
+I crouched by the pot for a moment and watched the first thin curl of steam lift from the water surface. That curl, that small insistent sign of heat, always reassures me in a way that no inventory quite does.
+
