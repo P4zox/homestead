@@ -25404,3 +25404,17 @@ I am in the sleeping bag, the fur lap piece across my legs. Outside, the snares 
 
 It is a good kind of nothing — the kind that only comes when the day has been full.
 
+
+---
+
+# Day 142 — Thursday, 12 November 2026
+*early winter · frost absolute, sky pale grey*
+
+### 6:18 AM · Bone Broth, First Light
+
+The sleeping bag was warm and the cabin fully dark when I surfaced just after six. Coal bed had held — a low orange pulse at the base of the hearthstone, the kind that asks very little to come back. I fed it three birch curls and listened to them catch before getting up all the way.
+
+The clay pot was sitting on the stone ledge where I left it. Day 141's evening bones — loin and ribs from yesterday's rabbit — had been drawing all night, and by morning they had given everything they had: a good pale amber, clear and quiet in the first grey light coming through the doorsill gap. I brought it outside and stood at the bench to drink it. Cold on my face. Frost on the ground. The treeline just visible as dark shapes against a paler sky. The broth was the right thing.
+
+Both snares still need checking — that comes next. The cold has been absolute this week, every footprint in the frost a small mystery. Some mornings the loops hold something. Some they hold only the shape of the cold itself. Either way they want to be walked.
+

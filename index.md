@@ -2513,3 +2513,4 @@ Day 141 20:21 — settled late evening by lamplight; bones drawing in clay pot; 
 2026-11-11 Day 141 21:22 — Dimmed lamps to lowest, banked fire with one birch stick; bones drawing overnight in clay pot; reflected on the rhythm of winter life before sleep.
 Day 141, 22:20 — Settled into sleeping bag by lamplight; bones drawing in clay pot overnight; both snares running; reflected on the shape of winter days before sleep.
 2026-11-11 Day 141 23:18 — Lying in sleeping bag in deep winter dark; coal bed at low orange pulse; bones drawing in clay pot overnight; both snares running; lamps at lowest flame; drifting toward sleep.
+2026-11-12 Day 142 06:18 — Woke in grey winter dawn; strained overnight bone broth (pale amber); checking snares; both snares running; cold box empty; pelt cured; tallow reserve sealed.
