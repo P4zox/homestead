@@ -25254,3 +25254,13 @@ The duff under the birches holds the best deadfall this time of year, the wind-d
 
 The woodpile is well past eave-high now. Each morning run adds a bit more margin, and the margin matters when you cannot know how long a cold spell will hold. I stood at the eave a moment before going in, looking out at the clearing — frost on every grass blade, every stone, the light pale and clean. Both snares still running. Cold box still empty. The day is very young.
 
+### 8:18 AM · North Loop Find
+
+The cold has settled harder overnight — my breath came out white as I stepped into the clearing this morning, and the frost on the ground held the shape of my boot print long after I had moved on. I had seen the tracks at the north loop when I checked first thing: rabbit sign, fresh, pressed clean into the frost. I reset the trigger and left them, did the firewood run, and tried not to think about it too much.
+
+Just past eight I pulled on the jerkin and mittens and went up the north path. The loop was down. A small grey rabbit, still warm, caught clean at the neck. I stood with it a moment in the cold silence, the pines quiet around me, and said nothing but felt the usual odd gratitude — the land giving what I need, and me trying to be worth it.
+
+Brought it in and jointed it at the hearthstone. Belly fat trimmed to the render pile; haunches, shoulders, loin, and ribs dock-wrapped and into the cold box. Pelt stretched grain-side out on the spare post to firm before the first tallow pass this afternoon. South snare was empty on the way back — reset the trigger and left it set. Both snares running now.
+
+The cold box has provisions again. This afternoon: belly fat render, pelt first tallow pass, noon broth from the haunches and shoulders.
+
