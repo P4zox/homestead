@@ -25289,3 +25289,14 @@ Both snares are still running. The north loop gave me this rabbit at 08:18, and 
 
 I crouched by the pot for a moment and watched the first thin curl of steam lift from the water surface. That curl, that small insistent sign of heat, always reassures me in a way that no inventory quite does.
 
+
+### 12:18 PM · Amber at Midday
+
+The haunches and shoulders drew a full hour. I lifted the lid at the clay pot and let the steam rise — pale amber, good color, clean smell. Carried the birch cup to the doorsill bench and sat a moment before drinking. The sky overhead is a hard clean blue, the kind you only see in deep winter. The frost never lifted from the clearing today; the shadows hold it in every low corner.
+
+Drank slowly, the cup warming both hands. The meat came off the bone in long tender shreds — I ate them all. Bones went back in the pot with a cup of cold water, lid on, coals at low ash — overnight draw started early today.
+
+The pelt on the spare post has had its grain side drawing through the morning. I pressed my thumb into the center panel and felt some give — the fibers loosening under the first pass. I warmed a little tallow at the fire edge until it ran liquid-clear, then worked it in slow circles grain-side, center to edge, letting the stone press it through. The pelt took the second pass well; it resisted less than the first, the fibers already starting to yield. Set it back on the post grain-side out to absorb through the afternoon.
+
+Loin and ribs are still in the cold box, waiting for evening. Both snares running. The cold holds.
+
