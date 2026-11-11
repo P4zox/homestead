@@ -2498,3 +2498,4 @@ Day 140, 2026-11-10, 11:21 PM — Dark and Settled — Third brief night waking;
 2026-11-11 | Day 141, 06:22 | First Grey Light — woke to strained overnight bone broth, both snares empty with fresh tracks near north loop, cold box empty, winter fully settled.
 2026-11-11 Day 141 07:00 — Firewood run to south treeline; two dry birch lengths and one dry pine bough added under eave.
 2026-11-11 Day 141 08:18 — Mid-morning snare check: north loop rabbit catch; jointed at hearthstone; cold box replenished with portions for noon and evening broth.
+2026-11-11 09:21 — Day 141 — belly fat rendered amber-clear into reserve; Day 141 pelt first-scraped grain-side, membrane off clean, pegged grain-side out on spare post to firm.

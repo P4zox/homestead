@@ -25264,3 +25264,12 @@ Brought it in and jointed it at the hearthstone. Belly fat trimmed to the render
 
 The cold box has provisions again. This afternoon: belly fat render, pelt first tallow pass, noon broth from the haunches and shoulders.
 
+
+### 9:21 AM · Fat Rendered, Pelt Scraped
+
+The belly fat from this morning's catch had been sitting in a bark fold beside the hearthstone — I coaxed the coal bed up with two dry birch curls and set the clay bowl directly in the heat. It rendered down quickly, maybe ten minutes, and came off pale amber and clean. I poured it straight into the reserve envelope, pressed the pine pin through the flap, and sealed the edge with a dab of resin. The envelope sits full and round on the supply shelf. Each small addition like this feels like putting money away.
+
+Then I turned to the pelt. It had been hanging grain-side out on the spare post for a little over an hour, cooling and firming in the cabin air. I scraped it with the spine of the knife — slow strokes from haunch to shoulder, blade at a low angle — lifting membrane in thin translucent sheets that curled away and fell to the hearthstone. The grain came clean and pale across the full surface, no roughness, no staining. I pegged it grain-side out again on the spare post to firm for another hour before the first tallow pass.
+
+The cold box holds the portions. Noon broth will come from the haunches and shoulders. The day is running clean.
+
