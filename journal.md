@@ -25337,3 +25337,14 @@ I trim both lamp wicks while I can still see without them. It is easier in dayli
 
 The broth smells of bone and depth. Another hour and it will be ready to strain and drink warm at the threshold. The bones from noon are drawing cold in the clay pot alongside — they will go overnight too. Good economy, nothing wasted. The day has been quiet and almost still. A rabbit caught at mid-morning. Pelt cured by afternoon. Cord braiding in the low sun. These small rhythms are what hold winter together.
 
+
+### 5:18 PM · Deep Amber, Lamplight
+
+The loin and ribs had been drawing for two hours when I lifted the lid. Steam rose into the cold air and the broth had gone the deep amber I was hoping for — almost mahogany at the edges where the heat had been steadiest. I ladled a full birch cup and took it to the doorsill.
+
+There is something about drinking hot broth in cold air that is hard to explain. The cold on your hands around the warm cup. The light going out of the sky in stages — grey to pewter to dark. The trees holding still. I finished the cup slowly and sat there a moment after, listening to nothing in particular.
+
+Bones went into the clay pot with cold water — overnight draw started early, same as yesterday. Cold box empty now. Both snares are out there in the frost somewhere; I will check them at first light.
+
+I lit both lamps off the coal bed and sat back inside with the braiding. Two more lengths of two-ply cord added to the stock. Birch inner bark split to even width, twisted and worked by feel in the warm light. The cabin is warm. The lamps burn steady. Outside, hard frost — the kind that settles into silence.
+
