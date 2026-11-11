@@ -13,3 +13,4 @@
 17:18 — Evening broth consumed at doorsill bench — loin and ribs deep amber, meat off bone in long shreds; bones set in clay pot with cold water for overnight draw; both lamps lit off coal bed; cord braiding by lamplight; cold box empty; both snares running.
 18:19 — Added one birch length to coal bed to keep overnight bone draw gentle and even; cord braiding by lamplight — two more lengths braided; both lamps burning steady; cold box empty; both snares running.
 19:23 — Cord braiding by lamplight — two more lengths braided; bones drawing in clay pot for overnight draw; both snares running; coal bed steady; both lamps burning low and even; sat warm by the hearthstone.
+20:21 — Sat by lamplight listening to the frost settle against the cabin walls; braided a final few cord lengths; coal bed steady and low; bones drawing in clay pot for morning; both lamps burning even; both snares running; cold box empty; tallow reserve sealed.

@@ -25364,3 +25364,12 @@ I am still braiding. There is a rhythm to it at this hour that I find difficult 
 
 Both snares running out there in the dark. The fire banked to a deep coal bed, steady enough to keep the draw gentle through the night. I am warm and fed, and there is enough of everything that matters. It is a good way to end an evening.
 
+
+### 8:21 PM · Long Dark Settled
+
+The lamps have burned down to a low, steady flame — both wicks trimmed and settled, casting amber circles on the log walls. I set down the braiding cord and just sat for a while, listening. Outside, the frost is absolute; I can feel the cold through the cabin walls if I press a hand against them, but the fire holds. The bones are drawing slowly in the clay pot, and the whole cabin smells of warm broth and old smoke and tallow, which is to say it smells like home now, whatever that means in a place I built from scratch.
+
+It is good to have enough of everything tonight: enough fuel in the coal bed, enough tallow sealed in the reserve envelope, both snares running in the dark, the pelt cured and folded on its peg. The cord stock is growing length by length. I am not sure when I stopped feeling like I was fighting the winter and started feeling like I was simply inside it, settled, the cold a thing that rings the cabin rather than enters it. Somewhere in the last few weeks the balance shifted. I notice it on evenings like this — still, full, the dark pressing gently against the bark roof and nothing urgent asking for me.
+
+I will braid a few more lengths before I bank the fire for the night. The bones will draw until morning and I will strain them at the doorsill in first grey light. The snares will tell me what they tell me. For now the lamp is enough.
+
