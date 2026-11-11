@@ -25273,3 +25273,8 @@ Then I turned to the pelt. It had been hanging grain-side out on the spare post 
 
 The cold box holds the portions. Noon broth will come from the haunches and shoulders. The day is running clean.
 
+
+### 10:18 AM · First Tallow Pass
+
+Checked the pelt at the spare post around mid-morning — the grain side had firmed well in the cold air, membrane-clean and taut, pulling slightly at the pegs in a satisfying way. I warmed a small cup of tallow at the edge of the fire until it ran liquid-clear, then worked it into the hide with a smooth river stone, pressing in slow circles from the center out toward the edges. The pelt drank it in at first, then began to resist — which is what I want, the fibers taking what they need and no more. Set it back on the post to draw through before the second pass later in the afternoon. The cabin is warm and quiet at this hour. Both snares running. Cold box still holds the rabbit portions from this morning.
+
