@@ -25395,3 +25395,12 @@ I no longer count the days with any sense of urgency. They come and go, each one
 
 That thought is enough to sleep on.
 
+
+### 11:18 PM · Into the Deep Dark
+
+The coal bed has quieted to a low orange pulse. Both lamps at their dimmest flame — small warm points in the dark. The bones are drawing in the clay pot, their slow pull marking time I no longer need to track. The cabin is as sealed as I know how to make it; the frost presses at every course of logs and finds no way through.
+
+I am in the sleeping bag, the fur lap piece across my legs. Outside, the snares are set and running. Tomorrow they will tell me what the night brought. For now there is nothing to do but let the dark work.
+
+It is a good kind of nothing — the kind that only comes when the day has been full.
+

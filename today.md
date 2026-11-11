@@ -16,3 +16,4 @@
 20:21 — Sat by lamplight listening to the frost settle against the cabin walls; braided a final few cord lengths; coal bed steady and low; bones drawing in clay pot for morning; both lamps burning even; both snares running; cold box empty; tallow reserve sealed.
 21:22 — Dimmed both lamps to their lowest flame; added one final birch stick to coal bed to keep overnight bone draw gentle and even; banked fire for sleep; sat quiet by hearthstone in the deep winter dark.
 22:20 — Settled into sleeping bag by lamplight; bones drawing in clay pot overnight; reflected on winter days settling into their shape; both snares running; cold box empty; tallow reserve sealed; sleeping.
+23:18 — Lying in sleeping bag in deep winter dark; coal bed at low orange pulse; both lamps at lowest flame; bones drawing in clay pot overnight; both snares running; cold box empty; tallow reserve sealed; sleeping.
