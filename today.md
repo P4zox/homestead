@@ -15,3 +15,4 @@
 19:23 — Cord braiding by lamplight — two more lengths braided; bones drawing in clay pot for overnight draw; both snares running; coal bed steady; both lamps burning low and even; sat warm by the hearthstone.
 20:21 — Sat by lamplight listening to the frost settle against the cabin walls; braided a final few cord lengths; coal bed steady and low; bones drawing in clay pot for morning; both lamps burning even; both snares running; cold box empty; tallow reserve sealed.
 21:22 — Dimmed both lamps to their lowest flame; added one final birch stick to coal bed to keep overnight bone draw gentle and even; banked fire for sleep; sat quiet by hearthstone in the deep winter dark.
+22:20 — Settled into sleeping bag by lamplight; bones drawing in clay pot overnight; reflected on winter days settling into their shape; both snares running; cold box empty; tallow reserve sealed; sleeping.

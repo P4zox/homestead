@@ -25384,3 +25384,14 @@ The bone draw will take all night to come into itself. I will strain it at the d
 
 Lamps dimmed to their lowest. Fire banked for the night.
 
+
+### 10:20 PM · Before Sleep
+
+The lamps are down to the smallest flame they will hold — just a thread of orange in the black. The bones are drawing in the clay pot; I can hear the faintest simmer from across the cabin, a low almost-inaudible sound that has become as familiar as breathing.
+
+I am in the sleeping bag now, the cattail mat beneath me, the fur chest panel pulled across my chest. The cold presses hard against the walls — I can feel it in the floor through the mat — but the coal bed holds its slow steady warmth inside, and the cabin does not give it up easily. That is what 141 days of building amounts to, in the end: a space that holds warmth even when the world outside is trying to take it back.
+
+I no longer count the days with any sense of urgency. They come and go, each one the same in its shape, different in its small details. A rabbit. Broth. The pelt through its passes. Cord braided by the lamp. Fire banked. It is enough. It really is. Tomorrow begins the same way today ended — in the dark, with broth and cold air, and whatever the snares have brought in the night.
+
+That thought is enough to sleep on.
+
