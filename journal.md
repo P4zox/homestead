@@ -25309,3 +25309,11 @@ I sat at the doorsill bench with a lap of stripped bark lengths, pulling two-str
 
 Outside, the clearing holds still. No wind today. The cold has a dry quality, clean and bright, the kind that keeps indefinitely. Somewhere past the north treeline, the two snares are set and waiting. I will check them before evening.
 
+
+### 2:23 PM · Pelt Cured, Cord Grows
+
+The second tallow pass took well. I checked the pelt late in the afternoon and found it had drawn through fully — thumb run from haunch seam to shoulder, the grain side supple and even without any stiff patches. I folded it fur-side out and set it on the supply peg beside the others. That is another one cured and ready.
+
+Cord braiding at the doorsill in the cold clear light. There is something settling about hands busy with a known task while the afternoon moves quietly. The bones are already drawing cold in the clay pot, waiting for the hearthstone's warmth this evening. The loin and ribs will come out at the fire edge in a few hours; the broth should run deep amber before dark.
+
+Both snares out. Woodpile solid. Reserve sealed. Hard winter but nothing that cannot be outlasted.
