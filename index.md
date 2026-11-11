@@ -2502,3 +2502,4 @@ Day 140, 2026-11-10, 11:21 PM — Dark and Settled — Third brief night waking;
 2026-11-11 Day 141 10:18 — First tallow pass on Day 141 pelt; pelt drawing on spare post; both snares running; cold box: rabbit portions.
 Day 141 (2026-11-11 11:18) — Noon broth started: haunches and shoulders from morning rabbit in clay pot over hearthstone; pelt first tallow pass drawing on spare post.
 2026-11-11 Day 141 12:18 — Noon broth consumed (haunches and shoulders, pale amber, birch cup drained); second tallow pass on Day 141 pelt complete; bones set in clay pot for overnight draw early; loin and ribs in cold box for evening broth.
+Day 141 · 2026-11-11 · 13:19 — Braided cord lengths at doorsill bench; pelt absorbing second tallow pass grain-side out on spare post; bones drawing cold in clay pot; loin and ribs in cold box for evening broth.

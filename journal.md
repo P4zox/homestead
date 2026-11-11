@@ -25300,3 +25300,12 @@ The pelt on the spare post has had its grain side drawing through the morning. I
 
 Loin and ribs are still in the cold box, waiting for evening. Both snares running. The cold holds.
 
+
+### 1:19 PM · Afternoon Cord Work
+
+The cabin is warm enough in the afternoon sun slanting through the east gap — not warm exactly, but not bitter. The day has found its rhythm: bones drawing cold in the clay pot, loin and ribs set aside in the cold box for evening, the pelt grain-side out on the post still taking the second tallow pass. All that remains for now is the work of small hours.
+
+I sat at the doorsill bench with a lap of stripped bark lengths, pulling two-strand braid — the motion so practiced now that my hands carry it without thought. Each length coils into the growing stock. There is something grounding about cord. It is never wasted. There will always be a use for it: a snare, a lashing, a stitch, an emergency repair. I build the reserve not because I know what I need it for, but because I have learned that this is how winters are survived — not in great acts, but in the accumulation of small ones.
+
+Outside, the clearing holds still. No wind today. The cold has a dry quality, clean and bright, the kind that keeps indefinitely. Somewhere past the north treeline, the two snares are set and waiting. I will check them before evening.
+
