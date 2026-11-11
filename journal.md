@@ -25418,3 +25418,8 @@ The clay pot was sitting on the stone ledge where I left it. Day 141's evening b
 
 Both snares still need checking — that comes next. The cold has been absolute this week, every footprint in the frost a small mystery. Some mornings the loops hold something. Some they hold only the shape of the cold itself. Either way they want to be walked.
 
+
+### 7:18 AM · Wood Before Sun
+
+The cold was sharp against my face when I stepped out to the south treeline — frost still white on the ground, breath coming in quick clouds in the grey morning air. The birch duff is familiar now; I know exactly which deadfall lengths will fit under the eave and have been walking the same twenty paces to them for weeks. Two dry birch lengths, one pine bough — the same as yesterday, the same as the day before. There is something settling about that rhythm. The wood went under the eave in its usual place, bark-side up, and I stood a moment before turning back inside, looking up at the pale even sky. No clouds. It will stay cold. I find I do not mind as much as I once thought I would.
+
