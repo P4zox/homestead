@@ -25571,3 +25571,8 @@ Both snares came back empty this morning. The ground reads like packed iron unde
 
 Day 143. The pattern holds: broth, snares, cord, fire. I am not complaining.
 
+
+### 7:18 AM · South Treeline Run
+
+The bone broth settled in me and I stood at the doorsill a little longer than usual, watching the frost catch the first morning light on the clearing. Clear sky, hard cold — the kind of morning that makes every small task feel purposeful. I went south to the treeline duff while the cabin held its heat behind me, following the path I have walked so many mornings now that my feet find it without thought. Two dry birch lengths and a pine bough, the wood cold and hollow-sounding when I knocked them together. I stacked them under the eave as always, bark-side up, and stood back to look at the row. That woodpile is one of my quiet satisfactions this winter — it was eave-high before the cold came in earnest, and each morning I add a little more to the buffer. The tracks near the north loop are still on my mind. Fresh prints in the frost this morning, pressed clear and close to the loop — the kind of sign that makes you feel the snare is set right. I will check both loops later. For now the cabin is warm, the wood is stacked, and the morning holds.
+
