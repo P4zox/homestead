@@ -25452,3 +25452,16 @@ Pulled the haunches and shoulders from the cold box — today's rabbit, jointed 
 
 Outside, the clearing holds its November stillness. Hard frost, pale sky, nothing moving. The air bites at the door gap when I crack it open to check the sky — a habit — and I shut it quickly. The world keeps getting smaller at this time of year: the cabin, the fire, the pot ticking on the hearthstone, the smell of warming rabbit beginning to fill the air. I find I'm glad of it. It's enough to have this — something coming, the day doing what it should.
 
+
+### 12:19 PM · Noon Broth, Clear Sky
+
+The haunches and shoulders had been drawing since eleven — over an hour of slow heat on the coal bed, the clay pot sitting steady on the hearthstone. By noon the broth was deep amber and clear. I lifted the pot, poured into the birch cup, and carried it out to the doorsill bench.
+
+The clearing was still. Hard frost on every surface, sky pale blue and open above the treeline. The cold had a cleanness to it today — no wind, no movement, just the white light on the frost-covered ground and the birch cup warm between both hands.
+
+I drained the cup slowly. When it was empty I brought the bones in, settled them into the clay pot with cold water, and covered it for the overnight draw. The loin and ribs went back to the cold box shelf for this evening.
+
+The pelt is still absorbing its first tallow pass on the spare post. I pressed my thumb against the grain side — soft and warming, not quite through yet. Another hour and I will check it again.
+
+A quiet noon. The day has its shape and I have mine inside it.
+
