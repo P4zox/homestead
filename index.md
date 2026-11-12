@@ -2523,3 +2523,4 @@ Day 142, 2026-11-12 12:19 — Noon broth consumed (haunches and shoulders, deep 
 2026-11-12 Day 142 13:19 — Second tallow pass on rabbit pelt; grain-side absorbing on spare post; loin and ribs in cold box; bones drawing overnight.
 Day 142, 2:18 PM — Day 142 rabbit pelt second tallow pass absorbed; tested supple; folded fur-side out on supply peg (cured). Two cured pelts on peg. Evening broth (loin and ribs) pending.
 2026-11-12 Day 142 15:18 — Evening broth set: loin and ribs in clay pot over hearthstone, slow draw begun; pelt cured on supply peg; day's work largely done.
+Day 142 (Thu 12 Nov 2026) 16:18 — Tended evening broth; two birch curls to coal bed; color deepening to amber; first lamp steady; frost absolute outside.

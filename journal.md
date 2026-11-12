@@ -25490,3 +25490,12 @@ The afternoon light is thin and pale over the frost-hard clearing, the sky a was
 
 The day has had a good shape to it. Snare catch before eight, belly fat rendered, pelt through its first and second tallow passes, cured and folded fur-side out on the supply peg before the afternoon shadows lengthened. Now both clay pots are going — tonight's broth pulling slow over the coals, yesterday's bones drawing cool in their own pot alongside. The cabin is warm and quiet. The snares are running out in the dark treeline. The tallow reserve is sealed and full.
 
+
+### 4:18 PM · Broth Deepening
+
+The loin and ribs have been drawing for an hour. I lifted the bark lid and leaned close — the liquid had shifted from grey-clear to the first faint amber, moving in slow rolls off the coal bed. The smell is good: clean and dense, the kind that settles into the walls. I added two dry birch curls to the fire to hold the simmer even and watched the color deepen.
+
+Stepped to the doorsill to check the light. The clearing is stark and white, frost absolute, sky holding its hard November blue above the treeline. No wind. Both snares are out there somewhere in the cold, set and waiting. I will check them at first grey light tomorrow.
+
+Back inside with the door latched. The first lamp burns steady on its hook, the second pot holds the noon bones drawing slow in cold water on the far hearthstone edge. The broth wants another two hours before it is ready. I will sit with it, braid a length of cord, let the cabin warm around me.
+
