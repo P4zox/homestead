@@ -2518,3 +2518,4 @@ Day 142, 07:18 AM — gathered two dry birch lengths and one pine bough from sou
 2026-11-12 Day 142 08:00 — South snare catch; small grey doe jointed, cold box loaded, both snares running.
 2026-11-12 Day 142 09:21 — Belly fat rendered to tallow reserve; pelt first-scraped, grain-side out on spare post to firm.
 2026-11-12 Day 142 10:18 — First tallow pass applied to Day 142 rabbit pelt (grain-side), folded grain-side out on spare post to absorb.
+Day 142, 2026-11-12 11:18 — Noon broth started: haunches and shoulders in clay pot over hearthstone; pelt first tallow pass absorbing.

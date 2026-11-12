@@ -25445,3 +25445,10 @@ The cold box still holds today's portions — haunches and shoulders will come o
 
 I stood at the doorsill for a moment after finishing, hands still faintly waxy from the tallow. Clear sky overhead, the pines dead-still in hard frost. No wind at all. The kind of cold morning that asks nothing of you except that you stay warm and keep moving.
 
+
+### 11:18 AM · Broth at Midmorning
+
+Pulled the haunches and shoulders from the cold box — today's rabbit, jointed clean this morning at the hearthstone. Set them in the clay pot with a cup of cold water over the coal bed. The fire is steady amber. The pelt sits folded grain-side out on the spare post, the first tallow pass still working in; I'll give it a few more hours before the second.
+
+Outside, the clearing holds its November stillness. Hard frost, pale sky, nothing moving. The air bites at the door gap when I crack it open to check the sky — a habit — and I shut it quickly. The world keeps getting smaller at this time of year: the cabin, the fire, the pot ticking on the hearthstone, the smell of warming rabbit beginning to fill the air. I find I'm glad of it. It's enough to have this — something coming, the day doing what it should.
+
