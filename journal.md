@@ -25473,3 +25473,13 @@ I mixed a measure from the reserve and worked it in with the flat of my hand —
 
 Both snares are running. The loin and ribs wait in the cold box for the evening draw. The bones from noon are already in the pot with cold water, drawing slow.
 
+### 2:18 PM · Pelt to the Peg
+
+The hide has had an hour. I press a thumb to the haunch seam and work the edge back and forth — it moves clean, no pull, pale and even-toned all the way across. The second pass is in.
+
+I fold it fur-side out, the grey winter coat dense and soft against my palm, and slide it onto the supply peg beside yesterday's. Two pelts hanging close in weight and size. The peg holds them without complaint.
+
+The bones are drawing slow in the clay pot. Loin and ribs are still cold in the box for evening. The light has gone to that low-angled winter cut, hard across the clearing, catching the frost still lying in the shadows of the treeline. It does not feel like there is much afternoon left.
+
+I stand a moment at the doorsill, the air cold enough to make my eyes water a little. Two good pelts. That is enough for one day.
+
