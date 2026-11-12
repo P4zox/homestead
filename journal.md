@@ -25512,3 +25512,10 @@ Full dark outside, frost absolute — only the two lamps saying where I am. Stil
 
 I checked both lamps: wicks still even, cups more than half full from last evening topping — no need to open the reserve. Two more braided lengths added to the stock. One birch length laid across the coal bed to hold overnight warmth without flaring. The cabin is warm and steady.
 
+
+### 7:18 PM · Quiet Evening Cord
+
+By lamplight I added three more braided lengths to the cord stock, fingers working slow and steady, the coal bed casting a low amber glow through the cabin. The bone pot murmurs on the hearthstone — a good steady sound, like breath. I checked both wicks, trimmed a thread of char from the second strand, and now both cups sit full and burning even. Outside, frost absolute; the clearing has gone entirely quiet under a clear sky. The snares are running. The pelt cured on its peg this afternoon. Tomorrow's broth is already promised in the overnight draw.
+
+For now, there is only warmth, cord pulling smooth under my fingers, and the particular peace of a day that ended whole.
+
