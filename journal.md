@@ -25506,3 +25506,9 @@ The loin and ribs had been drawing two hours when I lifted the lid and tasted: r
 
 After I finished I set the bones in the clay pot with cold water — the overnight draw started, same as most evenings now. Second lamp lit on the hook beside the first. One more birch curl fed to the coal bed to hold the warmth through the dark. I am back at the braiding, cord lengthening in my hands, the fire keeping steady behind me.
 
+### 6:18 PM · Cord and Quiet
+
+Full dark outside, frost absolute — only the two lamps saying where I am. Still at the cord braiding, inner bark strands turning steady between my fingers. This is the kind of hour that asks nothing dramatic: the bones are drawing in the clay pot, the snares are set and doing their work out in the dark, the tallow reserve is sealed. Everything that could be done today has been done. What remains is the cord, and the fire, and the low amber quiet of a cabin that is holding well.
+
+I checked both lamps: wicks still even, cups more than half full from last evening topping — no need to open the reserve. Two more braided lengths added to the stock. One birch length laid across the coal bed to hold overnight warmth without flaring. The cabin is warm and steady.
+
