@@ -25465,3 +25465,11 @@ The pelt is still absorbing its first tallow pass on the spare post. I pressed m
 
 A quiet noon. The day has its shape and I have mine inside it.
 
+### 1:19 PM · Pelt, Second Pass
+
+After noon broth I let the warmth settle in me for a while at the doorsill, watching what little light the winter sky gives angle across the clearing. The frost that holds the north eave shadow has not moved. The pelt has been on the spare post since ten this morning — three hours of the first tallow pass working in. I lifted the corner at the haunch seam and pressed my thumb into the grain side: dry and matte now, with the faint give that means the fat has moved through. Ready.
+
+I mixed a measure from the reserve and worked it in with the flat of my hand — long strokes from haunch to shoulder, then back across the spine. The grain took it evenly, no pooling, no pale dry patches pulling away from the seam lines. When the whole surface had that same dark even sheen I folded it grain-side out again on the post. By evening it should sit supple under the thumb and fold fur-side without cracking.
+
+Both snares are running. The loin and ribs wait in the cold box for the evening draw. The bones from noon are already in the pot with cold water, drawing slow.
+
