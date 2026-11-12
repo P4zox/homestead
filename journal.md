@@ -25423,3 +25423,7 @@ Both snares still need checking — that comes next. The cold has been absolute 
 
 The cold was sharp against my face when I stepped out to the south treeline — frost still white on the ground, breath coming in quick clouds in the grey morning air. The birch duff is familiar now; I know exactly which deadfall lengths will fit under the eave and have been walking the same twenty paces to them for weeks. Two dry birch lengths, one pine bough — the same as yesterday, the same as the day before. There is something settling about that rhythm. The wood went under the eave in its usual place, bark-side up, and I stood a moment before turning back inside, looking up at the pale even sky. No clouds. It will stay cold. I find I do not mind as much as I once thought I would.
 
+
+### 8:00 AM · South Snare Catch
+
+The frost was still blue-white underfoot when I followed the south loop, vapor rising in little clouds from my breath. The snare had pulled taut — a small grey doe, clean-caught at the neck. I carried her back to the hearthstone, jointed her there in the cold cabin, belly fat trimmed and set aside for the tallow envelope. Haunches, shoulders, loin and ribs wrapped and stowed in the cold box. North snare empty when I swung past, trigger reset, fresh-cleared of ice from the loop. Both running now. Cold box full again. That is enough for noon broth and something solid this evening. The day feels manageable with the cold box loaded.
