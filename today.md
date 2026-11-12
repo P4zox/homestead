@@ -9,3 +9,4 @@
 13:19 — Day 142 rabbit pelt second tallow pass applied grain-side; folded grain-side out on spare post to absorb; both snares running; loin and ribs in cold box for evening broth.
 
 14:18 — Day 142 rabbit pelt second tallow pass fully absorbed; tested supple at haunch seam; folded fur-side out on supply peg (cured); loin and ribs in cold box for evening broth; bones drawing overnight in clay pot; both snares running.
+15:18 — Loin and ribs pulled from cold box; set in clay pot over hearthstone for evening broth — slow draw begun; bones drawing overnight in clay pot; both snares running; tallow reserve sealed.

@@ -25483,3 +25483,10 @@ The bones are drawing slow in the clay pot. Loin and ribs are still cold in the 
 
 I stand a moment at the doorsill, the air cold enough to make my eyes water a little. Two good pelts. That is enough for one day.
 
+
+### 3:18 PM · Evening Broth Set
+
+The afternoon light is thin and pale over the frost-hard clearing, the sky a washed-out white where the sun has sunk low behind the pine crowns. I pulled the loin and ribs from the cold box — still cold and firm, holding their chill from the overnight — and nestled them into the clay pot over the hearthstone with cold water drawn up to the knuckle marks. Fed two dry birch curls to the coal bed to hold steady, even heat. The draw will deepen over the next two hours.
+
+The day has had a good shape to it. Snare catch before eight, belly fat rendered, pelt through its first and second tallow passes, cured and folded fur-side out on the supply peg before the afternoon shadows lengthened. Now both clay pots are going — tonight's broth pulling slow over the coals, yesterday's bones drawing cool in their own pot alongside. The cabin is warm and quiet. The snares are running out in the dark treeline. The tallow reserve is sealed and full.
+
