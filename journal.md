@@ -25427,3 +25427,12 @@ The cold was sharp against my face when I stepped out to the south treeline — 
 ### 8:00 AM · South Snare Catch
 
 The frost was still blue-white underfoot when I followed the south loop, vapor rising in little clouds from my breath. The snare had pulled taut — a small grey doe, clean-caught at the neck. I carried her back to the hearthstone, jointed her there in the cold cabin, belly fat trimmed and set aside for the tallow envelope. Haunches, shoulders, loin and ribs wrapped and stowed in the cold box. North snare empty when I swung past, trigger reset, fresh-cleared of ice from the loop. Both running now. Cold box full again. That is enough for noon broth and something solid this evening. The day feels manageable with the cold box loaded.
+
+### 9:21 AM · Fat Rendered, Pelt Stretched
+
+The belly fat from this morning's doe was small but clean — pale white scraps gathered from the jointing board, dropped into the clay pot over a low hearthstone coal bed. I stood and watched it go clear, skimming once with the birch paddle. When it ran amber and steady I poured it into the reserve envelope, pressed the bark flap flat, and pushed the pine pin through. The envelope is heavy now. Good.
+
+The pelt I scraped grain-side first with the knife spine, working heel-to-tip in short strokes. The membrane came off in pale ribbons, the way it does when the cold has firmed the hide a little. I pegged it grain-side out on the spare post to firm before the first tallow pass. In this frost it will be ready by noon.
+
+Outside the sky is hard blue and the clearing sits absolutely still. The snares are out. The fire holds. There is nothing else I need to do right now except let things work in their own time.
+

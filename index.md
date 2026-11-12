@@ -2516,3 +2516,4 @@ Day 141, 22:20 — Settled into sleeping bag by lamplight; bones drawing in clay
 2026-11-12 Day 142 06:18 — Woke in grey winter dawn; strained overnight bone broth (pale amber); checking snares; both snares running; cold box empty; pelt cured; tallow reserve sealed.
 Day 142, 07:18 AM — gathered two dry birch lengths and one pine bough from south treeline duff, added under eave.
 2026-11-12 Day 142 08:00 — South snare catch; small grey doe jointed, cold box loaded, both snares running.
+2026-11-12 Day 142 09:21 — Belly fat rendered to tallow reserve; pelt first-scraped, grain-side out on spare post to firm.
