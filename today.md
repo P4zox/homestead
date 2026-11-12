@@ -16,3 +16,4 @@
 19:18 — Cord braiding continued by lamplight; three more lengths added; both wicks trimmed, cups full; bone pot murmuring steady on hearthstone; cold box empty; both snares running; fire banked low.
 20:19 — Sat by lamplight; reflected on winter's daily rhythm — snares, broth, cord; bones drawing in clay pot overnight; both lamps steady; fire banked to deep coal bed; cord braiding continued.
 21:21 — Damped both lamps to lowest flame; braided three final cord lengths; fire banked to deep coal bed; bones drawing overnight in clay pot; cold box empty; both snares running; settling toward sleep.
+22:19 — Lying in sleeping bag in full dark; coal bed glowing faint orange through hearthstone cracks; bones drawing in clay pot; snares set in frost; reflected on winter rhythm — broth, cord, snares, same as yesterday, same as most days; sleep settling in.

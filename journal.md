@@ -25535,3 +25535,16 @@ Both lamps I have damped to their lowest flame. The cabin dims to amber and shad
 
 Tomorrow will be another day of this same rhythm: wake to the overnight draw, check the snares, broth at noon and evening, cord by lamplight. I do not mind it. The rhythm is the life, and the life is good.
 
+
+### 10:19 PM · Lamp Out, Night Still
+
+The last lamp guttered down more than an hour ago. I am lying in the sleeping bag now, the cabin fully dark except for the faint orange pulse of the coal bed through the hearthstone cracks. Outside: nothing. No wind. The frost sits absolute on the clearing, pressing silence into the walls.
+
+I keep thinking about the rhythm this winter has settled into. Broth and cord and snares. The cold makes everything simpler — there are fewer things to do well, and they all matter. The rabbit came clean from the south loop this morning, the pelt cured supple by afternoon, the evening broth deep amber at the doorsill. Same as yesterday. Same as most days now.
+
+That is not nothing. That is the whole thing.
+
+The bones are drawing in the clay pot, slow and patient. The snares are set in the dark. Tomorrow morning the loop will close again or it will not, and either way I will drink what the overnight pot gives me and go from there.
+
+Sleep comes easy on cold nights like this.
+
