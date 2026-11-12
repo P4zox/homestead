@@ -25436,3 +25436,12 @@ The pelt I scraped grain-side first with the knife spine, working heel-to-tip in
 
 Outside the sky is hard blue and the clearing sits absolutely still. The snares are out. The fire holds. There is nothing else I need to do right now except let things work in their own time.
 
+
+### 10:18 AM · First Tallow Pass
+
+The pelt has been pegged grain-side out on the spare post for nearly an hour now — cool and firm to the touch when I pressed my thumb along the haunch seam. That is what I want: the membrane fully off, the grain taut, nothing slack. I spooned tallow from the reserve envelope, warming it between my palms for a moment before working it in. The grain took it readily along the spine and down toward the flank, that familiar darkening as the fat absorbs. I went over the haunch seams twice, pressing it in along the fold lines where drying tends to run shallow. When the whole surface had a dull sheen, I folded it grain-side out and draped it over the post to absorb.
+
+The cold box still holds today's portions — haunches and shoulders will come out for noon broth, loin and ribs saved for evening. There is a steady rhythm to these winter days: tend the pelt in the morning, tend the fire and broth through the afternoon, braid cord or mend something small by lamplight at night. The snares are out and running. The tallow reserve is well-sealed. The woodpile is sound.
+
+I stood at the doorsill for a moment after finishing, hands still faintly waxy from the tallow. Clear sky overhead, the pines dead-still in hard frost. No wind at all. The kind of cold morning that asks nothing of you except that you stay warm and keep moving.
+

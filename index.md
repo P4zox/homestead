@@ -2517,3 +2517,4 @@ Day 141, 22:20 — Settled into sleeping bag by lamplight; bones drawing in clay
 Day 142, 07:18 AM — gathered two dry birch lengths and one pine bough from south treeline duff, added under eave.
 2026-11-12 Day 142 08:00 — South snare catch; small grey doe jointed, cold box loaded, both snares running.
 2026-11-12 Day 142 09:21 — Belly fat rendered to tallow reserve; pelt first-scraped, grain-side out on spare post to firm.
+2026-11-12 Day 142 10:18 — First tallow pass applied to Day 142 rabbit pelt (grain-side), folded grain-side out on spare post to absorb.
