@@ -11,3 +11,4 @@
 14:18 — Day 142 rabbit pelt second tallow pass fully absorbed; tested supple at haunch seam; folded fur-side out on supply peg (cured); loin and ribs in cold box for evening broth; bones drawing overnight in clay pot; both snares running.
 15:18 — Loin and ribs pulled from cold box; set in clay pot over hearthstone for evening broth — slow draw begun; bones drawing overnight in clay pot; both snares running; tallow reserve sealed.
 16:18 — Tended evening broth — stirred gently, two dry birch curls added to coal bed to hold simmer even; color deepening toward amber; first lamp burning steady on hook; frost absolute outside; both snares running; began cord braiding by hearthside.
+17:18 — Evening broth consumed at doorsill bench (loin and ribs, deep amber, birch cup drained); bones set in clay pot with cold water for overnight draw; cold box empty; second lamp lit on hook; fire fed one birch curl; cord braiding by lamplight.

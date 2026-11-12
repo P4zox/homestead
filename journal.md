@@ -25499,3 +25499,10 @@ Stepped to the doorsill to check the light. The clearing is stark and white, fro
 
 Back inside with the door latched. The first lamp burns steady on its hook, the second pot holds the noon bones drawing slow in cold water on the far hearthstone edge. The broth wants another two hours before it is ready. I will sit with it, braid a length of cord, let the cabin warm around me.
 
+
+### 5:18 PM · Evening Broth, Amber
+
+The loin and ribs had been drawing two hours when I lifted the lid and tasted: rich, clean, a small slick of fat on the surface. I took the birch cup to the doorsill bench and sat with it in the last grey light. Frost absolute, breath white in front of my face, the clearing very still. I drank it slow.
+
+After I finished I set the bones in the clay pot with cold water — the overnight draw started, same as most evenings now. Second lamp lit on the hook beside the first. One more birch curl fed to the coal bed to hold the warmth through the dark. I am back at the braiding, cord lengthening in my hands, the fire keeping steady behind me.
+
