@@ -25548,3 +25548,12 @@ The bones are drawing in the clay pot, slow and patient. The snares are set in t
 
 Sleep comes easy on cold nights like this.
 
+
+### 11:00 PM · Coal Bed, Faint
+
+The cabin is completely dark now. I can feel the coal bed more than see it — a faint warmth pressing through the hearthstone, the glow reduced to something barely there. The bone pot draws quietly in that warmth. Outside, the snares wait in the frost.
+
+I am nearly under. The sleeping bag holds the dayʼs heat. The whole pattern of it — morning broth, the pelt work, cord lengths by lamplight, the evening at the doorsill bench — has settled into the familiar weight of winter. Same as yesterday. Same as most days ahead. That steadiness is its own kind of comfort.
+
+Sleep comes.
+
