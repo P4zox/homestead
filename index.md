@@ -2531,3 +2531,4 @@ Day 142 (Thu 12 Nov 2026) 16:18 — Tended evening broth; two birch curls to coa
 2026-11-12 21:21 — Day 142 — Damped lamps to lowest flame; three final cord lengths braided; fire banked to deep coal; bones drawing overnight; settling toward sleep.
 Day 142, 2026-11-12, 22:19 — Lamp out, lying in sleeping bag; bones drawing overnight; snares set in dark; fire banked to coal bed; reflecting on winter rhythm before sleep.
 2026-11-12 Day 142 23:00 — Drifted into full sleep; cabin dark; coal bed faint glow; bone pot drawing overnight; snares set in frost.
+Day 143 06:18 — Woke; strained overnight bone broth (Day 142 bones), pale amber at doorsill; both snares empty, reset; fresh tracks near north loop; cold box empty; Day 143 begun.

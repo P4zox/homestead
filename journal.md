@@ -25557,3 +25557,17 @@ I am nearly under. The sleeping bag holds the dayʼs heat. The whole pattern of 
 
 Sleep comes.
 
+
+---
+
+# Day 143 — Friday, 13 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · First Light, Bone Broth
+
+I woke to the coal bed's last warmth and the cabin in full dark. The overnight draw had been slow and steady — I could hear the clay pot sitting quiet on the hearthstone even before I opened the sleeping bag. Strained the broth through my bark cloth into the birch cup and took it to the doorsill bench in the first grey light: pale amber, clean and faint, warming both hands while the frost breathed out of the treeline.
+
+Both snares came back empty this morning. The ground reads like packed iron under the frost, the loops untouched, the triggers holding cold. Near the north snare I found a faint scatter of tracks — old ones, pressed deep and gone cold, thirty paces from the loop. Something moved through in the night and kept going. Reset both triggers and walked back slowly, breath clouding in the still air.
+
+Day 143. The pattern holds: broth, snares, cord, fire. I am not complaining.
+
