@@ -25519,3 +25519,10 @@ By lamplight I added three more braided lengths to the cord stock, fingers worki
 
 For now, there is only warmth, cord pulling smooth under my fingers, and the particular peace of a day that ended whole.
 
+
+### 8:19 PM · Night Settles In
+
+It has become its own kind of rhythm — the bone pot murmuring on the hearthstone, both lamps burning steady and even, the cord growing length by length under my fingers. The cabin holds its warmth without complaint. Outside the frost is absolute and the sky was clear and full of stars when I stepped to the doorsill at supper; that cold is real and I do not mistake its depth. But the walls are good, the firewood is stacked past the eave, and somewhere out in the night the snares are set and waiting.
+
+I have been thinking about how much of winter is simply the act of showing up: checking the snares at first light, rendering fat while there is fat to render, adding a dry birch length before bed. The drama is mostly imagined. The reality is this — lamplight, a cup drained at the doorsill, hands busy with cord. I am inside. It is enough.
+
