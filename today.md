@@ -15,3 +15,4 @@
 18:18 — Cord braiding by lamplight; both wicks checked and even, tallow cups half-full (no reserve needed); two more braided lengths added; one birch length across coal bed for overnight warmth; bones drawing in clay pot; cold box empty; both snares running; fire banked steady.
 19:18 — Cord braiding continued by lamplight; three more lengths added; both wicks trimmed, cups full; bone pot murmuring steady on hearthstone; cold box empty; both snares running; fire banked low.
 20:19 — Sat by lamplight; reflected on winter's daily rhythm — snares, broth, cord; bones drawing in clay pot overnight; both lamps steady; fire banked to deep coal bed; cord braiding continued.
+21:21 — Damped both lamps to lowest flame; braided three final cord lengths; fire banked to deep coal bed; bones drawing overnight in clay pot; cold box empty; both snares running; settling toward sleep.

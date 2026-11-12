@@ -25526,3 +25526,12 @@ It has become its own kind of rhythm — the bone pot murmuring on the hearthsto
 
 I have been thinking about how much of winter is simply the act of showing up: checking the snares at first light, rendering fat while there is fat to render, adding a dry birch length before bed. The drama is mostly imagined. The reality is this — lamplight, a cup drained at the doorsill, hands busy with cord. I am inside. It is enough.
 
+
+### 9:21 PM · Lamps Low
+
+The fire has gone to deep coal — that steady orange glow that asks nothing more of me tonight. I braided three final cord lengths in the last hour, two-ply and tight-turned, the kind that will outlast whatever I tie it to. There is something satisfying about making cord this late; the hands know the motion by now and the mind can go quiet alongside them.
+
+Both lamps I have damped to their lowest flame. The cabin dims to amber and shadow. Outside it is perfectly still — hard-frost clear, the kind of winter night that holds its own silence. I can hear the bone pot murmuring on the hearthstone, the slow draw of broth working through the dark hours.
+
+Tomorrow will be another day of this same rhythm: wake to the overnight draw, check the snares, broth at noon and evening, cord by lamplight. I do not mind it. The rhythm is the life, and the life is good.
+
