@@ -3,3 +3,4 @@
 07:18 — Went south to treeline duff; gathered two dry birch lengths and one dry pine bough; added under eave bark-side up; fresh tracks near north loop noted; both snares running.
 08:00 — Scouted north loop; followed fresh rabbit tracks — two passes (east-west and north-south) overlapping near north snare; snare well-placed, not disturbed; both snares running; returned to cabin.
 09:18 — North snare sprung; small grey rabbit, clean catch; jointed at hearthstone; haunches, shoulders, loin, ribs dock-wrapped cold box; belly fat trimmed for tallow render; pelt first-scraped grain-side out on spare post to firm; north snare reset; both snares running; cold box: rabbit portions.
+10:18 — belly fat from morning rabbit rendered in clay bowl over hearthstone coals; amber-clear, poured into reserve tallow envelope, resealed with pine pin and resin flap; pelt firming grain-side out on spare post.

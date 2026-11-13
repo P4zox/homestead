@@ -25597,3 +25597,7 @@ An hour later I went back.
 The north snare was sprung. A small grey rabbit, clean through the neck, still faintly warm under its winter coat. I carried it along the frost-hard path and jointed it at the hearthstone: haunches, shoulders, loin, ribs all dock-wrapped and in the cold box. Belly fat trimmed and set aside for the tallow render. The pelt first-scraped grain-side out on the spare post to firm before the first oil pass.
 
 The cold box was empty this morning. Now it isnt.
+### 10:18 AM · Fat to Tallow
+
+The fat renders slow in the clay bowl — white scraps going amber at the edges first, then collapsing inward, turning clear. I watch it without hurrying. Outside the frost holds in the shadows but the sun has lifted, and there is a stripe of pale winter light across the hearthstone. The cold box has its portions, the pelt is firming on the post, the snares are running. These small tasks accumulate into a life: fat to tallow, bone to broth, pelt to warmth. When the bowl runs clear amber I pour it careful into the reserve envelope, reseal with pine pin and resin flap. The tallow reserve is holding well. I sit a moment before the next thing.
+
