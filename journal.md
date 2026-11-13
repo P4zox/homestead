@@ -25708,3 +25708,7 @@ Cord braided, pelt cured and hanging, tallow sealed. Cold box empty but that's a
 
 I'll damp the second lamp now, lie down under the lap piece, and let the coal bed take the night from here.
 
+
+### 11:59 PM · Last Ember
+
+The cabin is still. The second lamp has gone fully dark; the first holds only a faint amber thread of flame — just enough to cast no shadows, only a warmth of color on the near wall. The bones are drawing in the clay pot, and I cannot hear them. Outside: pine branches cracking somewhere in the frost. The cold works through the trees at night like a carpenter, pressing and finding every join. Inside I am warm under the lap piece, the sleeping mat giving, the floor mat of bracken and dried grass a yard below the cold. Both snares are out in the dark, loops open in the frost, waiting. That is enough to know. I let the rest go and sleep.

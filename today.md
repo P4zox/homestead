@@ -15,3 +15,4 @@
 19:18 — Day 143 rabbit pelt second tallow pass fully absorbed — grain side supple and even, haunch seams and neck edge tested; folded fur-side out on supply peg (cured); cord braiding by lamplight; bones drawing overnight in clay pot; cold box empty; both snares running.
 20:19 — Cord braiding by lamplight; added one birch stick to coal bed for overnight bone draw; both lamps burning steady on hooks; bones drawing in clay pot; cold box empty; both snares running; settling toward sleep.
 22:50 — Damped lamps to low (second lamp nearly dark, first left at faint flame); bones drawing in clay pot overnight; both snares running; lay down under lap piece on sleeping mat to sleep.
+23:59 — First lamp at faint flame only, second lamp dark; bones drawing overnight in clay pot; both snares running; warm under lap piece on sleeping mat, fully asleep.

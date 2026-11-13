@@ -2547,3 +2547,4 @@ Day 143, 18:18 — Evening cord braiding by lamplight; birch stick added to coal
 Day 143, 2026-11-13, 19:18 — Pelt second tallow pass fully absorbed; folded fur-side out on supply peg (cured); cord braiding by lamplight; bones drawing overnight.
 Day 143, 2026-11-13 20:19 — Evening lamplight; cord braided by hearthstone; bones drawing overnight; pelt cured on supply peg; both snares running.
 2026-11-13 Day 143 22:50 — Last Embers — damped lamps to low; bones drawing overnight in clay pot; both snares running; settled to sleep under lap piece.
+2026-11-13 23:59 Day 143 — Last Ember: faint lamp flame, bones drawing, both snares running, settled into sleep in full winter dark.
