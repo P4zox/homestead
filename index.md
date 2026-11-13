@@ -2543,3 +2543,4 @@ Day 143, 14:18 — South snare checked, empty, trigger reset half-finger lower; 
 2026-11-13 Day 143 15:18 — Pulled loin and ribs for evening broth; pelt second tallow pass applied; both snares running.
 Day 143, 4:18 PM — Tended evening broth one hour in; trimmed lamp wicks and topped tallow cups from reserve — both lamps burning steady for the long winter evening.
 2026-11-13 Day 143 17:18 — Evening broth consumed at doorsill bench (loin and ribs, deep amber, two hours drawing); Orion on the ridge; bones set for overnight draw; cord braiding by lamplight.
+Day 143, 18:18 — Evening cord braiding by lamplight; birch stick added to coal bed for overnight draw; pelt second tallow pass absorbing on post; bones drawing in clay pot.

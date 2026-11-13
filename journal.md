@@ -25668,3 +25668,12 @@ Back inside I set the loin and rib bones in the clay pot with cold water for the
 
 I brought the bark cord down and braided by lamplight for a while. Fingers find their own rhythm in this kind of work — no need to think. Outside, the cold deepens. Inside, the fire holds. That is enough for tonight.
 
+
+### 6:18 PM · Lamplight and Cord
+
+Both lamps burn steady on their hooks, the cabin walls holding the frost at bay. The bone draw murmurs in its pot over the hearthstone — quiet, patient, doing its slow work. I added a birch stick to settle the coal bed and give the overnight draw what it needs, and now I sit with a length of inner bark across my knee, fingers moving in the familiar rhythm: twist, fold, pull through.
+
+The pelt is still absorbing on the post beside me, grain-side out, pale in the lamplight. It needs the night to work in. By morning it will be supple; I will fold it fur-side out and add it to the supply peg — another small layer of insulation earned and put away.
+
+Outside, nothing stirs. The frost is absolute, the clearing silent. There is something deeply satisfying about this hour — the two flames, the heat in the floor, the cord growing longer in my hands. Winter is here, full and settled, but so is everything I need. I am glad to be in here.
+
