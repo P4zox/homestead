@@ -2538,3 +2538,4 @@ Day 143 (2026-11-13) 09:18 — North snare sprung; small grey rabbit caught; joi
 Day 143, 2026-11-13 10:18 — rendered rabbit belly fat to tallow; amber-clear, added to reserve envelope, resealed with pine pin and resin flap; pelt firming on post.
 Day 143 11:00 — noon broth set: haunches and shoulders from cold box in clay pot over hearthstone; loin and ribs cold box for evening; pelt firming on post; both snares running.
 2026-11-13 Day 143 12:18 — Noon broth consumed (haunches and shoulders, amber); bones in clay pot with cold water for overnight draw; pelt first tallow pass applied grain-side, absorbing on spare post; loin and ribs in cold box for evening broth.
+2026-11-13 Day 143 13:18 — braided cord by afternoon warmth; pelt first tallow pass absorbing; loin and ribs in cold box for evening broth.

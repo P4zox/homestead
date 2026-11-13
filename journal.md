@@ -25621,3 +25621,14 @@ The pelt has been firming grain-side out since 09:18 — three hours in the cold
 
 Both snares running. Fire low but steady. A quiet noon.
 
+
+### 1:18 PM · Cord by Warm Light
+
+The cabin holds heat well past noon now. I keep the coal bed fed with just enough birch to maintain a low amber glow — not the crackling heat of early fire-laying, but steady and even, the kind that suits a long draw and an afternoon of small work.
+
+The pelt is on the spare post, grain-side out and folded, the tallow working in. I pressed my thumb into it at the haunch corner — the hide is warm and the fat is moving, but it needs more time before the second pass. I left it alone.
+
+So I pulled two lengths of inner bark from the stock bundle and braided. The cord comes easy now; my hands know the motion. I let my mind go quiet with the rhythm of it. Outside the frost has not lifted — the clearing holds its cold with the same patience the trees hold their bare forms — but inside the small sounds keep me company: the occasional tick of the clay pot, the shift of a coal, the faint creak of the door pivot when wind comes against the cabin east face.
+
+Two good lengths done and coiled. The light outside is angling low already, the way it does in mid-November when afternoon and evening press close together. The pelt will want its second pass in the morning.
+
