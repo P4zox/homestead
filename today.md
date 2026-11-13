@@ -7,3 +7,4 @@
 11:00 — Hauled haunches and shoulders from cold box; set in clay pot with cold water over hearthstone — slow noon draw begun; loin and ribs in cold box for evening broth.
 12:18 — Noon broth consumed at doorsill bench (haunches and shoulders, amber-clear, birch cup drained); bones set in clay pot with cold water for overnight draw; pelt first tallow pass applied grain-side, folded grain-side out on spare post to absorb; loin and ribs in cold box for evening broth.
 13:18 — Two more lengths of two-ply bark cord braided by afternoon warmth; pelt first tallow pass still absorbing grain-side out on spare post; loin and ribs in cold box for evening broth; bones drawing in clay pot; both snares running.
+14:18 — Checked south snare; empty, trigger reset half-finger lower; both snares running; returned to cabin.

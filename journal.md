@@ -25632,3 +25632,12 @@ So I pulled two lengths of inner bark from the stock bundle and braided. The cor
 
 Two good lengths done and coiled. The light outside is angling low already, the way it does in mid-November when afternoon and evening press close together. The pelt will want its second pass in the morning.
 
+
+### 2:18 PM · South Loop Quiet
+
+Went out to check the south snare mid-afternoon. The cold pressed in from every direction — no wind, just absolute stillness, the sky the color of old ash. The snare was undisturbed. I reset the trigger half a finger lower, the same small adjustment that has been working, and started back.
+
+The clearing looked small from the treeline. I stopped there a moment, watching the cabin with its thin smoke thread rising perfectly straight in the still air. It is a good thing to have made — solid enough to cast a real shadow, real enough to draw smoke. I stood until my feet reminded me of the frost, then came back inside.
+
+Loin and ribs still in the cold box. Bones drawing quietly in the pot. Both snares running.
+
