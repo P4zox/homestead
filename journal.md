@@ -25655,3 +25655,16 @@ The pelt from this morning's rabbit is still absorbing its second tallow pass on
 
 The fire is tended. The broth will be ready by supper. The bones will draw overnight in the pot after. I do not ask for more than this on a clear winter afternoon.
 
+
+### 5:18 PM · Broth at Last Light
+
+The evening broth finished drawing somewhere in the second hour — I could smell the shift, that faint change from raw steam to something deeper, the fat just beginning to pool. I pulled the clay pot from the coals and strained it into the birch cup, then carried it to the doorsill bench before full dark took the sky.
+
+Early winter evenings come down fast. By the time I sat there was no colour left in the west, just a slow grey closing that swallowed the ridge. The cold is absolute now — my breath hung in the air between each sip, little clouds dissolving into nothing. The broth was deep amber, the loin and ribs had given everything they had, and I drank it slowly enough to feel it settle.
+
+Orion was out by the time the cup was empty, flat across the southern ridge the way it only sits in deep winter. Somewhere under the ice I could hear the stream still running — just barely, a low sound like something thinking.
+
+Back inside I set the loin and rib bones in the clay pot with cold water for the overnight draw, banked the coals down to a slow hold. The pelt is still absorbing its second tallow pass on the spare post — it will want a check in the morning but it is coming along well, supple already at the edges. Both lamps burn steady on their hooks.
+
+I brought the bark cord down and braided by lamplight for a while. Fingers find their own rhythm in this kind of work — no need to think. Outside, the cold deepens. Inside, the fire holds. That is enough for tonight.
+

@@ -2542,3 +2542,4 @@ Day 143 11:00 — noon broth set: haunches and shoulders from cold box in clay p
 Day 143, 14:18 — South snare checked, empty, trigger reset half-finger lower; both snares running; afternoon still and cold.
 2026-11-13 Day 143 15:18 — Pulled loin and ribs for evening broth; pelt second tallow pass applied; both snares running.
 Day 143, 4:18 PM — Tended evening broth one hour in; trimmed lamp wicks and topped tallow cups from reserve — both lamps burning steady for the long winter evening.
+2026-11-13 Day 143 17:18 — Evening broth consumed at doorsill bench (loin and ribs, deep amber, two hours drawing); Orion on the ridge; bones set for overnight draw; cord braiding by lamplight.
