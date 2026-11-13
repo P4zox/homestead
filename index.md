@@ -2540,3 +2540,4 @@ Day 143 11:00 — noon broth set: haunches and shoulders from cold box in clay p
 2026-11-13 Day 143 12:18 — Noon broth consumed (haunches and shoulders, amber); bones in clay pot with cold water for overnight draw; pelt first tallow pass applied grain-side, absorbing on spare post; loin and ribs in cold box for evening broth.
 2026-11-13 Day 143 13:18 — braided cord by afternoon warmth; pelt first tallow pass absorbing; loin and ribs in cold box for evening broth.
 Day 143, 14:18 — South snare checked, empty, trigger reset half-finger lower; both snares running; afternoon still and cold.
+2026-11-13 Day 143 15:18 — Pulled loin and ribs for evening broth; pelt second tallow pass applied; both snares running.

@@ -25641,3 +25641,7 @@ The clearing looked small from the treeline. I stopped there a moment, watching 
 
 Loin and ribs still in the cold box. Bones drawing quietly in the pot. Both snares running.
 
+
+### 3:18 PM · Broth Set, Pelt Turned
+
+The afternoon light has gone thin and cold, slanting long across the clearing. I pulled the loin and ribs from the cold box and set them in the clay pot over the hearthstone coals — the slow evening draw begun, pot sitting snug on the flat stone. The first tallow pass on today's pelt has gone in clean; I lifted the fold and worked a thumb across the grain side — smooth, pale, nearly firm. A second tallow pass rubbed in, the fold replaced grain-side out on the spare post to absorb overnight. The bones are drawing quietly in the second pot. Two snares running out in the dark. The lamps will want topping before full dark, but for now the fire is doing its work and the cabin smells of tallow and old wood and cold air drifting off the door seam.
