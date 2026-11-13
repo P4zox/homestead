@@ -25726,3 +25726,8 @@ This cold settles deep — the kind that does not soften by noon in hard winter.
 
 That is the rhythm of it: some mornings bring something, most do not. The broth was enough. The fire is going. The day has begun.
 
+
+### 7:18 AM · Morning Wood-Carry
+
+The sky was pale iron-grey when I stepped out at the doorsill, the cold hitting sharp and immediate. I went straight for the south treeline duff — two dry birch lengths, one arm-thick and solid, and a good dry pine bough with the bark still on. Carried them back fast, hands already stiffening in the frost before I had them under the eave. The snare runs looked quiet on the way past; yesterday's tracks were settled and sharp-edged in the ice this morning, old-looking. The triggers are still set right, the loops where I left them. The day is very still. Hard winter silence hangs across the clearing and I am glad to be back inside, glad for the coals still orange under the ash. No need to rebuild the fire yet. I stand at the hearthstone a moment before I do anything else.
+
