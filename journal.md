@@ -25712,3 +25712,17 @@ I'll damp the second lamp now, lie down under the lap piece, and let the coal be
 ### 11:59 PM · Last Ember
 
 The cabin is still. The second lamp has gone fully dark; the first holds only a faint amber thread of flame — just enough to cast no shadows, only a warmth of color on the near wall. The bones are drawing in the clay pot, and I cannot hear them. Outside: pine branches cracking somewhere in the frost. The cold works through the trees at night like a carpenter, pressing and finding every join. Inside I am warm under the lap piece, the sleeping mat giving, the floor mat of bracken and dried grass a yard below the cold. Both snares are out in the dark, loops open in the frost, waiting. That is enough to know. I let the rest go and sleep.
+
+---
+
+# Day 144 — Saturday, 14 November 2026
+*early winter · hard frost, sky pale and still*
+
+### 6:18 AM · Dawn Broth, Snares Empty
+
+Woke in pale grey light — the first lamp burned down to a coal glow, the second dark. Added dry birch curls to the bed and crouched close until they caught. The clay pot still held a faint warmth from the overnight draw; when I lifted the lid the smell came up clean and rich, all the marrow out of yesterday's rabbit bones. Strained it through dock leaf into my birch cup and carried it to the doorsill. Drank it standing in the first pale light, watching the frost on the clearing.
+
+This cold settles deep — the kind that does not soften by noon in hard winter. Both snares were empty when I checked. The triggers were undisturbed, loop setbacks solid. I reset them and walked the perimeter once. No fresh tracks I could read in the frost. The animals are lying low, deep in cover, the way they do when the temperature stays absolute for days on end.
+
+That is the rhythm of it: some mornings bring something, most do not. The broth was enough. The fire is going. The day has begun.
+
