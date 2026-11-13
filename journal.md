@@ -25695,3 +25695,16 @@ The bones are drawing. The snares are set. Tomorrow will be the same, or near to
 
 I'll add one more birch stick to the coal bed, damp the lamps low, and sleep.
 
+
+### 10:50 PM · Last Embers
+
+The lamps have been burning low for a while. I turned one down to nearly nothing a few minutes ago — just enough flame to know it's still there. The other I left a touch brighter, the way you leave a word unsaid just to have something to come back to.
+
+The bones are still drawing in the pot. I pressed my hand to the clay side before sitting down: warm but not hot, the way a good draw should go overnight. By morning there'll be pale amber again.
+
+Outside, the frost is complete. I didn't open the door to check — I could feel it at the doorsill seams, that cold breath that finds every gap. The cabin holds. Both snares are out. Some part of me still turns that over before sleep, tallying what's running and what's not.
+
+Cord braided, pelt cured and hanging, tallow sealed. Cold box empty but that's all right — I ate well today.
+
+I'll damp the second lamp now, lie down under the lap piece, and let the coal bed take the night from here.
+
