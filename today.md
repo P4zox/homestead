@@ -2,3 +2,4 @@
 06:18 — Woke in grey winter dawn; fed coal bed birch curls; strained overnight bone broth (Day 142 loin and ribs bones) — pale amber, consumed at doorsill bench; both snares empty, reset; fresh tracks near north loop; cold box empty; both snares running.
 07:18 — Went south to treeline duff; gathered two dry birch lengths and one dry pine bough; added under eave bark-side up; fresh tracks near north loop noted; both snares running.
 08:00 — Scouted north loop; followed fresh rabbit tracks — two passes (east-west and north-south) overlapping near north snare; snare well-placed, not disturbed; both snares running; returned to cabin.
+09:18 — North snare sprung; small grey rabbit, clean catch; jointed at hearthstone; haunches, shoulders, loin, ribs dock-wrapped cold box; belly fat trimmed for tallow render; pelt first-scraped grain-side out on spare post to firm; north snare reset; both snares running; cold box: rabbit portions.

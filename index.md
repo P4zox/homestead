@@ -2534,3 +2534,4 @@ Day 142, 2026-11-12, 22:19 — Lamp out, lying in sleeping bag; bones drawing ov
 Day 143 06:18 — Woke; strained overnight bone broth (Day 142 bones), pale amber at doorsill; both snares empty, reset; fresh tracks near north loop; cold box empty; Day 143 begun.
 2026-11-13 07:18 Day 143 — gathered two dry birch lengths and pine bough from south treeline duff; added under eave; fresh tracks near north loop noted.
 2026-11-13 Day 143 08:00 — Scouted north loop; read fresh rabbit tracks (two passes, east-west and north-south, overlapping near snare); snare well-placed, not disturbed; returned to cabin.
+Day 143 (2026-11-13) 09:18 — North snare sprung; small grey rabbit caught; jointed at hearthstone; haunches, shoulders, loin, ribs dock-wrapped cold box; belly fat trimmed for tallow render; pelt first-scraped grain-side out on spare post.

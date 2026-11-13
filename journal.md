@@ -25587,3 +25587,13 @@ I followed the east-west trail back twenty paces until I lost it in the spruce d
 
 The cold at this hour has a quality I have come to recognize: a dry, still coldness with no wind, the air so clear it feels almost brittle. Not miserable — austere. Worth standing in for a minute, if only to remember that the world is not asleep just because I cannot feel it moving.
 
+
+### 9:18 AM · North Snare Delivers
+
+After scouting the north loop at eight — reading those two overlapping passes, east-west and north-south both converging near the snare — I decided not to press it. Left the loop alone, came back inside, tended the coal bed, let the trap work in silence.
+
+An hour later I went back.
+
+The north snare was sprung. A small grey rabbit, clean through the neck, still faintly warm under its winter coat. I carried it along the frost-hard path and jointed it at the hearthstone: haunches, shoulders, loin, ribs all dock-wrapped and in the cold box. Belly fat trimmed and set aside for the tallow render. The pelt first-scraped grain-side out on the spare post to firm before the first oil pass.
+
+The cold box was empty this morning. Now it isnt.
