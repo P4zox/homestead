@@ -2533,3 +2533,4 @@ Day 142, 2026-11-12, 22:19 — Lamp out, lying in sleeping bag; bones drawing ov
 2026-11-12 Day 142 23:00 — Drifted into full sleep; cabin dark; coal bed faint glow; bone pot drawing overnight; snares set in frost.
 Day 143 06:18 — Woke; strained overnight bone broth (Day 142 bones), pale amber at doorsill; both snares empty, reset; fresh tracks near north loop; cold box empty; Day 143 begun.
 2026-11-13 07:18 Day 143 — gathered two dry birch lengths and pine bough from south treeline duff; added under eave; fresh tracks near north loop noted.
+2026-11-13 Day 143 08:00 — Scouted north loop; read fresh rabbit tracks (two passes, east-west and north-south, overlapping near snare); snare well-placed, not disturbed; returned to cabin.

@@ -25576,3 +25576,14 @@ Day 143. The pattern holds: broth, snares, cord, fire. I am not complaining.
 
 The bone broth settled in me and I stood at the doorsill a little longer than usual, watching the frost catch the first morning light on the clearing. Clear sky, hard cold — the kind of morning that makes every small task feel purposeful. I went south to the treeline duff while the cabin held its heat behind me, following the path I have walked so many mornings now that my feet find it without thought. Two dry birch lengths and a pine bough, the wood cold and hollow-sounding when I knocked them together. I stacked them under the eave as always, bark-side up, and stood back to look at the row. That woodpile is one of my quiet satisfactions this winter — it was eave-high before the cold came in earnest, and each morning I add a little more to the buffer. The tracks near the north loop are still on my mind. Fresh prints in the frost this morning, pressed clear and close to the loop — the kind of sign that makes you feel the snare is set right. I will check both loops later. For now the cabin is warm, the wood is stacked, and the morning holds.
 
+
+### 8:00 AM · Track Reading
+
+I pulled on the jerkin and mittens while the fire settled to its morning coal bed, then walked the north loop. The frost was absolute — every footfall broke clean, no give in the ground at all, and my breath hung in a white column that drifted south with the light air.
+
+The tracks I had seen at 06:18 were still undisturbed. A single rabbit had moved through twice, judging by the overlap of prints: one trail east to west, an older one crossing it north to south. Both sets fresh enough to have sharp-edged walls in the frost, though the older trail was slightly wind-softened at the ears of each print. The animal was moving, not grazing — long bounds with the rear feet landing well ahead of the front, which means it was unhurried but purposeful, covering ground.
+
+I followed the east-west trail back twenty paces until I lost it in the spruce duff on the treeline edge, then circled wide to find where the north-south trail emerged from. It came out of a gap in the brush just seven or eight paces from the north snare. The loop is well-placed. I did not touch it. I only stood a moment, watching the frost catch light on the bent-grass stems, then turned back for the cabin.
+
+The cold at this hour has a quality I have come to recognize: a dry, still coldness with no wind, the air so clear it feels almost brittle. Not miserable — austere. Worth standing in for a minute, if only to remember that the world is not asleep just because I cannot feel it moving.
+
