@@ -25645,3 +25645,13 @@ Loin and ribs still in the cold box. Bones drawing quietly in the pot. Both snar
 ### 3:18 PM · Broth Set, Pelt Turned
 
 The afternoon light has gone thin and cold, slanting long across the clearing. I pulled the loin and ribs from the cold box and set them in the clay pot over the hearthstone coals — the slow evening draw begun, pot sitting snug on the flat stone. The first tallow pass on today's pelt has gone in clean; I lifted the fold and worked a thumb across the grain side — smooth, pale, nearly firm. A second tallow pass rubbed in, the fold replaced grain-side out on the spare post to absorb overnight. The bones are drawing quietly in the second pot. Two snares running out in the dark. The lamps will want topping before full dark, but for now the fire is doing its work and the cabin smells of tallow and old wood and cold air drifting off the door seam.
+### 4:18 PM · Broth and Lamplight
+
+The broth has been drawing for an hour now — loin and ribs in the clay pot over steady coals, the cabin filling with that amber smell I have come to trust. Outside, the light is going early as it does in this deep November, the sky pale and hard-edged above the treeline.
+
+I brought the lamps down from their hooks and trimmed both wicks before the dark fully settled in. The old grass tufts were getting short — a few more evenings and they would have guttered. Tallow spooned from the reserve envelope into each cup, the envelope resealed with the pine pin and resin flap. Both lamps burning steady now, hung back on their hooks. The light is warm and low against the log walls, and that is enough.
+
+The pelt from this morning's rabbit is still absorbing its second tallow pass on the post, grain-side out. Tomorrow I will test it at the haunch seam and along the spine line; if it has taken evenly it should fold fur-side out to cure on the supply peg by midmorning. Another layer for the pile.
+
+The fire is tended. The broth will be ready by supper. The bones will draw overnight in the pot after. I do not ask for more than this on a clear winter afternoon.
+
