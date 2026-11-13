@@ -25601,3 +25601,12 @@ The cold box was empty this morning. Now it isnt.
 
 The fat renders slow in the clay bowl — white scraps going amber at the edges first, then collapsing inward, turning clear. I watch it without hurrying. Outside the frost holds in the shadows but the sun has lifted, and there is a stripe of pale winter light across the hearthstone. The cold box has its portions, the pelt is firming on the post, the snares are running. These small tasks accumulate into a life: fat to tallow, bone to broth, pelt to warmth. When the bowl runs clear amber I pour it careful into the reserve envelope, reseal with pine pin and resin flap. The tallow reserve is holding well. I sit a moment before the next thing.
 
+
+### 11:00 AM · Noon Broth Set
+
+The pelt is still firming on the spare post, grain-side pale in the cold cabin air. I pulled the haunches and shoulders from the cold box — still firm and cold, the dock-wrap holding its moisture — and set them in the clay pot with a cup of cold water. The pot is on the hearthstone now over a low coal bed, just enough heat to coax a slow draw. By noon it should be turning amber.
+
+I stood at the doorsill for a moment before coming back inside — that habit of checking the air, the light, the treeline. Clear sky today, hard blue, frost absolute. The north snare is reset; the south has been quiet all morning. The loin and ribs are waiting in the cold box for evening.
+
+There is a quiet satisfaction in a morning that went cleanly. Catch, render, tallow, and now broth on the hearthstone. The work answers itself, one piece at a time.
+

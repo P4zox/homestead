@@ -4,3 +4,4 @@
 08:00 — Scouted north loop; followed fresh rabbit tracks — two passes (east-west and north-south) overlapping near north snare; snare well-placed, not disturbed; both snares running; returned to cabin.
 09:18 — North snare sprung; small grey rabbit, clean catch; jointed at hearthstone; haunches, shoulders, loin, ribs dock-wrapped cold box; belly fat trimmed for tallow render; pelt first-scraped grain-side out on spare post to firm; north snare reset; both snares running; cold box: rabbit portions.
 10:18 — belly fat from morning rabbit rendered in clay bowl over hearthstone coals; amber-clear, poured into reserve tallow envelope, resealed with pine pin and resin flap; pelt firming grain-side out on spare post.
+11:00 — Hauled haunches and shoulders from cold box; set in clay pot with cold water over hearthstone — slow noon draw begun; loin and ribs in cold box for evening broth.

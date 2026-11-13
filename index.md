@@ -2536,3 +2536,4 @@ Day 143 06:18 — Woke; strained overnight bone broth (Day 142 bones), pale ambe
 2026-11-13 Day 143 08:00 — Scouted north loop; read fresh rabbit tracks (two passes, east-west and north-south, overlapping near snare); snare well-placed, not disturbed; returned to cabin.
 Day 143 (2026-11-13) 09:18 — North snare sprung; small grey rabbit caught; jointed at hearthstone; haunches, shoulders, loin, ribs dock-wrapped cold box; belly fat trimmed for tallow render; pelt first-scraped grain-side out on spare post.
 Day 143, 2026-11-13 10:18 — rendered rabbit belly fat to tallow; amber-clear, added to reserve envelope, resealed with pine pin and resin flap; pelt firming on post.
+Day 143 11:00 — noon broth set: haunches and shoulders from cold box in clay pot over hearthstone; loin and ribs cold box for evening; pelt firming on post; both snares running.
