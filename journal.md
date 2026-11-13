@@ -25684,3 +25684,14 @@ The second tallow pass has had four hours to sink in. When I unfolded the pelt f
 
 The lamps are burning low and steady on their hooks. I settled back to the cord, hands moving in the half-dark, the rhythm so familiar now it barely needs attention. The coal bed is holding; the bone broth in the clay pot sends up a faint, steady thread of steam. Outside, full dark and hard frost. Orion has cleared the ridge and climbed. I think I'll braid until my eyes want to close, then damp the lamps and sleep.
 
+
+### 8:19 PM · Lamplight and Cord
+
+Both lamps burn steady above the hearthstone, the coal bed a low amber under the bone draw. The pelt is cured — third this week, all on the supply peg, all supple. I'm braiding cord by the fire's warmth now, fingers moving from habit.
+
+The rabbit came from the north snare this morning — clean catch, cold and grey in the frost. By evening the loin and ribs had drawn deep amber. I ate on the doorsill bench with Orion flat on the ridge behind the treeline and thought nothing troubling. That's a kind of success I've learned to notice.
+
+The bones are drawing. The snares are set. Tomorrow will be the same, or near to it — and that sameness is not dullness. It's the life working as it should.
+
+I'll add one more birch stick to the coal bed, damp the lamps low, and sleep.
+
