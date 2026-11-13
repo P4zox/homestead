@@ -25677,3 +25677,10 @@ The pelt is still absorbing on the post beside me, grain-side out, pale in the l
 
 Outside, nothing stirs. The frost is absolute, the clearing silent. There is something deeply satisfying about this hour — the two flames, the heat in the floor, the cord growing longer in my hands. Winter is here, full and settled, but so is everything I need. I am glad to be in here.
 
+
+### 7:18 PM · Pelt Cured
+
+The second tallow pass has had four hours to sink in. When I unfolded the pelt from the spare post, the grain side came away clean — no tackiness, just a quiet suppleness that gives a little under my thumb without resistance. The seam lines held their softness too. I ran the whole surface once more with the back of my hand, checking the haunch corners and the neck edge where the skin is thickest. All even. I folded it fur-side out and hung it on the supply peg beside the others — this season's work accumulating quietly on the wall.
+
+The lamps are burning low and steady on their hooks. I settled back to the cord, hands moving in the half-dark, the rhythm so familiar now it barely needs attention. The coal bed is holding; the bone broth in the clay pot sends up a faint, steady thread of steam. Outside, full dark and hard frost. Orion has cleared the ridge and climbed. I think I'll braid until my eyes want to close, then damp the lamps and sleep.
+
