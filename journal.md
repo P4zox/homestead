@@ -25610,3 +25610,14 @@ I stood at the doorsill for a moment before coming back inside — that habit of
 
 There is a quiet satisfaction in a morning that went cleanly. Catch, render, tallow, and now broth on the hearthstone. The work answers itself, one piece at a time.
 
+
+### 12:18 PM · Noon Broth, First Tallow Pass
+
+The haunches and shoulders had been drawing since eleven. An hour and eighteen minutes is enough to pull the color out of a fresh rabbit — the broth in the pot had gone from pale to a clear, true amber by the time I lifted the lid. I brought the birch cup to the doorsill bench and drank it in the cold noon air, the frost still hard on the ground, the sky blue and empty above the treeline. Good rabbit, well-fed before the deep freeze. The cup was warm against both hands.
+
+Afterward I set the spent bones in the clay pot with cold water for the overnight draw, then returned the lid. Loin and ribs stay in the cold box until evening. The cold box still holding its chill well this far into winter.
+
+The pelt has been firming grain-side out since 09:18 — three hours in the cold dry cabin air. I ran my thumb across the flank: tight and even, membrane gone clean. Dipped the birch spoon into the reserve tallow envelope and worked the first pass slowly into the grain, haunch seam, spine, and shoulders. Not much to spare, but enough to cover even. Folded it grain-side out over the spare post to absorb.
+
+Both snares running. Fire low but steady. A quiet noon.
+
