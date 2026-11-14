@@ -25751,3 +25751,12 @@ Both the original snares were still set when I passed them on the way back — t
 
 Back at the cabin before the frost had thickened further. Fire still holding; coals orange under a thin ash skin. The cold box stays empty but there is a feeling of better odds — three chances now instead of two.
 
+
+### 10:18 AM · Chinking the North Wall
+
+Noticed this morning, while tending the fire, that cold air was seeping through the lower north wall — not a full draft, more a breathing, the kind you feel when you hold your palm flat against the logs near the floor. I had been meaning to attend to it since the hard frost settled. With three snares running and nothing to do but wait, mid-morning seemed the right hour.
+
+Dug a cup of clay from the floor-cache under the board I keep for the purpose, broke in a handful of dried moss from the hanging basket, and worked the two together until the mix held its shape in my hand. Then went along the lower north-wall course, feeling first with fingertips, then filling each seam I found — four hairline gaps along the bottom two logs where the mud shrank and cracked as the temperature dropped hard, and one longer split near the northwest corner where a knot dried out and pulled away from the surrounding wood. Packed each with a flat stick and my thumb, pressing inward in thin layers and letting each one firm before adding the next.
+
+By the time I finished, the difference was real. The cold on that side went still rather than moving. Small work, but the kind that holds the whole winter together — a cabin that breathes against you will drain every fire you can build. Three snares still running; cold box still empty; fire holding.
+
