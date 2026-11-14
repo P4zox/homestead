@@ -2564,3 +2564,4 @@ Day 144 · 2026-11-14 · 18:18 — Final snare check before dark; south, north, 
 Day 144, 2026-11-14 19:18 — Chest panel sewing by lamplight; front panels joined along sides; three snares running overnight.
 Day 144, 2026-11-14 20:00 — Chest panel side seams closed by lamplight; neck/shoulder edges remain for morning light.
 2026-11-14 21:18 Day 144 — wound two bark-cord lengths, threaded bone needle through chest panel edge; binding and tallow rub set for morning.
+Day 144, 22:18 — Laid last birch split on coals, damped lamp to hair of flame, settled into sleeping bag; snares running, all morning tasks staged and ready.

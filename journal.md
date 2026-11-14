@@ -25856,3 +25856,14 @@ The fire has banked down to a steady orange. Outside the cabin the night is cold
 
 This was a full day. I am glad to sit here a moment with the lamp before I sleep.
 
+
+### 10:18 PM · Last Watch Before Sleep
+
+The lamp is burning low. I let it. The cabin holds the day's warmth even now — the chinking I did this morning paid off; there is no whistle from the north wall, only the small settle of coals doing their quiet work.
+
+I went through the last mental list: snares running, cold box has the haunches and shoulders, chest panel needle-threaded on the peg, Day 144 pelt waiting for its second tallow rub come morning. Everything in its place. I laid a split of dry birch on the coals — not to blaze, just to carry through until four or five in the dark.
+
+The night outside is completely still. No wind. No sound from the treeline, only the faint tick of cold contracting the bark on the roof. I listened for the stream and could not hear it — iced solid, as it has been for weeks.
+
+I eased the lamp wick down to a hair of flame, just enough to find the sleeping bag by, and settled in. Tomorrow: second tallow rub on the pelt, binding the chest panel at the neck and shoulder edges, and whatever the snares bring. That is enough to wake toward.
+
