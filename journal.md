@@ -25813,3 +25813,14 @@ This kind of work asks nothing of your mind and everything of your hands. I work
 
 Three snares running. Cold box full. Fire banked low. A good afternoon.
 
+
+### 5:18 PM · Broth Before Dark
+
+The hide drapes softly on the spare post, still holding the first tallow rub in its grain. I will come back to it tomorrow morning with fresh hands and the second rub; for now it only needs to rest and drink.
+
+At five o'clock with the sun already down behind the pines and the frost absolute on every surface, I turned to supper. Pulled the loin and ribs from the cold box, unwrapped the dock leaves, and set the pieces in the clay pot with a full pour of snowmelt water. Moved the pot to the near edge of the coals — not too close, just steady even heat — and left it to do its slow work. The broth should be amber and deep by lamplight.
+
+The chinking I did this morning shows tonight. I held my palm to the north wall lower logs: no draft. The cabin has tightened into something almost warm, or at least something that holds warmth when warmth is put into it. That is enough.
+
+Three snares are running. I will check them once more before the last of the light is gone. After that it is broth, lamplight, and whatever sewing the evening offers on the chest panel.
+

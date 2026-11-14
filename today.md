@@ -11,3 +11,4 @@
 14:18 — Rendered belly fat from afternoon rabbit catch; tallow strained clear into stone cup on lamp shelf; second grain-side scrape on pelt — hide firming well; two tallow reserves now (today's cup + Day 143 brick); fire banked; cold box full; three snares running.
 15:18 — Third grain-side scrape on Day 144 pelt; surface even and pale, no membrane remaining; worked first tallow rub in with palm pressure — hide darkened a shade at edges, starting to soften; two tallow reserves (Day 143 brick + Day 144 cup, used small pinch); cold box full; three snares running; fire banked.
 16:18 — Worked Day 144 hide across knee — kneaded shoulder, neck, haunches, edges pulled long; hide notably looser; second tallow rub deferred to morning; cold box full; three snares running; fire banked.
+17:18 — Pulled loin and ribs from cold box; set in clay pot with snowmelt on near coals for slow evening broth; will do final snare check before dark; chest panel sewing by lamplight ahead.
