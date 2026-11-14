@@ -25778,3 +25778,14 @@ Noon, I went to the supply shelf and opened one of the elderberry envelopes — 
 
 The fire holds. The cabin walls are tighter for this morning's chinking. The afternoon snare check is still ahead, and that print was fresh. I try not to need it and I try to stay ready.
 
+
+### 1:18 PM · Afternoon Round
+
+Went out into the hard afternoon light — sky clear and very blue above the pines, every shadow sharp on the frost. South snare first: empty, trigger clean, reset. North loop: empty, nothing but frost on the bark, trigger reset. Then I walked the new path down to the downed birch.
+
+The loop I had lowered half a finger at noon was sprung. A small grey rabbit, clean catch at the throat. I stood there a moment in the quiet — no wind, just cold and silence and the smell of frozen ground and pine. Something in me still settles when the land gives back.
+
+Jointed at the hearthstone. Belly fat trimmed for tallow. Haunches, shoulders, loin, ribs dock-wrapped into the cold box. Pelt stretched grain-side out on the spare post to firm before first scraping. I reset all three loops and walked each one before coming back inside.
+
+The cold box is full again. The fire is steady. This afternoon is good.
+
