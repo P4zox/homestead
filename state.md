@@ -1,17 +1,17 @@
 # state.md — the present
-Day: 144
-Date: 2026-11-14
+Day: 145
+Date: 2026-11-15
 Timezone: Asia/Taipei
-Last event check: 2026-11-14
+Last event check: 2026-11-15
 Season: early winter — mid-November; every tree bare; frost absolute; hard winter settled; stream fully iced; fishing season ended Day 112
-Weather: hard frost, clear sky; night deepened; cold and completely still
-Shelter: bark-roofed log cabin — complete; door pivot-hung with latch bar; doorsill bench; north wall active chinking ongoing (four hairline gaps filled Day 144 10:18, cabin noticeably tighter)
+Weather: hard frost, clear sky; pale dawn light; cold and completely still
+Shelter: bark-roofed log cabin — complete; door pivot-hung with latch bar; doorsill bench; north wall chinking complete (all four hairline gaps filled Day 144)
 Where I sleep: sleeping bag inside fully enclosed log-frame shelter
 Built so far: complete cabin — four wall courses, ridgepole, full rafter frame, bark-covered roof; door and latch; doorsill bench; lean-to woodstore north face; drainage ditch; base perimeter insulated with moss and deadfall leaves (all four sides)
-Supplies: Day 143 pelt (fully cured, fur-side out, supply peg); Day 144 pelt (third grain-side scrape complete, first tallow rub worked in, on spare post — softening; second tallow rub deferred to morning); fur chest panel (all side seams closed, running-stitch, fur-side in, neck/shoulder edges open — supply peg; bone needle threaded loose through open edge, ready for morning binding); fur insoles (belly/haunch panels, in boots); tallow — two reserves (Day 143 brick + Day 144 cup, lamp shelf); elderberry reduction — none remaining; clay pot (on fire); bone needle; bark cord; two-ply braided cord (new, Day 144 08:19); birch cups; lamp + spare lamp
-Cold-storage: Day 144 rabbit — haunches, shoulders (dock-wrapped cold box)
+Supplies: Day 143 pelt (fully cured, fur-side out, supply peg); Day 144 pelt (first tallow rub in, second tallow rub deferred to morning — on spare post, softening); fur chest panel (all side seams closed, running-stitch, fur-side in, neck/shoulder edges open — supply peg; bone needle threaded loose through open edge, ready for morning binding); fur insoles (belly/haunch panels, in boots); tallow — two reserves (Day 143 brick + Day 144 cup, lamp shelf); clay pot (on fire); bone needle; bark cord; two-ply braided cord; birch cups; lamp + spare lamp
+Cold-storage: Day 145 rabbit — jointed whole (haunches, shoulders, loin, ribs; dock-wrapped cold box, morning catch); Day 144 rabbit — haunches, shoulders (dock-wrapped cold box)
 Garden: east bench — both plots leaf-mulched for winter; garlic and nettle crowns dormant under mulch; sorrel still green
 Pending harvests: buried log — resting into winter after fourth flush Day 114; two bark packages smoked velvet shanks in east seep cache
 Firewood: eave-high and past; ample dry birch and pine under eave; dry birch kindling stocked; abundant
-Current focus: Day 144 23:18 — lying still in sleeping bag; coals banked low, lamp out; three snares running in the dark; morning tasks staged (chest panel neck binding, second tallow rub on pelt); asleep
-Yesterday, in brief: Day 143 north snare caught a small grey rabbit at 09:18 — jointed at hearthstone, belly fat rendered to tallow reserve. Noon broth from haunches and shoulders; evening broth from loin and ribs — both deep amber, consumed at the doorsill bench. Pelt completed two full tallow passes and is now fully cured, folded fur-side out on the supply peg. Cord braiding by lamplight through the evening; bones set in clay pot for overnight draw; both lamps damped low and sleeping by 23:59.
+Current focus: 06:18 — woke; revived fire from coal bed; snare round — north snare catch (small rabbit, stiff in frost); south and third snares empty, reset; all three running; jointed and cold-boxed; chest panel neck binding and pelt second tallow rub staged for this morning
+Yesterday, in brief: Day 144 — afternoon snare catch (small grey rabbit); jointed and cold-boxed; belly fat rendered to tallow (two reserves now); pelt through three grain-side scrapes and first tallow rub, softening on post; chest panel side seams closed by lamplight, bone needle staged at open neck edge; both lamps damped and sleeping by 23:18.

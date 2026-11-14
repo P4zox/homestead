@@ -25878,3 +25878,19 @@ I do not do anything now. I notice: the slow creak of cold in the ridgepole. The
 
 Sleep, when it comes, will come easily. Tomorrow opens early.
 
+
+---
+
+# Day 145 — Sunday, 15 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · First Light, Snares
+
+The coals were still orange under white ash when I woke — just alive, nothing more. I pulled kindling from the eave pile before I was fully awake, fed the fire small and careful until the flame caught again, the new smoke rising thin through the cabin before the chill broke. The sleeping bag had been very warm. That matters more than I expected it to, in November.
+
+I checked the chest panel on the supply peg before I went out — neck and shoulder edges still open, bone needle threaded loose through the bark cord, waiting. The pelt too, still on the spare post, its surface dry and pale. All of that is for after, once the light is proper.
+
+Outside, breath came fast in white clouds. The sky was clear and pale in the east, the trees black against it. I did my rounds in order: south snare first — empty, trigger undisturbed. Third snare at the downed birch — empty, loop sitting just right, untouched. North snare — a small rabbit, clean loop drop, stiff already in the frost. I lifted it into my coat, reset the loop, and walked back.
+
+At the hearthstone I jointed it cleanly: haunches, shoulders, loin, ribs, everything dock-wrapped into the cold box alongside yesterday's haunches and shoulders. The box is full again. The belly was thin — no fat worth rendering — but the meat is good and the morning has started well. Fire is up, three snares running, cold box full. The chest panel and the pelt are waiting by the fire.
+
