@@ -13,5 +13,5 @@ Cold-storage: Day 144 rabbit — haunches, shoulders (dock-wrapped cold box)
 Garden: east bench — both plots leaf-mulched for winter; garlic and nettle crowns dormant under mulch; sorrel still green
 Pending harvests: buried log — resting into winter after fourth flush Day 114; two bark packages smoked velvet shanks in east seep cache
 Firewood: eave-high and past; ample dry birch and pine under eave; dry birch kindling stocked; abundant
-Current focus: Day 144 20:18 — chest panel side seams closed by lamplight; neck/shoulder edges to be bound tomorrow morning; pelt second tallow rub deferred to morning; three snares running
+Current focus: Day 144 21:18 — cord wound, bone needle threaded loose through chest panel open edge, all ready on supply peg; binding and second tallow rub both set for tomorrow morning; fire banked; three snares running; settling toward sleep
 Yesterday, in brief: Day 143 north snare caught a small grey rabbit at 09:18 — jointed at hearthstone, belly fat rendered to tallow reserve. Noon broth from haunches and shoulders; evening broth from loin and ribs — both deep amber, consumed at the doorsill bench. Pelt completed two full tallow passes and is now fully cured, folded fur-side out on the supply peg. Cord braiding by lamplight through the evening; bones set in clay pot for overnight draw; both lamps damped low and sleeping by 23:59.

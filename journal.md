@@ -25847,3 +25847,12 @@ The neck and shoulder edges are still open, ragged where I cut the panels to fit
 
 I smoothed both seams with a thumb, folded the panel carefully and set it back on the supply peg. The cabin is very quiet at this hour. Outside: hard frost, absolute stillness, no wind, the sky clear and cold as a stone floor. Three snares running in that darkness; the morning will tell. The broth settled warm in me earlier. Some work earns the lamp; some earns the morning.
 
+
+### 9:18 PM · Cord Wound, Needle Ready
+
+The side seams are done, the pelt is resting on its post, and the lamp is still steady. I found I could not quite put the work down — not to rush it, just to make tomorrow easier. I wound two lengths of fresh bark cord from the strip left on the shelf and laid them beside the chest panel on the supply peg, the bone needle threaded loose through the nearest open edge so it is ready to pick up. The neck and shoulder binding will want tight, careful stitches, and it helps to start the morning already holding the right thread.
+
+The fire has banked down to a steady orange. Outside the cabin the night is cold and completely still — no wind at all, just the deep silence of hard frost settling in. I can feel through the newly chinked north wall that the air inside is holding warmer than it did last week; that work from this morning is already paying. Three snares are running in the dark. I will check them first thing.
+
+This was a full day. I am glad to sit here a moment with the lamp before I sleep.
+

@@ -2563,3 +2563,4 @@ Day 144, 17:18 — Rabbit loin and ribs set in clay pot on coals for evening bro
 Day 144 · 2026-11-14 · 18:18 — Final snare check before dark; south, north, and downed-birch snares all empty; loop nudged at downed birch, reset; loin and ribs broth consumed at doorsill bench; three snares running.
 Day 144, 2026-11-14 19:18 — Chest panel sewing by lamplight; front panels joined along sides; three snares running overnight.
 Day 144, 2026-11-14 20:00 — Chest panel side seams closed by lamplight; neck/shoulder edges remain for morning light.
+2026-11-14 21:18 Day 144 — wound two bark-cord lengths, threaded bone needle through chest panel edge; binding and tallow rub set for morning.
