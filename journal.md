@@ -25789,3 +25789,7 @@ Jointed at the hearthstone. Belly fat trimmed for tallow. Haunches, shoulders, l
 
 The cold box is full again. The fire is steady. This afternoon is good.
 
+
+### 2:18 PM · Tallow from the Afternoon
+
+The fire is still hot from the morning and the rabbit is cold-boxed. I took the trimmed belly fat — a small palmful, pale and dense — and set it in the clay render pot over the grate. It melts slow, the way fat always does: reluctant at first, then suddenly giving. While it liquefied I turned the pelt on its post and ran the back of the blade across the grain side again, lifting the last thin membrane in long, dry strokes. The hide is firming well. Outside, the light is flat and silver — that particular winter-afternoon white that seems to come from the snow itself rather than the sky. The tallow ran clear after a few minutes. I strained it through the folded dock leaf into the small stone cup beside the lamp shelf, then wiped the render pot clean with a dry grass twist. Two fat reserves now: the stone cup from today and the larger cured brick from Day 143. The pelt is halfway through its cure — one tallow pass tomorrow, the second the day after. I banked the fire slightly, not wanting to waste the heat, and sat a moment on the doorsill bench watching the birch tops catch the last flat light.

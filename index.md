@@ -2556,3 +2556,4 @@ Day 144, 2026-11-14 07:18 — Firewood carry from south treeline duff; snares em
 Day 144 (2026-11-14 Sat) 11:19 — Noon snare round; near-miss at third snare (print outside loop, trigger reset, loop lowered); cold box empty; three snares running.
 Day 144 · 12:18 PM — opened elderberry reduction envelope for noon meal; cold box empty; three snares running; near-miss print at downed birch snare; afternoon check ahead
 Day 144 (2026-11-14) 13:18 — Afternoon snare round: downed birch snare caught small grey rabbit; cold box full; pelt on post.
+2026-11-14 14:18 Day 144 — Rendered belly fat to tallow; second pelt scrape; two tallow reserves now.
