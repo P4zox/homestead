@@ -25731,3 +25731,12 @@ That is the rhythm of it: some mornings bring something, most do not. The broth 
 
 The sky was pale iron-grey when I stepped out at the doorsill, the cold hitting sharp and immediate. I went straight for the south treeline duff — two dry birch lengths, one arm-thick and solid, and a good dry pine bough with the bark still on. Carried them back fast, hands already stiffening in the frost before I had them under the eave. The snare runs looked quiet on the way past; yesterday's tracks were settled and sharp-edged in the ice this morning, old-looking. The triggers are still set right, the loops where I left them. The day is very still. Hard winter silence hangs across the clearing and I am glad to be back inside, glad for the coals still orange under the ash. No need to rebuild the fire yet. I stand at the hearthstone a moment before I do anything else.
 
+
+### 8:19 AM · Steady Hands, Still Morning
+
+Two more lengths of cord braided by the fire this morning — the kind of work that asks nothing of you except patience. Outside, the clearing holds its frost. I checked the snares at six and found them empty; they are reset now and I will check again at midday. There is nothing left to do but wait, and braiding fills that waiting well.
+
+The fire pulls warm through the cabin. I sit on the floor mat near the hearthstone, bark strands crossed and twisted over my knee, watching the coals breathe. The cold outside is absolute — I can feel the air at the door seam even with the latch bar down — but the shelter holds. After a hundred and forty-four days I still find that remarkable: that walls I cut and stacked and chinked keep the worst of winter at arm's length. The cold does not stop, but I am inside it without being consumed by it.
+
+Two lengths done by half-past eight. Added to stock. Snares running, lamps ready, tallow reserve sealed. It is enough to have a quiet morning and skilled hands and a fire that asks no coaxing.
+
