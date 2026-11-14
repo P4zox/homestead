@@ -2554,3 +2554,4 @@ Day 144, 2026-11-14 07:18 — Firewood carry from south treeline duff; snares em
 2026-11-14 Day 144 09:19 — Set third snare on south treeline path with new braided cord; three loops now covering three different routes; north and south snares reset and checked; cold box still empty.
 2026-11-14 10:18 Day 144 — Chinking the North Wall: packed clay-moss into four hairline seam-gaps and one knot-crack on lower north wall; cabin noticeably tighter against the cold.
 Day 144 (2026-11-14 Sat) 11:19 — Noon snare round; near-miss at third snare (print outside loop, trigger reset, loop lowered); cold box empty; three snares running.
+Day 144 · 12:18 PM — opened elderberry reduction envelope for noon meal; cold box empty; three snares running; near-miss print at downed birch snare; afternoon check ahead

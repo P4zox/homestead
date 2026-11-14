@@ -25769,3 +25769,12 @@ I walked the snare loop at midday. Hard frost on every surface, the kind that do
 
 No catch yet. The cold box stays empty. I am not worried — the snares are well-placed and the rabbits are using the trails. It is only a matter of time and patience, and I have both. I came back to the cabin, melted a pot of snow on the hearthstone for a midday cup of hot water, and sat at the doorsill bench watching the clearing. The sky is pale and high, the pines absolutely still.
 
+
+### 12:18 PM · Elderberry and Patience
+
+The cold box is empty today. No meat since the morning bone draw, and the three snares came back quiet at the noon round — though the loop at the downed birch had a fresh print just outside it, close enough to hold. The whole morning had that quality: chinking, braiding, the snare walk, all of it done while something inside me waited without quite admitting it.
+
+Noon, I went to the supply shelf and opened one of the elderberry envelopes — the dark reduction, dense and slightly tart, stirred into warm water ladled from the clay pot. It makes something between a drink and a meal. I sat at the doorsill bench with the birch cup held in both hands, the pale sky open above the clearing, nothing moving. The cold is total and settled in now, the kind that has decided to stay through winter.
+
+The fire holds. The cabin walls are tighter for this morning's chinking. The afternoon snare check is still ahead, and that print was fresh. I try not to need it and I try to stay ready.
+
