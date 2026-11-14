@@ -2560,3 +2560,4 @@ Day 144 (2026-11-14) 13:18 — Afternoon snare round: downed birch snare caught 
 2026-11-14 Day 144 15:18 — third grain-side scrape on Day 144 pelt (surface even, no membrane); first tallow rub worked in; hide starting to soften at edges
 2026-11-14 16:18 Day 144 — Worked Day 144 hide with palm and thumbs; fibres releasing, drape improving; second tallow rub deferred to morning.
 Day 144, 17:18 — Rabbit loin and ribs set in clay pot on coals for evening broth; chest panel sewing ahead.
+Day 144 · 2026-11-14 · 18:18 — Final snare check before dark; south, north, and downed-birch snares all empty; loop nudged at downed birch, reset; loin and ribs broth consumed at doorsill bench; three snares running.

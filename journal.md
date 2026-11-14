@@ -25824,3 +25824,11 @@ The chinking I did this morning shows tonight. I held my palm to the north wall 
 
 Three snares are running. I will check them once more before the last of the light is gone. After that it is broth, lamplight, and whatever sewing the evening offers on the chest panel.
 
+### 6:18 PM · Before Dark
+
+Went out for the final snare check before the light failed completely. The sky was orange at the treeline, stars already showing through the high bare branches when I looked up. South snare empty, trigger undisturbed. North snare the same — I reset it and straightened the stake that had shifted a little in the frost-heave. The downed birch snare was also empty, but the loop had been nudged — something passed through or near without taking the trigger. I reset the loop and left all three running.
+
+Back at the cabin, the clay pot was steaming well, loin and ribs deep in the simmering water. I pulled the pot to the edge of the coals to settle and sat at the doorsill bench with the lamp lit behind me, the door half open to the cold. The broth came out deep and clean — rib bones fell apart when I lifted them. Ate slowly, warming from the inside out while the last of the light dropped from the clearing.
+
+Three snares running. Pelt resting on the spare post. Enough wood under the eave. The night is very cold but very still.
+
