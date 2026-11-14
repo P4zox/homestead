@@ -17,3 +17,4 @@
 20:18 — Chest panel side seams closed by lamplight; left and right side seams both running-stitch complete, fur-side in; neck and shoulder edges open for binding tomorrow; panel back on supply peg; three snares running; pelt second tallow rub deferred to morning.
 21:18 — Wound two fresh bark-cord lengths from shelf strip; threaded bone needle loose through open chest panel edge on supply peg; both ready for morning binding; lamp steady; fire banked orange; three snares running in the dark.
 22:18 — Added final split of dry birch to banked coals; damped lamp wick; settled into sleeping bag; three snares running; chest panel and pelt tallow rub both staged for morning.
+23:18 — Lying quiet in the dark; coals banked low, lamp out; sleeping bag warm; three snares running; drifting toward sleep.

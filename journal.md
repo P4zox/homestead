@@ -25867,3 +25867,14 @@ The night outside is completely still. No wind. No sound from the treeline, only
 
 I eased the lamp wick down to a hair of flame, just enough to find the sleeping bag by, and settled in. Tomorrow: second tallow rub on the pelt, binding the chest panel at the neck and shoulder edges, and whatever the snares bring. That is enough to wake toward.
 
+
+### 11:18 PM · Night, Finally Still
+
+The cabin is dark except for the faint pulse at the coals — orange, nearly banked, steady. The lamp is down to nothing worth calling light. I am in the sleeping bag with shoulders pulled in and legs stretched long and nothing left to do tonight.
+
+It was a full day. The third snare worked; the rabbit came clean at the downed birch just past noon. Pelt is well along — three scrapes, first tallow rub in, second deferred till morning. Chest panel has its side seams closed; it needs only the neck binding tomorrow and it becomes a garment. The cabin is tighter than it was this morning, four hairline gaps packed out of the north wall.
+
+I do not do anything now. I notice: the slow creak of cold in the ridgepole. The faint smell of tallow and birch smoke. The even warmth spreading from the coals toward my side of the floor. The world past the door is very still and very cold and I am not in it. Three loops of bark cord hang in the dark of the treeline and I will check them at first light.
+
+Sleep, when it comes, will come easily. Tomorrow opens early.
+
