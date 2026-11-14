@@ -25894,3 +25894,14 @@ Outside, breath came fast in white clouds. The sky was clear and pale in the eas
 
 At the hearthstone I jointed it cleanly: haunches, shoulders, loin, ribs, everything dock-wrapped into the cold box alongside yesterday's haunches and shoulders. The box is full again. The belly was thin — no fat worth rendering — but the meat is good and the morning has started well. Fire is up, three snares running, cold box full. The chest panel and the pelt are waiting by the fire.
 
+
+### 7:19 AM · Pelt Under Tallow
+
+Brought the Day 144 pelt in from the post while the fire was still building back its heat. The first rub had done its work overnight — the skin side was more supple than yesterday, less stiff at the edges. I pinched a fold of hide and it held its shape only a moment before releasing back. Good sign.
+
+I worked the second tallow rub in by sections, same as the first — crown of hide to the base, heel of the hand pressing slow circles. The tallow from the lamp shelf was cold but yielded easily, and it went in cleanly without clumping or sitting proud on the surface. When I had covered the full skin side, I folded it fur-out and worked the margins and corners where the hide always tightens first. Then hung it back on the spare post, fur-out, away from direct heat.
+
+By the time I set it swinging gently on the peg, my hands were greasy and warm from the friction. The hide looks denser now — pale and matte on the skin side, with that faint give that means the fibres are drinking rather than resisting. One more rub tomorrow morning, then it should be ready to work: either cut down for a panel or laid aside as a finished piece.
+
+The chest panel is still waiting on its neck binding. I will get to that in the next hour. Everything has its turn.
+
