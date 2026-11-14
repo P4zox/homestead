@@ -13,3 +13,4 @@
 16:18 — Worked Day 144 hide across knee — kneaded shoulder, neck, haunches, edges pulled long; hide notably looser; second tallow rub deferred to morning; cold box full; three snares running; fire banked.
 17:18 — Pulled loin and ribs from cold box; set in clay pot with snowmelt on near coals for slow evening broth; will do final snare check before dark; chest panel sewing by lamplight ahead.
 18:18 — Final snare check before dark; south and north snares empty, reset; downed birch snare empty but loop nudged, reset; back at cabin, loin and ribs broth ready, consumed at doorsill bench by lamplight; cold box now haunches and shoulders only; three snares running; chest panel sewing ahead.
+19:18 — Chest panel sewing by lamplight; front panels joined to back/shoulder pieces along sides, running-stitch, fur-side in; bone needle, bark cord; lamp steady; three snares running; Day 144 pelt second tallow rub deferred to morning.

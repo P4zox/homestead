@@ -25832,3 +25832,9 @@ Back at the cabin, the clay pot was steaming well, loin and ribs deep in the sim
 
 Three snares running. Pelt resting on the spare post. Enough wood under the eave. The night is very cold but very still.
 
+
+### 7:18 PM · Needle and Flame
+
+The lamp makes a small, steady light. Fire pulled down to coals — enough warmth without smoke that needs tending. I laid the fur chest panel flat across my knee, back-and-shoulder pieces I had run-stitched together earlier, now needing the front panels joined along the sides. Bone needle, bark cord. I work slow, pulling the cord through each hole twice, checking the fur lies flat where it folds inside.
+
+The lamp wavered once when the cabin settled. Outside, the cold is absolute — frost on the bark door, the air still and soundless. In here, with the lamp and the coals and this small, careful work, I am nearly warm. The chest panel grows by a few stitches at a time. No hurry. The night is long, and I have good light.
