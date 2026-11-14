@@ -25804,3 +25804,12 @@ Mixed a small pinch of rendered tallow between both palms and worked it in with 
 
 Three snares running. Cold box full. Fire banked under deep ash. The light is already past its highest angle and dropping toward the treeline. A good afternoon's work while it held.
 
+
+### 4:18 PM · Working the Hide
+
+The afternoon light comes in low and amber through the cabin gap, catching the pelt on its post. I took it down after the third scrape, laid it across my knee, and started working it in earnest — kneading the shoulder with both thumbs, pulling the edges long, folding and re-folding it, pressing palm-heel into the thicker sections. The first tallow rub has had an hour to soak in; the hide is pliable now in a way it was not this morning. I can feel it giving under pressure instead of resisting, the fibres releasing one by one.
+
+This kind of work asks nothing of your mind and everything of your hands. I worked from the neck toward the haunches, then back again, following the grain. The cabin is warm enough that my fingers stay useful. By the time the sun fell behind the pines I had worked through the whole surface twice, and the hide is hanging back on the post now — noticeably looser, the edges starting to drape instead of holding stiff. Second tallow rub tomorrow morning before the cold sets it firm. I will know by then whether it needs it at all.
+
+Three snares running. Cold box full. Fire banked low. A good afternoon.
+
