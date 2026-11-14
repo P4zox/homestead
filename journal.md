@@ -25740,3 +25740,14 @@ The fire pulls warm through the cabin. I sit on the floor mat near the hearthsto
 
 Two lengths done by half-past eight. Added to stock. Snares running, lamps ready, tallow reserve sealed. It is enough to have a quiet morning and skilled hands and a fire that asks no coaxing.
 
+
+### 9:19 AM · Third Loop Set
+
+Took the two lengths of braided cord and walked the south treeline path — the same route I have been pulling firewood from all week. I wanted a different approach angle. The north snares have shown prints but no catches; maybe the animals are looping around me by now, learning the fixed points.
+
+I found a good spot near a downed birch where the snow showed a faint press trail cutting under the low branch tangle. The kind of line a small animal walks without deciding to — just a groove worn by habit. I bent a sapling, set the loop low and angled slightly downhill the way they would run if startled, anchored the drag stick behind a root. Checked my knots twice in the cold. The cord held clean and taut.
+
+Both the original snares were still set when I passed them on the way back — triggers intact, cold and empty. I reset the north one, which had drifted a little, and cleared a bit of frost-heave from the south one's anchor stake. Three loops now, covering three different routes.
+
+Back at the cabin before the frost had thickened further. Fire still holding; coals orange under a thin ash skin. The cold box stays empty but there is a feeling of better odds — three chances now instead of two.
+
