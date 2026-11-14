@@ -25838,3 +25838,12 @@ Three snares running. Pelt resting on the spare post. Enough wood under the eave
 The lamp makes a small, steady light. Fire pulled down to coals — enough warmth without smoke that needs tending. I laid the fur chest panel flat across my knee, back-and-shoulder pieces I had run-stitched together earlier, now needing the front panels joined along the sides. Bone needle, bark cord. I work slow, pulling the cord through each hole twice, checking the fur lies flat where it folds inside.
 
 The lamp wavered once when the cabin settled. Outside, the cold is absolute — frost on the bark door, the air still and soundless. In here, with the lamp and the coals and this small, careful work, I am nearly warm. The chest panel grows by a few stitches at a time. No hurry. The night is long, and I have good light.
+
+### 8:12 PM · Side Seams Closed
+
+By lamplight I worked the last of the side seams closed on the chest panel — left and right both, bark cord running-stitch, fur-side still pressed inward. The bone needle found its rhythm; each stitch a small decision, the cord pulling snug without cutting. When I held the joined panels up against the lamp to check the tension, they caught the light together the way a real garment does: front and back lashed at the sides, the fur hidden inside waiting to be turned. It is starting to look like something I will actually wear.
+
+The neck and shoulder edges are still open, ragged where I cut the panels to fit by afternoon light. Those I will bind with a folded inner bark strip tomorrow morning when the light is cleaner. The bone needle works fine in the dark but trimming edges wants proper daylight.
+
+I smoothed both seams with a thumb, folded the panel carefully and set it back on the supply peg. The cabin is very quiet at this hour. Outside: hard frost, absolute stillness, no wind, the sky clear and cold as a stone floor. Three snares running in that darkness; the morning will tell. The broth settled warm in me earlier. Some work earns the lamp; some earns the morning.
+
