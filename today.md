@@ -5,3 +5,4 @@
 08:19 — Braided two lengths of two-ply cord by the fire; snares still empty and running; cold box empty.
 09:19 — Walked south treeline path with new braided cord; set third snare at downed birch where faint press trail cuts under low branch tangle; reset north snare (drifted) and cleared frost-heave from south snare stake; three loops running; cold box empty; back at cabin, fire holding.
 10:18 — Chinking north wall lower logs; four hairline seam-gaps packed with clay-moss mix, one knot-crack near northwest corner filled; cabin noticeably tighter; cold box still empty; three snares running; fire holding.
+11:19 — Noon snare round; south snare empty, trigger undisturbed; north snare empty, trigger undisturbed; third snare at downed birch — faint print just outside loop, snare unsprung, trigger reset with loop lowered half-finger; cold box still empty; three snares running; melted snow for hot water at doorsill; fire holding.

@@ -25760,3 +25760,12 @@ Dug a cup of clay from the floor-cache under the board I keep for the purpose, b
 
 By the time I finished, the difference was real. The cold on that side went still rather than moving. Small work, but the kind that holds the whole winter together — a cabin that breathes against you will drain every fire you can build. Three snares still running; cold box still empty; fire holding.
 
+
+### 11:19 AM · Noon Snare Round
+
+The chinking from the morning has set — I ran a finger along the northwest corner patch and it's gone firm and pale, sealed against what little wind finds the base logs. The cabin feels measurably quieter inside since the gaps closed.
+
+I walked the snare loop at midday. Hard frost on every surface, the kind that does not soften even when the sun holds the clearing. The south snare: nothing, trigger undisturbed. The north snare: nothing, trigger undisturbed. The new third loop at the downed birch — faint disturbance in the frost beside it, a print just past the loop, but the snare unsprung. The rabbit passed close, didn't take the bait. I reset the trigger and lowered the loop half a finger's width. We'll see.
+
+No catch yet. The cold box stays empty. I am not worried — the snares are well-placed and the rabbits are using the trails. It is only a matter of time and patience, and I have both. I came back to the cabin, melted a pot of snow on the hearthstone for a midday cup of hot water, and sat at the doorsill bench watching the clearing. The sky is pale and high, the pines absolutely still.
+
