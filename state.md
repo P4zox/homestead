@@ -13,5 +13,5 @@ Cold-storage: Day 145 rabbit — jointed whole (haunches, shoulders, loin, ribs;
 Garden: east bench — both plots leaf-mulched for winter; garlic and nettle crowns dormant under mulch; sorrel still green
 Pending harvests: buried log — resting into winter after fourth flush Day 114; two bark packages smoked velvet shanks in east seep cache
 Firewood: eave-high and past; ample dry birch and pine under eave; dry birch kindling stocked; abundant
-Current focus: 15:00 — remaining Day 143 flank strips and belly section laid out on hearthstone; two edge cuts made; planning collar wrap or short second vest; broth still simmering toward dusk; Day 144 pelt fourth tallow rub tomorrow morning
+Current focus: 16:18 — two collar wrap panels cut from Day 143 flank strips (charcoal guide lines, curved cuts); belly section staged for lining; both panels pinned flat on spare post fur-out; stitching tomorrow; broth near done by dusk; Day 144 pelt fourth tallow rub tomorrow morning
 Yesterday, in brief: Day 144 — afternoon snare catch (small grey rabbit); jointed and cold-boxed; belly fat rendered to tallow (two reserves now); pelt through three grain-side scrapes and first tallow rub, softening on post; chest panel side seams closed by lamplight, bone needle staged at open neck edge; both lamps damped and sleeping by 23:18.

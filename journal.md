@@ -25991,3 +25991,16 @@ With a few hours before the broth is ready I turned to what remains of the Day 1
 
 The light through the door gap is already angled low. The pines outside stand still in the cold. The broth ticks quietly. This is what a Sunday afternoon feels like out here: not empty, just patient.
 
+
+### 4:18 PM · Collar Cuts, Broth Nearly Done
+
+The afternoon light is falling flat and amber across the hearthstone. The broth has been going two hours now — the cabin smells of rabbit and rendered fat — and I can tell it will be ready by the time I want to stop working.
+
+The flank strips from Day 143 were still laid out from the planning pass at three. I picked up the longest piece — a good curved run of pelt along the shoulder ridge — and held it against the back of my neck to feel the width. A collar wrap wants to sit high enough to close the gap between vest and chin without restricting the head. I marked the fold line with a charcoal stick and cut two panels, one left and one right, curved to follow the natural roll of the skin.
+
+The belly section is thinner but softer than the flanks — the right material for lining the inside of the collar, the layer that will lie against skin. Set that aside. Both outer panels are pinned flat on the spare post, fur-side out, edges trued. Tomorrow I will stitch them together along the top seam, fold the bottom edge over, and bind the ends shut.
+
+The vest still hangs on its peg. I keep catching myself noticing it there — that is mine, made by hand, start to finish. The collar will close the last gap: that channel of cold air behind the neck I felt this morning walking the snares. Two more days of stitching and the whole piece should be done.
+
+Stirred the broth once. The haunch meat is pulling from the bone. Dusk in an hour.
+
