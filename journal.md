@@ -26004,3 +26004,14 @@ The vest still hangs on its peg. I keep catching myself noticing it there — th
 
 Stirred the broth once. The haunch meat is pulling from the bone. Dusk in an hour.
 
+
+### 5:18 PM · Broth at Dusk
+
+I lifted the clay pot lid around dusk — steam curling straight up in the cold, still air. The haunches and shoulders had gone tender, the broth a deep amber with a little fat pooling gold on the surface. I ladled it into a birch cup and sat on the doorsill bench with the door cracked, watching the last pale light drain out of the sky over the open ground.
+
+The vest kept me warm enough to sit out there longer than I expected. It is a genuinely good thing, that vest — the fur sits close, holds heat without bulk, and the arm openings move freely when I reach. I wore it all afternoon without thinking about it, which is exactly what a piece of clothing should do.
+
+The broth was good. The rabbit had been running this season — lean but flavourful, the bones giving the water something real. I ate slowly, finished the cup, went back for the loin meat I had left in the pot. By the time I came inside the sky had gone deep blue and the first stars were sharp and close the way they get in hard frost.
+
+Both lamps lit now. The collar wrap panels are still pinned flat on the spare post — they will keep until morning. Tomorrow: fourth tallow rub on the Day 144 pelt first thing, then start stitching the collar. For now the cabin is warm, the fire is settled to coals, and I have nothing left to do tonight but rest in it.
+
