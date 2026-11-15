@@ -25971,3 +25971,12 @@ The Day 143 pelt and the Day 144 chest panel have become a thing. That is satisf
 
 Still to do: the fourth tallow rub on the Day 144 back pelt (the second pelt still softening on the post), and eventually a second vest from that pelt and the remaining material. But the first vest is complete and hanging on its peg and I am wearing it right now as I write this.
 
+
+### 2:18 PM · Rabbit Broth, Afternoon
+
+The vest is warm on my shoulders — simple and real, the weight of it settling in now that the work is done. I sat on the doorsill bench through early afternoon, door cracked an inch, watching frost hold on the open ground. The cold came in at the edges and I did not move from it. Warmth earned feels different from warmth found.
+
+By mid-afternoon hunger was clear. The Day 144 rabbit haunches and shoulders have been waiting in the cold box since yesterday, and there is no reason to hold them further. I lifted them out, unwrapped the dock leaves, and laid them in the clay pot with enough water to cover. The pot sits on a steady coal bed now, lid set, the fire banked low. By dusk it will be broth and fall-apart meat. I will eat well tonight — the Day 145 rabbit still whole in the cold box beside it, which is a kind of surplus I have not often had this season.
+
+The cabin is quiet. Outside, frost holds and the sky stays pale and completely still.
+

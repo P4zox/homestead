@@ -8,3 +8,4 @@
 11:18 — Laid Day 143 pelt fur-side down on hearthstone; used completed chest panel as template to mark and cut back panel shape; both shoulder edges folded and pinned flat; bone needle threaded; first shoulder seam in progress.
 12:19 — Back panel shoulder seams both stitched and knotted off; held against chest panel — alignment good; side seam prep next.
 13:00 — Back panel side seams joined to chest panel (both seams, bark cord, bone needle, knotted off); held vest up — shape holds; tried on over work shirt — fit good, arms move freely, chest flat; vest complete and hanging on supply peg; wearing it now.
+14:18 — Set Day 144 rabbit (haunches, shoulders) in clay pot with water over steady coal bed; lid on; simmering toward dusk meal; Day 145 rabbit remains in cold box.
