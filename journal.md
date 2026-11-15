@@ -25958,3 +25958,16 @@ I held it against the chest panel. The shoulder seams align; the width is right.
 
 Outside the frost has not lifted. Clear sky, no wind, the kind of cold that holds perfectly still. Good light through the door crack. Good day to stitch.
 
+
+### 1:00 PM · The Vest Takes Shape
+
+Late morning carried forward into early afternoon and the back panel was ready. I laid it grain-side down on the hearthstone beside the finished chest panel, matched the side edges carefully — the shapes agreed, which meant the template cutting this morning had been accurate — and folded the margins in finger-width by finger-width, pinning each with a looped length of bark cord before I began to stitch.
+
+The bone needle moved steadily. The bark cord is not beautiful to look at but it holds; I have come to trust it. Left side seam first, top to bottom, bark cord doubled back through each stitch. Then the right, same pace. The cabin was warm and still and the only sound was the low snap of birch in the fire and the small pull of thread through fur.
+
+When both seams were knotted off I held the vest up in the light from the door. It holds its shape. The front and back panels hang together as a single piece now — arm openings clear, neck opening wide enough for shoulders, the whole thing weighted and warm-looking in the hand. I tried it over my work shirt: the fit is close, the chest sits flat, the arms move freely. It is wearable.
+
+The Day 143 pelt and the Day 144 chest panel have become a thing. That is satisfying in a way that is hard to describe — the kind of satisfaction that comes not from finishing something large but from finishing something precisely: each step was what it needed to be, no step was wasted.
+
+Still to do: the fourth tallow rub on the Day 144 back pelt (the second pelt still softening on the post), and eventually a second vest from that pelt and the remaining material. But the first vest is complete and hanging on its peg and I am wearing it right now as I write this.
+
