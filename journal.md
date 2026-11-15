@@ -26083,3 +26083,19 @@ Outside: nothing moves. No wind at all. The stars will be very sharp. Tomorrow t
 
 The fire holds. Even through sleep I feel its warmth — the coals banked well, burning slow and steady through the dark. Outside the frost is absolute and the clearing is still. I surfaced only briefly, just enough to register that everything is held: the warmth, the dark, the cabin around me. The collar wrap panels wait on the spare post. The Day 144 pelt softens on its hook. There is nothing more to do tonight. I let it all go and sank back down into sleep.
 
+
+---
+
+# Day 146 — Monday, 16 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · First Light, New Week
+
+The fire held on banked coals all night. I pressed my hand near the bed when I woke and felt warmth come up steady and slow. Fed it one split of dry birch, watched the flames take, and pulled on my boots and the new vest. The vest: I keep forgetting to expect it and then feeling glad when I put it on. It sits close, the fur turned inward, and the morning cold finds no easy way through.
+
+Out in the dark. The stars were still up, the sky that particular hard blue before first grey. South snare first — trip bar down, nothing taken, the trigger just sprung by some light touch in the night. Reset and re-staked. North snare: a small rabbit, laid out neat in the loop, gone stiff in the overnight frost. Good. I reset it, cleared the trail, headed back along the stream edge. The third snare at the downed birch was undisturbed.
+
+One rabbit. I jointed it at the hearthstone when the light came up enough to work — the routine goes smoothly now, nothing to think about. Dock-wrapped and cold-boxed beside the Day 145 rabbit. Two in the box. A small buffer.
+
+Collar wrap panels are still pinned on the spare post, fur-out, waiting. I will start them once the fire is properly going and my hands have warmed through. The Day 144 pelt had four tallow rubs before I slept — it should be ready to cut this afternoon. One thing, then the next. That is the whole week, laid out in the dark before dawn.
+
