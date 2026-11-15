@@ -25949,3 +25949,12 @@ I cut along the lines slowly, blade angled to keep the fur side clean. The back 
 
 The frost outside has not softened at all. The fire is good. This is the right work for a still November morning.
 
+
+### 12:19 PM · Shoulder Seams Closed
+
+The cabin is quiet at noon. I picked up the bone needle where I had left it at 11:18 — first shoulder seam just begun — and ran the second one straight after, same close stitch, bark cord pulled snug through each fold. Both are knotted off now. The back panel sits on the hearthstone looking like something real.
+
+I held it against the chest panel. The shoulder seams align; the width is right. When I lay them together fur-side in, they already suggest the shape they will make. This afternoon I will fold the side edges, pin the two panels face to face, and begin the side seams. If that goes cleanly, the vest will be one joining pass from wearable.
+
+Outside the frost has not lifted. Clear sky, no wind, the kind of cold that holds perfectly still. Good light through the door crack. Good day to stitch.
+

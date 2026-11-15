@@ -6,3 +6,4 @@
 09:00 — Chest panel shoulder seams: ran close binding stitch on both shoulder edges (fur-side in, bark cord, bone needle); both seams flat and knotted off; arm openings still raw — binding pass next; panel back on supply peg, main body fully closed.
 10:18 — Fur chest panel arm binding pass: ran close binding stitch around both arm openings (bark cord, bone needle); both edges clean, flat, and knotted off; chest panel fully closed on all edges — neck, shoulders, sides, arm openings — complete; hung on supply peg; back panel is the next piece.
 11:18 — Laid Day 143 pelt fur-side down on hearthstone; used completed chest panel as template to mark and cut back panel shape; both shoulder edges folded and pinned flat; bone needle threaded; first shoulder seam in progress.
+12:19 — Back panel shoulder seams both stitched and knotted off; held against chest panel — alignment good; side seam prep next.
