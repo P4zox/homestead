@@ -26052,3 +26052,16 @@ I damped the tall lamp and left the low one burning at a quarter inch of wick. T
 
 Full day. Sleep coming easy.
 
+
+### 9:18 PM · Last Coal Check
+
+The low lamp is at a pinch now — just enough amber to see by, the flame barely a thread. I sat with it awhile after the 20:00 bank, back against the south wall, the fur vest warming my chest and shoulders in that steady, settled way it does. Outside: nothing. No wind, no branch creak, no owl. Just frost thickening silently on the bark and stars fixed like pins above the clearing. The kind of winter stillness that asks nothing of you.
+
+I checked the pelt one more time before lying down — pressed my thumb into the Day 144 skin near the crown and felt it yield, soft and even, where it was tight and board-stiff this morning. Four tallow rubs. The belly margin is fully supple; even the back corners have given. It will be ready to cut in another day, maybe two. The collar wrap panels are still pinned fur-out on the spare post. I ran a finger along one cut edge — smooth and clean. Tomorrow morning, first lamplight, that stitching begins.
+
+I added one last small split of dry birch to the coals — just enough to carry through the coldest hours before dawn without asking me to wake for it. The coals closed around it slowly. I watched until the edge caught, then pulled the sleeping bag up and settled in.
+
+The vest on my back. The fire held. The cabin quiet.
+
+This is a good night.
+

@@ -2581,3 +2581,4 @@ Day 145, 17:18 — Evening meal: rabbit broth from clay pot, dusk; vest worn all
 Day 145, 2026-11-15 (18:18): Braided cord by lamplight after evening meal; vest worn; collar wrap panels and fourth pelt rub staged for morning.
 Day 145, 19:18 — fourth tallow rub done on Day 144 pelt by lamplight (Day 144 cup used); pelt softening on post overnight; collar wrap stitching staged for dawn
 2026-11-15 Day 145 20:00 — Banked fire for night; collar wrap panels set for dawn; vest worn all evening; pelt softening on post.
+Day 145, 2026-11-15, 21:18 — Quiet night: last birch split on coals, Day 144 pelt soft after four tallow rubs, collar wrap panels ready for dawn; sleeping in vest.
