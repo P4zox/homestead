@@ -25916,3 +25916,14 @@ By the time the knot was finished and trimmed, the neck opening had a clean, sti
 
 I hung the panel back on the peg and held the cabin for a moment. Cold clear morning. Fire ticking quietly. The pelt on its post, the second tallow working in. Things moving forward, one stitch at a time.
 
+
+### 9:00 AM · Shoulder Seams, Both
+
+I lifted the chest panel off the supply peg, still warm from yesterday's work near the fire. The neck binding lay flat — good sign — and the shoulder edges fanned open where I'd left them. Outside, the frost sky was absolute: no cloud, no movement, just pale winter blue above the treeline. The cabin held its heat from last night's coals, and I fed it a split of dry birch before I sat down.
+
+The shoulder seam is different from the side seams. There's more give at the curve, more temptation to pull the cord tight and distort the edge. I threaded the bone needle with a length of two-ply bark cord and started at the base of the first shoulder — small close stitches, checking tension every few passes. The panel wanted to slip off my knee, so I wedged it between my thigh and the hearthstone and found a steady grip. The seam sat flat when I turned it back. I cut and knotted the cord.
+
+The second shoulder went a little slower — my left hand stiffened in the morning cold before the fire really caught — but I worked through it. When the last stitch was knotted off I held the panel up and looked at it for a moment in the door-crack light. Both side seams, neck edge, both shoulder seams: all closed. What was four loose panels is now a vest. The arm openings are still raw, still need a binding pass, but the body is whole. I could feel its weight differently when I folded it fur-side out and hung it back on the peg — heavier somehow, more serious.
+
+Arm-edge binding is next. When that's done, I'll put it on.
+
