@@ -25927,3 +25927,14 @@ The second shoulder went a little slower — my left hand stiffened in the morni
 
 Arm-edge binding is next. When that's done, I'll put it on.
 
+
+### 10:18 AM · Panel Complete
+
+I settled into the chair near the fire with the chest panel across my lap — the arm openings were the last raw edges, and I had been thinking about them since I knotted off the shoulder seams an hour ago. The frost still holds outside; the cabin was warm enough that I worked without my outer layer.
+
+The bone needle is finding its pace now. Each binding stitch pulls close, the bark cord lying flat in the fold of fur, and once you have found the rhythm it goes almost without thinking. Left arm opening first, then right. The cabin was quiet except for the fire settling and the occasional crack from outside — frost working through the birch planks, probably, or the pines at the treeline contracting in the cold.
+
+When I knotted off the last stitch and held the piece up against the window light, the chest panel was finished. Neck edge bound, both side seams closed, both shoulder seams flat, both arm openings done. All of it. It is a strange feeling — the piece existed as a plan, then as cut pelts, then as something half-made for three days, and now it hangs on the supply peg complete.
+
+It is not a coat. Not yet. The next step is a back panel to match, and then the two joined at the sides and shoulders into something that will actually hold heat against the wind. But a chest panel done is a chest panel done, and I will be warmer for it before this winter is through.
+

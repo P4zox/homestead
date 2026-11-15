@@ -4,3 +4,4 @@
 07:19 — Second tallow rub worked into Day 144 pelt (crown to base, full skin side, margins and corners); folded fur-out, hung back on spare post to continue softening; chest panel neck binding staged next.
 08:19 — Chest panel neck binding: ran close binding stitch along full neck opening, bark cord, bone needle; neck edge now clean and flat; shoulder edges still open; panel back on supply peg.
 09:00 — Chest panel shoulder seams: ran close binding stitch on both shoulder edges (fur-side in, bark cord, bone needle); both seams flat and knotted off; arm openings still raw — binding pass next; panel back on supply peg, main body fully closed.
+10:18 — Fur chest panel arm binding pass: ran close binding stitch around both arm openings (bark cord, bone needle); both edges clean, flat, and knotted off; chest panel fully closed on all edges — neck, shoulders, sides, arm openings — complete; hung on supply peg; back panel is the next piece.
