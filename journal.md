@@ -26078,3 +26078,8 @@ I am aware of how much is in order. Everything a cold winter morning will need i
 
 Outside: nothing moves. No wind at all. The stars will be very sharp. Tomorrow the clearing wakes to frost on every surface and I will start again.
 
+
+### 11:18 PM · Night's Full Quiet
+
+The fire holds. Even through sleep I feel its warmth — the coals banked well, burning slow and steady through the dark. Outside the frost is absolute and the clearing is still. I surfaced only briefly, just enough to register that everything is held: the warmth, the dark, the cabin around me. The collar wrap panels wait on the spare post. The Day 144 pelt softens on its hook. There is nothing more to do tonight. I let it all go and sank back down into sleep.
+

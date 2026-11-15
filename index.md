@@ -2583,3 +2583,4 @@ Day 145, 19:18 — fourth tallow rub done on Day 144 pelt by lamplight (Day 144 
 2026-11-15 Day 145 20:00 — Banked fire for night; collar wrap panels set for dawn; vest worn all evening; pelt softening on post.
 Day 145, 2026-11-15, 21:18 — Quiet night: last birch split on coals, Day 144 pelt soft after four tallow rubs, collar wrap panels ready for dawn; sleeping in vest.
 Day 145, 2026-11-15, 22:18 — Lay awake briefly in the dark; fire holding steady on banked coals; pelt softening; collar wrap staged for dawn; settled to sleep.
+Day 145 · 2026-11-15 · 11:18 PM — Sleeping; fire held on banked coals; all quiet before dawn.

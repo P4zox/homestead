@@ -17,3 +17,4 @@
 20:00 — Banked fire for night (one split birch round, slow steady coals for overnight); pressed thumb to Day 144 pelt — softer, four tallow rubs doing their work; collar wrap panels checked (both pinned fur-out on spare post, ready for dawn stitching); tall lamp damped, low lamp at quarter wick; settling toward sleep.
 21:18 — Last coal check: added one small dry birch split to coals for overnight hold; pressed Day 144 pelt — soft and yielding after four tallow rubs, ready to cut in a day or two; collar wrap panels checked on spare post (both pinned fur-out, ready for dawn); lying down in sleeping bag with vest on; door checked; sleeping.
 22:18 — Lay awake briefly in the dark; fire holding steady on banked birch coal; Day 144 pelt softening on spare post (four tallow rubs); collar wrap panels pinned and ready for dawn; settled back to sleep.
+23:18 — Sleeping; fire holds on banked coals; collar wrap and pelt ready for dawn; deep night, all quiet.
