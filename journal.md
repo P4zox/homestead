@@ -26015,3 +26015,14 @@ The broth was good. The rabbit had been running this season — lean but flavour
 
 Both lamps lit now. The collar wrap panels are still pinned flat on the spare post — they will keep until morning. Tomorrow: fourth tallow rub on the Day 144 pelt first thing, then start stitching the collar. For now the cabin is warm, the fire is settled to coals, and I have nothing left to do tonight but rest in it.
 
+
+### 6:18 PM · Cord Work, Quiet Hour
+
+The cabin is warm and contained. Both lamps are lit low, casting a close amber circle on the hearthstone and the work post opposite. I have eaten — the last of the Day 144 haunches, pulled soft from the clay pot — and the quiet after a full day has settled in around me like snow against the walls.
+
+I pulled two birch strips from the bundle by the door and started braiding, slow and even. Not because I am short of cord — I am not — but because tomorrow's collar wrap will want clean new length, unworked, pliable. The twist comes easy tonight; hands remember.
+
+The vest is on my back and I keep noticing it. The weight is small, just a little warmth layered over the work shirt, but the difference is real in the settled-coal hour when the fire is not blazing. I will add a split birch before sleeping. For now, braid, listen to the quiet, let the day finish at its own pace.
+
+The collar wrap panels are pinned flat on the spare post across the fire. Tomorrow I will bring them together — curved neck edge first, then the belly section lining if the fit warrants it. I have thought through the joins already. Tonight I am just making cord.
+

@@ -2578,3 +2578,4 @@ Day 145, 2026-11-15 08:19 — Chest panel neck edge bound with close binding sti
 2026-11-15 Day 145 15:00 — laid out remaining Day 143 flank strips and belly section on hearthstone; two edge cuts to true up material; planning second vest / collar wrap; no stitching yet
 2026-11-15 16:18 Day 145 — Collar wrap panels cut from Day 143 flank strips; belly section staged for lining; broth near done.
 Day 145, 17:18 — Evening meal: rabbit broth from clay pot, dusk; vest worn all afternoon; collar wrap panels pinned for tomorrow; lamps lit, quiet evening.
+Day 145, 2026-11-15 (18:18): Braided cord by lamplight after evening meal; vest worn; collar wrap panels and fourth pelt rub staged for morning.
