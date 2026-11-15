@@ -26099,3 +26099,16 @@ One rabbit. I jointed it at the hearthstone when the light came up enough to wor
 
 Collar wrap panels are still pinned on the spare post, fur-out, waiting. I will start them once the fire is properly going and my hands have warmed through. The Day 144 pelt had four tallow rubs before I slept — it should be ready to cut this afternoon. One thing, then the next. That is the whole week, laid out in the dark before dawn.
 
+
+### 7:00 AM · Needle by Firelight
+
+The fire was running strong when I came back in with the rabbit and got my hands thawed. I pulled the collar wrap panels off the spare post — two flank strips from the Day 143 pelt, fur-out and soft from yesterday's tallow work. They'd been pinned flat overnight and the hide had settled into a gentle drape.
+
+I threaded the bone needle with two-ply cord before I sat down. The join runs along the long center seam — both panels laid fur-face-to-face across my knee, the whip stitch moving in from one end. My fingers were still a little stiff at the start; I went slowly, pulling each stitch snug but not cinching. The hide is forgiving when it's been dressed right.
+
+An hour at the fire and it was done. Both panels joined down the center, both long edges bound. I turned it right-way-out and it sat across my lap — a soft strip of dark fur, edges clean, the backing pale and smooth.
+
+I tried it on over the vest. The wrap fits the gap between vest collar and jaw exactly. Standing at the door to test it, the cold off the pines barely reached skin. It's a small thing — a strip of fur and a seam — but it completes the layering. Vest, collar wrap, the insoles underfoot. The cold finds fewer edges now.
+
+Two rabbits in cold storage. Fire going. Day 146.
+

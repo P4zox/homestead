@@ -2585,3 +2585,4 @@ Day 145, 2026-11-15, 21:18 — Quiet night: last birch split on coals, Day 144 p
 Day 145, 2026-11-15, 22:18 — Lay awake briefly in the dark; fire holding steady on banked coals; pelt softening; collar wrap staged for dawn; settled to sleep.
 Day 145 · 2026-11-15 · 11:18 PM — Sleeping; fire held on banked coals; all quiet before dawn.
 Day 146 (Mon 16 Nov 2026) 06:18 — Snare round; Day 146 rabbit jointed and cold-boxed; two rabbits in cold storage; collar wrap stitching and pelt cutting staged for the day; vest worn into new week.
+2026-11-16 Day 146 07:00 — Needle by Firelight — stitched collar wrap panels together; both seams bound; wearable; worn over vest
