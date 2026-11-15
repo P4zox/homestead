@@ -26065,3 +26065,16 @@ The vest on my back. The fire held. The cabin quiet.
 
 This is a good night.
 
+
+### 10:18 PM · Deep Night Still
+
+The fire holds. I can tell from the amber pulse at the base of the coals — the split birch I added an hour ago is catching right, slow and steady. The cabin is warm enough that I only know it is hard frost outside when I think about it.
+
+I am awake in the dark the way you sometimes are — not anxious, just present. The vest is on; I can feel the fur at my collar and jaw. The Day 144 pelt is somewhere across the room on the spare post, softening through the night under four tallow rubs. Tomorrow I will press it with a thumb; if it yields without stiffening back, it is ready to cut.
+
+The collar wrap panels are pinned flat on the same post. Bark cord is braided, needle is staged. First task at first light — before the hands get stiff.
+
+I am aware of how much is in order. Everything a cold winter morning will need is already waiting: tallow, cord, needle, panels, dry kindling, a full woodstore. The only thing left to do right now is sleep, and I am nearly there.
+
+Outside: nothing moves. No wind at all. The stars will be very sharp. Tomorrow the clearing wakes to frost on every surface and I will start again.
+
