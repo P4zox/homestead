@@ -2568,3 +2568,4 @@ Day 144, 22:18 — Laid last birch split on coals, damped lamp to hair of flame,
 2026-11-14 23:18 Day 144 — Night, Finally Still — settled into sleeping bag; coals banked low; three snares running; full day: third snare catch, pelt progress, chest panel seamed, north wall chinked.
 2026-11-15 Day 145 06:18 — Woke to north snare catch; revived fire; cold box full again; chest panel binding and pelt tallow rub staged.
 2026-11-15 07:19 — Day 145, 7 AM: second tallow rub worked into Day 144 pelt; hung back on post to continue softening; chest panel neck binding next.
+Day 145, 2026-11-15 08:19 — Chest panel neck edge bound with close binding stitch; shoulder edges still open; Day 144 pelt second tallow rub complete on post.

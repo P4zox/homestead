@@ -25905,3 +25905,14 @@ By the time I set it swinging gently on the peg, my hands were greasy and warm f
 
 The chest panel is still waiting on its neck binding. I will get to that in the next hour. Everything has its turn.
 
+
+### 8:19 AM · Neck Edge Bound
+
+The fire had settled to a good steady heat by the time I picked up the chest panel. I lifted it from the supply peg — both side seams closed tight, the fur turned inward, the neck and shoulder edges still raw. The bone needle was already threaded loose through the neck edge where I left it last night, so I had no excuse to delay.
+
+I sat on the doorsill bench with my back to the door and the light coming in over my shoulder. Cold morning light, pale and clean. I ran a close binding stitch along the full neck opening — small bites through both layers, pulling the edge back on itself just enough to stop any fraying. The bark cord held true; I had to re-thread the needle once midway when the cord wore thin at the eye, but the join disappeared into the fold.
+
+By the time the knot was finished and trimmed, the neck opening had a clean, stiff edge. It sits flat, which is what I wanted — no puckering, no gap. The shoulder edges are still open and will need the same treatment, but that is work for another hour.
+
+I hung the panel back on the peg and held the cabin for a moment. Cold clear morning. Fire ticking quietly. The pelt on its post, the second tallow working in. Things moving forward, one stitch at a time.
+

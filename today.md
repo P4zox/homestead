@@ -2,3 +2,4 @@
 
 06:18 — Woke; revived fire from coal bed; went out in first pale light for snare round — south snare empty, trigger undisturbed; north snare: small rabbit, clean loop drop, stiff in the frost; third snare at downed birch empty, loop undisturbed; all three reset and running; jointed rabbit at hearthstone; dock-wrapped cold box; morning tasks (chest panel binding, pelt tallow rub) staged.
 07:19 — Second tallow rub worked into Day 144 pelt (crown to base, full skin side, margins and corners); folded fur-out, hung back on spare post to continue softening; chest panel neck binding staged next.
+08:19 — Chest panel neck binding: ran close binding stitch along full neck opening, bark cord, bone needle; neck edge now clean and flat; shoulder edges still open; panel back on supply peg.
