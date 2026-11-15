@@ -25938,3 +25938,14 @@ When I knotted off the last stitch and held the piece up against the window ligh
 
 It is not a coat. Not yet. The next step is a back panel to match, and then the two joined at the sides and shoulders into something that will actually hold heat against the wind. But a chest panel done is a chest panel done, and I will be warmer for it before this winter is through.
 
+
+### 11:18 AM · Back Panel Begins
+
+The chest panel hangs on the supply peg complete — every edge bound, every seam flat. I have been working it in pieces all morning; seeing it whole and finished is a small, real satisfaction.
+
+The Day 143 pelt has cured long enough. I spread it fur-side down on the hearthstone and laid the finished chest panel over it like a template, running the chalk stone just inside the seam allowance — shoulders first, then the side taper mirrored for the back. No arm-hole cutouts this time; the back is a cleaner shape, and I am glad for that.
+
+I cut along the lines slowly, blade angled to keep the fur side clean. The back panel came out in one piece — the pelt was just large enough, the margins tight but workable. Both shoulder edges are folded flat now and held with bark splinters while I thread the bone needle. By midday I should have the first shoulder seam closed and be moving on to the sides.
+
+The frost outside has not softened at all. The fire is good. This is the right work for a still November morning.
+
