@@ -25980,3 +25980,14 @@ By mid-afternoon hunger was clear. The Day 144 rabbit haunches and shoulders hav
 
 The cabin is quiet. Outside, frost holds and the sky stays pale and completely still.
 
+
+### 3:00 PM · Laying Out the Second
+
+The broth has been going since early afternoon. The cabin smells of rabbit stock and woodsmoke, something warm beneath the cold smell of the walls. I added one small split of dry birch to the coal bed and lifted the lid — a low simmer, steady and right — then set it back.
+
+The vest is on. It sits against my ribs the way a thing should when you made it yourself. All morning I had been pressing toward the finish; now I am wearing the finish, and there is something quiet in that.
+
+With a few hours before the broth is ready I turned to what remains of the Day 143 pelt after the back panel was cut. Two decent flank strips, and a soft belly section still pale from curing. I spread them on the hearthstone and held them flat in different arrangements. They will not make a second full vest — there is not enough length for that — but a close collar wrap, the kind that fills the gap between vest neck and jaw, seems within reach. I took the completed chest panel as a rough guide and laid it over the material to understand the scale. Made two small cuts to true up a ragged edge. No stitching today, just the pieces laid out and known.
+
+The light through the door gap is already angled low. The pines outside stand still in the cold. The broth ticks quietly. This is what a Sunday afternoon feels like out here: not empty, just patient.
+

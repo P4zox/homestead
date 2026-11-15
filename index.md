@@ -2575,3 +2575,4 @@ Day 145, 2026-11-15 08:19 — Chest panel neck edge bound with close binding sti
 2026-11-15 Day 145 12:19 — Shoulder seams on back panel complete; side seam prep next
 2026-11-15 Day 145 13:00 — Vest complete: back panel side seams joined to chest panel; first fur vest now wearable and hanging on peg.
 2026-11-15 14:18 — Day 145 — Rabbit Broth, Afternoon — Day 144 rabbit (haunches, shoulders) in clay pot simmering; first fur vest complete and being worn; eating by dusk.
+2026-11-15 Day 145 15:00 — laid out remaining Day 143 flank strips and belly section on hearthstone; two edge cuts to true up material; planning second vest / collar wrap; no stitching yet

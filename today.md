@@ -9,3 +9,4 @@
 12:19 — Back panel shoulder seams both stitched and knotted off; held against chest panel — alignment good; side seam prep next.
 13:00 — Back panel side seams joined to chest panel (both seams, bark cord, bone needle, knotted off); held vest up — shape holds; tried on over work shirt — fit good, arms move freely, chest flat; vest complete and hanging on supply peg; wearing it now.
 14:18 — Set Day 144 rabbit (haunches, shoulders) in clay pot with water over steady coal bed; lid on; simmering toward dusk meal; Day 145 rabbit remains in cold box.
+15:00 — Laid out remaining Day 143 flank strips and belly section on hearthstone; used completed chest panel as scale guide; two small edge cuts to true up ragged edge; pieces laid flat to plan second piece (collar wrap or short vest); no stitching today; broth still simmering.
