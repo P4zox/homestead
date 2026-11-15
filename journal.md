@@ -26026,3 +26026,16 @@ The vest is on my back and I keep noticing it. The weight is small, just a littl
 
 The collar wrap panels are pinned flat on the spare post across the fire. Tomorrow I will bring them together — curved neck edge first, then the belly section lining if the fit warrants it. I have thought through the joins already. Tonight I am just making cord.
 
+
+### 7:18 PM · Last Rub by Lamp
+
+The cord was wound and hanging — enough for tomorrow's stitching — and I found myself looking at the Day 144 pelt still on its post. I had told myself the fourth tallow rub was a morning task, but the lamp is good, the fire warm, and doing it now means the pelt has the whole night to drink it in before I pick up the bone needle at dawn.
+
+I took the Day 144 cup down from the lamp shelf and worked the last of it into the skin side by feel as much as by lamplight — crown to base, the two back corners where stiffness tends to linger longest, then the margins. Four days of handling have already made this hide noticeably more giving. By the time I folded it fur-out and hung it back on the spare post, the whole skin was warm and even-tacky the way a well-rubbed hide should be.
+
+That uses up the Day 144 cup. The Day 143 brick stays on the shelf. I have what I need.
+
+The collar wrap panels are pinned flat and waiting. The cord supply is ready. The bone needle is threaded and hanging. Tomorrow morning I will stitch the first seam.
+
+I added one slow birch round to the coals before the lamp went low. The cabin will hold its warmth until dawn.
+

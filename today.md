@@ -13,3 +13,4 @@
 16:18 — Cut two collar wrap panels from Day 143 flank strips (charcoal guide lines, curved cuts); belly section staged for lining; both panels pinned flat on spare post, fur-out; stitching tomorrow; broth near done.
 17:18 — Lifted clay pot at dusk; rabbit broth done (haunches, shoulders — tender, deep amber); ate evening meal on doorsill bench watching last light; went back for loin meat; both lamps lit; collar wrap panels remain pinned flat on spare post for tomorrow morning; fire to coals; quiet evening.
 18:18 — Braided cord by lamplight (two birch strips, two-ply); building clean cord supply for tomorrow's collar wrap stitching; vest worn through the evening; fire at coals; settling toward night.
+19:18 — fourth tallow rub worked into Day 144 pelt by lamplight (Day 144 cup fully used; crown to base, margins, back corners); pelt folded fur-out, hung on spare post to soften overnight; one birch round added to coals; collar wrap stitching staged for dawn.
