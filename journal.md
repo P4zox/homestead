@@ -26039,3 +26039,16 @@ The collar wrap panels are pinned flat and waiting. The cord supply is ready. Th
 
 I added one slow birch round to the coals before the lamp went low. The cabin will hold its warmth until dawn.
 
+
+### 8:00 PM · Coals and Stars
+
+The cabin is quiet. The braided cord sits coiled beside the collar wrap panels on the spare post — both pieces still pinned fur-out, waiting on first light. I laid in one more split birch round and watched it catch slow and steady, the kind of burn that holds through the night without tending.
+
+The Day 144 pelt is still on its post. I pressed my thumb to the skin side: softer than this morning, still room to go by dawn. Four tallow rubs is likely enough but morning will tell. If the hide bends clean across the knee, the collar wrap pieces will stitch easier.
+
+The vest has been on my back all evening. I stopped noticing it — which is the right answer. A piece of clothing should disappear into you, become weather, become given. This one has.
+
+I damped the tall lamp and left the low one burning at a quarter inch of wick. The chinking holds; no draft reaches me from the north wall. Through the door crack: stars sharp and cold, the temperature still dropping into the deep of night. In here: coals breathing, collar work staged, everything ready for morning.
+
+Full day. Sleep coming easy.
+
