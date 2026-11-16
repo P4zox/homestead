@@ -26167,3 +26167,12 @@ Pinned the gusset in place with two thorns. Set the first stitches of the thumb 
 ### 2:18 PM · Gusset Closed
 
 Picked up the right mitten at the gusset pin. Ran backstitch along the thumb seam from base to tip — same angle, same tension as the left. The seam closed cleanly. I turned the gusset with the bone needle's eye and worked it flat from the inside; the thumb pocket sits right. Set the gusset base to the palm edge, anchored it with two lock stitches, and began the main palm seam — a quarter of the length down now, pulling smooth. The room is cold but steady. The left mitten hangs on the supply peg and I keep glancing at it; the right one is shaping up to match.
+
+### 3:20 PM · Palm Seam Closed
+
+Picked up the right mitten palm seam where I left it — a quarter through, the gusset already seated and flat. Worked the backstitch from there to the cuff mouth in one pass: needle through, back a stitch, through again. Each loop drew the edges a little closer until the last one locked at the cuff opening.
+
+Turned the mitten right-side-out through the cuff gap. The thumb pocket sits true; the gusset lies flat inside without bunching. It matches the left one well enough. Only the cuff binding remains — a strip of pelt offcut, same as I used on the left side. I will cut it next and have this done before dark.
+
+The afternoon light is flat and cold, pressing down low. Good to be this close.
+
