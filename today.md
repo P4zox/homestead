@@ -5,3 +5,4 @@
 08:18 — Cut bark mitten patterns: palm-and-thumb shape, left and right marked; thumb angle adjusted by hand trial; both patterns set on doorsill bench; Day 144 pelt ready for mitten construction.
 09:00 — Laid Day 144 pelt flat on bench, fur down; traced and cut left mitten pieces using bark pattern; thumb gusset trimmed clean; pinned gusset with thorn; set first stitches of thumb seam with bone needle and two-ply cord; left mitten in progress.
 10:18 — Thumb seam closed; turned gusset with bone needle and two-ply cord; locking loops, no give; moved to main body/palm seam; one-third stitched; left mitten taking shape.
+11:00 — Main palm seam closed (full backstitch from thumb gusset base to cuff opening); mitten structurally whole; cuff binding remaining; left mitten on doorsill bench.

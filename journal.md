@@ -26141,3 +26141,7 @@ Now I have moved to the main body seam, the long curving join that will close th
 
 Outside: still, bright, bitterly cold. The cold is fine. These mittens are almost ready to meet it.
 
+
+### 11:00 AM · Seam Closes
+
+Third pass through the main palm seam, working needle and two-ply cord from the base of the thumb gusset down toward the cuff opening. I keep the pelt near the fire to let the edge soften — cold leather fights the needle. By the time the morning light is fully through the door gap, the entire seam is closed: clean backstitch, no gaps, the cord pulled even and firm. I turned the mitten inside out to check the thumb junction — no puckering, the gusset lies flat. When I turned it back and slipped it on, the fit was close and warm, thumb moving freely. The mitten is not finished — the cuff opening still wants its binding — but it is structurally whole now. I set it on the doorsill bench beside its bark pattern, two things that began as a flat pelt and a cut-out of bark and are now, almost, a mitten.
