@@ -26154,3 +26154,12 @@ I tried it on when the last stitch was tied off. The left mitten fits. Thumb sit
 
 The right mitten pattern is already on the bench. After midday I will start cutting.
 
+
+### 1:00 PM · Right Mitten Begins
+
+Midday light comes in flat and white through the door gap, cold enough that I can see my breath even with the fire going. I took the right-mitten bark pattern off the doorsill bench and laid the remnant of the Day 144 pelt flat on the bench, fur side down. The left mitten already on its peg — that is some quiet satisfaction; two dark shapes of fur hanging there, good and finished.
+
+Traced the palm outline from the bark pattern with a split charcoal stick. The Day 144 pelt still has enough in the lower half for the right mitten — the flank section I had saved back. Cut the main palm piece first, then the thumb gusset, holding the bark template close and running the knife along the edge. Trimmed the gusset corner angles clean the second time through; this one will be better than the left because I have a better feel for the thumb angle now.
+
+Pinned the gusset in place with two thorns. Set the first stitches of the thumb seam — bone needle, two-ply cord, backstitch from the base. Good tension. The piece is small; the thumb will close by this afternoon if I keep at it.
+
