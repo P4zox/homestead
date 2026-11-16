@@ -26132,3 +26132,12 @@ The bone needle is thin work in this cold. My fingers are not quite nimble at ni
 
 This is satisfying work, smaller and more intimate than the vest or the collar wrap. Each piece fits in one hand while you work the other. I can feel the form of the finished thing already in the pinned leather. Outside the window gap the sky is pale and sharp; a raven called twice from somewhere up the slope and then went quiet. I stitched on.
 
+
+### 10:18 AM · Thumb Closes
+
+The fire has settled to a steady heat and the cabin is as warm as it gets this time of year — a small mercy. I am sitting on the doorsill bench with the fur across my knees, the bone needle catching light from the vent gap. The thumb seam is closed. I turned the gusset slowly, coaxing the two-ply cord through each hole in a locking loop so the join can take tension without pulling open. When I pinched it at the base and worked the thumb back and forth there was no give — good. 
+
+Now I have moved to the main body seam, the long curving join that will close the palm piece into a cup. It is slower work than the thumb because the fur has more give along the grain, and I have to ease it in a little to avoid bunching at the heel of the palm. I am about a third of the way along. The shape is already clear: mitten-shaped, properly so. 
+
+Outside: still, bright, bitterly cold. The cold is fine. These mittens are almost ready to meet it.
+

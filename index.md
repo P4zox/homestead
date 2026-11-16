@@ -2588,3 +2588,4 @@ Day 146 (Mon 16 Nov 2026) 06:18 — Snare round; Day 146 rabbit jointed and cold
 2026-11-16 Day 146 07:00 — Needle by Firelight — stitched collar wrap panels together; both seams bound; wearable; worn over vest
 2026-11-16 08:18 Day 146 — Cut bark mitten patterns from Day 144 pelt; left and right palm-and-thumb shapes adjusted to hand; pelt ready for mitten construction.
 2026-11-16 Day 146 09:00 — Left mitten pieces cut from Day 144 pelt; thumb gusset trimmed; stitching begun.
+Day 146 10:18 — Thumb seam on left mitten closed; main palm seam one-third done.
