@@ -26282,3 +26282,12 @@ I took the bark floor plan and went over it once more by the fire: four paces by
 
 The first stroke was good. The axe entered the end grain true and the round fell cleanly to two halves, the heartwood pale and bright against the frost. I set each half bark-side up against the cabin wall. Four rounds done, eight half-planks stacked, by the time the sky had gone from gray to pale blue. The floor of the cabin — dirt packed hard and cold all these months — is about to change. It is a small thing, maybe, but I have been sleeping on that ground since the beginning.
 
+
+### 7:18 AM · First Planks Down
+
+The fire had settled to a good steady heat by the time I brought in the second round of splits. I fetched four more birch rounds from the drainage-ditch stack — the same ones I had cut and stored in autumn — and opened them with the axe. The cold keeps the wood tight; each strike rings clean and the halves fall apart with a kind of relief, like they had been waiting. Eight half-rounds now, stacked flat-face up against the inside of the south wall.
+
+I smoothed the floor earth before laying anything — packed the loose patches down with the flat of the axe, scraped out the high spots, pulled a stubborn root stub free. Then I scribed a line in the dirt with a stick to mark the first row, running parallel to the longest wall, and began to set the halves down. Bark face to earth, flat face up. The fit is imperfect in places — a small rock under one, a slight bow in another — but each one I lifted to shim or scrape beneath, then pressed back down and stepped on hard. Solid. No rock, no squeak, just the dull thud of weight on wood.
+
+By the end of the hour the first row was in: four half-rounds, side by side from wall to corner. I walked the length of them. The cabin has a floor now. Not the whole floor — I will need sixteen or eighteen more halves to cover the main sleeping area — but enough to know the rest will work. The morning is still clear and cold, and I am going to keep splitting.
+
