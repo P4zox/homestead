@@ -2600,3 +2600,4 @@ Day 146 (2026-11-16) 15:20 — Right mitten palm seam closed; turned right-side-
 Day 146, 7:18 PM — Drew floor plan in charcoal on bark scrap; counted eave splits; touched axe edge with river stone; broth bones steeping near coals overnight.
 Day 146, 20:21 — Evening by fire: reviewed bark floor plan by lamplight; broth bones steeping well; banked fire; floor splitting at dawn.
 Day 146, 2026-11-16 21:25 — Quiet evening by low lamp; full cold-weather kit worn and found complete; floor plan reviewed; fire banked; settling toward sleep before dawn floor work.
+2026-11-16 22:23 Day 146 — lamp out; cabin dark; warm in sleeping bag; reflected on cold-weather kit complete and floor work ahead at dawn

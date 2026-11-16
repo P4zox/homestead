@@ -13,5 +13,5 @@ Cold-storage: Day 145 rabbit — jointed whole (haunches, shoulders, loin, ribs;
 Garden: east bench — both plots leaf-mulched for winter; garlic and nettle crowns dormant under mulch; sorrel still green
 Pending harvests: buried log — resting into winter after fourth flush Day 114; two bark packages smoked velvet shanks in east seep cache
 Firewood: eave-high and past; ample dry birch and pine under eave; dry birch kindling stocked; abundant
-Current focus: 21:25 — lamp burning low; full cold-weather kit tried on (vest + collar wrap + both mittens, all complete, fit good); floor plan clear; broth steeping near coals; fire banked; lamp left to burn out; settling toward sleep; floor splitting and laying begins at dawn
+Current focus: 22:23 — lamp out; cabin dark; fire holding as banked coals; bone broth steeping near coals; floor plan on doorsill bench; sleeping; floor splitting and laying starts at dawn
 Yesterday, in brief: Day 145 — completed the fur vest (chest panel neck and arm bindings finished; back panel cut from Day 143 pelt and joined at shoulder and side seams; vest tried on, fit good, wearing through the day); cooked Day 144 rabbit haunches and shoulders into broth for supper; cut two collar wrap panels from Day 143 flank strips, pinned flat on spare post for dawn; worked fourth tallow rub into Day 144 pelt overnight.

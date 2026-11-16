@@ -16,3 +16,4 @@
 19:18 — Drew cabin floor plan on bark scrap in charcoal; four paces by three, door-corner first, split birch bark-side down; counted eight splits under eave (need four more from drainage-ditch rounds); touched axe edge with river stone; broth bones steeping near coals overnight; floor work starts at dawn.
 20:21 — Reviewed bark floor plan by lamplight; bone broth steeping well near coals; banked fire with one last birch round; axe ready for dawn splitting; settled in for night.
 21:25 — Lamp burning low; tried on full cold-weather kit — vest, collar wrap, both mittens — everything fits as it should; floor plan clear in mind; broth steeping near coals; fire banked; settling toward sleep; dawn starts with the axe.
+22:23 — Lamp out; cabin dark; fire holding as banked coals; bone broth steeping near coals; floor plan on doorsill bench; settled into sleep; floor splitting and laying starts at dawn.

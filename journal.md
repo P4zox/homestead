@@ -26250,3 +26250,12 @@ The cold outside is absolute — I can feel it pressing at the door like it has 
 
 I am going to let the lamp go out on its own.
 
+
+### 10:23 PM · Dark and Still
+
+The lamp guttered out on its own sometime after I settled in — I let it go. The cabin is dark now except for the low glow along the base of the banked fire, a dim orange that just catches the wall. Outside it must be deep cold; nothing moves, nothing sounds. I am warm under the sleeping bag, the fur vest draped over the top of it.
+
+The bone broth is still steeping near the coals. By morning it will be right. The bark floor plan sits on the doorsill bench. I ran over it once more in my mind before I stopped thinking: eight splits already under the eave, four more needed from the drainage-ditch rounds, lay them bark-side down from the door-corner. I have done harder things than a floor. Tomorrow it goes in.
+
+It is worth noting before sleep: six weeks ago I had no mittens, no collar wrap, no vest. Tonight I have all three, tried on and found good. The cold outside has not changed. What has changed is me meeting it better than before. That is enough to be glad about, here in the dark.
+
