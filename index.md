@@ -2594,3 +2594,4 @@ Day 146 10:18 — Thumb seam on left mitten closed; main palm seam one-third don
 2026-11-16 13:00 Day 146 — Right mitten pieces cut from pelt remnant; thumb gusset pinned; first thumb seam stitches begun.
 2026-11-16 14:18 — Day 146 — Gusset Closed: right mitten thumb seam closed, gusset turned, palm seam begun (quarter done)
 Day 146 (2026-11-16) 15:20 — Right mitten palm seam closed; turned right-side-out; cuff binding next.
+2026-11-16 16:00 — Day 146 — Right mitten cuff bound; both mittens complete; full cold-weather kit (vest, collar wrap, left+right mittens) on supply peg.

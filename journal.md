@@ -26176,3 +26176,16 @@ Turned the mitten right-side-out through the cuff gap. The thumb pocket sits tru
 
 The afternoon light is flat and cold, pressing down low. Good to be this close.
 
+
+### 4:00 PM · Both Mittens Done
+
+The cuff binding on the right mitten took less than half an hour. I cut a strip from the last scrap of pelt along the Day 144 flank edge — just wide enough, just long enough — and oversewed it around the cuff mouth with the bone needle and two-ply cord, the same way I bound the left. At the thumb-gusset join I worked three locking loops and pulled them tight. At the cuff mouth closing I did the same.
+
+I slipped my right hand in.
+
+It fit. The gusset sat flat, the thumb pocket held true, the cuff snugged at the wrist. I put on the left and wore both for a minute, standing in the cabin with the fire low, just to feel what a full pair is. After weeks of bare hands and cold knuckles and mittens half-finished on the bench — there is something solid about a pair. Something finished.
+
+I hung them both on the supply peg beside the collar wrap. The whole cold-weather kit is there now: fur vest, collar wrap, left mitten, right mitten. I tried it all on together — vest, collar wrap, mittens — and stood in the doorway a moment looking out at the white clearing and the bare birches. The cold pressed against my face. Everything else was warm.
+
+It is mid-afternoon. The light is already going flat and the shadows are stretching east. Tomorrow I will start thinking about what comes next — the cabin floor, perhaps, or more tallow. But tonight I will eat well and sit with both mittens on my hands for the pleasure of it.
+
