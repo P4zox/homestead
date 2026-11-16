@@ -26145,3 +26145,12 @@ Outside: still, bright, bitterly cold. The cold is fine. These mittens are almos
 ### 11:00 AM · Seam Closes
 
 Third pass through the main palm seam, working needle and two-ply cord from the base of the thumb gusset down toward the cuff opening. I keep the pelt near the fire to let the edge soften — cold leather fights the needle. By the time the morning light is fully through the door gap, the entire seam is closed: clean backstitch, no gaps, the cord pulled even and firm. I turned the mitten inside out to check the thumb junction — no puckering, the gusset lies flat. When I turned it back and slipped it on, the fit was close and warm, thumb moving freely. The mitten is not finished — the cuff opening still wants its binding — but it is structurally whole now. I set it on the doorsill bench beside its bark pattern, two things that began as a flat pelt and a cut-out of bark and are now, almost, a mitten.
+
+### 12:18 PM · Left Mitten Done
+
+The cuff binding went quickly once I settled into the rhythm. I cut a narrow strip from the Day 144 pelt offcuts — just wide enough to fold over the raw edge — and stitched it down with the bone needle, keeping the cord tension even. At the finger end, where the main seam meets the thumb gusset, I worked three locking loops to anchor the join. Then the same at the cuff mouth: a folded strip, oversewn clean all the way around.
+
+I tried it on when the last stitch was tied off. The left mitten fits. Thumb sits where it should, cuff closes over my coat sleeve, the whole thing holds its shape in my hand. I set it beside the collar wrap on the supply peg — two mittens still to go, but this one is done.
+
+The right mitten pattern is already on the bench. After midday I will start cutting.
+
