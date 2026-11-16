@@ -11,3 +11,4 @@
 14:18 — Continued right mitten: thumb seam closed (backstitch base to tip); gusset turned with bone needle eye, worked flat from inside; thumb pocket sits right; anchored gusset base to palm edge; began main palm seam — quarter done.
 15:20 — Right mitten palm seam closed: backstitched from quarter-done mark all the way to cuff mouth; turned mitten right-side-out through cuff gap; thumb pocket sits true, gusset flat inside; cuff binding next.
 16:00 — Bound right mitten cuff with pelt-strip offcut; oversewn all around; locking loops at thumb-gusset join and cuff mouth; right mitten complete — tried both mittens on with vest and collar wrap; full cold-weather kit finished and on supply peg.
+17:18 — Rendered tallow from Day 146 rabbit belly strip and kidney fat trim; set in second bark mold (clay-lined) on lamp shelf to firm; loin and ribs on grate over coals for supper.

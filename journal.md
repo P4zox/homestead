@@ -26189,3 +26189,14 @@ I hung them both on the supply peg beside the collar wrap. The whole cold-weathe
 
 It is mid-afternoon. The light is already going flat and the shadows are stretching east. Tomorrow I will start thinking about what comes next — the cabin floor, perhaps, or more tallow. But tonight I will eat well and sit with both mittens on my hands for the pleasure of it.
 
+
+### 5:18 PM · Fat into Light
+
+The cold-weather kit hangs complete on the supply peg — vest, collar wrap, both mittens. I keep glancing at it. It is a small private satisfaction, that four things I made with a bone needle and two-ply cord might keep me warm through whatever winter brings. The cabin feels different with it there: more finished, more ready.
+
+I took the fat trim from this morning's rabbit — belly strip and kidney fat, set aside at the joint-work — and started it in the clay pan over low coals. It renders slowly in the cold air of the cabin, the grease going clear and smelling faintly wild. I fold it into a second bark mold lined with clay daub, set flat on the lamp shelf beside the first brick. By full dark it will be firm.
+
+The loin and ribs are on the grate now, drip hissing into the coals. Supper. Outside the cabin the light is already gone from the sky — that fast winter dark, pressing at the door. Inside: fire, smell of cooking meat, two tallow bricks on the shelf.
+
+Two rabbits caught this week. Both mittens sewn and worn. I am going to be all right.
+
