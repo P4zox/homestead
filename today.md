@@ -8,3 +8,4 @@
 11:00 — Main palm seam closed (full backstitch from thumb gusset base to cuff opening); mitten structurally whole; cuff binding remaining; left mitten on doorsill bench.
 12:18 — Bound left mitten cuff with pelt-strip offcut; oversewn all the way around; locking loops at thumb-gusset join and cuff mouth; left mitten complete and on supply peg; right mitten bark pattern on bench, cutting next.
 13:00 — Laid Day 144 pelt remnant (lower flank section) flat on bench, fur down; traced right mitten pieces from bark pattern with split charcoal; cut palm piece and thumb gusset; trimmed gusset angles clean; pinned gusset with two thorns; set first thumb seam stitches (bone needle, two-ply cord, backstitch from base); right mitten in progress.
+14:18 — Continued right mitten: thumb seam closed (backstitch base to tip); gusset turned with bone needle eye, worked flat from inside; thumb pocket sits right; anchored gusset base to palm edge; began main palm seam — quarter done.

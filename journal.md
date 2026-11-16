@@ -26163,3 +26163,7 @@ Traced the palm outline from the bark pattern with a split charcoal stick. The D
 
 Pinned the gusset in place with two thorns. Set the first stitches of the thumb seam — bone needle, two-ply cord, backstitch from the base. Good tension. The piece is small; the thumb will close by this afternoon if I keep at it.
 
+
+### 2:18 PM · Gusset Closed
+
+Picked up the right mitten at the gusset pin. Ran backstitch along the thumb seam from base to tip — same angle, same tension as the left. The seam closed cleanly. I turned the gusset with the bone needle's eye and worked it flat from the inside; the thumb pocket sits right. Set the gusset base to the palm edge, anchored it with two lock stitches, and began the main palm seam — a quarter of the length down now, pulling smooth. The room is cold but steady. The left mitten hangs on the supply peg and I keep glancing at it; the right one is shaping up to match.
