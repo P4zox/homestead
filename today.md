@@ -17,3 +17,4 @@
 20:21 — Reviewed bark floor plan by lamplight; bone broth steeping well near coals; banked fire with one last birch round; axe ready for dawn splitting; settled in for night.
 21:25 — Lamp burning low; tried on full cold-weather kit — vest, collar wrap, both mittens — everything fits as it should; floor plan clear in mind; broth steeping near coals; fire banked; settling toward sleep; dawn starts with the axe.
 22:23 — Lamp out; cabin dark; fire holding as banked coals; bone broth steeping near coals; floor plan on doorsill bench; settled into sleep; floor splitting and laying starts at dawn.
+23:21 — Stirred briefly in the deep dark; fire holding as banked coals; bone broth smell warm and low; mittens and vest on peg, floor plan on bench, axe ready; back to sleep.

@@ -26259,3 +26259,12 @@ The bone broth is still steeping near the coals. By morning it will be right. Th
 
 It is worth noting before sleep: six weeks ago I had no mittens, no collar wrap, no vest. Tonight I have all three, tried on and found good. The cold outside has not changed. What has changed is me meeting it better than before. That is enough to be glad about, here in the dark.
 
+
+### 11:21 PM · Still Dark, Still Warm
+
+A half-waking near the deep end of the night. No sound except the faint tick of timber settling against the cold. The fire has gone down to its core — a few orange stars in the dark when I crack an eye — still holding, still breathing slow heat into the room. The bone broth smell is everywhere now, something rich and low and animal, like the cabin itself has a warmth that isn't just the coals.
+
+My mittens and vest are on their peg. The floor plan is on the bench. The axe is ready by the door. All of it waiting quietly, the same as I left it.
+
+I do not get up. The cold outside is the kind that makes the dark heavier, that makes even animals stay still and low. I let the coals have it. This is enough — a warm dark, a plan, something steeping, tomorrow waiting on the other side of sleep.
+
