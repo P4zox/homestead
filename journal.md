@@ -26237,3 +26237,16 @@ Axe is sharp from the river stone touch-up earlier. I will go at the ditch round
 
 I banked the fire for the night, fed it one last birch round. The lamp is low. Outside, the dark is absolute, stars very clear in the cold sky. It is good to have a plan.
 
+
+### 9:25 PM · Before Sleep
+
+The lamp is burning low and I have let it. No reason to trim the wick now — in a few hours I will be asleep, and by dawn I want to be up and splitting those ditch rounds before the light fully comes in. The broth bones are steeping well near the coals; I can smell a faint richness off the birch cup, the beginning of tomorrow morning's meal. The fire is a steady bank of red under ash.
+
+I tried the full kit on again before the lamp dimmed — vest, collar wrap, both mittens. Everything fits together the way it should. The mittens were the last piece I had been holding in my head as unfinished work, and now they are not. If tomorrow brought hard weather and I had to go out into it, I would be ready. That is the feeling this whole autumn was aimed at.
+
+The floor plan is clear in my mind. Four paces by three, door-corner first, bark-side down. Four more splits from the ditch rounds before I can lay the full run, so the morning starts at the axe. The work is straight and I know how to do it.
+
+The cold outside is absolute — I can feel it pressing at the door like it has weight. Inside, the coal bed holds. The cabin is tighter than it was a month ago: every chink filled, the perimeter sealed, the woodstore ample under the eave. This is what shelter is supposed to feel like. I built this.
+
+I am going to let the lamp go out on its own.
+
