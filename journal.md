@@ -26224,3 +26224,16 @@ The sky tonight is extraordinary. Stars burning clear and cold in every directio
 
 Broth bones are steeping near the coals. The lamp is low. I think tomorrow goes well.
 
+
+### 8:21 PM · Floor Plan, Lamplight
+
+The fire has settled into a steady pulse — not roaring, just holding. I pulled the bone cup a little closer to the coals and listened to it tick and sigh. The broth has that early richness now, the marrow beginning to let go. It will steep through the night and be ready by morning.
+
+I have been sitting with the bark scrap floor plan for the last while, holding it at lamp angle. Four paces by three. I drew it door-corner first, the way you would want to walk in and have your feet land on something solid right away. Eight splits already under the eave. I need four more from the drainage-ditch rounds — a short morning work before I begin laying.
+
+The room looks small in charcoal lines, but I know how it feels under my feet: worn earth paced down over months, cold through boots since the frost settled. Even bark over that will make a difference. Something to separate sleeping and working from the ground itself.
+
+Axe is sharp from the river stone touch-up earlier. I will go at the ditch rounds first thing, before the light is fully in, while the air still holds. The splitting should be quick — round cuts, four or five blows each — and then I can begin at the door-corner and lay inward.
+
+I banked the fire for the night, fed it one last birch round. The lamp is low. Outside, the dark is absolute, stars very clear in the cold sky. It is good to have a plan.
+
