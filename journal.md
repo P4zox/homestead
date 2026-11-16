@@ -26112,3 +26112,14 @@ I tried it on over the vest. The wrap fits the gap between vest collar and jaw e
 
 Two rabbits in cold storage. Fire going. Day 146.
 
+
+### 8:18 AM · Mitten Patterns Cut
+
+The fire has been up since before first light and the cabin holds heat well now that all the chinking is done. I finished the collar wrap at seven — the last stitch, the trial wearing. The gap between jaw and collar is filled. That is the whole layering done: vest, collar wrap, insoles in the boots. I stood in the doorway for a minute just to feel it — the cold on my face, the warmth from my chest outward. Good.
+
+By eight I was back at the spare post where the Day 144 pelt has been resting through its fourth tallow rub. Fur-out, stretched flat. I pressed the back of my hand to it — supple now, barely any stiffness when I fold it. Ready to work.
+
+I cut mitten patterns in bark this morning: a wide palm-and-thumb shape, left and right marked. Held each one against my hand, adjusted the thumb angle. Mitten construction is different from vest or collar — the thumb gusset is the tricky part, the place where the stitching has to stay tight while still letting the thumb move. I cut both bark pattern pieces and set them aside on the doorsill bench. The pelt will give two full mittens and probably a binding strip left over.
+
+It feels right to work outward from the body — first the torso warmth, then the neck, now the hands. The feet are already lined. When the mittens are done, only my face will be open to the cold.
+
