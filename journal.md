@@ -26211,3 +26211,16 @@ Packed earth is cold — I feel it through the fur insoles by midnight, and once
 
 For now: fire settled, lamp steady, belly full, hard frost pressing at the door.
 
+
+### 7:18 PM · Floor Plan, Lamplight
+
+The cold-weather kit is complete on its peg — both mittens, collar wrap, fur vest — and I keep glancing at it. All four pieces done before dark. The day feels properly rounded.
+
+After supper I sat with the lamp and thought through tomorrow. Drew the cabin floor in rough charcoal on a bark scrap: four long paces door-to-back-wall, three across, starting from the door-corner and working inward. Split birch, bark-side down — the round face up is easier underfoot, easier to sweep clean of ash and grit. I went outside briefly to count what is dry under the eave: eight split quarters long enough for a full floor run. I will need closer to twelve; the birch rounds near the drainage ditch should give me four more after one pass with the axe.
+
+Brought the axe in, ran the smooth river stone along the edge — just took the burr off, not a full resharpen. Ready for morning.
+
+The sky tonight is extraordinary. Stars burning clear and cold in every direction, the frost absolute, the air completely still. I stood out there longer than I meant to. No sound. No wind. Just the cold working its way into everything. I came back inside and latched the bar.
+
+Broth bones are steeping near the coals. The lamp is low. I think tomorrow goes well.
+

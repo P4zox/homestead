@@ -2597,3 +2597,4 @@ Day 146 (2026-11-16) 15:20 — Right mitten palm seam closed; turned right-side-
 2026-11-16 16:00 — Day 146 — Right mitten cuff bound; both mittens complete; full cold-weather kit (vest, collar wrap, left+right mittens) on supply peg.
 2026-11-16 17:18 Day 146 — rendered second tallow brick from Day 146 rabbit fat; loin and ribs on for supper
 2026-11-16 18:18 Day 146 — ate supper (Day 146 rabbit loin and ribs over coals); bones set for broth; planned split-birch floor starting door-corner tomorrow
+Day 146, 7:18 PM — Drew floor plan in charcoal on bark scrap; counted eave splits; touched axe edge with river stone; broth bones steeping near coals overnight.
