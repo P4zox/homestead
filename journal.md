@@ -26123,3 +26123,12 @@ I cut mitten patterns in bark this morning: a wide palm-and-thumb shape, left an
 
 It feels right to work outward from the body — first the torso warmth, then the neck, now the hands. The feet are already lined. When the mittens are done, only my face will be open to the cold.
 
+
+### 9:00 AM · Mittens Begin
+
+The bark patterns were on the bench where I had left them — two flat ovals, one for each hand, the thumb notch cut at the angle I had traced against my own palm yesterday morning. I took the Day 144 pelt from the hook and laid it smooth on the bench, fur side down. It is a good pelt after four tallow rubs: soft now, no stiffness in the grain, the leather almost supple. I pressed the left pattern flat against the inner surface and traced the outline with a knife tip, light, then cut properly: two careful passes on each curve, the second one trueing up any wobble. The thumb gusset came out clean on the first try.
+
+The bone needle is thin work in this cold. My fingers are not quite nimble at nine in the morning, but the fire is going well and I am close enough that the stiffness does not settle in for long. First seam is the thumb — I pinned the gusset with a thorn and set the first stitches with two-ply bark cord. It draws together tightly and the seam sits flush. By midday I should have the left mitten closed and the right one cut and started.
+
+This is satisfying work, smaller and more intimate than the vest or the collar wrap. Each piece fits in one hand while you work the other. I can feel the form of the finished thing already in the pinned leather. Outside the window gap the sky is pale and sharp; a raven called twice from somewhere up the slope and then went quiet. I stitched on.
+
