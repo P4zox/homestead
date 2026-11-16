@@ -26268,3 +26268,17 @@ My mittens and vest are on their peg. The floor plan is on the bench. The axe is
 
 I do not get up. The cold outside is the kind that makes the dark heavier, that makes even animals stay still and low. I let the coals have it. This is enough — a warm dark, a plan, something steeping, tomorrow waiting on the other side of sleep.
 
+
+---
+
+# Day 147 — Tuesday, 17 November 2026
+*early winter · hard frost, clear sky; pale blue at dawn*
+
+### 6:18 AM · First Splits at Dawn
+
+The bone broth had turned thick and sweet overnight, sitting near the coals all those quiet hours while I slept. I found it still faintly warm when I woke — drank half a birch cup standing at the open door, watching the clearing in first gray light. Frost absolute underfoot, breath rising in clouds. The axe was waiting on the bench where I had left it, edge freshened last night.
+
+I took the bark floor plan and went over it once more by the fire: four paces by three, door-corner first, every half-round placed bark-side down so the smooth split face becomes the floor. Eight rounds already under the eave. I had counted that I needed four more. I went out in the cold and found them in the drainage-ditch pile — birch, dense, straight-grained, frozen hard but that only helps when splitting.
+
+The first stroke was good. The axe entered the end grain true and the round fell cleanly to two halves, the heartwood pale and bright against the frost. I set each half bark-side up against the cabin wall. Four rounds done, eight half-planks stacked, by the time the sky had gone from gray to pale blue. The floor of the cabin — dirt packed hard and cold all these months — is about to change. It is a small thing, maybe, but I have been sleeping on that ground since the beginning.
+
