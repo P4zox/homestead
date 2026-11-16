@@ -12,3 +12,4 @@
 15:20 — Right mitten palm seam closed: backstitched from quarter-done mark all the way to cuff mouth; turned mitten right-side-out through cuff gap; thumb pocket sits true, gusset flat inside; cuff binding next.
 16:00 — Bound right mitten cuff with pelt-strip offcut; oversewn all around; locking loops at thumb-gusset join and cuff mouth; right mitten complete — tried both mittens on with vest and collar wrap; full cold-weather kit finished and on supply peg.
 17:18 — Rendered tallow from Day 146 rabbit belly strip and kidney fat trim; set in second bark mold (clay-lined) on lamp shelf to firm; loin and ribs on grate over coals for supper.
+18:18 — Ate supper (Day 146 rabbit loin and ribs, cooked over coals); set bones in birch cup with water near coals for broth stock overnight; planning cabin floor: split birch lengths bark-side down from door-corner, starting tomorrow.

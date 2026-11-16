@@ -26200,3 +26200,14 @@ The loin and ribs are on the grate now, drip hissing into the coals. Supper. Out
 
 Two rabbits caught this week. Both mittens sewn and worn. I am going to be all right.
 
+
+### 6:18 PM · Rabbit at Dusk
+
+The loin and ribs were ready — meat pulling clean from the bone, fat just crisped at the edges. I ate on the doorsill bench, door cracked a hand-width to let in the cold air and the last flat light. Outside the clearing was turning blue-gray, the sky above the pines still pale at the horizon. Inside: lamp trimmed, fire banked, the two tallow bricks solid on the shelf, the full cold-weather kit on its pegs.
+
+I set the bones in a birch cup with water near the coals to draw overnight into broth. Two good meals from one small rabbit. I ate slowly and thought about the floor.
+
+Packed earth is cold — I feel it through the fur insoles by midnight, and once the deep of winter settles in it will work upward all night. What I want is split birch lengths laid crosswise, bark-side down, fitted tight enough that they cannot rock. I will start at the door-corner tomorrow, clear the earth back and see what the floor level is, whether the ground needs tamping before I lay the first row. The wood is under the eave already. The work should not take long if I keep at it.
+
+For now: fire settled, lamp steady, belly full, hard frost pressing at the door.
+
