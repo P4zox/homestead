@@ -2612,3 +2612,4 @@ Day 147, 11:00 — Cooked Day 145 rabbit stew; ate sitting on the newly finished
 Day 147, 2026-11-17 13:18 — Retrieved two bark packages smoked velvet shanks from east seep cache; both firm and well-dried; brought inside to doorsill bench.
 2026-11-17, Day 147, 14:18 — Sorted and hung smoked velvet shank packages on south wall peg; began roughing in wooden scoop from spare birch half-round.
 Day 147, 15:18 — continued carving wooden scoop; bowl roughed out, handle narrowed to grip; carving by fire.
+Day 147 (2026-11-17 16:18) — Finished wooden scoop; birch half-round, scraped smooth, tallow-oiled; set on doorsill bench.

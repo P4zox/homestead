@@ -10,3 +10,4 @@
 13:18 — Walked to east seep cache; retrieved both bark packages smoked velvet shanks; both firm, well-smoked, no soft spots; brought inside to doorsill bench.
 14:18 — Hung both bark packages smoked velvet shanks on south wall peg (above lamp shelf); roughed in a wooden scoop from spare birch half-round; carving by fire.
 15:18 — continued carving wooden scoop; bowl hollowed and roughed out; handle narrowed to grip; scoop sitting solid in hand; carving continues by fire.
+16:18 — Finished wooden scoop: final scraping with knife spine (inside bowl and outside); a pinch of tallow rubbed in with thumb, wood darkened and sealed; test-scoop from birch cup clean; scoop set on doorsill bench beside mitten patterns.

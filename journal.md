@@ -26363,3 +26363,14 @@ The scoop is coming together. I have had it in my hands since the shanks were hu
 
 Outside the frost holds and the sky stays its pale winter blue. The cabin is warm. I can hear nothing but the fire and the small scrape of iron on wood. These hours — quiet and purposeful, inside a shelter I built, with food on the wall and a new floor underfoot — are what every hard morning has been working toward. I turn the scoop in my hands. The light from the door falls across the grain. It is becoming a good thing.
 
+
+### 4:18 PM · Scoop, Finished
+
+The scoop came together by lamplight this afternoon. I had been working the shape in stages — rough it out first, do not rush the detail — and by now the bowl was deep enough and the handle had come down to something I could close a hand around. What was left was the finish: I turned the knife and drew the spine along the inside of the bowl in long careful strokes, taking off the tool marks, bringing the wood smooth. The outside got the same treatment. It is birch, tight-grained and pale, and it takes a good edge.
+
+When the scraping was done I pinched a little tallow from the lamp-shelf brick and worked it into the wood with my thumb — the whole bowl first, then the handle. The wood darkened slightly, the way it does when it drinks something in. That seals the grain and keeps water from opening the wood over time. Small things like that add years.
+
+I test-scooped from the birch cup. It scooped clean. No wobble, no catching edge. I set it on the doorsill bench beside the mitten patterns.
+
+Outside the light has gone amber. It does that fast in November — the sun drops early and the sky holds the color for maybe ten minutes before it cools to grey-blue. I sat by the fire for a moment, just holding the finished scoop, and thought about how much of winter living is small tools: a cup, a needle, a scoop. Each one made by hand, each one used every day. There is a satisfaction in that I did not expect when I first came here.
+
