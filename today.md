@@ -11,3 +11,4 @@
 14:18 — Hung both bark packages smoked velvet shanks on south wall peg (above lamp shelf); roughed in a wooden scoop from spare birch half-round; carving by fire.
 15:18 — continued carving wooden scoop; bowl hollowed and roughed out; handle narrowed to grip; scoop sitting solid in hand; carving continues by fire.
 16:18 — Finished wooden scoop: final scraping with knife spine (inside bowl and outside); a pinch of tallow rubbed in with thumb, wood darkened and sealed; test-scoop from birch cup clean; scoop set on doorsill bench beside mitten patterns.
+17:18 — Walked both snare lines at dusk (light going flat, sun barely above pines); stream-bank snare had caught a young rabbit, freshly taken, neck clean; reset snare; birch stand snare undisturbed and tension good; returned to cabin with the rabbit; hung from beam peg to cool; added two sticks to fire for evening.

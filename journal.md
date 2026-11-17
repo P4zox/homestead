@@ -26374,3 +26374,12 @@ I test-scooped from the birch cup. It scooped clean. No wobble, no catching edge
 
 Outside the light has gone amber. It does that fast in November — the sun drops early and the sky holds the color for maybe ten minutes before it cools to grey-blue. I sat by the fire for a moment, just holding the finished scoop, and thought about how much of winter living is small tools: a cup, a needle, a scoop. Each one made by hand, each one used every day. There is a satisfaction in that I did not expect when I first came here.
 
+
+### 5:18 PM · Dusk Snare Walk
+
+The light had gone flat and amber — that particular winter late-afternoon when the sun stops giving warmth but has not yet set. I pulled on both mittens and went out.
+
+The stream-bank snare had caught. A young rabbit, neck clean. I reset the loop and walked the second line; the birch stand snare sat undisturbed, tension good. I checked the trigger and left it.
+
+Coming back I could feel the cold settling in earnest, the kind that follows the last light. Inside was warm and still. I hung the rabbit from the beam peg to cool. The fire had burned down to good coals; I added two sticks and watched them catch. Day 146 rabbit still in the cold box, more than enough for tonight. The evening feels easy.
+

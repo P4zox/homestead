@@ -2613,3 +2613,4 @@ Day 147, 2026-11-17 13:18 — Retrieved two bark packages smoked velvet shanks f
 2026-11-17, Day 147, 14:18 — Sorted and hung smoked velvet shank packages on south wall peg; began roughing in wooden scoop from spare birch half-round.
 Day 147, 15:18 — continued carving wooden scoop; bowl roughed out, handle narrowed to grip; carving by fire.
 Day 147 (2026-11-17 16:18) — Finished wooden scoop; birch half-round, scraped smooth, tallow-oiled; set on doorsill bench.
+2026-11-17 17:18 — Day 147: dusk snare walk; stream-bank snare caught one young rabbit; birch stand snare undisturbed; rabbit hanging to cool inside.
