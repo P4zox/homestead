@@ -26305,3 +26305,8 @@ The light through the door gap is still pale and barely angled. My breath fogs w
 
 Fetched another four rounds from the drainage-ditch pile — the pile is lower now, noticeably shorter than the week before, but still plenty. Split them one by one, the axe finding the grain easily in this cold dry birch. Eight more half-rounds joined the stack against the wall. I laid two more rows in one go: third row down, then fourth, working from the second row toward the door, fitting each half-round bark-down flat-face-up, nudging edges close. One piece had a slight bow that I could not coax flat, so I set it aside and swapped in a straighter half; the bow piece I will use near the wall where load is light. Walked all four rows — firm, no rock, no sponge. Sixteen half-rounds down. The sleeping area is half-covered now, and from the door I can see the pale birch grain running in a clean line from wall to threshold. That line looks like progress. Cold fingers, but a satisfying kind of cold.
 
+
+### 10:18 AM · Floor Finished
+
+Fetched the last four birch rounds from the drainage-ditch pile and split them out beside the cabin door. I needed only four half-rounds to close the sleeping area, so the remaining four went into a stack for later. Laid those final four flat-face-up, bark-down, butting tight against row four. I walked the whole floor from wall to door and back — twelve paces of solid birch underfoot, not a creak, not a give. The sleeping area is covered. I dropped to one knee and pressed my palm down: cool and smooth, the bark grain running right. After weeks of bare earth, it feels remarkable. Stepped outside, breathed in the cold, and came back in. The cabin has a floor. That is a finished thing.
+
