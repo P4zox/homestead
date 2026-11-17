@@ -26310,3 +26310,12 @@ Fetched another four rounds from the drainage-ditch pile — the pile is lower n
 
 Fetched the last four birch rounds from the drainage-ditch pile and split them out beside the cabin door. I needed only four half-rounds to close the sleeping area, so the remaining four went into a stack for later. Laid those final four flat-face-up, bark-down, butting tight against row four. I walked the whole floor from wall to door and back — twelve paces of solid birch underfoot, not a creak, not a give. The sleeping area is covered. I dropped to one knee and pressed my palm down: cool and smooth, the bark grain running right. After weeks of bare earth, it feels remarkable. Stepped outside, breathed in the cold, and came back in. The cabin has a floor. That is a finished thing.
 
+
+### 11:00 AM · Floor Done, Stew On
+
+The floor is finished. I have walked it a dozen times since I laid the last plank — heel to toe, one end to the other — and it does not move. It does not creak. It is just solid ground, only mine, inside the walls, smooth underfoot. I stood in the middle of it for a long moment after laying the last piece, hands at my sides, not doing anything in particular. That is the whole cabin done now. Four walls, a roof, a door with a latch, a bench at the doorsill, and now a proper floor under my boots.
+
+I decided to mark it with a meal. The Day 145 rabbit has been in the cold box long enough — time to cook it. I jointed the haunches and shoulders into the birch pot, cracked one leg bone for the marrow, packed in two handfuls of snow to melt for broth liquid. The fire was still built up from this morning, so the pot came to a simmer quickly. I added the loin and ribs last. By mid-morning the cabin smelled of broth and woodsmoke together, and I ate sitting cross-legged on the floor I just finished — the warmth of the stew, the warmth of the fire, and the solid plank under me all at once.
+
+It is a good day. The kind you do not forget quickly.
+
