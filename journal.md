@@ -26345,3 +26345,14 @@ I carry them back tucked under my arm, two packages the size of my fist each. In
 
 The fire is steady. The cabin is dim and warm and smells of birch smoke. I sit on the floor — my own floor now, solid and smooth-faced — and think about what comes next.
 
+
+### 2:18 PM · Winter Stores, Set Right
+
+After retrieving the smoked velvet shanks from the east seep cache this morning, I spent an hour by the fire turning them in my hands, deciding where they belong. Both packages smell right — that deep woodsmoke settling into dry mushroom, no soft spots, no give. Good.
+
+I took a length of bark cord and hung both packages from the left peg on the south wall, above the lamp shelf where the air stays warm and dry. Better than leaving them on the doorsill bench where damp boots might crowd them. The cabin has a supply wall now: fur kit on the right peg, smoked mushrooms on the left, tallow bricks above. Order without much effort.
+
+With the stores set, I pulled out the least-warped of the four spare half-rounds stacked by the wall and held it a moment. A wooden scoop would be useful — the birch cup works for drinking but scooping dry stores from a bark box is awkward with it. I roughed in an outline with the knife: a rounded bowl end, a short flat handle. It will take a few afternoons but there is no hurry. I carved until my fingers cooled, let the fire warm them, started again. The rhythm of it was good — the kind of work that asks very little while giving the mind room to settle.
+
+Mid-afternoon in early winter is a strange, pale gift. The light falls low and yellow through the door crack. The floor holds my weight without complaint. I am not uncomfortable here.
+

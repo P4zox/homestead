@@ -12,7 +12,7 @@ Supplies: fur vest (COMPLETE — chest panel + back panel joined; both shoulder 
 Cold-storage: Day 146 rabbit — haunches and shoulders (dock-wrapped cold box)
 Garden: east bench — both plots leaf-mulched for winter; garlic and nettle crowns dormant under mulch; sorrel still green
 Pending harvests: buried log — resting into winter after fourth flush Day 114
-Dry stores (inside): two bark packages smoked velvet shanks (retrieved from east seep cache Day 147, on doorsill bench)
+Dry stores (inside): two bark packages smoked velvet shanks (hung on south wall peg above lamp shelf, Day 147)
 Firewood: eave-high and past; ample dry birch and pine under eave; dry birch kindling stocked; abundant
-Current focus: 13:18 — retrieved both bark packages smoked velvet shanks from east seep cache; both firm and well-dried; inside on doorsill bench; sitting by fire considering next project
+Current focus: 14:18 — hung both smoked shank packages on south wall peg; began roughing in wooden scoop from spare birch half-round; carving by fire
 Yesterday, in brief: Day 146 — completed the full cold-weather kit: collar wrap finished (both flank panels joined, edges bound, wearable); bark mitten patterns cut for both hands; left and right mittens constructed from Day 144 pelt (thumb gussets, palm seams, cuff bindings all done); entire kit — vest, collar wrap, both mittens — tried on together and fits well; snared a rabbit at dawn (Day 146); rendered a second tallow brick from belly strip and kidney fat; ate loin and ribs for supper; set bones near coals for broth overnight; drew cabin floor plan on bark scrap in charcoal; axe edge freshened; all set for floor splitting at dawn of Day 147.
