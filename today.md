@@ -16,3 +16,4 @@
 19:18 — Evening: banked fire with ash cap and set overnight birch piece; sat on new floor by lamplight; reviewed supply state (tallow at 2 bricks — need more; cold box insulation could be improved; snares to check at dawn; cold-weather kit complete; reserves sound); ready for night.
 20:18 — Improved cold box insulation: packed moss around three sides, wedged bark chip scraps under box bottom, laid dry leaf-duff mat over lid; both rabbit portions (Day 146 + Day 147) now well-insulated against hard winter nights; lamp banked; lying down on new floor.
 21:18 — Lying on new floor in full dark; fire pulsing low; ran the full supply inventory in mind (cold box insulated, smoked shanks hung, kit on peg, tallow on shelf, firewood past eave); let it go; drifting toward sleep.
+22:18 — Lying in the dark on new floor; fire at low embers; cabin warm and still; fell into sleep.

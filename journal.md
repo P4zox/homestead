@@ -26430,3 +26430,14 @@ Day 147 ends in good order. I keep running the inventory in my mind the way you 
 
 I let the list go. The fire pulses once more. I close my eyes.
 
+
+### 10:18 PM · Still and Warm
+
+Fire down to a low amber pulse. The overnight birch piece holds. Outside, frost — I can feel the cold through the new floor's bark edge where it meets the wall, but here in the center, with the fire's heat banked in embers, the floor holds a dull warmth from the day.
+
+The cabin is dark but not empty. The lamp is out. Everything I need is in its place: tallow on the shelf, mittens and collar wrap and vest on the peg, cold box packed, smoked shanks hanging, firewood past the eave. I went through it all earlier and let it go, and it feels good to let it go.
+
+The night outside is still. No wind. Hard frost, nothing moving. The cold just waits.
+
+I fall into sleep the way water finds the low place — without trying, without noticing. The floor is solid under me.
+
