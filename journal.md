@@ -26446,3 +26446,19 @@ I fall into sleep the way water finds the low place — without trying, without 
 
 The fire has found its long-burn groove — the overnight birch piece settling in, coals breathing slow. Somewhere in sleep I register the warmth on my face, the solid floor beneath me. Outside: deep winter silence, hard frost, the pines standing black against the sky. I do not wake to look. The cabin is holding. Everything I need is here. I sleep all the way through.
 
+
+---
+
+# Day 148 — Wednesday, 18 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · Dawn on New Floor
+
+Slept the whole night through on the birch floor — the first real time, the floor being only finished yesterday. Woke before the light was much of anything. The cabin was dark, the fire a small orange pulse under gray ash. I lay still a moment and felt the floor beneath me: solid, no give, no cold coming up through the earth the way it used to. That is new. That is a whole season of work becoming something you sleep on.
+
+I lifted the ash cap and fed the coals — birch curls first, then a split, then another. Fire came up clean and fast. I filled a birch cup from the pot still resting at the stone edge: overnight bone broth, so thick it had half-jellied by the rim. Drank it standing, watching the door gap brighten from black to gray.
+
+Then I pulled on the full kit — vest over shirt, collar wrap up, mittens on — and went out into the frost. The clearing was locked and silent. Breath made a cloud, went away, made another. I walked the stream-bank snare first: tension good, nothing taken, prints nearby but circling wide. Reset it slightly back from the ice lip where the rabbits seem to be moving. Birch stand snare was undisturbed, tension holding. Reset both and came back inside.
+
+The door swung shut behind me and the warmth hit. Fire going. Broth in me. Floor solid underfoot. First full morning here, and it already feels like mine.
+
