@@ -2619,3 +2619,4 @@ Day 147 (2026-11-17 16:18) — Finished wooden scoop; birch half-round, scraped 
 2026-11-17 Day 147 20:18 — Improved cold box insulation with moss packing and bark chips; meat stores better sealed for hard winter.
 2026-11-17 · Day 147 · 21:22 — Lay on new floor in lampless dark; ran the full inventory in mind; let it go; drifted toward sleep.
 Day 147, 2026-11-17, 22:18 — Still and Warm — settled into sleep on new birch floor; cabin warm, fire at embers, full kit and stores secure
+Day 147, 23:00 — Sleeping deeply on new birch floor; overnight piece holding; hard winter frost outside; cabin warm and still.

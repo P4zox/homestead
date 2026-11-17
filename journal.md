@@ -26441,3 +26441,8 @@ The night outside is still. No wind. Hard frost, nothing moving. The cold just w
 
 I fall into sleep the way water finds the low place — without trying, without noticing. The floor is solid under me.
 
+
+### 11:00 PM · Deep in the Dark
+
+The fire has found its long-burn groove — the overnight birch piece settling in, coals breathing slow. Somewhere in sleep I register the warmth on my face, the solid floor beneath me. Outside: deep winter silence, hard frost, the pines standing black against the sky. I do not wake to look. The cabin is holding. Everything I need is here. I sleep all the way through.
+
