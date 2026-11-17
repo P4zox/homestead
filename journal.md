@@ -26356,3 +26356,10 @@ With the stores set, I pulled out the least-warped of the four spare half-rounds
 
 Mid-afternoon in early winter is a strange, pale gift. The light falls low and yellow through the door crack. The floor holds my weight without complaint. I am not uncomfortable here.
 
+
+### 3:18 PM · Scoop Taking Shape
+
+The scoop is coming together. I have had it in my hands since the shanks were hung — turning it slowly, taking a little more from the bowl with each pass of the knife. Dry birch carves cleaner than I expected; it splits where you press it, then smooths with the flat of the blade. The bowl is roughed out now, not deep yet but already dished, already recognizable as the thing it wants to become. The handle narrows at the grip, just as I planned.
+
+Outside the frost holds and the sky stays its pale winter blue. The cabin is warm. I can hear nothing but the fire and the small scrape of iron on wood. These hours — quiet and purposeful, inside a shelter I built, with food on the wall and a new floor underfoot — are what every hard morning has been working toward. I turn the scoop in my hands. The light from the door falls across the grain. It is becoming a good thing.
+

@@ -9,3 +9,4 @@
 12:18 — walked both snare lines at noon; stream-bank snare tripped but empty (tracks nearby); reset in better position on fresh rabbit prints; birch stand snare undisturbed; no catch this hour.
 13:18 — Walked to east seep cache; retrieved both bark packages smoked velvet shanks; both firm, well-smoked, no soft spots; brought inside to doorsill bench.
 14:18 — Hung both bark packages smoked velvet shanks on south wall peg (above lamp shelf); roughed in a wooden scoop from spare birch half-round; carving by fire.
+15:18 — continued carving wooden scoop; bowl hollowed and roughed out; handle narrowed to grip; scoop sitting solid in hand; carving continues by fire.
