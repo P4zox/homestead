@@ -26332,3 +26332,16 @@ I reset the snare a few feet to the right, where the prints are densest, and wed
 
 On the walk back I notice the birch branches above the stream holding a little snow in the crooks of their forks — they look like cupped hands. The stream itself is locked under clear ice, the kind you can see through to the pebbles and the slow-drifting weed. I stand there a moment before heading in. By noon the world is as bright as it will get. Good time to be outside.
 
+
+### 1:18 PM · Cache Retrieved
+
+The afternoon light is thin and pale — the kind of winter clarity that makes the birch trunks glow almost white against the dark pines. The floor is firm under my boots as I step out, full cold-weather kit on, and I'm glad of it. The cold bites clean and sharp.
+
+I have been meaning to retrieve the smoked velvet shanks from the east seep cache for a few days now. With the floor finished and the cabin fully sealed, it feels right to bring them inside. Food in an outdoor cache in hard frost is safe enough, but it is also one more thing on my mind, one more trip I have to remember to make. Better to have them in hand.
+
+The seep path is crusted with ice. The birch leaves mulched into the east bench rustle faintly as I pass — still there, still holding. The cache is a bark lid wedged into a rock notch above the frost line. I pry it up and find both bark packages exactly as I left them: firm, well-smoked, wrapped tight. The shanks inside are dense and dry — no soft spots, no off smell. They kept.
+
+I carry them back tucked under my arm, two packages the size of my fist each. Inside, I lay them on the doorsill bench beside the bark patterns. They will sit better on the supply peg or on a shelf, but for now they are inside, dry, and accounted for. I press a thumb-corner of one and it gives just the right amount — good texture, well-dried all the way through. Good eating ahead of me.
+
+The fire is steady. The cabin is dim and warm and smells of birch smoke. I sit on the floor — my own floor now, solid and smooth-faced — and think about what comes next.
+

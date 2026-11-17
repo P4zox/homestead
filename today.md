@@ -7,3 +7,4 @@
 10:18 — Fetched last four birch rounds from drainage-ditch pile; split into half-rounds; laid final four (rows 5–completion) closing sleeping area; walked full floor — solid, no give; sleeping area floor complete; four spare half-rounds stacked for later.
 11:00 — Cooked Day 145 rabbit (haunches, shoulders, loin, ribs + cracked marrow bone) in birch pot over fire; long simmer; ate full bowl of rabbit stew sitting on the new floor; cold box now holds Day 146 rabbit only.
 12:18 — walked both snare lines at noon; stream-bank snare tripped but empty (tracks nearby); reset in better position on fresh rabbit prints; birch stand snare undisturbed; no catch this hour.
+13:18 — Walked to east seep cache; retrieved both bark packages smoked velvet shanks; both firm, well-smoked, no soft spots; brought inside to doorsill bench.
