@@ -26383,3 +26383,10 @@ The stream-bank snare had caught. A young rabbit, neck clean. I reset the loop a
 
 Coming back I could feel the cold settling in earnest, the kind that follows the last light. Inside was warm and still. I hung the rabbit from the beam peg to cool. The fire had burned down to good coals; I added two sticks and watched them catch. Day 146 rabbit still in the cold box, more than enough for tonight. The evening feels easy.
 
+
+### 6:18 PM · Knife by Firelight
+
+The rabbit had cooled on the peg long enough — neck loose, body quiet, the warmth of the afternoon already leaving it. I brought it to the doorsill bench and worked by firelight: skin it clean, gut it quickly, lay everything out in order. The liver came out whole and dark, the kidneys neat and small. Those I would eat tonight. The haunches and shoulders I portioned and wrapped in dock leaf, then set in the cold box beside yesterday's rabbit. The heart I dropped straight into the birch cup with a little water, then placed it in the coals' edge to simmer.
+
+Outside, true dark now. The sky had still been showing pale green along the pine ridge when I came back from the snare walk, but all that is gone. The cabin is warm, the lamp throwing its small ring of orange light, the birch cup steaming on the hearthstone. This is supper: heart and kidneys and the quiet of a good evening after a full day. The floor is solid under my boots. The cold box is well stocked. Tomorrow there will be more to do, but tonight this is enough.
+
