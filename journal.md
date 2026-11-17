@@ -26419,3 +26419,14 @@ The two dressed rabbits should stay cold and firm now through any night the seas
 
 I banked the lamp and lay down on the new floor. The planks are even, and there is no draft I can feel. A good night.
 
+
+### 9:22 PM · Still in the Dark
+
+Lying on the new floor. The planks are cool through the sleeping bag but solid in a way the bare earth never was — no give, no cold damp seeping up. I can feel each half-round running parallel beneath me, the slight seams between them, the whole surface holding steady.
+
+The lamp is out. The overnight birch piece on the fire makes a low orange pulse every few minutes through the gap in the bark wall. Outside, nothing moves — no wind, no creek sound (iced over now for weeks), just the kind of hard winter silence that presses in from every side. The cold box is well-wrapped. Both rabbit portions will keep. The smoked shanks hang above the lamp shelf, firm and dark. The vest and mittens are on the peg. The tallow is solid.
+
+Day 147 ends in good order. I keep running the inventory in my mind the way you do when you are almost asleep but not quite — not from worry, more like counting your blessings by another name. Floor done. Kit complete. Cold box insulated. Firewood past the eave. Everything I will need for a hard night is already in place.
+
+I let the list go. The fire pulses once more. I close my eyes.
+
