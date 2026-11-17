@@ -26319,3 +26319,16 @@ I decided to mark it with a meal. The Day 145 rabbit has been in the cold box lo
 
 It is a good day. The kind you do not forget quickly.
 
+
+### 12:18 PM · Noon Snare Walk
+
+After the morning's work — the floor done, the stew eaten — the cabin sits complete around me for the first time. I have lived in it and worked in it through all its stages, but always with something unfinished hanging overhead. Now there is nothing unfinished. That feeling is stranger than I expected: not triumphant, just still.
+
+I pull on the full cold-weather kit — vest, collar wrap, both mittens — and step outside into the noon sun. The sky is pale blue and enormous. The frost has softened slightly on the south-facing slope, but the north sides of things are still white and sharp-edged. My breath hangs in the air a moment, then dissolves.
+
+I walk the two snare lines. The first loop, near the birch stand, is undisturbed. The second, by the stream bank where I have had luck before, has been visited — the trigger is tripped but nothing caught. Something came close and veered off, or slipped the loop clean. I find two fresh sets of tracks pressed into the light snow near the bank, the neat paired prints of a rabbit moving at an easy trot.
+
+I reset the snare a few feet to the right, where the prints are densest, and wedge the trigger more carefully. If it runs that path again, the odds will be better.
+
+On the walk back I notice the birch branches above the stream holding a little snow in the crooks of their forks — they look like cupped hands. The stream itself is locked under clear ice, the kind you can see through to the pebbles and the slow-drifting weed. I stand there a moment before heading in. By noon the world is as bright as it will get. Good time to be outside.
+

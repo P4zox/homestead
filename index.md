@@ -2608,3 +2608,4 @@ Day 146, 2026-11-16 21:25 — Quiet evening by low lamp; full cold-weather kit w
 2026-11-17 09:18 Day 147 — continued split-plank floor; laid rows 3 and 4 (16 half-rounds total); sleeping area half-covered
 2026-11-17 10:18 — Day 147 — sleeping area floor completed; last four half-rounds laid; full birch split-plank floor done
 Day 147, 11:00 — Cooked Day 145 rabbit stew; ate sitting on the newly finished birch split-plank floor; whole cabin now complete.
+2026-11-17 Day 147 12:18 — walked noon snare lines; stream-bank snare tripped but empty; reset on fresh rabbit tracks; birch stand snare undisturbed
