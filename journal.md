@@ -26390,3 +26390,17 @@ The rabbit had cooled on the peg long enough — neck loose, body quiet, the war
 
 Outside, true dark now. The sky had still been showing pale green along the pine ridge when I came back from the snare walk, but all that is gone. The cabin is warm, the lamp throwing its small ring of orange light, the birch cup steaming on the hearthstone. This is supper: heart and kidneys and the quiet of a good evening after a full day. The floor is solid under my boots. The cold box is well stocked. Tomorrow there will be more to do, but tonight this is enough.
 
+
+### 7:18 PM · Lamp and Plans
+
+Supper is done and the lamp is burning low and steady on its shelf. The fire is good — I fed it two more sticks after eating, and now I am watching it settle into the kind of steady red-orange base that holds through the night. I have learned this fire now. I know how much to give it and when.
+
+I spent a little time just sitting on the new floor, back against the south wall, feet toward the coals. The planks are solid. No rock, no give. This is not a small thing — to sit on a floor I cut and laid myself, inside a cabin I built, in winter. I let myself feel it.
+
+After a while I pulled out the bark scrap I had been using for sketching and made a rough list by lamplight. Two rabbits in the cold box. Smoked mushrooms hung on the peg. Tallow bricks enough for the lamp but only two — I will want more before the deep cold weeks are out. The cold-weather kit is complete and wearable. Tools in good order: knife edge keen, axe edge freshened yesterday. Cordage supply adequate. Firewood ample.
+
+What is not done: I have no second set of mittens for heavy wet work. The cold box works but I have not lined it with any extra insulation — in the hardest cold, I may want to. And I have been eating down the Day 145 rabbit and now the Day 147 organs; the two portioned sets in the cold box are real reserves and I should let them stay reserves for a few days.
+
+So tomorrow I think: check snares at dawn, then maybe look at the cold box insulation situation. After that, perhaps more tallow work if I can find render material, or else just a quiet day near the fire while the frost holds.
+
+The lamp flame barely wavers. The cabin is warm. I banked the fire with ash — a good thick cap over the coals — and set a split birch piece across the andirons to catch when the ash burns through before dawn. I am ready for night.

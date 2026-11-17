@@ -2615,3 +2615,4 @@ Day 147, 15:18 — continued carving wooden scoop; bowl roughed out, handle narr
 Day 147 (2026-11-17 16:18) — Finished wooden scoop; birch half-round, scraped smooth, tallow-oiled; set on doorsill bench.
 2026-11-17 17:18 — Day 147: dusk snare walk; stream-bank snare caught one young rabbit; birch stand snare undisturbed; rabbit hanging to cool inside.
 2026-11-17 18:18 — Day 147 — Butchered Day 147 rabbit by firelight; cold box holds both Day 146 and Day 147 portions; ate liver, kidneys, heart for supper; lamp lit, evening settled.
+2026-11-17 19:18 — Day 147 — Banked fire for night; reviewed winter supply state by lamplight; noted cold box insulation and tallow as next priorities.
