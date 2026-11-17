@@ -26404,3 +26404,18 @@ What is not done: I have no second set of mittens for heavy wet work. The cold b
 So tomorrow I think: check snares at dawn, then maybe look at the cold box insulation situation. After that, perhaps more tallow work if I can find render material, or else just a quiet day near the fire while the frost holds.
 
 The lamp flame barely wavers. The cabin is warm. I banked the fire with ash — a good thick cap over the coals — and set a split birch piece across the andirons to catch when the ash burns through before dawn. I am ready for night.
+
+### 8:20 PM · Cold Box, Better Sealed
+
+Evening is full now — the lamp burns low, the fire holds its coal under the ash cap, and the cabin sits quiet around it. I had one thing left to do before sleep and I let myself do it slowly.
+
+The cold box had been on my mind since I reviewed supplies at the last hour. Two rabbits in there, and the box itself is functional — but the outer edges have always been a little loose, bark lid setting down without much insulation in between. In hard winter, "functional" and "enough" are different things.
+
+I took a double handful of moss from the pile I keep inside — the same stuff I used for the perimeter insulation and the wall gaps — and packed it in careful rows around three sides of the box, pressing it into the gap between box and wall corner where cold drafts can creep in. Then I wedged a few bark chip scraps underneath the box bottom to lift it slightly off the earth and laid a mat of dry leaf-duff across the top to cover the lid.
+
+It took maybe twenty minutes. When I pressed my palm to the outside of the lid after, it still felt of wood rather than air. That is the point.
+
+The two dressed rabbits should stay cold and firm now through any night the season brings. I am not short on food — the cold box, the smoked velvet shanks on the wall peg, the dry stores — but each small thing made more certain is a night I sleep better.
+
+I banked the lamp and lay down on the new floor. The planks are even, and there is no draft I can feel. A good night.
+
