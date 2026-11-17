@@ -26300,3 +26300,8 @@ Carried in another four rounds from the pile outside, each one rimed at the ends
 
 The light through the door gap is still pale and barely angled. My breath fogs with every axe stroke. But the floor is growing — slow as a tide, just as certain.
 
+
+### 9:18 AM · Floor Halfway
+
+Fetched another four rounds from the drainage-ditch pile — the pile is lower now, noticeably shorter than the week before, but still plenty. Split them one by one, the axe finding the grain easily in this cold dry birch. Eight more half-rounds joined the stack against the wall. I laid two more rows in one go: third row down, then fourth, working from the second row toward the door, fitting each half-round bark-down flat-face-up, nudging edges close. One piece had a slight bow that I could not coax flat, so I set it aside and swapped in a straighter half; the bow piece I will use near the wall where load is light. Walked all four rows — firm, no rock, no sponge. Sixteen half-rounds down. The sleeping area is half-covered now, and from the door I can see the pale birch grain running in a clean line from wall to threshold. That line looks like progress. Cold fingers, but a satisfying kind of cold.
+
