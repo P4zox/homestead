@@ -2604,3 +2604,4 @@ Day 146, 2026-11-16 21:25 — Quiet evening by low lamp; full cold-weather kit w
 2026-11-16 23:21 — Day 146 — Brief half-waking in the deep night; fire holding at coals; bone broth steeping; full cold-weather kit and floor plan ready; back to sleep.
 2026-11-17 Day 147 06:18 — First Splits at Dawn: revived fire; drank overnight bone broth; began splitting birch rounds for cabin floor — four rounds fetched and halved; floor laying starts.
 2026-11-17 07:18 Day 147 — First Planks Down: split four more birch rounds (8 halves total); laid first row of split-plank floor in cabin — four half-rounds solid underfoot; floor work continues.
+2026-11-17 08:18 — Day 147 — split four more rounds; laid second row of split-plank floor (8 half-rounds total; ~12–14 more needed)

@@ -26291,3 +26291,12 @@ I smoothed the floor earth before laying anything — packed the loose patches d
 
 By the end of the hour the first row was in: four half-rounds, side by side from wall to corner. I walked the length of them. The cabin has a floor now. Not the whole floor — I will need sixteen or eighteen more halves to cover the main sleeping area — but enough to know the rest will work. The morning is still clear and cold, and I am going to keep splitting.
 
+
+### 8:18 AM · Second Row Down
+
+The first row held firm when I stepped on it this morning — bark down, flat face up, fit tight against the wall — and that steadiness made the second row feel worth doing carefully.
+
+Carried in another four rounds from the pile outside, each one rimed at the ends where the frost had crept under the bark overnight. Split them one by one: the axe finding the grain clean, each half falling away with a sound like a book shutting. Eight new halves, stacked against the wall, pale wood gleaming in the low morning light. Laid them beside the first row, working from the east wall toward the door, checking each plank for rock before setting the next. Under one that wanted to tilt I tamped a chip of bark until it sat flat. Walked the two rows together when they were done: eight planks, no give.
+
+The light through the door gap is still pale and barely angled. My breath fogs with every axe stroke. But the floor is growing — slow as a tide, just as certain.
+
