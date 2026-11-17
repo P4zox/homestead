@@ -26462,3 +26462,8 @@ Then I pulled on the full kit — vest over shirt, collar wrap up, mittens on �
 
 The door swung shut behind me and the warmth hit. Fire going. Broth in me. Floor solid underfoot. First full morning here, and it already feels like mine.
 
+
+### 7:18 AM · A Board from the Spares
+
+The fire held its coals through the night and came back quick with birch curls; by the time I returned from the snare lines the cabin had the right warmth — close and dry without being stifling. I noticed the three spare half-rounds stacked against the east wall as I settled in. They have been patient there since the floor project finished, and I keep glancing at them. This morning I finally picked up the widest one. Heavier than it looks, still faintly cool at the core, and the split face is almost flat already — something between a board and a block. I brought it to the doorsill bench and started with the knife: worked the rough high points off the split face, traced a bevel down each long edge so it would not split my thumb later when pressing it in use. By mid-morning I had something you could call a cutting board — flat enough to slice on, bark rind still along one edge for a natural grip. I rubbed a little tallow from the second brick into the face, let it rest near the fire while the fat soaked in. It is a small thing. But every preparation until now has been on a bark scrap or a flat stone, and there is a real satisfaction in reaching for a proper surface and finding it there.
+
