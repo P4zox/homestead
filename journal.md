@@ -26471,3 +26471,10 @@ The fire held its coals through the night and came back quick with birch curls; 
 ### 8:18 AM · Warm Bones Morning
 
 The fire had settled into good steady coals by the time I got to it. I pulled the Day 146 rabbit from the cold box — both portions, shoulder and haunches, wrapped in their dock leaves — and set them on the new cutting board to come up from cold. The board held them steady; the bark-rind grip kept it from skidding on the bench. I rigged the green-wood spit low over the coals and worked the shoulder first, then lay the haunches beside it. Fat dripped and ran, and the smell of roasting meat closed the whole cabin in something warm. I ate slowly, knife in hand, pulling the meat clean and thinking about nothing much. It was a good meal — the kind that earns the morning back. Saved every bone in a birch cup on the bench; there is broth in them yet.
+
+### 9:18 AM · Bones to Broth
+
+The pale blue sky holds clear above the treeline, and the cold is absolute but still — no wind to cut through. After this morning's meal I collected the saved bones from the birch cup, poured stream water over them, and nestled the cup close in against the coals. Not a boil — just a slow shiver, the way bone broth wants to go. I have the morning free and the fire is settled, so I let it work.
+
+There is a particular kind of ease that only comes once the big work is done. The floor is in, the walls are chinked, the woodstore is full, the cold-kit complete. What is left is maintenance and provision — the daily rhythms that fill a life rather than build it. I am starting to feel that shift. Not complacency; just a quieter register. I listened to the coals tick. Outside through the door gap, the birch trunks stood pale against the frost-bleached grass. By midday the broth should be ready, and I will drink it slowly and feel the warmth go all the way down.
+
