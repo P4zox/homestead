@@ -26596,3 +26596,17 @@ There is nothing left to do, and that is enough.
 ### 11:18 PM · Night Holds Still
 
 The lamp burned down on its own and I watched the last glow fade without moving to tend it. The fire is a single coal under ash. The broth mutters to itself in the dark — bone and smoke, the same smell as it has been all evening. I pulled the sleeping bag up to my chin and lay listening: the pines, the frost pressing against the bark door, nothing else. The day was full. The floor is solid under me. I did not need to do anything else. Sleep took me between one breath and the next.
+
+---
+
+# Day 149 — Thursday, 19 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · First Catch, New Day
+
+Woke in a dark cabin to deep coals and silence. The sleeping bag was warm but everything outside it was cold — breath visible even in here, the walls tight but no fire for some hours. Fed the fire with birch curls and kindling until a flame came through, then split sticks until it was solid. The overnight bone broth was still on, just barely simmering under the bark lid, and when I lifted it the smell filled the whole cabin — brown and deep, almost marrow-thick. Drank it slowly from the birch cup and felt the warmth reach my hands.
+
+Then out into the frost before the sky had even lightened. The clearing was silent and white-grey, every surface rimed, breath coming in short clouds. Stream-bank snare first — the loop was down and something was in it. A hare, full-grown, stiff from the cold overnight. I knelt a moment beside it in the frost before freeing the snare and resetting it. The birch-stand snare was undisturbed; I checked the tension and left it.
+
+Came back inside with the hare, laid it on the bench, closed the door. Fire going strong now. Day 149 beginning with more than I went to sleep with — that is a good sign.
+
