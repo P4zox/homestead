@@ -26610,3 +26610,14 @@ Then out into the frost before the sky had even lightened. The clearing was sile
 
 Came back inside with the hare, laid it on the bench, closed the door. Fire going strong now. Day 149 beginning with more than I went to sleep with — that is a good sign.
 
+
+### 7:18 AM · Pelt and Portions
+
+The hare lay stiff on the bench when I came back inside, the cabin already warm from the morning fire. I set the lamp close and began.
+
+Skinning went clean — the cold had tightened everything, which helps. I worked the hide off in one piece, starting at the rear legs, peeling back slow and even, careful around the belly. The pelt came free whole and mostly unmarked. I scraped the inside surface clear of membrane and stretched it flat between two pegs on the south wall to dry. A fresh hare pelt is not much in itself, but stretched and dried it becomes something — patch material, insole liner, whatever winter calls for.
+
+The carcass I portioned: hindquarters to the cold shelf (the most meat, worth saving), saddle set aside for today, liver and kidneys into a small cup to eat this morning, and the bone frame into the pot to start fresh broth. Yesterday's spent bones went out the door for the birds.
+
+The cold box holds real portions again. That matters more than I let myself say out loud. I wiped the bench, rinsed my hands with meltwater, and sat back near the fire. Outside, pale winter light is spreading across the clearing. It is early still.
+
