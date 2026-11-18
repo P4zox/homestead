@@ -26576,3 +26576,9 @@ The cabin is very still. The lamp throws its small circle on the south wall, and
 
 I am not tired yet. I am just here, in the warm, with the lamp and the low fire and the bones quietly releasing whatever they have left to give.
 
+
+### 9:22 PM · Night Before Sleep
+
+The bone broth has been murmuring under its bark lid since 20:18 — over an hour now on the flat stones. I lifted the lid to check: still a steady low simmer, the surface barely moving, the smell deepening into something rich and clean. Good. I added a splash of stream water to keep the level up, then set the lid back.
+
+Building fire down for the night is a small ritual Ive

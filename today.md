@@ -15,3 +15,4 @@
 18:18 — Settled on south plank floor by south wall; braided bark cord by lamplight; fire banked low; snares out for the night; quiet winter evening inside.
 19:18 — Finished braiding the bark cord; last loop pulled tight, length coiled and tied off; added to cordage stores; fire banked further for the night; lamp steady; sat quiet against south wall listening to the pines.
 20:18 — Set supper rabbit bones to slow overnight simmer in birch cup on flat stones at fire edge, bark lid on, water added; fire banked very low; lamp steady; settled on south plank floor; cabin still; full dark and hard frost outside.
+21:22 — Checked overnight bone broth (steady low simmer, topped up water); banked fire with one flat birch split and ash sides; turned lamp low; settled against south wall for the night.
