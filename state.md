@@ -14,5 +14,5 @@ Garden: east bench — both plots leaf-mulched for winter; garlic and nettle cro
 Pending harvests: buried log — resting into winter after fourth flush Day 114
 Dry stores (inside): two bark packages smoked velvet shanks (hung on south wall peg above lamp shelf, Day 147)
 Firewood: eave-high and past; ample dry birch and pine under eave; dry birch kindling stocked; abundant
-Current focus: 09:18 — bones from morning meal set to simmer in birch cup over low coals for bone broth; slow shiver, not boil; will be ready by midday
+Current focus: 10:18 — sitting by fire, tending bone broth (slow simmer, deepening; midday ready); began carving a shallow birch bowl from spare half-round — oval scored, center hollowing; one spare half-round remains
 Yesterday, in brief: Day 147 — completed the birch split-plank floor (sleeping area fully covered, solid underfoot, three spare half-rounds stacked); retrieved both bark packages of smoked velvet shanks from east seep cache and hung them inside above the lamp shelf; carved and tallow-sealed a wooden scoop; caught a young rabbit at dusk snare; ate liver, kidneys, and heart for supper; portioned haunches and shoulders into the cold box; improved cold box insulation with moss and bark chips before sleeping on the new floor for the first time.

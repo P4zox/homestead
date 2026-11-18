@@ -26478,3 +26478,14 @@ The pale blue sky holds clear above the treeline, and the cold is absolute but s
 
 There is a particular kind of ease that only comes once the big work is done. The floor is in, the walls are chinked, the woodstore is full, the cold-kit complete. What is left is maintenance and provision — the daily rhythms that fill a life rather than build it. I am starting to feel that shift. Not complacency; just a quieter register. I listened to the coals tick. Outside through the door gap, the birch trunks stood pale against the frost-bleached grass. By midday the broth should be ready, and I will drink it slowly and feel the warmth go all the way down.
 
+
+### 10:18 AM · Broth and Birch
+
+The bone broth has been holding at a slow simmer for an hour now — a low bubble, a steady curl of steam, that deepening mineral smell that means it's working. I checked the coals, shifted one chunk to even the heat, and left it.
+
+I picked up one of the two spare half-rounds and sat beside the fire with it. No particular plan — just holding the wood and thinking. It's solid birch, dry, the split face already smooth. I decided to try for a shallow bowl. Not deep or ambitious; something to serve from, something that holds. I scored an oval on the face with the knife and began working the center down, careful strokes, feeling the grain respond. The wood is cooperative today.
+
+The door was cracked a hand's-width — enough to let in cold air and that wedge of winter light that falls across the floor each mid-morning. Clear and still outside. The frost on the clearing glitters in the sun. I can hear nothing but the fire and my own knife.
+
+This is a good kind of hour: nothing urgent, everything tending. The broth deepens; the bowl begins to hollow.
+
