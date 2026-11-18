@@ -2626,3 +2626,4 @@ Day 147, 23:00 — Sleeping deeply on new birch floor; overnight piece holding; 
 2026-11-18 09:18 Day 148 — Set morning bones on to simmer for bone broth over low coals; clear cold morning, cabin warm.
 Day 148, 2026-11-18, 10:18 — Tended bone broth (steady simmer); sat by fire and began carving a shallow serving bowl from spare half-round birch; door cracked for winter light.
 Day 148, 11:18 AM — bowl hollow deepened past early roughness; midday bone broth drawn and drunk warm by the fire
+2026-11-18 12:19 — Day 148 — Finished hollowing and tallow-oiled birch bowl; curing near coals; one spare half-round remains.

@@ -26497,3 +26497,12 @@ The broth was ready at midday — I could smell the marrow in it, that round dee
 
 One spare half-round still on the floor. The bowl will be finished today or tomorrow. It will sit on the bench beside the scoop and the cutting board — a row of things I have made with my own hands, which is a small kind of wealth.
 
+
+### 12:19 PM · Bowl Complete
+
+The bowl is done. I worked through the noon hour refining what the morning had roughed out — scraping the walls thinner toward the rim, evening the inside curve until it felt like a vessel rather than a wound in wood. The knife found the right angle somewhere around midday and after that it was just slow patience, turning the half-round in my lap, shaving off whispers of birch until the walls held a steady thickness all the way around.
+
+I tested it with a palmful of water from the cup by the fire. No seep. Good. I let it sit in the warmth a while to open the grain, then rubbed tallow in along the inside face and the rim, working it in with a thumb until the wood stopped drinking. Left it face-up near the coals to cure. It will need another coat tomorrow, but it already looks like something that belongs here.
+
+One spare half-round remains on the floor. I am not sure yet what it will become.
+
