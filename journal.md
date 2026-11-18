@@ -26489,3 +26489,11 @@ The door was cracked a hand's-width — enough to let in cold air and that wedge
 
 This is a good kind of hour: nothing urgent, everything tending. The broth deepens; the bowl begins to hollow.
 
+### 11:18 AM · Bowl Taking Shape
+
+The bowl is finding its true shape now. I have been at it for over an hour — the scored oval still crisp on the split face, but the center is properly hollow now, the walls starting to feel like walls rather than just a curved thought in wood. The knife makes a sound I know: a low whisper when it cuts clean, a dry scrape when I am against the grain. I have been listening to that all morning.
+
+The broth was ready at midday — I could smell the marrow in it, that round deep smell that means it is done. Drew off a full cup and drank it standing by the fire, hands around the birch, steam rising. Good. The kind of good that settles through you.
+
+One spare half-round still on the floor. The bowl will be finished today or tomorrow. It will sit on the bench beside the scoop and the cutting board — a row of things I have made with my own hands, which is a small kind of wealth.
+

@@ -5,3 +5,4 @@
 08:18 — Cooked Day 146 rabbit (shoulder and haunches) over fire coals for mid-morning meal; bones saved in birch cup on bench for broth.
 09:18 — Set morning rabbit bones in birch cup with stream water over low coals for bone broth; slow simmer, fire settled; clear cold morning.
 10:18 — Tended bone broth (checked coals, steady simmer, deepening smell); picked up spare half-round and began carving a shallow serving bowl — scored oval on split face, hollowing center with knife; door cracked a hand's-width, winter light across the floor; broth still on; bowl in early progress.
+11:18 — Continued hollowing the birch bowl — center deepened past early roughness, walls beginning to feel intentional; drew off midday bone broth and drunk warm by the fire.
