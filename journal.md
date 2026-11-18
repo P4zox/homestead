@@ -26582,3 +26582,13 @@ I am not tired yet. I am just here, in the warm, with the lamp and the low fire 
 The bone broth has been murmuring under its bark lid since 20:18 — over an hour now on the flat stones. I lifted the lid to check: still a steady low simmer, the surface barely moving, the smell deepening into something rich and clean. Good. I added a splash of stream water to keep the level up, then set the lid back.
 
 Building fire down for the night is a small ritual Ive
+### 10:19 PM · Lamp Nearly Out
+
+Fire banked flat behind a thick cap of ash, one split of birch set low for the long hold. The bone broth makes a soft slow sound in the dark — bubbles rising under the bark lid, settling, rising again. I have been lying here on the south plank floor listening to it, to the cabin ticking as the cold presses in from outside.
+
+Day 148. The floor is solid under the sleeping bag. Properly solid — not yielding or creaking but just there, the way a floor should be, the way things feel when they are finally finished. I keep noticing it in the small way you notice new good things before they become normal.
+
+Both snares are out. The cord is coiled and stored. The serving bowl is on the bench. The lamp is nearly to its wick and I will not trim it tonight. The frost outside must be hard and bright — the kind of night where the stars are sharp and the pines make no sound at all.
+
+There is nothing left to do, and that is enough.
+
