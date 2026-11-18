@@ -26534,3 +26534,12 @@ Cracked the door once to check the clearing. Cold light, bare trees, nothing mov
 ### 3:00 PM · Broth Deepens
 
 Lifted the bark lid just past the hour. The rabbit has been going long enough now that the smell has changed — from raw-wet to something richer, with a faint sweetness that means the collagen is giving up. I skimmed off the pale foam with the wooden scoop and checked the coals. They had sunk low, so I nudged two dry birch pieces to the edges without smothering the simmer — the goal is a soft tremble, not a full boil, or the meat goes stringy. Tasted the broth off the scoop: salt is what it wants, but I have none, so I let the depth of the bones and the smoke from the velvet shanks hanging on the south wall do what they can. Good enough for a mid-November afternoon. The serving bowl's second tallow coat looked set near the coals — pressed lightly with a finger and it held, dry and smooth. Moved it to the bench to cure cold. Outside, the light has started its early tilt toward the trees. The sky that clear pale blue stays a few more hours before it goes gold and then grey-dark by half-five. A quiet hour. I sat on the doorsill bench a moment, door open an inch, and listened: nothing moving, nothing breaking the freeze. The homestead settling into itself.
+
+### 4:19 PM · Evening Bowl
+
+The rabbit was done — I lifted the bark lid at a quarter past four and the smell hit me before I even leaned in: rich, deep, the sweetness of well-cooked bone. The meat pulled from the shoulder without any resistance, pale and soft. I ladled it into the new birch serving bowl — the first meal in it, the tallow still faintly warm in the grain — and carried it to the doorsill bench to eat.
+
+The sky had turned that particular winter gold, low and long through the pine tops. Full dark comes before six now, and the light today spent itself quickly. I ate slowly. The broth had a smoky undercurrent, some ghost of warmth from the smoked shanks hanging nearby. The meat was good. The bowl sat solid and right in both hands.
+
+The fire is banked down. The bowl has had its first real use. I am glad to have it.
+

@@ -10,3 +10,4 @@
 13:18 — Checked and reset afternoon snare loop in clear winter light; birch-stand snare tripped but empty (large bird sign); stream-bank snare shifted six inches onto fresh tracks; returned to warm cabin.
 14:18 — Pulled cold box rabbit (haunches and shoulders); set to slow simmer in birch cup with stream water on flat stones at fire edge, bark-covered; fire banked low for afternoon cook; second tallow coat applied to serving bowl; evening meal underway.
 15:00 — Tended afternoon rabbit simmer; lifted bark lid, skimmed foam with wooden scoop, nudged coals; tasted broth — deep, smoky; serving bowl second tallow coat confirmed set, moved to bench to cure cold; sat on doorsill bench a moment, door cracked, listened to the freeze.
+16:19 — Lifted the bark lid on the rabbit simmer; meat tender and falling from bone after two-plus hours; ladled into the new birch serving bowl (first use); ate on the doorsill bench in the last winter light; fire banked low; evening begun.
