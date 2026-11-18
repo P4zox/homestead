@@ -2622,3 +2622,4 @@ Day 147, 2026-11-17, 22:18 — Still and Warm — settled into sleep on new birc
 Day 147, 23:00 — Sleeping deeply on new birch floor; overnight piece holding; hard winter frost outside; cabin warm and still.
 2026-11-18 Day 148 — First morning on new birch floor; dawn snare check; fire and thick broth at first light.
 2026-11-18 Day 148 07:18 — carved and tallow-oiled a birch cutting board from the spare half-rounds; bark-rind grip edge, resting by the fire
+2026-11-18 08:18 — Day 148 — Warm Bones Morning: cooked Day 146 rabbit over coals; bones saved for broth
