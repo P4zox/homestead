@@ -26546,4 +26546,13 @@ The fire is banked down. The bowl has had its first real use. I am glad to have 
 
 ### 5:00 PM · Before Full Dark
 
-The last thin light was going fast — by 17:00 in November the sky already shifts toward orange behind the pines and the clearing fills with blue shadow. I pulled on the fur vest and mittens and stepped out for the last snare check before dark. The stream-bank snare had not tripped, but the ice around the peg had crept up another fingers-width
+The last thin light was going fast — by 17:00 in November the sky already shifts toward orange behind the pines and the clearing fills with blue shadow. I pulled on the fur vest and mittens and stepped out for the last snare check before dark. The stream-bank snare had not tripped, but the ice around the peg had crept up another fingers-width### 6:18 PM · Lamplight, Cord Work
+
+The cabin holds its warmth well tonight. I am sitting on the new plank floor with my back against the south wall, the lamp on its shelf throwing a small steady pool of light across my hands. The fire is banked low — just enough heat, no need to push it.
+
+I have been pulling bark strips from the bundle on the bench and braiding cord. The rhythm of it is good for a dark evening: left over center, right over center, hands moving without much thinking. The strip catches the lamplight as it passes through fingers and becomes something longer, more useful.
+
+Outside: nothing. Full dark, still cold, the forest gone completely quiet past 18:00. The snares are out there somewhere in the freeze. I do not have to check until morning.
+
+I am glad of this hour. The bowl is cured on the bench, the floor is solid under me, the smoked shanks hang above the lamp shelf. A winter evening that asks nothing of me for once.
+
