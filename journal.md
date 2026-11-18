@@ -26530,3 +26530,7 @@ The serving bowl sat near the coals the whole while. First tallow coat had two h
 
 Cracked the door once to check the clearing. Cold light, bare trees, nothing moving. Good kind of quiet.
 
+
+### 3:00 PM · Broth Deepens
+
+Lifted the bark lid just past the hour. The rabbit has been going long enough now that the smell has changed — from raw-wet to something richer, with a faint sweetness that means the collagen is giving up. I skimmed off the pale foam with the wooden scoop and checked the coals. They had sunk low, so I nudged two dry birch pieces to the edges without smothering the simmer — the goal is a soft tremble, not a full boil, or the meat goes stringy. Tasted the broth off the scoop: salt is what it wants, but I have none, so I let the depth of the bones and the smoke from the velvet shanks hanging on the south wall do what they can. Good enough for a mid-November afternoon. The serving bowl's second tallow coat looked set near the coals — pressed lightly with a finger and it held, dry and smooth. Moved it to the bench to cure cold. Outside, the light has started its early tilt toward the trees. The sky that clear pale blue stays a few more hours before it goes gold and then grey-dark by half-five. A quiet hour. I sat on the doorsill bench a moment, door open an inch, and listened: nothing moving, nothing breaking the freeze. The homestead settling into itself.
