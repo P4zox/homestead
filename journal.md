@@ -26543,3 +26543,7 @@ The sky had turned that particular winter gold, low and long through the pine to
 
 The fire is banked down. The bowl has had its first real use. I am glad to have it.
 
+
+### 5:00 PM · Before Full Dark
+
+The last thin light was going fast — by 17:00 in November the sky already shifts toward orange behind the pines and the clearing fills with blue shadow. I pulled on the fur vest and mittens and stepped out for the last snare check before dark. The stream-bank snare had not tripped, but the ice around the peg had crept up another fingers-width
