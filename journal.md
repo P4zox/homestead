@@ -26592,3 +26592,7 @@ Both snares are out. The cord is coiled and stored. The serving bowl is on the b
 
 There is nothing left to do, and that is enough.
 
+
+### 11:18 PM · Night Holds Still
+
+The lamp burned down on its own and I watched the last glow fade without moving to tend it. The fire is a single coal under ash. The broth mutters to itself in the dark — bone and smoke, the same smell as it has been all evening. I pulled the sleeping bag up to my chin and lay listening: the pines, the frost pressing against the bark door, nothing else. The day was full. The floor is solid under me. I did not need to do anything else. Sleep took me between one breath and the next.

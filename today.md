@@ -17,3 +17,4 @@
 20:18 — Set supper rabbit bones to slow overnight simmer in birch cup on flat stones at fire edge, bark lid on, water added; fire banked very low; lamp steady; settled on south plank floor; cabin still; full dark and hard frost outside.
 21:22 — Checked overnight bone broth (steady low simmer, topped up water); banked fire with one flat birch split and ash sides; turned lamp low; settled against south wall for the night.
 22:19 — Lamp nearly out; lying on south plank floor in sleeping bag; bone broth holding low simmer under bark lid; fire banked flat with ash; listening to the silence of a hard frost night; nearly asleep.
+23:18 — Lamp burned out on its own; lay in sleeping bag listening to frost-silence and the low mutter of overnight broth; slept.
