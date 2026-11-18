@@ -26556,3 +26556,14 @@ Outside: nothing. Full dark, still cold, the forest gone completely quiet past 1
 
 I am glad of this hour. The bowl is cured on the bench, the floor is solid under me, the smoked shanks hang above the lamp shelf. A winter evening that asks nothing of me for once.
 
+
+### 7:18 PM · Last Loop of Cord
+
+The braiding went on longer than I meant it to — there is something about that rhythm, hands working the same motion over and over, that makes the mind go soft and wide. By the time I pulled the last loop tight and bit off the tail end, the fire had burned down to a steady pulse and the lamp held the whole south wall in amber.
+
+I coiled the finished length around my palm twice and tied it off with its own end. Good cord — tight, even, plenty of it. I have been wanting more binding length before winter settles fully: snare repairs, bundling wood under the eave, whatever the season asks. This will do.
+
+The cabin is quiet. Full dark outside, nothing moving. The cold box in the corner, the smoked shanks hanging on their peg above the lamp shelf, the new floor solid under me. It has taken a long time to get here — not anxious about it, just aware of the distance from that first morning with almost nothing.
+
+I let the fire bank itself further, checked the lamp wick once, and sat with my back against the south wall listening to the pines shift in the wind. A good night to be inside.
+

@@ -13,3 +13,4 @@
 16:19 — Lifted the bark lid on the rabbit simmer; meat tender and falling from bone after two-plus hours; ladled into the new birch serving bowl (first use); ate on the doorsill bench in the last winter light; fire banked low; evening begun.
 17:00 — Stepped out for last snare check before full dark; both snares set, neither tripped; returned and built fire up from banked coals; trimmed lamp and topped off tallow; settled in by lamplight on the new birch floor, south wall, full dark outside.
 18:18 — Settled on south plank floor by south wall; braided bark cord by lamplight; fire banked low; snares out for the night; quiet winter evening inside.
+19:18 — Finished braiding the bark cord; last loop pulled tight, length coiled and tied off; added to cordage stores; fire banked further for the night; lamp steady; sat quiet against south wall listening to the pines.
