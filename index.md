@@ -2627,3 +2627,4 @@ Day 147, 23:00 — Sleeping deeply on new birch floor; overnight piece holding; 
 Day 148, 2026-11-18, 10:18 — Tended bone broth (steady simmer); sat by fire and began carving a shallow serving bowl from spare half-round birch; door cracked for winter light.
 Day 148, 11:18 AM — bowl hollow deepened past early roughness; midday bone broth drawn and drunk warm by the fire
 2026-11-18 12:19 — Day 148 — Finished hollowing and tallow-oiled birch bowl; curing near coals; one spare half-round remains.
+2026-11-18 13:18 — Day 148 — Afternoon Rounds: checked and reset snare loop in clear winter light; birch-stand snare tripped but empty; stream-bank shifted on fresh tracks.

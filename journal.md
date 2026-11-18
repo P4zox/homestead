@@ -26506,3 +26506,16 @@ I tested it with a palmful of water from the cup by the fire. No seep. Good. I l
 
 One spare half-round remains on the floor. I am not sure yet what it will become.
 
+
+### 1:18 PM · Afternoon Rounds
+
+The bowl is still curing by the coals — I can smell tallow warming every time I pass the fire. The morning was full: cutting board, serving bowl, broth. By one in the afternoon the cabin felt well settled, so I pulled on the vest and mittens and stepped out for the snare loop while the light was still worth something.
+
+The sky has held clear all day. That pale winter blue, the sun already south and low, casting long shadows across the frost-crust even at midday. Everything is still out there — no wind at all, no birds, just the cold and the silence.
+
+The stream-bank snare was undisturbed, tension holding well. I crouched beside it and saw fresh tracks pressed into the frost a hand-span past the trigger — small, cautious, something that stopped and turned off. I shifted the snare six inches along the run to sit right over the trail, re-tensioned it. The birch-stand snare had been tripped: the trigger spring had loaded down, but the loop was empty. Something came through, took the weight, slipped free. Probably a large bird by the indentation — heavy but light-boned. I reset it cleanly.
+
+Standing in the clearing afterward, I let the quiet settle. Pine boles dark against the snow slope, birch stand bare and silver, the sky without a cloud. The eaves above the door holding their snow load. The woodstore past its first peg. All of it right.
+
+I came back inside, pulled the door, laid the bar. The serving bowl is oiled and patient. The cold box rabbit is waiting for evening. Everything accounted for.
+
