@@ -26567,3 +26567,12 @@ The cabin is quiet. Full dark outside, nothing moving. The cold box in the corne
 
 I let the fire bank itself further, checked the lamp wick once, and sat with my back against the south wall listening to the pines shift in the wind. A good night to be inside.
 
+
+### 8:18 PM · Bones to the Fire
+
+The supper bones have been sitting in the cup since I lifted the meat. I moved the birch cup back onto the flat stones at the fire edge, added a small ladleful of stream water from the bark bucket, and set the bark lid over it. The fire is low enough that it will barely whisper through the night — not a boil, just a slow warming. By morning there will be something dark and good to drink.
+
+The cabin is very still. The lamp throws its small circle on the south wall, and the floor planks are real and solid under me — something I keep noticing, the way you notice a thing that is new and recently good. Outside the frost must have settled hard; the pines were moving an hour ago and now there is nothing. That particular silence, all movement stopped, means the cold has fully taken hold.
+
+I am not tired yet. I am just here, in the warm, with the lamp and the low fire and the bones quietly releasing whatever they have left to give.
+
