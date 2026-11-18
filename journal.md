@@ -26519,3 +26519,14 @@ Standing in the clearing afterward, I let the quiet settle. Pine boles dark agai
 
 I came back inside, pulled the door, laid the bar. The serving bowl is oiled and patient. The cold box rabbit is waiting for evening. Everything accounted for.
 
+
+### 2:18 PM · Evening Meal Begun
+
+The light at two in the afternoon is still clear, but pressing westward already — that particular winter angle that reminds you full dark comes before you expect it. I had bone broth midmorning and nothing solid since, so the haunches and shoulders in the cold box had been on my mind since the snare check.
+
+I pulled them out, unwrapped the dock leaves, pressed the meat: firm, cold, holding well overnight. Set them into the larger birch cup with a ladled measure of stream water, nested the cup on the flat stones at the fire edge, covered the top with a flat bark scrap to hold the steam, and banked the fire low. A slow cook, not a roast. The cabin will smell of it by dusk.
+
+The serving bowl sat near the coals the whole while. First tallow coat had two hours in it; the birch has taken most of it in. I worked a second light coat over the inside with my thumb, set it back to cure. It draws the oil well — the wood is finally warm enough to drink it.
+
+Cracked the door once to check the clearing. Cold light, bare trees, nothing moving. Good kind of quiet.
+

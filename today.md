@@ -8,3 +8,4 @@
 11:18 — Continued hollowing the birch bowl — center deepened past early roughness, walls beginning to feel intentional; drew off midday bone broth and drunk warm by the fire.
 12:19 — Finished hollowing the birch bowl; walls evened, inside curve smooth; water test held; tallow-oiled inside and rim; curing near coals; one spare half-round remains.
 13:18 — Checked and reset afternoon snare loop in clear winter light; birch-stand snare tripped but empty (large bird sign); stream-bank snare shifted six inches onto fresh tracks; returned to warm cabin.
+14:18 — Pulled cold box rabbit (haunches and shoulders); set to slow simmer in birch cup with stream water on flat stones at fire edge, bark-covered; fire banked low for afternoon cook; second tallow coat applied to serving bowl; evening meal underway.
