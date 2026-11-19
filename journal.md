@@ -26769,3 +26769,10 @@ It does not feel like unfinished business. More like something alive still, some
 
 I settle deeper. The cold outside is absolute but it is outside. Here it is only warmth and dark.
 
+
+### 11:18 PM · Night Holds
+
+Nothing left to do now. The coals are banked down to a slow glow, the lamp burned itself out some time ago, and the cabin holds warmth like a closed hand. Somewhere on the south wall peg the hare pelt is firming quietly in the dark — shoulder nearly ready, tomorrow I will scrape it clean and begin the softening work. The overnight broth moves barely at all on the edge of the coals. I can hear nothing outside except the deep cold of the frost sitting on the clearing.
+
+Tomorrow: pelt. That is the whole thought I fall asleep with.
+
