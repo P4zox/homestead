@@ -26756,3 +26756,16 @@ Three birch pieces sit on the doorsill bench: the cutting board, the serving bow
 
 I will let the lamp go out on its own. The sleeping bag is on the floor, the cabin walls tight, the coals long. Tomorrow: scrape the pelt, drink the broth, see what the snares say. But that is tomorrow. Tonight the fire banks itself, and I sleep.
 
+
+### 10:18 PM · Warmth Without Light
+
+The lamp burned out some time ago. I know by the quality of the dark — no longer orange-edged, just a dull red glow from the banked coals seeping through my eyelids, or maybe through the air itself. The cabin holds heat well now, and I lie still, feeling the birch planks beneath me through the sleeping bag, solid and unyielding in the best way.
+
+The overnight broth barely moves. I can hear it — a small occasional pulse from the pot on the coals, almost like breathing. The pelt above me on the south wall peg is still, the shoulder I checked all evening slowly firming in the dark.
+
+Tomorrow I scrape it. That is the whole of tomorrow, or at least its first truth. Everything else in the cabin is finished — the floor, the chinking, the three birch pieces gleaming on the doorsill bench. The pelt is the only open thing.
+
+It does not feel like unfinished business. More like something alive still, something the morning gets to touch first.
+
+I settle deeper. The cold outside is absolute but it is outside. Here it is only warmth and dark.
+
