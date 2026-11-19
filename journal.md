@@ -26776,3 +26776,23 @@ Nothing left to do now. The coals are banked down to a slow glow, the lamp burne
 
 Tomorrow: pelt. That is the whole thought I fall asleep with.
 
+
+---
+
+# Day 150 — Friday, 20 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · Pelt Scraping Morning
+
+Woke in full dark to banked coals still glowing under a thin skin of ash. The cabin smelled of overnight broth — reduced and almost sweet from hours of slow heat. I coaxed the coals back with birch curls and sat with a cup of broth while the fire found itself.
+
+Then: the pelt.
+
+I had been watching the hare pelt on the south wall peg since yesterday morning, running a thumb along it at intervals the way you do when you are waiting for something to be ready. By last night the haunches and flanks had pulled tight, but the shoulder was still giving a little. This morning it was firm all the way through — the shoulder at last.
+
+I took it down and laid it fur-side down on the cutting board. With the bone scraper I worked from haunch to shoulder, keeping the blade flat and angled low, peeling the dried membrane in long overlapping strokes. It came away cleanly — the pelt is thin enough to have dried fast, and what I found underneath was pale and even. No thin patches. I scraped until the surface had a consistent matte texture, rubbed it with palms to soften slightly, and rehung it on the peg to settle.
+
+One more step needed: working it. I will spend part of this afternoon pulling it back and forth over the bench edge to break the fibres and bring it supple. That is the step that decides whether this becomes a useful piece — stiff pelt does not help much.
+
+The morning light was just starting through the door crack when I finished. Clear sky again, hard frost on the clearing. I stepped out briefly — breath clouding, clearing quiet, pine shadows still long and blue. This is the one hundred and fiftieth day.
+
