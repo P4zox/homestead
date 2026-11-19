@@ -26721,3 +26721,14 @@ Checked the pelt on the south wall peg. Firmer now than this afternoon — outer
 
 Topped up the lamp from the first tallow brick, just a small tip — the wick was still drawing clean and bright, only wanted a little more to carry through the night. Full dark outside and not a sound but the pines shifting in a low wind. The fire will bank itself slowly. I sat on the doorsill bench for a while and did not particularly think about anything, just felt the warmth coming off the stones and the lamp steady on its shelf.
 
+
+### 7:18 PM · Pelt by Lamplight
+
+The cabin is warm and still. The bone broth is back on the coals — a low simmer I can hear when everything else goes quiet. The lamp is steady on its shelf, burning clear.
+
+I lifted the hare pelt from its peg and held it toward the lamp to look properly. The haunches and flanks have drawn tight, the fur still thick and clean. The shoulder — where the hide is thickest — still gives a little when I press it; not raw, but not ready. Tomorrow it will be. I ran my thumb along the edge where the scraping will begin and felt where the dried membrane has already started to pull away clean. Good sign. The pelt is behaving exactly as it should.
+
+I rehung it and sat back down on the doorsill bench. The fire has banked to a steady glow. Outside I can hear nothing — no wind, no bird, no branch. The frost has locked everything into silence.
+
+A day that ended well, which is how the good ones go. I had meat, broth, birch kitchenware on the bench, a pelt drying on the wall, and the promise of tomorrow's work. That is plenty.
+
