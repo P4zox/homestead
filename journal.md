@@ -26796,3 +26796,16 @@ One more step needed: working it. I will spend part of this afternoon pulling it
 
 The morning light was just starting through the door crack when I finished. Clear sky again, hard frost on the clearing. I stepped out briefly — breath clouding, clearing quiet, pine shadows still long and blue. This is the one hundred and fiftieth day.
 
+
+### 7:18 AM · Snare Reset at the Creek
+
+The lamp shelf sits dark this morning — the wick burned down in the small hours. I will see to it when I am back inside; there is light enough from the east window to move by.
+
+I pulled on the full kit — vest, collar wrap, mittens — and stepped out into the frost clearing. Boots crunched on the hard ground. The pine shadows had shortened from their dawn sprawl, the sky beginning to sharpen from pearl to blue.
+
+Down to the stream bank: quick footing on a familiar path. The snare line was there, loop sprung and lying flat — still doing what it did last night for the hare, which is nothing anymore but a taut loop on cold dry air. I reset it carefully: stake driven fresh, loop smoothed open, hang-height checked, the right clearance from the ice lip. Fingers stiff inside the mittens by the time I knotted off. The stream was solid white underfoot — that early-winter opacity that means it is frozen all the way through, not just crusted over.
+
+A crow called once from somewhere in the birch slope, and then it was quiet again.
+
+Back at the cabin before long, hands warming over the coals. I will let the pelt settle until afternoon, work it then when the light is still up and my fingers are ready. For now the snare is set, and that is one thing in order before the day begins.
+
