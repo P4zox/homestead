@@ -26712,3 +26712,12 @@ The last pale strip of sky was still there through the trees — orange at the h
 
 It is quiet now. The lamp makes a small circle of warm light. The floor is solid underfoot. Outside it is hard frost and black trees and no sound at all. Inside it smells of cooked meat and tallow and woodsmoke. This is the kind of evening I came here to have, though I would not have known how to say so at the beginning.
 
+
+### 6:18 PM · Supper Done, All Still
+
+The bone pan is back on the coals — this morning's frame and tonight's saddle bones together, two meals joined in the pot, which should make for a rich broth by dawn. I rinsed the new birch bowl and set it back on the doorsill bench beside the cutting board and spoon. The whole set there, three pieces in a row, and still a small surprise every time I look at them.
+
+Checked the pelt on the south wall peg. Firmer now than this afternoon — outer hide stiffening and going pale, but the thickest part of the shoulder still a little soft at center. One more night. Tomorrow it will be ready to scrape and work.
+
+Topped up the lamp from the first tallow brick, just a small tip — the wick was still drawing clean and bright, only wanted a little more to carry through the night. Full dark outside and not a sound but the pines shifting in a low wind. The fire will bank itself slowly. I sat on the doorsill bench for a while and did not particularly think about anything, just felt the warmth coming off the stones and the lamp steady on its shelf.
+
