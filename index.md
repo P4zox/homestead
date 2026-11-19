@@ -2641,3 +2641,4 @@ Day 148, 2026-11-18, 16:19 — Evening meal: rabbit stew eaten from new birch se
 Day 149 (Thu 19 Nov 2026) 06:18 — Dawn snare check; stream-bank snare caught a hare overnight; overnight bone broth drunk; first morning of Day 149.
 Day 149, 2026-11-19, 07:18 — Processed overnight hare: pelt stretched on south wall, hindquarters and saddle to cold box, bone frame to fresh broth.
 2026-11-19 08:18 — Day 149 — Cooked and ate hare liver and kidneys over the fire; bone broth reducing; pelt stiffening on south wall peg.
+2026-11-19 09:18 — Day 149 — harvested winter sorrel from east bench, added to reducing bone broth; pale blue winter sky; pelt firming on wall peg

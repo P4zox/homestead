@@ -26628,3 +26628,14 @@ The liver and kidneys went straight into the pan with a smear of tallow — they
 
 The broth pot ticks quietly on the other side of the fire. I will let it reduce all morning. The hare pelt on the south wall peg is already stiffening in the cabin air — a few days yet before I can work it properly. For now the cabin smells of warm tallow and simmering bone, and outside the sky has gone from pre-dawn gray to that thin pale blue that belongs to hard frost mornings. The cold is settled in now, settled for months. I know this without having to remind myself. And yet the cabin holds.
 
+
+### 9:18 AM · Sorrel in Frost
+
+The broth has been going all morning, slow and certain — by now the cabin smells like iron and smoke and something faintly sweet from the marrow. The pale light through the door crack was creeping along the birch-plank floor toward noon, and I decided to go check the east bench before the air hardened again.
+
+The frost was deep underfoot, crunching with each step. The mulch beds had a rim of ice at their edges, but I pulled back a corner of the leaf cover and there they were: sorrel leaves, still holding green — flattened and small and cold, but alive. I pinched a modest handful, tucking them inside my vest to keep them from going stiff on the short walk back.
+
+Inside, I lifted the lid on the broth pot and tore the sorrel in rough — just a few leaves. The broth took a bit of brightness from them. It will not taste like summer. Nothing here does in November. But it reminds you something is still alive in the ground, waiting quietly for a turn that is still months off.
+
+I set the lid back and sat a moment on the doorsill bench. The sky outside is that particular pale winter blue that only appears on clear cold days when the sun rides low. Quiet enough to hear the ice shift on the stream sometimes. The pelt is firming on the wall peg behind me. The fire is good. It is a fine morning.
+
