@@ -26666,3 +26666,10 @@ It's slow work and that is exactly what I want. The rhythm of carving doesn't as
 
 The cabin was warm and still through noon, nothing needed but the knife and the wood. I kept at the spoon — slow half-moons of birch curling off with each pass, the bowl working deeper and cleaner by the minute. The grain has been generous: not a single check, not a knot in the working zone. By midday the bowl was just past halfway, the walls evening out, the handle still rough but balanced in my hand. I let the fire tick down a little — no need to add more until afternoon — and sat with the spoon on my knee, feeling where it still needs thinning. The pelt on the south wall peg is drying well; another full day and I should be able to scrape the membrane side clean. For now, the spoon. Each stroke finds a little more of what it is supposed to be.
 
+
+### 1:18 PM · Three on the Bench
+
+The bowl opened up just past noon — walls came to their final thickness, the inside smooth enough that the knife stopped catching grain. I carved the last rim curve, ran my thumb around it, found it right. Used the bone needle to scrape a few last whiskers from the bowl floor, then pulled out the tallow brick and worked a thin first coat into the whole surface: inside the bowl, down the long handle, to the flat end. The wood darkened and the grain came up. I set it on the doorsill bench beside the cutting board and the serving bowl — three birch pieces now, all tallow-oiled, all made this week. They sit in a row and belong together.
+
+The fire has ticked down to coals, still radiating good heat. No need to add a billet until afternoon. Through the door crack: the pale blue sky going deeper toward the south now that the sun has crossed the ridge. The pelt still hangs on its south-wall peg, firming. Tomorrow I can scrape it. The cold box holds the hare parts. I am fed, warm, dry — and for this hour at least, the work is done.
+
