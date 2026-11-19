@@ -26703,3 +26703,12 @@ Then I lit the lamp. The wick caught on the second strike, and the small orange 
 
 The hare smells of itself and of woodsmoke and of patience. I will eat before the dark is full.
 
+
+### 5:18 PM · Evening Meal, Lamplight
+
+The hare was done. Three hours on slow coals — saddle and hindquarters pulling free from the bone with no resistance, juices running clear when I pressed the meat with the back of the new spoon. I lifted it from the pan into the birch serving bowl and sat on the doorsill bench with the door pressed almost closed, just a sliver of cold air coming through the gap.
+
+The last pale strip of sky was still there through the trees — orange at the horizon, rose above it, then nothing. Full dark came down before I finished eating. I ate in lamplight, the flame steady on the shelf, pulling each piece clean, stacking the bones in the pan for morning broth. The new spoon worked well: balanced in the hand, the bowl holding the right curve. This was the first real meal with the full set — cutting board, serving bowl, spoon — all from the same spare half-round of birch, all tallow-cured, all on the bench together.
+
+It is quiet now. The lamp makes a small circle of warm light. The floor is solid underfoot. Outside it is hard frost and black trees and no sound at all. Inside it smells of cooked meat and tallow and woodsmoke. This is the kind of evening I came here to have, though I would not have known how to say so at the beginning.
+
