@@ -26639,3 +26639,14 @@ Inside, I lifted the lid on the broth pot and tore the sorrel in rough — just 
 
 I set the lid back and sat a moment on the doorsill bench. The sky outside is that particular pale winter blue that only appears on clear cold days when the sun rides low. Quiet enough to hear the ice shift on the stream sometimes. The pelt is firming on the wall peg behind me. The fire is good. It is a fine morning.
 
+
+### 10:18 AM · Broth and Quiet
+
+The bone broth had been reducing since before sunrise — the frame from this morning's hare, set to simmer while I skinned the pelt and ate the organs. By ten it was dark and almost syrupy. I added torn sorrel at nine, and they'd wilted in by the time I lifted the pot off the coals. I poured it all into the birch bowl.
+
+It is a good bowl. I notice that now, in a plain way. The walls are even; it does not wobble. The tallow has cured into the grain and does not taste of anything. The broth tasted of iron and fat and bone, with just an edge of green from the sorrel — not sour, more like the memory of spring cut into a winter meal. I ate slowly at the doorsill bench with the door slightly open. The light on the frost is hard and white. It will not melt today.
+
+The pelt from this morning has firmed up well on the south wall peg. Still tacky in places; another day of drying before I can scrape it properly. But it is shaping into a clean flat piece. I will have enough for a small panel once it cures — knee patch, maybe, or an inner palm piece for one of the mittens.
+
+Quiet mid-morning. Warm cabin. Nothing needs doing this hour that is not already done.
+

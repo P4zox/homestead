@@ -4,3 +4,4 @@
 07:18 — Processed overnight hare on bench: skinned whole pelt and stretched on south wall peg to dry; portioned carcass — hindquarters and saddle to cold box, liver and kidneys in cup for this morning, bone frame into fresh broth pot; spent yesterday's bones out for birds.
 08:18 — Cooked hare liver and kidneys in pan over fire with tallow; ate standing at fireside; rich iron meal; bone broth reducing on fire; pelt stiffening on south wall peg.
 09:18 — Stepped out to east bench garden; pulled back corner of leaf mulch; found sorrel still green under frost; harvested small handful of leaves; returned inside; added torn sorrel to reducing bone broth; sat on doorsill bench; clear pale blue sky; pelt firming well on south wall peg.
+10:18 — Drained reduced bone broth (hare frame + wilted sorrel) into birch bowl; ate at doorsill bench; rich iron broth with edge of green; pelt firming well on south wall peg; quiet mid-morning in warm cabin.
