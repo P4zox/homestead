@@ -26690,3 +26690,16 @@ I stepped outside once this afternoon, just to look. The sky is still that pale 
 
 The broth spoon is still curing on the doorsill bench — the tallow coat has soaked in and gone matte, which is what I want. The pelt is firming on the south wall peg. Tomorrow I will scrape it. For now there is nothing that needs doing except waiting, which is its own kind of work. I will eat when the light goes.
 
+
+### 4:18 PM · Gold Before Dark
+
+The light is going the way winter light goes — not setting so much as simply leaving. At 16:18 the sky is still pale blue above the treeline but the clearing itself is half-shadow, and the sun has dipped below the ridge. I have maybe an hour and a half of usable light left, and the hare is still going over the coals.
+
+I checked it at the half-hour mark: the saddle and haunches have pulled back from the bone the way slow-cooked meat does, the juices running clear when I pressed the flat of the knife against the saddle. Close. Another twenty minutes, maybe thirty — the fire has been patient and so have I.
+
+While the light held, I picked up the broth spoon from the doorsill bench. The first coat of tallow from midday has soaked in completely — the wood is a warm amber now, matte and dry to the touch, no slick left on the surface. That is what a first coat is for: to feed the wood and let it drink. I rubbed a thin second coat over the whole spoon with my thumb — bowl, handle, the flat end — working the tallow into the grain until nothing was left on the surface. Set it back on the bench beside the cutting board and the serving bowl. The three of them look like a set now. They are.
+
+Then I lit the lamp. The wick caught on the second strike, and the small orange flame steadied in the still air inside the cabin. The fire in the hearth, the lamp on the shelf, the last blue light in the door crack — three kinds of light at once for a few minutes, before the sky outside finishes going dark.
+
+The hare smells of itself and of woodsmoke and of patience. I will eat before the dark is full.
+
