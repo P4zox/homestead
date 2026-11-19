@@ -2647,3 +2647,4 @@ Day 149, 2026-11-19, 10:18 — Drank reduced hare bone broth with sorrel from bi
 Day 149 · 2026-11-19 12:18 — Bowl Deepens: continued carving birch broth spoon in warm cabin; bowl past halfway, grain clean, walls evening out.
 2026-11-19 Day 149 13:00 — Finished carving birch broth spoon; first tallow coat; set on doorsill bench beside cutting board and serving bowl (three pieces complete).
 Day 149, 2026-11-19 14:18 — Added birch billet to afternoon coals; hare saddle and hindquarters set to slow cook over growing flame for evening meal.
+Day 149 · 2026-11-19 · 15:18 — Tended slow-cooking hare over patient fire; stepped out to check woodstore and cabin base insulation — both sound; broth spoon curing matte; pale winter afternoon before dark.

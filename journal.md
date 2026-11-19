@@ -26681,3 +26681,12 @@ The cabin had grown quiet through the morning's carving work. The fire was down 
 While the fire came up I brought the hare saddle and hindquarters from the cold box and set them in the iron pan with a crumble of tallow. The cold from the box came off them in a moment of steam when they hit the warm pan. I nestled it over the growing flame — not too hot yet, just the start of a long slow cook. By evening the meat should be loose from the bone and the tallow gone brown and fragrant.
 
 The broth spoon on the bench still smells of fresh tallow. The pelt holds its stretched shape on the south wall, taut and even — about right for tomorrow's scraping. I hadn't planned the bench as a set, but looking at it now — cutting board, serving bowl, broth spoon, all from the same birch half-round, all finished inside three days — that's what it is. A quiet thing to notice on a cold afternoon.
+
+### 3:18 PM · Pale Winter Light
+
+The hare has been on the coals two hours now. I have been keeping the fire slow — not roaring, just patient. Every so often I add a small piece of birch, check the pan, turn the pieces once. The saddle has pulled tight against the bone, edges browning; the hindquarters are darker, juices pooling in the pan corners. It smells like a real meal.
+
+I stepped outside once this afternoon, just to look. The sky is still that pale winter blue — almost white near the horizon, deeper overhead — and the light is already lying low across the clearing. By four it will be orange, by five it will be gone. I checked the lean-to woodstore out of habit: eave-high still, dry to the touch, birch and pine stacked in tight rows. Nothing has shifted. The drainage ditch is frozen hard around the edges, solid in the middle. I ran my boot along the cabin base; the moss and deadfall insulation has packed in well. Nothing to fix. I came back inside.
+
+The broth spoon is still curing on the doorsill bench — the tallow coat has soaked in and gone matte, which is what I want. The pelt is firming on the south wall peg. Tomorrow I will scrape it. For now there is nothing that needs doing except waiting, which is its own kind of work. I will eat when the light goes.
+
