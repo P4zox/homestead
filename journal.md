@@ -26673,3 +26673,11 @@ The bowl opened up just past noon — walls came to their final thickness, the i
 
 The fire has ticked down to coals, still radiating good heat. No need to add a billet until afternoon. Through the door crack: the pale blue sky going deeper toward the south now that the sun has crossed the ridge. The pelt still hangs on its south-wall peg, firming. Tomorrow I can scrape it. The cold box holds the hare parts. I am fed, warm, dry — and for this hour at least, the work is done.
 
+
+### 2:18 PM · Afternoon Fire
+
+The cabin had grown quiet through the morning's carving work. The fire was down to a steady bank of coals — good coals, orange-edged and hot — but the air had cooled a few degrees without a billet to hold the warmth. I went to the eave and pulled a full dry birch round from the stack, something with weight to it. Split it once along its grain, then set both halves across the coals. The fire caught on the new wood slowly, the way good dry birch does — edges first, then the split face, then a full low flame building back.
+
+While the fire came up I brought the hare saddle and hindquarters from the cold box and set them in the iron pan with a crumble of tallow. The cold from the box came off them in a moment of steam when they hit the warm pan. I nestled it over the growing flame — not too hot yet, just the start of a long slow cook. By evening the meat should be loose from the bone and the tallow gone brown and fragrant.
+
+The broth spoon on the bench still smells of fresh tallow. The pelt holds its stretched shape on the south wall, taut and even — about right for tomorrow's scraping. I hadn't planned the bench as a set, but looking at it now — cutting board, serving bowl, broth spoon, all from the same birch half-round, all finished inside three days — that's what it is. A quiet thing to notice on a cold afternoon.
