@@ -2640,3 +2640,4 @@ Day 148, 2026-11-18, 16:19 — Evening meal: rabbit stew eaten from new birch se
 2026-11-18 23:18 Day 148 — Night Holds Still — lamp out, broth simmering, settled to sleep on the birch plank floor in hard frost
 Day 149 (Thu 19 Nov 2026) 06:18 — Dawn snare check; stream-bank snare caught a hare overnight; overnight bone broth drunk; first morning of Day 149.
 Day 149, 2026-11-19, 07:18 — Processed overnight hare: pelt stretched on south wall, hindquarters and saddle to cold box, bone frame to fresh broth.
+2026-11-19 08:18 — Day 149 — Cooked and ate hare liver and kidneys over the fire; bone broth reducing; pelt stiffening on south wall peg.

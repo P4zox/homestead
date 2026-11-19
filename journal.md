@@ -26621,3 +26621,10 @@ The carcass I portioned: hindquarters to the cold shelf (the most meat, worth sa
 
 The cold box holds real portions again. That matters more than I let myself say out loud. I wiped the bench, rinsed my hands with meltwater, and sat back near the fire. Outside, pale winter light is spreading across the clearing. It is early still.
 
+
+### 8:18 AM · Liver in the Cold Light
+
+The liver and kidneys went straight into the pan with a smear of tallow — they do not need long, just enough heat to firm up and brown at the edges. I ate standing at the fire, the pan balanced on the cooking stone, the cabin still shadowed except where the orange glow touched the walls. Liver has that deep iron taste, almost heavy. The kidneys run cleaner, sharper. It is the sort of breakfast that asks nothing of you except to eat it and feel the warmth spread out from your chest.
+
+The broth pot ticks quietly on the other side of the fire. I will let it reduce all morning. The hare pelt on the south wall peg is already stiffening in the cabin air — a few days yet before I can work it properly. For now the cabin smells of warm tallow and simmering bone, and outside the sky has gone from pre-dawn gray to that thin pale blue that belongs to hard frost mornings. The cold is settled in now, settled for months. I know this without having to remind myself. And yet the cabin holds.
+
