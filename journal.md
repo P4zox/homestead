@@ -26732,3 +26732,14 @@ I rehung it and sat back down on the doorsill bench. The fire has banked to a st
 
 A day that ended well, which is how the good ones go. I had meat, broth, birch kitchenware on the bench, a pelt drying on the wall, and the promise of tomorrow's work. That is plenty.
 
+
+### 8:19 PM · By Lamplight, Planning
+
+The overnight broth is barely moving on the coals — just a faint shiver at the surface, the way deep heat announces itself without hurrying. I am sitting on the doorsill bench by lamplight, the cabin quiet around me, full dark pressing against the door.
+
+I have been thinking about the pelt. Tomorrow I will scrape it — the shoulder will have firmed overnight, and then it is just patience: bone scraper from shoulder to haunch, let the membrane come away in long pale curls, finish the face with a dry wipe. I have run the motion through my mind enough times that my hands feel it already.
+
+On the bench beside me: the cutting board, the serving bowl, the broth spoon. All three oiled and cured, set in a row. I used them all today for the first time — ate the hare saddle from the bowl, stirred the broth with the spoon, used the board to portion at this morning's work. Small things, but they fit the hand and they are mine. That matters more than I expected it to.
+
+The lamp holds steady. The fire is a steady glow. Outside: hard frost, silence, bare pines against a cold sky. I am, quietly, well.
+
