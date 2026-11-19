@@ -26650,3 +26650,14 @@ The pelt from this morning has firmed up well on the south wall peg. Still tacky
 
 Quiet mid-morning. Warm cabin. Nothing needs doing this hour that is not already done.
 
+
+### 11:18 AM · Broth Spoon, Begun
+
+The broth bowl has been rinsed and left on the bench. The pelt is firm enough on the south-wall peg that I don't want to touch it yet — it needs one more day before scraping. Outside the frost hasn't lifted and won't today; the sky is pale and clear and the kind of cold that holds perfectly still.
+
+I found a good billet in the kindling stack: a straight piece of dry birch, about forearm length, dense-grained and clean. I've been making do with the wooden scoop for stirring the broth pot, but a proper long-handled spoon — something with reach and a rounded bowl — would sit right in the pot, let me stir down to the bottom, let me taste without burning my hand over the coals.
+
+Rough-cut the blank first with the axe: handle end tapered down to thumb-width, bowl end left thick for carving. Then the knife: shallow peeling cuts around the bowl, turning it slowly in the cabin light to read the grain. No knots in the working face. Grain runs clean and straight. This is good wood.
+
+It's slow work and that is exactly what I want. The rhythm of carving doesn't ask anything of the mind. The cabin is warm. The pelt turns slightly in the draft from the doorsill. Bowl is maybe a quarter hollowed — I'll keep at it through the noon hour.
+
