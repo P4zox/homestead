@@ -6,3 +6,4 @@
 09:18 — Stepped out to east bench garden; pulled back corner of leaf mulch; found sorrel still green under frost; harvested small handful of leaves; returned inside; added torn sorrel to reducing bone broth; sat on doorsill bench; clear pale blue sky; pelt firming well on south wall peg.
 10:18 — Drained reduced bone broth (hare frame + wilted sorrel) into birch bowl; ate at doorsill bench; rich iron broth with edge of green; pelt firming well on south wall peg; quiet mid-morning in warm cabin.
 11:18 — Found good dry birch billet in kindling stack; rough-cut blank with axe (handle tapered, bowl end thick); began carving long-handled broth spoon with knife; bowl a quarter hollowed, grain running clean; carving in warm cabin through noon.
+12:18 — Continued carving birch broth spoon at fireside through noon; bowl past halfway, walls evening out, handle balanced; pelt drying well on south wall peg.

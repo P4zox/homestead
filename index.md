@@ -2644,3 +2644,4 @@ Day 149, 2026-11-19, 07:18 — Processed overnight hare: pelt stretched on south
 2026-11-19 09:18 — Day 149 — harvested winter sorrel from east bench, added to reducing bone broth; pale blue winter sky; pelt firming on wall peg
 Day 149, 2026-11-19, 10:18 — Drank reduced hare bone broth with sorrel from birch bowl; pelt firming on south wall peg; quiet mid-morning.
 2026-11-19 11:18 — Day 149 — carved birch broth spoon rough blank; bowl a quarter hollowed; carving in warm cabin, pelt drying on peg
+Day 149 · 2026-11-19 12:18 — Bowl Deepens: continued carving birch broth spoon in warm cabin; bowl past halfway, grain clean, walls evening out.

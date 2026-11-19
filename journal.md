@@ -26661,3 +26661,8 @@ Rough-cut the blank first with the axe: handle end tapered down to thumb-width, 
 
 It's slow work and that is exactly what I want. The rhythm of carving doesn't ask anything of the mind. The cabin is warm. The pelt turns slightly in the draft from the doorsill. Bowl is maybe a quarter hollowed — I'll keep at it through the noon hour.
 
+
+### 12:18 PM · Bowl Deepens
+
+The cabin was warm and still through noon, nothing needed but the knife and the wood. I kept at the spoon — slow half-moons of birch curling off with each pass, the bowl working deeper and cleaner by the minute. The grain has been generous: not a single check, not a knot in the working zone. By midday the bowl was just past halfway, the walls evening out, the handle still rough but balanced in my hand. I let the fire tick down a little — no need to add more until afternoon — and sat with the spoon on my knee, feeling where it still needs thinning. The pelt on the south wall peg is drying well; another full day and I should be able to scrape the membrane side clean. For now, the spoon. Each stroke finds a little more of what it is supposed to be.
+
