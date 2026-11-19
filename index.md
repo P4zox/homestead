@@ -2653,3 +2653,4 @@ Day 149 · 2026-11-19 · 15:18 — Tended slow-cooking hare over patient fire; s
 Day 149 — 2026-11-19 18:18 — Evening cleanup after hare supper; set bone pan for overnight broth; topped up lamp; pelt firming (ready to scrape tomorrow); sitting quietly by lamplight.
 2026-11-19 19:18 Day 149 — examined hare pelt by lamplight; shoulder still soft, haunches firm; rehung for one more night; pelt ready to scrape tomorrow (Day 150); sat at doorsill bench; fire banked, cabin quiet.
 2026-11-19 Day 149 20:00 — By lamplight on doorsill bench; overnight broth on coals; hare pelt firming on south wall peg (scrape tomorrow); three birch pieces first used today.
+2026-11-19 Day 149 21:18 — Coals banked for the night; birch billet on slow heat; overnight broth set; lamp left to die on its own; slept.

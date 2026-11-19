@@ -26743,3 +26743,16 @@ On the bench beside me: the cutting board, the serving bowl, the broth spoon. Al
 
 The lamp holds steady. The fire is a steady glow. Outside: hard frost, silence, bare pines against a cold sky. I am, quietly, well.
 
+
+### 9:18 PM · Coals Banked
+
+The lamp burns low. I have been sitting here long enough that the warmth from the coals has worked through the bench wood and into my bones. Outside is utterly still — that particular stillness that only comes when the frost is hard and the sky is clear, the world sealed and waiting.
+
+I add one last dry birch billet to the coals — not to build flame, but to hold the heat long. Dense wood banks slow and even, the kind of heat that is still alive at first light. I nudge the overnight broth pot to the quietest edge of the fire; it barely moves now, just a lazy lift at the surface every few seconds. It will be rich and thick by morning, the bones giving everything they have left.
+
+The pelt hangs still on its south-wall peg. I touched the shoulder once more this evening — firmer than it was at noon, not quite right yet. Tomorrow it will be. I know the feeling of pelt that is ready to scrape and pelt that is not, and patience now saves a ruined hide. One more night is nothing.
+
+Three birch pieces sit on the doorsill bench: the cutting board, the serving bowl, the broth spoon. All used today for the first time, all tallow-cured and broken in. There is a satisfaction in that I did not quite expect — a full kitchen set made from one spare half-round and an afternoon of carving. Things made by hand hold something beyond their shape, some memory of the work in them.
+
+I will let the lamp go out on its own. The sleeping bag is on the floor, the cabin walls tight, the coals long. Tomorrow: scrape the pelt, drink the broth, see what the snares say. But that is tomorrow. Tonight the fire banks itself, and I sleep.
+
