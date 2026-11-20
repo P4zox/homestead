@@ -26940,3 +26940,7 @@ The collar wrap is folded beside the sleeping bag. Outside: hard frost, full dar
 
 Woke briefly in the full dark — not from cold, just the natural first surface before deep sleep settles. Lay still and listened. Nothing but the cabin walls and frost outside. The banked fire still held a low orange pulse under the ash; lamp burned small and steady on its shelf. The pelt hung quiet on the south wall peg. The doorsill bench row just visible in the lamp glow — smoother, scoop, board, bowl, all in a line. Everything exactly as left. Pulled the collar wrap higher, turned once, and let sleep come again.
 
+### 9:22 PM · Coals at Night
+
+Woke in deep dark — the cabin fully sealed, the frost pressing at every joint. The lamp was out, its wick cold. I lay still a moment and listened: nothing outside, only the faint tick of the ridgepole cooling and the small breath of the coals beneath their ash crust. Got up barefoot on the birch floor, found the poker by feel, lifted the ash crust and found orange underneath — good, steady, alive. Laid a single birch round across the coals and watched it catch; smoke first, then a low honest flame. The cabin warmed by one degree, no more than that, but it was enough. The pelt on the south wall peg was a pale shape in the coal glow, still and drying. The doorsill bench row: smoother, scoop, board, bowl — all there in the dark. Pulled the collar wrap up and lay back down. Sleep came again at once.
+

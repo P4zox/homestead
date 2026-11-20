@@ -15,3 +15,4 @@
 18:18 — full dark outside; sat by settled fire and lamp; turned Day 150 over in mind; doorsill bench row complete, all winter kit ready, pelt resting on south wall peg; coals going deep orange; sleep near.
 19:18 — tapped ash over fire coals, pulled last birch round across back; fire banked low for the night; lamp still burning steadily; collar wrap folded beside sleeping bag; pelt on south wall peg resting; full dark, frost outside, cabin tight; sleep.
 20:00 — woke briefly in full dark; fire holding under banked ash, lamp burning low and steady, pelt resting on south wall peg; all well; slept again.
+21:22 — woke briefly in deep dark; lamp out; found coals still orange under ash crust; added one birch round; flame caught low and steady; lay back down; sleep returned at once.
