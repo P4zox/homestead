@@ -26913,3 +26913,16 @@ Came back in and built the fire up properly for the night — three good birch r
 
 It has been a full day. Smoother made. Pelt nearly done. Stock set on the north ledge. The doorsill bench holds a matched row of birch pieces, all used now, all seasoned. When the coals are ready I will bank them and sleep early. Everything in its place.
 
+
+### 6:18 PM · Day 150, Full Dark
+
+Full dark by the time I noticed the last thread of light was gone from the gap above the door. The fire I built at five past the hour has settled now — three birch rounds burning slow and even, the bark curl long spent, coals going deep orange. Lamp on the shelf. Cabin sealed.
+
+I sat with nothing to do, which is rarer than it sounds. The day was full — scraping the pelt at dawn, the snare, the softening sessions, carving the smoother, the long rest at two in the afternoon counting what stands. By evening I was content without being tired, which is the best kind of full.
+
+Day 150. I did not plan to mark it, but sitting here I find I am. The doorsill bench holds the smoother, the scoop, the cutting board, the serving bowl, the broth spoon — all birch, all made in this cabin this winter, all used. The vest hangs on its peg. The mittens beside it. The pelt is resting. The woodstore is eave-high. Outside it is hard and cold and black and I am warm and fed and the floor does not shift under me.
+
+The stream is frozen and the garden sleeps and the hare is smoke-cured on the south wall. Everything that can be ready for winter is ready. What comes next — whatever the deep cold brings — I will meet from inside here.
+
+Let the coals settle. Sleep is not far.
+
