@@ -2663,3 +2663,4 @@ Day 149 — 2026-11-19 18:18 — Evening cleanup after hare supper; set bone pan
 2026-11-20 10:18 Day 150 — reduced overnight bone broth, ladled into three birch cups; two firmed on north lean-to ledge as portable stock, one kept inside
 2026-11-20 11:18 (Day 150) — Drank inside marrow stock cup; carved spare birch half-round into flat-edged pelt smoother, tallow-oiled; on doorsill bench ready for afternoon pelt session.
 2026-11-20 Day 150 12:00 — Second pelt softening session with new birch smoother; membrane side now even and matte; pelt rehung to breathe; one more session needed tomorrow.
+2026-11-20 Day 150 13:18 — walked to birch stand at treeline; gathered five loose dry bark curls; stacked in kindling box beside door; cold air, clear sky, stream still frozen opaque.

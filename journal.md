@@ -26860,3 +26860,14 @@ The pelt is not done — it will need one more session, likely tomorrow morning 
 
 Outside, the sun was at its lowest, long and silver through the clearing. I ate a few shreds of smoked velvet shank standing at the door, watching the shadows. That will hold until evening.
 
+
+### 1:18 PM · Cold Air, Loose Bark
+
+After a full morning — pelt work twice, broth reduced to stock, the birch smoother carved and used — the afternoon opened quiet. Pelt was resting on its peg, marrow cups firming in the lean-to, lamp steady. I put my mittens on and went out.
+
+The light at this hour in early winter is already angled low, long shadows lying blue-grey across the clearing. The frost from dawn had not lifted in the shadows — it crunched underfoot. I walked to the birch stand at the treeline, taking the long way past the east bench, which sat still under its mulch.
+
+At the treeline I found three loose curls of outer bark fallen at the base of a birch cluster near the slope — big clean ones, dry, the kind that catch flame fast. I tucked them under my arm. On the way back I picked up two more strips near the stream edge, dry but not crumbling. The stream ran white and opaque from bank to bank. Nothing moving at the treeline — just bare birch, pine shadows, cold air.
+
+Back at the cabin I stacked the bark in the kindling box beside the door. Small return for a walk, but the cold air did what it does — lungs clear, blood moving, feet warm fast once I got back to the coals.
+
