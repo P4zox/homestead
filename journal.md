@@ -26884,3 +26884,12 @@ The crow called from the birch slope again — maybe the same one as this mornin
 
 I stayed long enough to feel my nose go numb, then went back inside. I did not need to do anything in that half hour except sit. Some hours are for that.
 
+
+### 3:00 PM · Last Light Provisions
+
+The afternoon is as still as the morning was — just colder, the sun now sitting low enough that its light rakes across the clearing in long pale lines rather than warming anything. I went out to the north lean-to ledge and lifted one of the marrow stock cups. Firm as wax, the surface gone completely opaque, faintly gold where the light hit it. I carried it inside and set it on the flat stone near the fire to warm slowly. The other cup I left on the ledge — cold storage is doing exactly what cold storage should.
+
+The lamp well looked thin, so I peeled a small curl from the second tallow brick and fed it in. The flame barely wavered. Good. The first brick has served its days well; the second one will carry me further now.
+
+Then I did something small but deliberate: I looked at the doorsill bench. The pelt smoother on the left, the scoop beside it, the cutting board, the serving bowl — a full row of things I made myself, each one with its own week of evenings in it. Outside the door, the clearing was white and still. No wind, no crows, no sound from the treeline. Just the flat winter light getting flatter. I stood there a moment longer than I needed to, then came back in. Tomorrow morning: last pelt session. Tonight: eat, bank the fire, sleep.
+
