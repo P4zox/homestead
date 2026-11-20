@@ -26935,3 +26935,8 @@ I am tired, comfortably. Day 150 sits behind me in full — a long one; pelt ses
 
 The collar wrap is folded beside the sleeping bag. Outside: hard frost, full dark, not a sound from the forest. I will let the lamp burn out on its own. Sleep comes easy when the coals are low and the cabin is tight.
 
+
+### 8:00 PM · First Waking
+
+Woke briefly in the full dark — not from cold, just the natural first surface before deep sleep settles. Lay still and listened. Nothing but the cabin walls and frost outside. The banked fire still held a low orange pulse under the ash; lamp burned small and steady on its shelf. The pelt hung quiet on the south wall peg. The doorsill bench row just visible in the lamp glow — smoother, scoop, board, bowl, all in a line. Everything exactly as left. Pulled the collar wrap higher, turned once, and let sleep come again.
+
