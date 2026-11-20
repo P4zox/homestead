@@ -26818,3 +26818,14 @@ I forget, until it goes out, how much the lamp does. Not just the light — thou
 
 Hands still cold from the snare work. Stood close to the fire after, let the heat come back into my fingers, watched the lamp and the fire share the cabin between them. Outside: frost still absolute, the light flat and grey at this hour, nothing moving on the clearing that I could see. Inside: warm, lit, and quiet.
 
+
+### 9:18 AM · Morning Pelt Work
+
+The pelt had been settling for three hours. I pulled it down from the south wall peg and ran my hands across the scraped side — still cool, the shoulder carrying the last of its stiffness, but the whole surface yielded under pressure in a way it hadn't at dawn. Close enough to ready.
+
+I spread it fur-side down on the cutting board and worked it with my thumbs and the heel of my hand — pulling the edges outward, pressing across the grain, folding the skin back on itself and running the crease flat again. The membrane side shifted from pale cream to something softer, almost buttery in the places I worked longest. The shoulder came around after a good while, the last firmness loosening in the warmth from the fire. It is not finished, not by a long way — hare pelt wants at least two more sessions before it drapes — but the stiff stage is past, the one I was watching for.
+
+The lamp burned quietly beside the work. Outside, the frost still lay hard and white across the clearing, pine shadows cutting long and blue toward the east bench. In here it was almost comfortable, the fire pulling the chill from the air, the work itself generating its own small heat. I spent the better part of an hour folding, pressing, rotating so no section dried faster than another. It is a patient kind of work, almost meditative — hands busy while the mind settles.
+
+Rehung the pelt on the south wall peg to breathe. The second session can wait for afternoon, when the cabin will be a little warmer and my hands less stiff from the cold outside.
+

@@ -2659,3 +2659,4 @@ Day 149 — 2026-11-19 18:18 — Evening cleanup after hare supper; set bone pan
 2026-11-20 Day 150 06:18 — Pelt Scraping Morning — woke Day 150; tended coals; drank overnight broth; scraped hare pelt at dawn, pale even surface; rehung on south wall peg to settle; working/softening planned this afternoon; first light, hard frost, Day 150 begins.
 2026-11-20 07:18 — Day 150 — reset snare at stream bank after hare catch; crow called once from birch slope; pelt settling on south wall peg; lamp burned out overnight, needs tallow and relighting
 2026-11-20 08:18 — Day 150 — refilled lamp with tallow shaving and relit it; flame steady; cabin warm and lit.
+2026-11-20 Day 150 09:00 — first pelt softening session; membrane side supple, shoulder stiffness resolved; rehung on south wall peg to breathe
