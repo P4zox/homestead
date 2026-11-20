@@ -26893,3 +26893,14 @@ The lamp well looked thin, so I peeled a small curl from the second tallow brick
 
 Then I did something small but deliberate: I looked at the doorsill bench. The pelt smoother on the left, the scoop beside it, the cutting board, the serving bowl — a full row of things I made myself, each one with its own week of evenings in it. Outside the door, the clearing was white and still. No wind, no crows, no sound from the treeline. Just the flat winter light getting flatter. I stood there a moment longer than I needed to, then came back in. Tomorrow morning: last pelt session. Tonight: eat, bank the fire, sleep.
 
+
+### 4:18 PM · Cup at Dusk
+
+The light has been leaving since two — the sun slipping south-west behind the trees, laying that long pale wash across the clearing. By eighteen hundred it will be full dark. I have been watching it happen from the doorway, mittens on, breath rising in small clouds.
+
+The marrow stock cup had been sitting at the fire's edge since three. I pressed my thumb to the birch side and felt warmth clear through, so I lifted it and carried it to the doorsill bench and drank it slowly. The stock is thick and salt-tasting — a full day of bone and slow heat condensed into one cup. I pulled a few strips of smoked velvet shank from the south wall peg and ate them alongside. They are darkening in the right way, losing moisture and deepening.
+
+Lamp burns. Fire holds. The pelt hangs quiet on its peg; it will be ready for one last session at dawn tomorrow, and then it is done. I keep turning over what to do with it — a brim strip for a hat, a liner panel inside the boot, a small fur patch at the collar. No hurry. The hide is good and the decision can be careful.
+
+Day 150. Still here. The cabin is warm, the woodstore is full past the eave, and I have a lamp and a fire and something in my stomach now. The sky outside is pale blue going to grey. I will tend the fire after full dark and sleep early.
+
