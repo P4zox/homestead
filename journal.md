@@ -26838,3 +26838,14 @@ I ladled the stock into the three birch cups — bowl first with the ladle, care
 
 Snare is still set down at the stream bank. The pelt rests. The fire holds. Something about the quiet this morning — the light is low and very clear through the door crack, and there is no wind at all. Eleven weeks into winter and it still surprises me how the cold just sits here, still as stone.
 
+
+### 11:18 AM · Carving a Smoother
+
+The inside cup of marrow stock had gone almost solid overnight — I set it near the coals for a few minutes until it thinned, then drank it slowly, standing close to the fire. Rich and salt-thick. The kind of thing that steadies a cold morning from the inside out.
+
+Afterward I found myself looking at the spare half-round on the doorsill bench. It has been sitting there since I finished the floor on Day 147 — one good piece of birch left over, waiting. I turned it over in my hands: clean grain, no bark inclusions, dry all the way through. I had been thinking about the pelt session planned for this afternoon, how my thumb-heel tires working the membrane, how a flat tool pressed firm would reach places a hand alone does not.
+
+So I worked it for the next hour. Knife first — squared one end to a wide, shallow edge, then narrowed the grip into a comfortable handle. Sanded the flat face against the rough stone until it was smooth under the fingertip. Rubbed a thin smear of tallow all over. Set it on the doorsill bench beside the scoop and board to let the oil soak in.
+
+I ran the flat edge across the back of my hand. It glides without catching. That is all I need from it. The pelt is still on the south wall peg; this afternoon I will bring it down and work the membrane side again with this — pressing flat, running with the grain, working any remaining tight fibres loose. The piece feels ready for it now. So does the tool.
+
