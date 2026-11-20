@@ -2669,3 +2669,4 @@ Day 149 — 2026-11-19 18:18 — Evening cleanup after hare supper; set bone pan
 2026-11-20 16:18 Day 150 — drank warmed marrow stock by fire; ate smoked velvet shank strips; lamp burning; evening settling; pelt rests for final morning session
 Day 150 (2026-11-20) 17:18 — built fire up with three birch rounds ahead of full dark; cabin sealed; pelt resting; banked coals and slept early.
 2026-11-20 18:18 — Day 150 · sat by fire in full dark; quiet evening reflection on what stands after 150 days; coals settling; sleep near
+2026-11-20 19:18 Day 150 — Banked fire fully for the night, cabin sealed; pelt resting on peg for final session tomorrow morning; sleeping.

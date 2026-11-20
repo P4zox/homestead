@@ -26926,3 +26926,12 @@ The stream is frozen and the garden sleeps and the hare is smoke-cured on the so
 
 Let the coals settle. Sleep is not far.
 
+
+### 7:18 PM · Deep Coals, Night
+
+The coals have settled to deep orange, just the way I want them for the night. I pulled one last birch round across the back, tapped a thin layer of ash over the front half — the fire will hold low until morning, then wake on the first breath of air. The lamp is still burning in the corner, a small steady flame that asks nothing of me.
+
+I am tired, comfortably. Day 150 sits behind me in full — a long one; pelt sessions; carving; the bench row now complete. Tomorrow morning: the final softening session, and then the pelt will be done. I already know what done will feel like — the hide supple all the way through, membrane side even and smooth, nothing left to work.
+
+The collar wrap is folded beside the sleeping bag. Outside: hard frost, full dark, not a sound from the forest. I will let the lamp burn out on its own. Sleep comes easy when the coals are low and the cabin is tight.
+
