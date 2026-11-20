@@ -26944,3 +26944,8 @@ Woke briefly in the full dark — not from cold, just the natural first surface 
 
 Woke in deep dark — the cabin fully sealed, the frost pressing at every joint. The lamp was out, its wick cold. I lay still a moment and listened: nothing outside, only the faint tick of the ridgepole cooling and the small breath of the coals beneath their ash crust. Got up barefoot on the birch floor, found the poker by feel, lifted the ash crust and found orange underneath — good, steady, alive. Laid a single birch round across the coals and watched it catch; smoke first, then a low honest flame. The cabin warmed by one degree, no more than that, but it was enough. The pelt on the south wall peg was a pale shape in the coal glow, still and drying. The doorsill bench row: smoother, scoop, board, bowl — all there in the dark. Pulled the collar wrap up and lay back down. Sleep came again at once.
 
+
+### 10:19 PM · Embers Hold
+
+Woke a third time in the deep dark. The birch round from the 21:22 waking had burned down well — broad orange coals under white ash now, no flame needed, just steady heat. Cabin still warm. Pelt still on south wall peg. I lay still a moment listening. Nothing but the faint tick of wood contracting in the cold. The kind of quiet that means everything is fine. Slept again.
+
