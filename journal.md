@@ -26904,3 +26904,12 @@ Lamp burns. Fire holds. The pelt hangs quiet on its peg; it will be ready for on
 
 Day 150. Still here. The cabin is warm, the woodstore is full past the eave, and I have a lamp and a fire and something in my stomach now. The sky outside is pale blue going to grey. I will tend the fire after full dark and sleep early.
 
+
+### 5:18 PM · Dusk, Fire Built Up
+
+The last pale light was draining off the clearing — that deep blue that comes just before full dark, the treeline going flat against it. I stepped outside one more time, collar wrap pulled high, and watched the sky. No wind. The cold just there, clean and total. Full dark in less than an hour.
+
+Came back in and built the fire up properly for the night — three good birch rounds crossed over the coals, a bark curl laid in to catch. The flame settled in quickly, filling the cabin with that amber pulse. The lamp is steady on its shelf. The pelt hangs quiet on the south wall peg, one last session still ahead of it tomorrow morning.
+
+It has been a full day. Smoother made. Pelt nearly done. Stock set on the north ledge. The doorsill bench holds a matched row of birch pieces, all used now, all seasoned. When the coals are ready I will bank them and sleep early. Everything in its place.
+
