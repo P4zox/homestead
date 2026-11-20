@@ -26849,3 +26849,14 @@ So I worked it for the next hour. Knife first — squared one end to a wide, sha
 
 I ran the flat edge across the back of my hand. It glides without catching. That is all I need from it. The pelt is still on the south wall peg; this afternoon I will bring it down and work the membrane side again with this — pressing flat, running with the grain, working any remaining tight fibres loose. The piece feels ready for it now. So does the tool.
 
+
+### 12:00 PM · Smoother to Pelt
+
+The new smoother had been sitting on the doorsill bench since before the marrow stock hour, tallow coat soaking in, the birch going from raw-wood pale to a warm amber where the oil caught. By noon it felt right in the hand — balanced, the flat edge smooth and confident. I took the hare pelt down from the south wall peg.
+
+Membrane side up on the cutting board. I started with my thumbs the way I always do, pressing across grain, pulling the edges wide, folding it once along the spine to hear the softness — and it answered well, the shoulder already supple from this morning. Then the smoother: short angled strokes, working from the haunches forward, bearing down without forcing. The flat edge glides differently than a thumb — more even, less heat, it reaches the fibres in a broader plane. I could feel the membrane releasing its last resistance under it, sections that had been slightly dry loosening stroke by stroke.
+
+The pelt is not done — it will need one more session, likely tomorrow morning when it has had a night to rest into this work. But it is visibly different from this morning: the surface is even, almost matte, the skin holding its flex when folded. I rehung it on the south wall peg to breathe.
+
+Outside, the sun was at its lowest, long and silver through the clearing. I ate a few shreds of smoked velvet shank standing at the door, watching the shadows. That will hold until evening.
+
