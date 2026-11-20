@@ -26871,3 +26871,16 @@ At the treeline I found three loose curls of outer bark fallen at the base of a 
 
 Back at the cabin I stacked the bark in the kindling box beside the door. Small return for a walk, but the cold air did what it does — lungs clear, blood moving, feet warm fast once I got back to the coals.
 
+
+### 2:00 PM · A Hundred and Fifty
+
+I pulled the doorsill bench out into the door gap and sat, back against the frame, feet on the threshold stone. The sun was low and moving south — mid-November low, the kind that hits you sideways, pale gold, almost horizontal. Cold enough that I kept my mittens on and my collar wrap pulled up. But in the sun it was bearable, even pleasant, the way cold days sometimes offer a few minutes of real warmth if you catch the light at the right angle.
+
+I sat there and tried to count. Not in an anxious way — just: what is here. The cabin stands. The door hangs true on its pivot. The wood is stacked past the eave, dry birch and pine, more than I know how to burn before spring. Inside: two packages of smoked mushrooms on the peg, the bone needle in its notch, the coil of fresh bark cord, three birch pieces on the bench. Outside on the north ledge: two cups of firm marrow stock. On the south wall peg: the hare pelt, pale and matte after two softening sessions, one more to go tomorrow morning.
+
+Day 150. I have been here a hundred and fifty days. I arrived with almost nothing.
+
+The crow called from the birch slope again — maybe the same one as this morning, or another; I cannot tell them apart. A branch cracked somewhere in the trees, the cold finding a weak joint. The clearing lay still, frost still holding in the shadow of the pines though the sun had been out for hours. This is winter now, real winter, not an edge of it. It has settled in.
+
+I stayed long enough to feel my nose go numb, then went back inside. I did not need to do anything in that half hour except sit. Some hours are for that.
+
