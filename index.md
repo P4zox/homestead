@@ -2675,3 +2675,4 @@ Day 150 (2026-11-20) 17:18 — built fire up with three birch rounds ahead of fu
 2026-11-20 22:19 — Day 150 night: third brief waking; coals broad under ash, cabin warm; pelt on south wall peg; all still; slept.
 Day 150, 2026-11-20 23:19 — fourth brief night waking; coals holding, cabin warm; pelt on south wall peg; slept again; final pelt session planned at dawn.
 2026-11-21 Day 151 06:18 — Pelt Done: final hare pelt softening session complete at dawn; pelt finished, hanging on south wall peg; no events.
+2026-11-21 Day 151 07:18 — Tracks in the Frost: walked stream-bank snare in hard frost; snare empty; fresh hare tracks nearby from before dawn; re-tensioned trigger stick; cleared frost from loop; crow called once from the pines; walked back to cabin.

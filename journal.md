@@ -26972,3 +26972,14 @@ Done. I stretched it flat on the cutting board for a moment and looked it over c
 
 No events reached me today; events.md is quiet. The frost is hard outside. The fire is burning steady. It is a good thing to begin a day with something finished.
 
+
+### 7:18 AM · Tracks in the Frost
+
+The fire was well caught by the time I pulled on boots and cold-weather kit. I took the axe handle in my mittened hand — habit more than need — and walked the short path down toward the stream. The world was utterly still. Frost lay thick on every branch and blade, and the pale sky was just beginning to hold light at the eastern edge.
+
+The snare at the stream bank was empty. I crouched and looked at the marks in the frost nearby — two sets of small oval prints leading from the alder scrub along the bank and back again. Hare. They had come through, maybe an hour before dawn by the frost that had resettled in the tracks. Close but not close enough.
+
+I re-tensioned the trigger stick and cleared a wisp of frost from the loop. The ice on the stream held grey and solid. A crow called once from somewhere in the pines, then nothing.
+
+Walked back slow. The cabin chimney sent a thin line of smoke straight up into the still cold air. I was glad to see it.
+
