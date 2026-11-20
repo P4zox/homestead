@@ -26809,3 +26809,12 @@ A crow called once from somewhere in the birch slope, and then it was quiet agai
 
 Back at the cabin before long, hands warming over the coals. I will let the pelt settle until afternoon, work it then when the light is still up and my fingers are ready. For now the snare is set, and that is one thing in order before the day begins.
 
+
+### 8:18 AM · Lamp Fed Again
+
+Took the first tallow brick down from the lamp shelf and shaved a small curl into the lamp well with my thumbnail — just enough to refill the pool without spending more than the lamp needs. Set the brick back. Touched flint to the wick twice; the second spark caught and the flame steadied into that familiar warm disk of light.
+
+I forget, until it goes out, how much the lamp does. Not just the light — though the cabin at this hour is a closed dark box without it — but the feeling of a space that is *set up*, complete, arranged for use. With it burning, the pelt on the south wall peg has colour again, the birch pieces on the doorsill bench have grain, the smoked mushroom packages above the shelf are a deep amber instead of black shapes. The lamp makes the room visible to itself.
+
+Hands still cold from the snare work. Stood close to the fire after, let the heat come back into my fingers, watched the lamp and the fire share the cabin between them. Outside: frost still absolute, the light flat and grey at this hour, nothing moving on the clearing that I could see. Inside: warm, lit, and quiet.
+
