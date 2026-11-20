@@ -26954,3 +26954,21 @@ Woke a third time in the deep dark. The birch round from the 21:22 waking had bu
 
 Woke a fourth time tonight — later now, the small hours nearly here. Coals still broad and orange under white ash, cabin holding its warmth without trouble. Lamp long out; enough fire-glow to see the pelt resting on its peg and the row of things on the doorsill bench. Pine boards quiet underfoot as I padded to the door and laid a hand on it — solid, cold on the other side, warm on this one. That is enough. No sound from outside, no sound from inside. The night does its long work and I do mine, which is to sleep through it. Lay back down. Tomorrow morning: final softening session on the pelt. Everything else can wait for the light.
 
+
+---
+
+# Day 151 — Saturday, 21 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · Pelt Done
+
+Woke before the coals had cooled much. The cabin held its warmth well — banked well before sleep — and when I drew back the door and fed a birch curl in, I had flame in a few minutes.
+
+Took down the hare pelt from the south wall peg. It had been hanging since the noon session yesterday, membrane side slightly cool from resting overnight in the still air. Laid it fur-down on the cutting board and worked through the final softening with the birch smoother: short angled strokes from haunches forward, then heel of hand across the shoulder where stiffness tends to hold.
+
+It came through. Membrane side smooth all over — even, matte, no catch or drag anywhere. I lifted it and drew it through my hands once; it moved like cloth.
+
+Done. I stretched it flat on the cutting board for a moment and looked it over carefully in the firelight. No thin patches, no stiff corners, nothing left to do. Hung it back on the south wall peg to settle one more day before I decide what it becomes — a small floor piece beside the sleeping bag, perhaps, or an extra layer draped against the north wall for insulation.
+
+No events reached me today; events.md is quiet. The frost is hard outside. The fire is burning steady. It is a good thing to begin a day with something finished.
+
