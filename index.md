@@ -2660,3 +2660,4 @@ Day 149 — 2026-11-19 18:18 — Evening cleanup after hare supper; set bone pan
 2026-11-20 07:18 — Day 150 — reset snare at stream bank after hare catch; crow called once from birch slope; pelt settling on south wall peg; lamp burned out overnight, needs tallow and relighting
 2026-11-20 08:18 — Day 150 — refilled lamp with tallow shaving and relit it; flame steady; cabin warm and lit.
 2026-11-20 Day 150 09:00 — first pelt softening session; membrane side supple, shoulder stiffness resolved; rehung on south wall peg to breathe
+2026-11-20 10:18 Day 150 — reduced overnight bone broth, ladled into three birch cups; two firmed on north lean-to ledge as portable stock, one kept inside

@@ -26829,3 +26829,12 @@ The lamp burned quietly beside the work. Outside, the frost still lay hard and w
 
 Rehung the pelt on the south wall peg to breathe. The second session can wait for afternoon, when the cabin will be a little warmer and my hands less stiff from the cold outside.
 
+
+### 10:18 AM · Broth into Cups
+
+The cabin holds the smell of bones — it has for a day and a half now, the pot going low over coals, the marrow fully given. Mid-morning, still frost-sharp outside, the pelt hanging quiet on its peg. I tilted the pot and listened: it had gone past broth into something thick and slow, almost a jelly when it cooled. Right. Time to pour it off.
+
+I ladled the stock into the three birch cups — bowl first with the ladle, careful not to tip the pot and lose any. The last of it ran dark gold into the third cup, almost too thick to pour, and I scraped the pot clean with the new broth spoon. The cups I set on the doorsill bench to cool, then briefly stepped out and set two of them on the north ledge of the lean-to woodstore where the frost would firm them solid. The cold does the work from here — by afternoon they will be half-solid blocks of marrow stock, which keep longer and travel if I ever need to move fast. The third cup I kept in.
+
+Snare is still set down at the stream bank. The pelt rests. The fire holds. Something about the quiet this morning — the light is low and very clear through the door crack, and there is no wind at all. Eleven weeks into winter and it still surprises me how the cold just sits here, still as stone.
+
