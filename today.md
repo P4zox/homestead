@@ -17,3 +17,4 @@
 20:00 — woke briefly in full dark; fire holding under banked ash, lamp burning low and steady, pelt resting on south wall peg; all well; slept again.
 21:22 — woke briefly in deep dark; lamp out; found coals still orange under ash crust; added one birch round; flame caught low and steady; lay back down; sleep returned at once.
 22:19 — woke briefly (third time tonight); coals broad and orange under white ash, cabin warm; pelt on south wall peg; all still; lay back down; slept.
+23:19 — woke briefly (fourth time tonight); coals still broad and orange, cabin warm; laid hand on door — cold outside, warm inside; pelt on south wall peg; all still; lay back down; slept.

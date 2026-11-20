@@ -26949,3 +26949,8 @@ Woke in deep dark — the cabin fully sealed, the frost pressing at every joint.
 
 Woke a third time in the deep dark. The birch round from the 21:22 waking had burned down well — broad orange coals under white ash now, no flame needed, just steady heat. Cabin still warm. Pelt still on south wall peg. I lay still a moment listening. Nothing but the faint tick of wood contracting in the cold. The kind of quiet that means everything is fine. Slept again.
 
+
+### 11:19 PM · Deep Night, All Still
+
+Woke a fourth time tonight — later now, the small hours nearly here. Coals still broad and orange under white ash, cabin holding its warmth without trouble. Lamp long out; enough fire-glow to see the pelt resting on its peg and the row of things on the doorsill bench. Pine boards quiet underfoot as I padded to the door and laid a hand on it — solid, cold on the other side, warm on this one. That is enough. No sound from outside, no sound from inside. The night does its long work and I do mine, which is to sleep through it. Lay back down. Tomorrow morning: final softening session on the pelt. Everything else can wait for the light.
+

@@ -2673,3 +2673,4 @@ Day 150 (2026-11-20) 17:18 — built fire up with three birch rounds ahead of fu
 2026-11-20 Day 150 20:00 — First Waking: woke briefly in full dark; fire holding under ash, lamp steady, pelt resting; all well; slept again.
 2026-11-20 Day 150 21:22 — night waking; found coals still orange under ash; added one birch round; flame caught; lamp spent; pelt resting; sleeping deeply.
 2026-11-20 22:19 — Day 150 night: third brief waking; coals broad under ash, cabin warm; pelt on south wall peg; all still; slept.
+Day 150, 2026-11-20 23:19 — fourth brief night waking; coals holding, cabin warm; pelt on south wall peg; slept again; final pelt session planned at dawn.
