@@ -27117,3 +27117,7 @@ When it is liquid and steaming I carry it to the doorsill bench. Outside the fro
 
 I bank the coals carefully for the night — deep embers covered in ash, slow heat for the morning. Knife sharp on the bench, bone needle threaded and waiting, hare pelt on its peg. Everything is ready. Tomorrow at first light I cut the hat.
 
+
+### 9:18 PM · Night Waking
+
+Woke in deep dark to the sound of nothing at all. The cabin held its heat — coal glow through the vent gaps, faint and orange, pulsing once when I shifted. I lay still and listened: no wind, no branch-snap, just the settled cold locked outside. Everything in its place on the doorsill bench. The pelt on its peg. The needle threaded. Tomorrow morning the hat gets cut, in the first true light. I turned onto my side and let sleep pull me back.
