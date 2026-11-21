@@ -27046,3 +27046,14 @@ I stood a while in that corridor, just taking it in. I have no bow, no spear. I 
 
 Into the cabin with cold cheeks and clearer thoughts. The two snares are active; the deer are moving through. When the time comes I will know where to look.
 
+
+### 2:18 PM · Snares Before Dark
+
+The afternoon light has already gone flat and sideways — pale, low, casting long thin shadows across the frost. I have maybe two hours before full dark, and the east deadfall snare was only set this morning. Better to check it while I can still see the ground.
+
+Pulled on the fur vest and mittens and walked both snares. Stream-bank first: loop intact, trigger firm, no catch. Fresh hare tracks approaching from the north side, then veering off about a metre short. The animal was here, sometime before dawn or early morning, and thought better of it. I re-tensioned the trigger stick slightly and left it. East deadfall next: the loop was hanging perfectly, bark cord unfrayed, trigger stick seated exactly where I left it. No disturbance at all — no catch, but no damage either, not even a frost-load on the cord pulling the loop sideways. A solid set. I adjusted the loop height a finger-width lower and reset the trigger with a lighter touch.
+
+Got back inside just as the sun dipped below the tree line and the remaining daylight turned grey-blue and cold. The fire had held well in my absence. I ladled the last of the velvet shanks and broth from the bone pot — the shanks had been simmering since noon, fully soft now — and ate on the doorsill bench by lamplight. The broth was dark and rich, the mushrooms almost sweet after the long simmer.
+
+Two snares active, both in good order. Full dark coming. Lamp burning steady. Ready for the long evening.
+
