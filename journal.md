@@ -27136,3 +27136,23 @@ No sound from outside. The cold is absolute. I let it in only as a fact; it does
 
 Tomorrow, the hat. Tonight, rest.
 
+
+---
+
+# Day 152 — Sunday, 22 November 2026
+*early winter · hard frost, clear sky*
+
+### 6:18 AM · First Light, First Cut
+
+The cabin was cold but held. I lay still for a moment after waking — coals breathing, lamp at lowest wick, the pelt hanging dark on the south wall peg. Everything was in its place: knife sharp, needle already threaded, bark cord measured and coiled on the bench. I had been moving toward this morning for days.
+
+I stirred the coals into flame with a birch curl and waited. Light built slowly through the door gap — first a gray line, then pale blue. By six I had enough.
+
+I lifted the pelt from the peg and laid it fur-down on the cutting board. The membrane side was pale and smooth, holding yesterday's softening. I ran my thumb across it one last time — no catch, no drag, nothing left to do to it. I had earned this cut.
+
+I'd traced the crown line a dozen times in imagination. I set knife to pelt and drew the first cut: a long gentle curve from the right haunch forward to the shoulder and around. The pelt gave cleanly. Second cut mirrored it on the left. The crown panel came free — dense and domed, exactly as I'd planned. The ear flaps cut next from the shoulder panels, two rough squares I'll trim to fit as the sewing takes shape.
+
+I threaded the bone needle, knotted the bark cord, and began the crown seam with oversew stitches — same as I practiced on scrap pelt last night. Each stitch pulled the edges snug without puckering. Twenty stitches in and the dome was already recognizable: a cap taking its shape stitch by stitch, here by the lamp in the cold morning light.
+
+My fingers were cold but careful. This is the morning I have been working toward.
+
