@@ -4,3 +4,4 @@
 07:18 — walked stream-bank snare in hard frost; snare empty; fresh hare tracks nearby from before dawn; re-tensioned trigger stick and cleared frost from loop; snare reset; crow called once from the pines.
 08:18 — returned cold from snare walk; retrieved one cup firm marrow stock from north lean-to; set at fire edge to melt; drank warm on doorsill bench; one cup marrow stock consumed; one cup remains on north lean-to ledge.
 09:18 — set second snare at east deadfall near fresh hare tracks seen on morning walk; bark cord, fixed-eye loop, trigger stick, loop set ankle-height; two snares now active (stream-bank + east deadfall); back inside warming by fire.
+10:18 — sat on doorsill bench in pale mid-morning light; went through all winter supplies (tallow, firewood, smoked velvet shanks, marrow stock, two active snares, sorrel green under mulch); noted what to watch as deep winter settles; lamp burning steady; felt ready.

@@ -27001,3 +27001,14 @@ I took a length of bark cord from the coil and worked a fixed eye at one end, th
 
 Two snares now — the stream-bank one re-tensioned at dawn, and this new east-deadfall one. The tracks are fresh. Something was moving there before the light came up. I will check both at dusk.
 
+
+### 10:18 AM · Taking Stock
+
+The pale winter light is doing its best now, low and sharp through the door gap. I pulled the door half-open and sat on the doorsill bench with my hands in my lap, letting the cold air trade itself out for a minute. Then I went through everything I have.
+
+Tallow: second brick begun, lamp burning steady — I have enough for weeks yet if I keep the flame small overnight. Firewood: eave-high and past, dry and ready. Smoked velvet shanks: two bark packages on the south wall peg, dense and dark. Marrow stock: one cup still firm on the north lean-to ledge. Sorrel still green under its mulch on the east bench. Two snares now working — stream-bank and east deadfall — both reset this morning near fresh tracks.
+
+What might run short: fresh meat, if the snares stay empty too long. Tallow, once February sets in deep. The marrow stock, now one cup, cannot last. I noted all of it without dread. It is not shortage yet; it is awareness, and that is a different thing. I know what I have. I know what to watch.
+
+I pulled the door closed again and sat a moment longer by the fire before getting up. The lamp threw a small warm circle. Outside: clear, cold, still. Enough.
+
