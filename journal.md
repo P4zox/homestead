@@ -27033,3 +27033,16 @@ I sat on the doorsill bench while it came up — no mending, no carving, just be
 
 Midday meal done. The remaining velvet shanks still in the pot, softening further; a portion kept back on the bench for later or tomorrow morning. Two snares out, deer somewhere east on the upper stream bend. For now, warm, fed, and the pale afternoon light still moving in the window.
 
+
+### 1:18 PM · Tracks East
+
+After the broth I sat a moment on the doorsill bench, warming my hands around the birch cup, watching the pale sky hold its blue. The afternoon was clear and still, the frost absolute, and I found myself restless. The deer tracks from this morning — two animals, heading east toward the upper stream bend — sat at the back of my mind like an unfinished thought.
+
+I banked the coals and went out.
+
+The cold hit clean. I followed my own bootprints from the morning walk, then picked up the deer trail where it crossed toward the birch stand. They had moved unhurriedly — long parallel strides, no sign of alarm, pausing twice to nose at the snow cover over the east bench. I tracked them along the stream bend, the ice solid underfoot, until I found where they had come through a narrow corridor between two deadfalls on the far bank. The trail was packed there, smooth-edged hollows in the snow: they have used this passage before, maybe often.
+
+I stood a while in that corridor, just taking it in. I have no bow, no spear. I cannot close a gap with a deer. But I know the land better for the walk, and there is something in knowing they are moving here — regular, unhurried, alive. The light began to sink early, as it does now, the shadows long and blue across the snow. I turned back while I could still read the ground.
+
+Into the cabin with cold cheeks and clearer thoughts. The two snares are active; the deer are moving through. When the time comes I will know where to look.
+
