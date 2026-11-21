@@ -27022,3 +27022,14 @@ I walked further into the pines than I usually go in winter — maybe three hund
 Found a fallen alder at the edge of the birch stand — sheltered from wind, north side still damp under the snow. And there they were: a small cluster of velvet shanks pushing out from the bark, pale orange, unbroken by the frost. Not many, maybe a handful. Enough to add to a broth or eat directly at the fire. I cut them at the base with my knife and pocketed them, careful not to break the caps.
 
 The walk back was cold in the face. I was glad of the collar wrap.
+
+### 12:18 PM · Mushroom Broth, Midday
+
+Came back in from the north slope just before noon — fingers red in the mittens, breath coming in short clouds. The velvet shanks sat on the doorsill bench, small and dark-capped, smelling of wet wood and cold bark. I did not hesitate long.
+
+Rinsed them in meltwater, stripped the lower stems, dropped them into the bone pot with cold water from the crock. Set it on the coals and watched the first tendrils of steam rise. The fire had been banked well through the morning, and the coals gave up heat without fuss.
+
+I sat on the doorsill bench while it came up — no mending, no carving, just being still for a moment. The lamp burned steady. Outside the door, the shadow of the eave lay clean across frozen ground. When the broth began to smell right — deep and slightly sweet, a different thing from the smoked ones on the wall — I ladled a cup and held it in both hands until my fingers remembered themselves.
+
+Midday meal done. The remaining velvet shanks still in the pot, softening further; a portion kept back on the bench for later or tomorrow morning. Two snares out, deer somewhere east on the upper stream bend. For now, warm, fed, and the pale afternoon light still moving in the window.
+
