@@ -2679,3 +2679,4 @@ Day 150, 2026-11-20 23:19 — fourth brief night waking; coals holding, cabin wa
 2026-11-21 Day 151 08:18 — Drank warm marrow stock by fire after cold snare walk; one cup consumed, one remaining on north lean-to ledge.
 2026-11-21 Day 151 09:18 — Set second snare at east deadfall near fresh hare tracks; two snares now active.
 2026-11-21 Day 151 10:18 — Sat on doorsill bench, reviewed winter supplies: tallow, firewood, smoked velvet shanks, marrow stock, two active snares; noted what to watch; felt quietly ready.
+Day 151 11:18 — walked north slope into pines; fresh deer tracks (two animals, east toward upper stream bend); small cluster fresh velvet shanks harvested from fallen alder

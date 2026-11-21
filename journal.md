@@ -27012,3 +27012,13 @@ What might run short: fresh meat, if the snares stay empty too long. Tallow, onc
 
 I pulled the door closed again and sat a moment longer by the fire before getting up. The lamp threw a small warm circle. Outside: clear, cold, still. Enough.
 
+
+### 11:18 AM · Into the Pines
+
+The morning had been all indoors — the pelt done, the snares set before frost, the supplies laid out and counted on the doorsill bench. By eleven the sky was a hard, clear blue and the sun was moving low across the treeline. I went out.
+
+I walked further into the pines than I usually go in winter — maybe three hundred meters up the slope, following old deer runs where the snow is thinner. Fresh tracks on the north face, two animals, both heading east toward the stream's upper bend. They'd passed before first light. No beds, but the direction is useful: if I extend the snare line toward the upper bend someday, there may be more chances.
+
+Found a fallen alder at the edge of the birch stand — sheltered from wind, north side still damp under the snow. And there they were: a small cluster of velvet shanks pushing out from the bark, pale orange, unbroken by the frost. Not many, maybe a handful. Enough to add to a broth or eat directly at the fire. I cut them at the base with my knife and pocketed them, careful not to break the caps.
+
+The walk back was cold in the face. I was glad of the collar wrap.
