@@ -27121,3 +27121,7 @@ I bank the coals carefully for the night — deep embers covered in ash, slow he
 ### 9:18 PM · Night Waking
 
 Woke in deep dark to the sound of nothing at all. The cabin held its heat — coal glow through the vent gaps, faint and orange, pulsing once when I shifted. I lay still and listened: no wind, no branch-snap, just the settled cold locked outside. Everything in its place on the doorsill bench. The pelt on its peg. The needle threaded. Tomorrow morning the hat gets cut, in the first true light. I turned onto my side and let sleep pull me back.
+
+### 10:18 PM · One Last Log
+
+The cabin was still and warm when I woke again — a second brief waking, the kind that comes in deep winter nights when the cold makes you check without meaning to. I lay still for a moment, listening. No wind. The coals had sunk low but were still holding their red. I rose and laid one small birch log across them, not a fire but a bridge — enough to carry warmth through till morning. The lamp was barely a glow at this hour, wick turned to its lowest. Everything in its place: pelt on the south wall peg, bone needle threaded on the bench, knife sharp beside it. The hat waits for first light. I banked the log in a little and lay back down. I was asleep before the bark caught.

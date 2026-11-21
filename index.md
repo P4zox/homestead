@@ -2690,3 +2690,4 @@ Day 151, 15:18 — Took hare pelt down from south wall peg; assessed shape and d
 19:18 — Day 151, Saturday 21 Nov 2026 — threaded bone needle with bark cord; practiced a dozen oversew stitches on scrap pelt; stitches held clean and even; needle and cord set on bench, ready for morning hat cut.
 Day 151, 2026-11-21 20:18 — Warmed and drank last cup of marrow stock (north lean-to ledge now empty); banked coals for the night; hat tools set for morning first light.
 2026-11-21 21:18 Day 151 — brief night waking; coals held deep; back to sleep
+2026-11-21 22:18 Day 151 — woke briefly; laid one birch log on coals for deep night; lamp low; settled back to sleep

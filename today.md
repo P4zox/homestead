@@ -16,3 +16,4 @@
 19:18 — threaded bone needle with bark cord; practiced a dozen oversew stitches on scrap pelt strip; stitches clean and even; needle and cord back on bench; all ready for morning hat cut; coals holding, lamp steady.
 20:18 — retrieved last birch cup of firm marrow stock from north lean-to ledge; warmed at fire edge; drank warm on doorsill bench as evening supper; north lean-to ledge now empty; banked coals deep for the night; lamp steady; sleeping; hat cut at first light tomorrow.
 21:18 — brief night waking; coals deep and good; warm cabin, full dark outside; needle threaded, pelt on peg, knife sharp; back to sleep; hat cut at first light.
+22:18 — woke briefly again; coals sunk but holding red; laid one small birch log across them to carry warmth through deep night; lamp at lowest wick; pelt on peg, needle threaded, knife sharp; settled back to sleep; hat cut at first light.
