@@ -27090,3 +27090,14 @@ Outside: nothing. No wind tonight. No animal sound. Just the occasional tick of 
 
 Coals are good and deep. The lamp is burning steady from the second tallow brick. The hat crown is traced on the pelt hanging on the south wall peg. I will cut in the morning when the light is worth it. Fed and still and warm — that is the whole of this evening.
 
+
+### 6:18 PM · Pelt by Lamplight
+
+Full dark by six now. The cabin is its own small world — amber lamplight on the log walls, coals glowing red in the firepit, cold pressing at the door seams. I pulled the hare pelt from the south wall peg and sat on the doorsill bench with it across my knees.
+
+I wanted to feel the hat before I cut it. I held the pelt up toward the lamp. The dense haunches caught the light golden; the shoulder fur lay closer and darker, more silver-grey. By finger-widths I traced where the crown seam would need to run — a curved line haunch to brow, the thickest zone forming the dome of the head, the thinner shoulder panels folding down over the ears. Then I held it to my own head, rough side out, pressing lightly. It sat well — close, with enough length at the sides to cover the ears nearly to the jaw if I let it.
+
+I set it back on the peg to settle overnight. The knife is sharp. The bone needle and a length of bark cord are on the bench. Tomorrow morning, in first light, I will cut.
+
+The coals are deep. The lamp is steady on its shelf. Both snares are out there in the dark. I find I am not anxious about any of it — just quiet and warm, which is exactly the right way to end a Saturday.
+

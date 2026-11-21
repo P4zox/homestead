@@ -2686,3 +2686,4 @@ Day 151, 14:18 — walked both snares before dark; stream-bank empty (hare track
 Day 151, 15:18 — Took hare pelt down from south wall peg; assessed shape and density; traced crown line with knife tip; planned close-fitting fur hat for tomorrow morning.
 2026-11-21 Day 151 16:18 — sharpened knife on flat stone with tallow for tomorrow's fur hat crown cut; pelt on south wall peg; bone needle and bark cord ready on bench
 2026-11-21 17:18 — Day 151 — Evening meal; opened first bark package of smoked velvet shanks, ate by lamplight on doorsill bench; second bark package remains; two snares active overnight; fur hat cut ready for morning.
+2026-11-21 18:18 Day 151 — held hare pelt by lamp, settled crown seam path in mind; knife sharp; bone needle + bark cord on bench; fur hat cut planned for morning
