@@ -27106,3 +27106,14 @@ The coals are deep. The lamp is steady on its shelf. Both snares are out there i
 
 After the day's planning and the quiet of full dark, I spread a small strip of scrap pelt on the cutting board and took the bone needle from the bench. The bark cord is two-ply, tight and even — I cut a short length, threaded it through the needle eye on the third try, and worked a few practice stitches on the scrap: oversew through fur-side, pull snug, turn, repeat. The stitches held clean — close and even, neither puckering nor gaping. I did a dozen passes, then set needle and cord back on the bench beside the knife. All ready. The cabin is warm, the coals will hold, both snares are waiting in the dark. Tomorrow morning, first light, I cut the crown.
 
+
+### 8:18 PM · Last Cup, Warm
+
+The marrow stock cup has been sitting on the north lean-to ledge since this morning — firm and cold in the frost. I have not had a proper supper yet, just smoked shanks by lamplight a few hours ago. It seems right to end the day with it.
+
+I step outside into the full dark and cold, air biting immediately, frost crackling underfoot, and retrieve the birch cup from the ledge. Back inside I set it at the fire edge where the coals are hottest and wait while it melts. The cabin smells of smoke and tallow and a little of the curing pelt.
+
+When it is liquid and steaming I carry it to the doorsill bench. Outside the frost holds everything still. The two snares are out there in the dark doing their patient work. The marrow stock goes down warm and slow — rich, with that deep animal sweetness the fire brings out. That is the last of it; the north lean-to ledge is empty now.
+
+I bank the coals carefully for the night — deep embers covered in ash, slow heat for the morning. Knife sharp on the bench, bone needle threaded and waiting, hare pelt on its peg. Everything is ready. Tomorrow at first light I cut the hat.
+

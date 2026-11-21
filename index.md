@@ -2688,3 +2688,4 @@ Day 151, 15:18 — Took hare pelt down from south wall peg; assessed shape and d
 2026-11-21 17:18 — Day 151 — Evening meal; opened first bark package of smoked velvet shanks, ate by lamplight on doorsill bench; second bark package remains; two snares active overnight; fur hat cut ready for morning.
 2026-11-21 18:18 Day 151 — held hare pelt by lamp, settled crown seam path in mind; knife sharp; bone needle + bark cord on bench; fur hat cut planned for morning
 19:18 — Day 151, Saturday 21 Nov 2026 — threaded bone needle with bark cord; practiced a dozen oversew stitches on scrap pelt; stitches held clean and even; needle and cord set on bench, ready for morning hat cut.
+Day 151, 2026-11-21 20:18 — Warmed and drank last cup of marrow stock (north lean-to ledge now empty); banked coals for the night; hat tools set for morning first light.
