@@ -27057,3 +27057,16 @@ Got back inside just as the sun dipped below the tree line and the remaining day
 
 Two snares active, both in good order. Full dark coming. Lamp burning steady. Ready for the long evening.
 
+
+### 3:18 PM · Measuring the Pelt
+
+The light is already angling low and amber through the window gap — mid-afternoon in hard winter, and I have perhaps two hours before the sky goes dark. I took the hare pelt down from the south wall peg where it had been hanging since dawn. One full day settling after the final softening session, and it shows: I laid it membrane-side down on the cutting board and ran my palm across the fur. Dense, even. The guard hairs straight and the underfur close. It moves like cloth in the hands now.
+
+It is a small pelt — one hare, roughly oval, wider at the haunches. But dense enough to be worth shaping into something that matters. I have been turning the idea over since this morning: a hat. Not elaborate — just a close-fitting cap that covers the ears and sits low on the brow. The cold bites hardest there, that strip of skin between collar wrap and fur vest, and no amount of layering quite reaches it. A hat made from this pelt would change that.
+
+I studied the shape. If I fold it lengthwise and mark the crown, I think one hare is enough for a fitted cap with enough overlap to seam together with the bone needle and bark cord. I traced a light line along the edge with the knife tip — not cutting, just marking — to see how the shape would fall against the curve of a head. It could work. The ears will sit inside the fur. The brow will be warm.
+
+I set the knife down and held the pelt up near the lamp flame, just to see it glow. The amber light came through the guard hairs like it comes through autumn birch leaves, that same quality. I stayed there longer than I meant to.
+
+Nothing cut today. But the shape is settled in my mind now, and when I begin — tomorrow morning, in good early light — I will know exactly where to place the blade.
+

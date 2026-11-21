@@ -2683,3 +2683,4 @@ Day 151 11:18 — walked north slope into pines; fresh deer tracks (two animals,
 2026-11-21 Day 151 12:18 — made midday broth from fresh velvet shanks; ate warm on doorsill bench; portion remaining in pot and on bench
 2026-11-21 Day 151 13:18 — scouted east to upper stream bend; deer trail followed through birch stand; regular corridor between two deadfalls on far bank mapped; two snares active.
 Day 151, 14:18 — walked both snares before dark; stream-bank empty (hare tracks nearby); east deadfall set solid; loop adjusted, trigger re-set; ate final velvet shank broth by lamplight; evening approaches.
+Day 151, 15:18 — Took hare pelt down from south wall peg; assessed shape and density; traced crown line with knife tip; planned close-fitting fur hat for tomorrow morning.
