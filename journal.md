@@ -27070,3 +27070,14 @@ I set the knife down and held the pelt up near the lamp flame, just to see it gl
 
 Nothing cut today. But the shape is settled in my mind now, and when I begin — tomorrow morning, in good early light — I will know exactly where to place the blade.
 
+
+### 4:18 PM · Knife to Stone
+
+The light was draining fast — that pale late-afternoon thinning that comes on quick in mid-November — and I wanted to do one more thing before the dark settled in. The hat cut is for tomorrow morning, when I will have clear light and steady hands and time to do it cleanly. But the knife traces a line differently than it cuts one; I wanted the edge true before I lay it to the pelt.
+
+I found the flat grinding stone in its place near the lamp shelf, rubbed a little tallow across its face, and drew the blade along it in slow even strokes — bevel down, heel to tip, same angle each time. No rush. The fire behind me crackled once and settled. After a dozen passes I tested the edge on my thumbnail. It bit and held without slipping. That is the feeling I wanted.
+
+Knife back on the bench. Pelt still hanging on the south wall peg, settled and still. Tomorrow I will take it down in morning light and make the first cut along the crown line. The bone needle and bark cord are ready on the bench beside the patterns.
+
+Outside, full dark will come in another hour and a half. The two snares are set and will work through the night without me. I banked the coals a little more and let the lamp burn steady.
+
