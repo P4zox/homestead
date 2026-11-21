@@ -27101,3 +27101,8 @@ I set it back on the peg to settle overnight. The knife is sharp. The bone needl
 
 The coals are deep. The lamp is steady on its shelf. Both snares are out there in the dark. I find I am not anxious about any of it — just quiet and warm, which is exactly the right way to end a Saturday.
 
+
+### 7:18 PM · Needle and Thread
+
+After the day's planning and the quiet of full dark, I spread a small strip of scrap pelt on the cutting board and took the bone needle from the bench. The bark cord is two-ply, tight and even — I cut a short length, threaded it through the needle eye on the third try, and worked a few practice stitches on the scrap: oversew through fur-side, pull snug, turn, repeat. The stitches held clean — close and even, neither puckering nor gaping. I did a dozen passes, then set needle and cord back on the bench beside the knife. All ready. The cabin is warm, the coals will hold, both snares are waiting in the dark. Tomorrow morning, first light, I cut the crown.
+
