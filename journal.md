@@ -26983,3 +26983,10 @@ I re-tensioned the trigger stick and cleared a wisp of frost from the loop. The 
 
 Walked back slow. The cabin chimney sent a thin line of smoke straight up into the still cold air. I was glad to see it.
 
+
+### 8:18 AM · Cup at the Fire
+
+After the snare walk I came back through the door cold to the bone, hands stiff inside the mittens, breath still visible inside the cabin for the first few minutes. I took one of the birch cups of marrow stock from the north lean-to ledge — it had firmed solid overnight into a pale amber disk — and set it near the coals to melt. By the time I had pulled off my mittens and settled onto the doorsill bench, the stock had pooled into dark liquid around its edges. I tilted the cup and held it in both hands and drank it slowly, the warmth going all the way down.
+
+The fire is steady. The cabin is dim but warm, the lamp still burning on its shelf. Outside, pale winter light is just beginning to touch the treetops — it barely clears the pines before it starts to drop again at this time of year. The hare pelt hangs on the south wall peg where I put it at six, smooth and finished. I kept looking at it while I drank. It is a good thing to have a finished object hanging there — something that started as a raw, rigid hide and ended soft as cloth after days of patient work. The cup is empty now. The cabin holds its warmth. The snare waits by the stream.
+

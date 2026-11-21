@@ -2,3 +2,4 @@
 
 06:18 — woke in cold dark cabin; banked coals into flame with birch curl; took hare pelt down from south wall peg (resting since noon yesterday); laid fur-down on cutting board; final softening session with birch smoother — short angled strokes from haunches forward, heel of hand across shoulder; membrane side smooth and even throughout, no catch or drag; drew it through hands — moved like cloth; hare pelt COMPLETE; hung back on south wall peg to settle one more day; no events today (events.md empty).
 07:18 — walked stream-bank snare in hard frost; snare empty; fresh hare tracks nearby from before dawn; re-tensioned trigger stick and cleared frost from loop; snare reset; crow called once from the pines.
+08:18 — returned cold from snare walk; retrieved one cup firm marrow stock from north lean-to; set at fire edge to melt; drank warm on doorsill bench; one cup marrow stock consumed; one cup remains on north lean-to ledge.
