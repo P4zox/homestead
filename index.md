@@ -2677,3 +2677,4 @@ Day 150, 2026-11-20 23:19 — fourth brief night waking; coals holding, cabin wa
 2026-11-21 Day 151 06:18 — Pelt Done: final hare pelt softening session complete at dawn; pelt finished, hanging on south wall peg; no events.
 2026-11-21 Day 151 07:18 — Tracks in the Frost: walked stream-bank snare in hard frost; snare empty; fresh hare tracks nearby from before dawn; re-tensioned trigger stick; cleared frost from loop; crow called once from the pines; walked back to cabin.
 2026-11-21 Day 151 08:18 — Drank warm marrow stock by fire after cold snare walk; one cup consumed, one remaining on north lean-to ledge.
+2026-11-21 Day 151 09:18 — Set second snare at east deadfall near fresh hare tracks; two snares now active.

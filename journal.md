@@ -26990,3 +26990,14 @@ After the snare walk I came back through the door cold to the bone, hands stiff 
 
 The fire is steady. The cabin is dim but warm, the lamp still burning on its shelf. Outside, pale winter light is just beginning to touch the treetops — it barely clears the pines before it starts to drop again at this time of year. The hare pelt hangs on the south wall peg where I put it at six, smooth and finished. I kept looking at it while I drank. It is a good thing to have a finished object hanging there — something that started as a raw, rigid hide and ended soft as cloth after days of patient work. The cup is empty now. The cabin holds its warmth. The snare waits by the stream.
 
+
+### 9:18 AM · Second Snare Set
+
+The marrow stock did its work. By half past eight I could feel my fingers again, and the cabin had come up to a bearable warmth from the fire. I stayed on the doorsill bench a while, watching the lamp flame hold steady, letting the heat settle properly through me before thinking about moving again.
+
+By nine I had my mittens back on and stepped outside. The hare tracks from the morning walk were still sharp in the frost — no wind had touched them. I followed them along the east edge of the clearing to where the birch thinned and old deadfall made a natural corridor, the kind of narrowing a hare prefers when it moves. Good ground.
+
+I took a length of bark cord from the coil and worked a fixed eye at one end, then formed the snare loop — loose enough to pass a fist through. Found a sound upright twig for the anchor post and a bent stick for the trigger, set it low, ankle-height for a hare, the loop held half-open by just a hair of pressure. I cleared a shallow groove in the frost to settle the cord flush with the ground, then backed away without disturbing the approach.
+
+Two snares now — the stream-bank one re-tensioned at dawn, and this new east-deadfall one. The tracks are fresh. Something was moving there before the light came up. I will check both at dusk.
+
