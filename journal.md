@@ -27081,3 +27081,12 @@ Knife back on the bench. Pelt still hanging on the south wall peg, settled and s
 
 Outside, full dark will come in another hour and a half. The two snares are set and will work through the night without me. I banked the coals a little more and let the lamp burn steady.
 
+
+### 5:19 PM · Lamplight Supper
+
+Full dark came as it always does in deep November — not gradually but decisively, the last pale strip at the treeline gone between one glance and the next. I unhooked one of the bark packages from the south wall peg and worked it open on the cutting board. Smoked velvet shanks, well-dried, the wood-smoke smell released as the bark wrapper came apart. I ate on the doorsill bench with the lamp pulled close — three or four pieces, slowly, working through the dried flesh and tasting the smoke and the mushroom earthiness both. Rich. That particular quality holds even after the drying.
+
+Outside: nothing. No wind tonight. No animal sound. Just the occasional tick of frost in the pine branches. The two snares are out in that stillness, loop-set and waiting in the dark.
+
+Coals are good and deep. The lamp is burning steady from the second tallow brick. The hat crown is traced on the pelt hanging on the south wall peg. I will cut in the morning when the light is worth it. Fed and still and warm — that is the whole of this evening.
+
