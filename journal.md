@@ -27307,3 +27307,17 @@ The cabin is quiet past eleven. I surfaced from sleep once — not troubled, jus
 
 Outside, the frost is absolute. The kind of silence that only comes when the cold has locked everything solid — no stream sound, no branch creak, nothing moving. Just the faint tick of the cabin settling against the cold. I pulled the sleeping bag up tighter and let it hold me. Tomorrow the south face gets its resin. Tomorrow the bones become broth. But tonight the work is done and all that is needed is to sleep.
 
+
+---
+
+# Day 153 — Monday, 23 November 2026
+*early winter · hard frost, clear at dawn*
+
+### 6:18 AM · Broth at Dawn
+
+Woke to a cold cabin and the smell of the overnight cold-soak — the bark vessel sat near the coals, pale water and swollen bones. The coals had held through the night, a low orange glow under white ash. I stirred them, laid a birch curl, fed kindling, then a split round; the fire came back without trouble. Nestled the vessel close to the hearthstone and waited. The first shimmer rose from the surface; I pushed the vessel back a little, let it settle to a steady low simmer. Broth rose slow and pale and clear.
+
+Dipped the birch cup in. Stood at the open door a moment with the cup warm in both hands, steam curling up. Outside: pale dawn light across the frozen ground, sky going pink above the dark line of pines. The cold pressed in at my ankles but the cup was warm. I stood there until the pink faded to blue and the full light of morning spread across the clearing. Then I stepped back inside and drank the rest by the fire.
+
+Bones are spent now — strained and set aside. South face resin is waiting. The day is new and so is the warmth inside me.
+
