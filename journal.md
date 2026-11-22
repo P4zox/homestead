@@ -27219,3 +27219,12 @@ The hare hangs firm in the north lean-to. By dusk I will bring it in, hang it fr
 
 I set the knife on the cutting board and sat a moment, listening. Coals breathing. Lamp wick ticking faintly in the draft. Wind moving far off in the pines, somewhere above the ridge. These winter afternoons have a particular texture: still and dense, like the day is turning something over. I don't mind them. I added two birch rounds to the fire and watched the first one begin to smoke.
 
+
+### 2:18 PM · Resin in the Cold
+
+The afternoon light lies low and pale across the slope, long shadows pooling early between the birch trunks. The hare is still hanging quiet in the lean-to, firming up toward dusk. Nothing to do but wait — and waiting in a warm cabin with a full lamp and a sharp knife is not suffering. Still, there is something in this hour, the sky so cold and clear, that pulls me outside.
+
+I took the small bark pouch from the doorsill and walked the north slope to the pine row. The pitch has been weeping since fall, amber drops hardened now to dark scabs along the bark ruts. I scraped eight or ten good pieces loose with the knife's flat — not rushing, just working down the row. Cold makes resin brittle, easy to break off clean. The smell when it cracks: sharp green and something else, something mineral and deep.
+
+Enough to fill the pouch. Resin for sealing, for adhesive, for fire-starting if I need it. I stood a moment at the top of the slope before turning back — could see the whole clearing below, the cabin low and grey with its bark roof, the thin thread of smoke rising straight in the still air, the lean-to woodstore a dark shadow on the north face. A quiet view. It is a good thing to have from above.
+
