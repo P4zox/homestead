@@ -27246,3 +27246,12 @@ I split the belly carefully, cleaned the cavity into a bark bowl, set the kidney
 
 The cabin smells of wood smoke and fresh meat now. Outside, the light has gone almost completely blue. It will be full dark by the time it is ready. I will eat well tonight.
 
+
+### 5:00 PM · Supper by Firelight
+
+The liver went first — pulled off the small fork while still crackling, edges charred black and good. I ate it standing at the fire, juice on my chin, not bothering to sit down yet. The kidneys after, slightly less done in the middle, the way I prefer them. By the time the larger pieces had colored through and the skin on the haunches had drawn tight and sweetened, the last of the light had gone gold against the birch trunks outside the door, and I pulled it shut.
+
+I ate in lamplight. The hare came off the green-birch forks in four good pieces — haunches first, saddle last. The meat is leaner than autumn hare, the winter fat not yet built up, but the flavor is clean and the warmth of it is what matters. I left the bones in the bark bowl. Tomorrow morning: a broth, long and slow, with whatever sorrel I can scratch from under the frost. Tonight I only ate.
+
+The fire has settled to coals now, steady and orange. I am full and warm, which is not a small thing in the middle of hard winter. The hat hangs on the south wall peg where I put it this morning, complete and mine. The lamp burns without a flicker. The cabin holds the heat. I will sit a while longer with the coals, then sleep early — the south face resin and broth-bones wait for first light.
+
