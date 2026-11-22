@@ -27282,3 +27282,12 @@ Back inside, sleeping bag pulled from the doorsill to the birch-plank floor wher
 
 Frost deepening outside. Inside: warm, quiet, lamp guttering low. This is enough.
 
+
+### 9:00 PM · Warm Dark
+
+The lamp is burning low but steady. I am lying on the birch-plank floor in my sleeping bag, the cabin warm enough that my breath does not mist indoors. Outside I can hear nothing — the frost has gone fully silent, the stream locked somewhere under ice to the east. The fire is banked; one birch round will carry the coals until morning. The bones are soaking in the bark vessel beside them, the water already gone slightly cloudy.
+
+I ran my hand over the hat before I settled. The drawstring pulls true, the ear flaps hang level on their peg. Something about finishing a thing — the actual object on the wall — feels like evidence of a day well spent. I am warm. I have warm things. That is not nothing.
+
+Two tasks wait at dawn: south face resin, then broth from those bones. Good, plain work. I let the lamp flicker to its lowest and close my eyes.
+

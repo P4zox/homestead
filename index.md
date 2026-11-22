@@ -2707,3 +2707,4 @@ Day 152, 2026-11-22, 17:00 — supper: roasted hare eaten by lamplight; liver an
 2026-11-22 Day 152 18:18 — set hare bones to soak in cold water near coals; evening quiet by lamplight
 Day 152, 2026-11-22 19:19 — Quiet evening in lamplight; worked bark cord by the fire; bones soaking for tomorrow's broth; south face resin tomorrow.
 Day 152, 2026-11-22 20:18 — Evening: checked coals, added one birch round for the night; bones cloudy in cold soak; trimmed lamp; settled sleeping bag; south face resin and broth planned for dawn.
+2026-11-22 Day 152 21:00 — Warm Dark: lying in sleeping bag in banked-fire warmth; lamp low; bones soaking for broth; south face resin and broth at dawn
