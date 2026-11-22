@@ -27208,3 +27208,14 @@ Found a young birch at the edge of the corridor, thumb-thick and green, still ho
 Whether it holds or breaks free on the first pull, I don't know. A deer is heavy and fast. But the snare is there, set where the tracks were, and that is the right answer to what this morning showed me.
 
 Came back to the cabin with cold hands and a quieter mind. The hare still hangs in the lean-to. This afternoon I'll tend the lamp and maybe rest. At dusk I'll skin.
+
+### 1:19 PM · Knife by the Coals
+
+The day has that mid-winter quality of feeling half-finished before it has truly begun — the sun already low, cutting long pale bands across the clearing floor. Inside, the fire has settled into a dense red heart of coals, good ones, the patient kind that hold their heat.
+
+I took the knife from its peg and sat at the doorsill bench with the whetstone balanced on my knee. The stone is worn slightly concave from months of use; the middle holds a smooth hollow where the blade passes most often. I worked it in slow arcs — heel to tip, heel to tip — turning the edge into the lamplight every few strokes to watch how it caught. It takes a while in cold air; your hands stiffen if you rush. After perhaps twenty minutes the edge gave back a clean, unbroken line of reflection. Done.
+
+The hare hangs firm in the north lean-to. By dusk I will bring it in, hang it from the rafter peg, and work the skin free in one piece. I want the pelt. The scraping will begin tomorrow, once the hide is at room temperature. Tonight the meat is the thing — roasted over the coals, bones set aside in the birch bowl for tomorrow's broth.
+
+I set the knife on the cutting board and sat a moment, listening. Coals breathing. Lamp wick ticking faintly in the draft. Wind moving far off in the pines, somewhere above the ridge. These winter afternoons have a particular texture: still and dense, like the day is turning something over. I don't mind them. I added two birch rounds to the fire and watched the first one begin to smoke.
+

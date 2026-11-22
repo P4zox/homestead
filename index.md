@@ -2699,3 +2699,4 @@ Day 152, 09:18 — completed fur hat (drawstring channel stitched, cord run thro
 2026-11-22 Day 152 10:18 — snare check at east deadfall; first snare empty; second snare held a hare (winter coat); hangs in north lean-to to firm up before skinning
 2026-11-22 Day 152 11:00 — Scouted east deer corridor above deadfall; two tracks (~12 h old) confirmed; corridor active; hare hanging in lean-to for dusk skinning.
 Day 152, 12:18 — Set spring-snare trail at deer corridor on east slope; hare still hanging in lean-to for dusk skinning.
+2026-11-22 13:19 — Day 152 — sharpened knife at doorsill bench in lamplight; built up coals for evening roast; hare firming in lean-to for dusk skinning
