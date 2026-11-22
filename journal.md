@@ -27185,3 +27185,16 @@ There was a hare. It had been there some hours already — still, the loop clean
 
 Back at the cabin by mid-morning. The hare hangs now in the north lean-to to firm up before skinning. Fresh meat tonight; bones and scraps for broth tomorrow; the pelt — another layer of what I am building, one animal at a time.
 
+
+### 11:00 AM · Sign at the Corridor
+
+I bundled into the fur vest and collar wrap, pulled on the new hat — first real test in the open air, the fur drawing close around my ears, the bark cord pulled snug at the brim. Serious cold this morning, but I felt it only at my nose and chin. That is improvement. The hat works.
+
+I went east, past the bench plots and around the east deadfall where the second snare had been. The hare tracks there are well-worn now, a little highway pressed into the snow. But I followed the slope higher, to where I had mapped the deer corridor yesterday — the gap between the two larger deadfalls above the stream bend.
+
+There were deer tracks crossing. Not fresh — maybe twelve hours old, the edges beginning to soften at the lips — but clear: two sets, big-bodied, moving northeast toward the ridge. The corridor is real. They are using it in darkness, probably, moving between the ridge timber and the lower ground where they paw for buried forage.
+
+I stood there a while in the quiet. The sky was that hard pale blue that early winter makes, and the pines across the slope had a little snow on them from two nights ago, sitting still on the branches. I did not set a snare. This corridor is for thinking about, not rushing. A deer is a different undertaking entirely. But knowing they come through is a kind of wealth.
+
+Came back down to the cabin, hare still hanging cool in the lean-to. I will skin at dusk.
+
