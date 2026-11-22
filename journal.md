@@ -27300,3 +27300,10 @@ I did not get up. Just lay there long enough to be sure the fire was not done, t
 
 Tomorrow: south face resin, then bone broth. Tonight: just this.
 
+
+### 11:18 PM · Night Deepens Still
+
+The cabin is quiet past eleven. I surfaced from sleep once — not troubled, just the body checking in — and lay still a moment taking the measure of things. Coals amber and steady behind the grate. No smoke, no draft. The lamp has burned down to its last flicker and will likely go out on its own before midnight; that is fine. Bones soaking in the bark vessel, the water gone cloudy near the coals. Everything as I left it.
+
+Outside, the frost is absolute. The kind of silence that only comes when the cold has locked everything solid — no stream sound, no branch creak, nothing moving. Just the faint tick of the cabin settling against the cold. I pulled the sleeping bag up tighter and let it hold me. Tomorrow the south face gets its resin. Tomorrow the bones become broth. But tonight the work is done and all that is needed is to sleep.
+
