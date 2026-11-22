@@ -27291,3 +27291,12 @@ I ran my hand over the hat before I settled. The drawstring pulls true, the ear 
 
 Two tasks wait at dawn: south face resin, then broth from those bones. Good, plain work. I let the lamp flicker to its lowest and close my eyes.
 
+
+### 10:00 PM · Still Coals, Still Dark
+
+Stirred without meaning to — some part of the night pressed through. The cabin was dark except for the faint amber pulse deep in the coals. I lifted one edge of the sleeping bag and listened. Quiet. Frost outside doing what frost does. The bark vessel near the coals sat still, bones soaking in cold dark water, doing their slow work.
+
+I did not get up. Just lay there long enough to be sure the fire was not done, the lamp was low but steady, nothing had come loose in the night. Everything held. Pulled the sleeping bag back to my chin and let the warmth build again.
+
+Tomorrow: south face resin, then bone broth. Tonight: just this.
+

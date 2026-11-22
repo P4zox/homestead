@@ -16,3 +16,4 @@
 19:19 — sat at doorsill bench by lamplight; worked a short two-ply bark cord twist; bones still soaking near coals; fire banked; outside dark and still, frost deepening; short cord coil wound and set on bench.
 20:18 — checked coals; added one birch round to hold embers through the night; bones soaking cloudy and right in bark vessel; trimmed lamp; moved sleeping bag back to birch-plank floor; settled for sleep; south face resin and broth first at dawn.
 21:00 — lying in sleeping bag in warm dark; lamp burning low; coals banked; bones soaking in bark vessel by coals; reflected on the day — hat complete, hare eaten, good tasks ahead at dawn; drifting to sleep.
+22:00 — stirred briefly in sleeping bag; checked coals — amber and held; lamp low but steady; bark vessel undisturbed; bones soaking quiet; settled back without rising; everything held.
