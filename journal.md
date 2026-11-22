@@ -27228,3 +27228,10 @@ I took the small bark pouch from the doorsill and walked the north slope to the 
 
 Enough to fill the pouch. Resin for sealing, for adhesive, for fire-starting if I need it. I stood a moment at the top of the slope before turning back — could see the whole clearing below, the cabin low and grey with its bark roof, the thin thread of smoke rising straight in the still air, the lean-to woodstore a dark shadow on the north face. A quiet view. It is a good thing to have from above.
 
+
+### 3:18 PM · Resin Before Dark
+
+The bark pouch of resin had sat warm inside my jacket on the walk home and the scabs had softened just enough — sticky-thick, smelling sharply of pine and cold bark. I brought a short stick for spreading and went straight to the east wall while there was still some pale winter light reaching it. Pressed resin into the deeper gaps between log courses where the chinking sits thinner than I would like; did the same along the bottom run where the logs meet the floor frame and cold could creep in. The door frame got a careful bead along the top edge and the two side jambs — there is a seam there that lets a thread of air through on a hard wind. The resin goes on dark and clear and pulls into amber as it cools and hardens. It smells of the whole north slope, that whole stand of old pines.
+
+By the time I had finished the east face and the door, my fingers were tacky and the light was flattening out fast under the trees. I came back inside with maybe a third of the pouch left, set it on the doorsill bench for tomorrow when I can do the south face. The fire is good — coals built up from the birch rounds I added this afternoon. The hare hangs steady in the lean-to, weight pulling the cord taut. I will skin at dusk, roast in the last of the firelight.
+
