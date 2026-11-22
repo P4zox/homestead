@@ -27174,3 +27174,14 @@ I put the hat on. The ear flaps fell level, the crown sat warm, the brim drew cl
 
 The hat hangs on the south wall peg now, where the raw pelt used to be. The cold storage is empty and the snares are set at the east deadfall. The natural next step is a walk out to check them.
 
+
+### 10:18 AM · Hare on the Line
+
+The hat hung on its peg and the cabin felt full — fuller than it had in a while. I ate a handful of dried mushroom with a cup of snowmelt before stepping out. The cold hit at once, clean and hard, and my breath made long plumes in the still air.
+
+I took the path east, mittens on, a coil of spare bark cord over one shoulder in case a snare needed resetting. The deadfall clearing was quiet when I reached it. First snare: loop undisturbed, one small paw-track pressed into the frost nearby but no hare. I reset it and moved to the second.
+
+There was a hare. It had been there some hours already — still, the loop clean around one foreleg. A good-sized animal, dense winter coat coming in. I knelt and was grateful in the way that comes before thought. Thanked it quietly, freed the snare, reset it in the same run, and headed back along the stream with the hare over one shoulder.
+
+Back at the cabin by mid-morning. The hare hangs now in the north lean-to to firm up before skinning. Fresh meat tonight; bones and scraps for broth tomorrow; the pelt — another layer of what I am building, one animal at a time.
+
