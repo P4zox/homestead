@@ -27271,3 +27271,14 @@ I am content this evening. The cabin is tight around me. The cold does not reach
 
 The fire has settled to a steady breath of coals, and I let it stay that way. The bones are still soaking in the bark vessel near the warmth — water barely above cold, drawing out whatever sweetness is left for tomorrow's broth. I pulled the lamp a little closer and sat at the doorsill bench with a remaining length of bark fiber I had split this morning, and worked a slow two-ply twist between my palms. There is always cord to be made, and doing it in a still winter evening like this feels like the right kind of quiet. Outside it is fully dark and completely calm — no wind at all, which means the frost will bite harder by dawn. I can hear nothing but the fire's low tick and an occasional creak of cold in the logs. The resin on the east wall and door frame will finish curing overnight; the south face still waits, but tomorrow is soon enough. The hat hangs on the south wall peg and I find myself glancing at it without meaning to — something small and finished in a day that needed finishing. I wound the new cord into a short coil and set it on the doorsill bench, then stayed a while longer in the lamplight, not doing anything in particular. I am tired in the right way.
 
+
+### 8:18 PM · Coals and Quiet
+
+I checked the bark vessel where the hare bones have been soaking — the water gone cloudy and pale, which is right. Tomorrow morning that becomes broth. I added one birch round to the coals, laid it in gently so it catches slow and holds through the dark hours rather than flaring and dying before dawn. The lamp is trimmed. The fire will keep itself now.
+
+I stepped to the door for a moment to listen. Nothing — no wind, no movement, only the frost pressing down. Cold with that particular quality it has past the tenth week of deep winter, still and total. The lean-to looked sound in the sliver of lamplight that reached it. I did not go out. There was nothing to go out for.
+
+Back inside, sleeping bag pulled from the doorsill to the birch-plank floor where the warmth pools. The hat hangs on its peg. The resin pouch sits closed on the bench — south face gets it tomorrow while there is still morning light. Then broth from the bones. These are the two things. I know what tomorrow is before I sleep, which is a kind of comfort.
+
+Frost deepening outside. Inside: warm, quiet, lamp guttering low. This is enough.
+

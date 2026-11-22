@@ -14,3 +14,4 @@
 17:00 — ate supper; liver and kidneys first from the fire; ate hare in lamplight as full dark came; bones set aside for broth tomorrow; settled to coals and early rest.
 18:18 — set hare bones to cold-soak near coals for tomorrow's broth; banked fire with two birch rounds; lamp burning well; settled for the evening.
 19:19 — sat at doorsill bench by lamplight; worked a short two-ply bark cord twist; bones still soaking near coals; fire banked; outside dark and still, frost deepening; short cord coil wound and set on bench.
+20:18 — checked coals; added one birch round to hold embers through the night; bones soaking cloudy and right in bark vessel; trimmed lamp; moved sleeping bag back to birch-plank floor; settled for sleep; south face resin and broth first at dawn.
