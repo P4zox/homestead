@@ -27198,3 +27198,13 @@ I stood there a while in the quiet. The sky was that hard pale blue that early w
 
 Came back down to the cabin, hare still hanging cool in the lean-to. I will skin at dusk.
 
+
+### 12:18 PM · Setting the Trail
+
+After the morning's work — hat complete, hare hung, corridor confirmed — there is a midday stillness. The light falls clear and direct; it won't last. I went back to the cabin, took a length of bark cord from the doorsill bench, and walked the east slope again, this time with the knife.
+
+Found a young birch at the edge of the corridor, thumb-thick and green, still holding flex. Cut it at the base, stripped the side branches, bent it over the trail: a rough spring snare, nothing elaborate. I lashed the cord into a loop — ankle-height, just inside the pinch between the two deadfalls where the tracks ran. Set a bark trigger peg, notched it, bedded the foot into frozen ground.
+
+Whether it holds or breaks free on the first pull, I don't know. A deer is heavy and fast. But the snare is there, set where the tracks were, and that is the right answer to what this morning showed me.
+
+Came back to the cabin with cold hands and a quieter mind. The hare still hangs in the lean-to. This afternoon I'll tend the lamp and maybe rest. At dusk I'll skin.
