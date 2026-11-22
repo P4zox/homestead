@@ -27321,3 +27321,7 @@ Dipped the birch cup in. Stood at the open door a moment with the cup warm in bo
 
 Bones are spent now — strained and set aside. South face resin is waiting. The day is new and so is the warmth inside me.
 
+
+### 7:18 AM · South Face Sealed
+
+The morning air bites sharp as I step outside, breath pluming white. I had brought the bark pouch of pine resin in last night to keep it pliable — good foresight. Working west to east along the south timbers, I drag the heated blade tip along each gap, pressing softened resin in with a fingertip wrapped in spare bark. The south face catches full afternoon light, so the gaps had dried wider than the others; each one drinks the resin in without complaint. By the time I reach the corner post the pouch is nearly empty — a thin smear left, good for a single crack no more. I set it back on the shelf carefully. The cabin is sealed on all four faces now. I press my palm flat against the south wall and feel nothing through it — no seeping cold, no draft pulling at my hand. I go back inside and hold my fingers over the coals until they stop aching. Outside the window light is low and pale and the sky is a clean winter blue above the tree line. That is enough for this morning.
