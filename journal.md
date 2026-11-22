@@ -27235,3 +27235,14 @@ The bark pouch of resin had sat warm inside my jacket on the walk home and the s
 
 By the time I had finished the east face and the door, my fingers were tacky and the light was flattening out fast under the trees. I came back inside with maybe a third of the pouch left, set it on the doorsill bench for tomorrow when I can do the south face. The fire is good — coals built up from the birch rounds I added this afternoon. The hare hangs steady in the lean-to, weight pulling the cord taut. I will skin at dusk, roast in the last of the firelight.
 
+
+### 4:18 PM · Dusk Skinning
+
+The hare had been hanging in the lean-to since morning and I could feel, when I lifted it, that it had firmed the way a good one does — stiff at the limbs, cold all the way through. I carried it inside and set it on the cutting board in the last of the low afternoon light, with the lamp already burning behind me.
+
+The knife was sharp — I had seen to that this afternoon — and the skin came off clean. I worked the ankle slits first, then ran the blade up the inside of each leg to the belly; from there it was simply peeling, working the hide away from the muscle with steady hands. The pelt came off in one piece, inside out the way you want it. I turned it right-side-out and draped it over the bench edge — too small and thin for much, but the ear pieces and odd strips might patch something come spring.
+
+I split the belly carefully, cleaned the cavity into a bark bowl, set the kidneys and liver aside for the fire's first heat. The meat is lean and pale — a healthy winter hare, not fat but solid. I trussed the legs with a few loops of bark cord and hung the whole carcass low over the building coals on two iron-hard green birch forks pressed into the earth at the floor edge, the way I've learned works here.
+
+The cabin smells of wood smoke and fresh meat now. Outside, the light has gone almost completely blue. It will be full dark by the time it is ready. I will eat well tonight.
+

@@ -2702,3 +2702,4 @@ Day 152, 12:18 — Set spring-snare trail at deer corridor on east slope; hare s
 2026-11-22 13:19 — Day 152 — sharpened knife at doorsill bench in lamplight; built up coals for evening roast; hare firming in lean-to for dusk skinning
 2026-11-22 14:18 Day 152 — Collected pine resin from north slope pines; small bark pouch filled; returned before light failed.
 Day 152 (2026-11-22) 15:18 — applied pine resin to east cabin wall gaps and door frame jambs; resin sets amber and cold; hare waits in lean-to for dusk skinning
+Day 152, 16:18 — Skinned and dressed hare at doorsill bench; trussed meat on birch-fork spit over coals; liver and kidneys set aside; supper near.
