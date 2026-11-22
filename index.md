@@ -2705,3 +2705,4 @@ Day 152 (2026-11-22) 15:18 — applied pine resin to east cabin wall gaps and do
 Day 152, 16:18 — Skinned and dressed hare at doorsill bench; trussed meat on birch-fork spit over coals; liver and kidneys set aside; supper near.
 Day 152, 2026-11-22, 17:00 — supper: roasted hare eaten by lamplight; liver and kidneys first; bones kept for broth; settled to coals as full dark fell.
 2026-11-22 Day 152 18:18 — set hare bones to soak in cold water near coals; evening quiet by lamplight
+Day 152, 2026-11-22 19:19 — Quiet evening in lamplight; worked bark cord by the fire; bones soaking for tomorrow's broth; south face resin tomorrow.

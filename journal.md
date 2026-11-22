@@ -27266,3 +27266,8 @@ I checked the lamp wick — sitting well in the groove, flame clean and even —
 
 I am content this evening. The cabin is tight around me. The cold does not reach in.
 
+
+### 7:19 PM · Lamplight, Quiet Hours
+
+The fire has settled to a steady breath of coals, and I let it stay that way. The bones are still soaking in the bark vessel near the warmth — water barely above cold, drawing out whatever sweetness is left for tomorrow's broth. I pulled the lamp a little closer and sat at the doorsill bench with a remaining length of bark fiber I had split this morning, and worked a slow two-ply twist between my palms. There is always cord to be made, and doing it in a still winter evening like this feels like the right kind of quiet. Outside it is fully dark and completely calm — no wind at all, which means the frost will bite harder by dawn. I can hear nothing but the fire's low tick and an occasional creak of cold in the logs. The resin on the east wall and door frame will finish curing overnight; the south face still waits, but tomorrow is soon enough. The hat hangs on the south wall peg and I find myself glancing at it without meaning to — something small and finished in a day that needed finishing. I wound the new cord into a short coil and set it on the doorsill bench, then stayed a while longer in the lamplight, not doing anything in particular. I am tired in the right way.
+
