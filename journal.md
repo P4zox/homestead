@@ -27255,3 +27255,14 @@ I ate in lamplight. The hare came off the green-birch forks in four good pieces 
 
 The fire has settled to coals now, steady and orange. I am full and warm, which is not a small thing in the middle of hard winter. The hat hangs on the south wall peg where I put it this morning, complete and mine. The lamp burns without a flicker. The cabin holds the heat. I will sit a while longer with the coals, then sleep early — the south face resin and broth-bones wait for first light.
 
+
+### 6:18 PM · Bones to Soak
+
+Full dark came early, as it does in deep winter. I sat by the coals a while after supper — warm, full, listening to the last wood settle. The hare bones were still in the bark bowl on the floor beside my boot. I had meant to leave them until morning, but the fire was low enough to be quiet, the lamp was burning well, and there was a moment where beginning now felt right.
+
+I took the bark vessel to the door, tapped through the skin of ice on the stream bucket with one knuckle, and ladled cold water over the bones until they were well covered. Set the vessel close to the edge of the coals — not on them, just near enough that it will not freeze through the night. By morning the marrow will have loosened into the water and broth will be quick work: pour it into the birch cup, set it on the coals, and have something warm before I go out to the south face with the resin.
+
+I checked the lamp wick — sitting well in the groove, flame clean and even — and banked the fire with two slow-burning birch rounds from the bottom of the stack. The hat hangs on the south wall peg. The snares are set. The east wall is sealed. It was a full day, and tomorrow is already laid out: south face resin, broth from these bones, check the snares at first light.
+
+I am content this evening. The cabin is tight around me. The cold does not reach in.
+

@@ -12,3 +12,4 @@
 15:18 — applied pine resin to east cabin wall (gaps between log courses and floor frame junction) and door frame (top edge and both jambs); fingers tacky with resin; about one-third of pouch remaining for south face tomorrow; hare still in lean-to, dusk skinning ahead.
 16:18 — skinned hare at doorsill bench; meat on green-birch forks over coals; liver and kidneys set aside for first heat; supper near.
 17:00 — ate supper; liver and kidneys first from the fire; ate hare in lamplight as full dark came; bones set aside for broth tomorrow; settled to coals and early rest.
+18:18 — set hare bones to cold-soak near coals for tomorrow's broth; banked fire with two birch rounds; lamp burning well; settled for the evening.
