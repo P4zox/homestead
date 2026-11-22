@@ -27160,3 +27160,9 @@ My fingers were cold but careful. This is the morning I have been working toward
 ### 7:18 AM · Crown Seam Closed
 
 The light outside had gone from black to deep blue when I threaded the second length of bark cord and resumed. Twenty stitches in from the first light — now I picked up where I left off and worked steadily around the curve. The cabin was warming, birch pops from the fire, lampflame holding still. Each stitch pulled the crown edges in a little closer. By the time I had worked three-quarters of the way around, the dome had real shape: curved and dense, the fur folding outward at the seam in a soft ridge. I turned it in my hands. The last stitches went in just before the light fully brightened, and I tied off with a double half-hitch, tucking the cord end under two stitches to anchor it. Crown seam closed. The hat is not finished — ear flaps still rough-cut and unhemmed, brim will need a bark-cord drawstring — but the top of it holds now, like a small tent of pelt. I set it on the cutting board, crown-up, and rested a moment with my hands in my lap. It is good work.
+
+### 8:18 AM · Ear Flaps Hemmed
+
+The morning light came pale through the doorsill gap. I lifted the hat crown-up from the cutting board — solid, domed, the seam from last hour still holding its shape. The two ear flap squares lay beside it, rough-edged still, waiting.
+
+I took the left one first. Held it flat against the hats

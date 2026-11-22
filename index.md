@@ -2694,3 +2694,4 @@ Day 151, 2026-11-21 20:18 — Warmed and drank last cup of marrow stock (north l
 2026-11-21 23:18 Day 151 — settled into final sleep; coals holding from birch log; pelt on peg, needle threaded, knife sharp; hat cut at first light tomorrow
 2026-11-22 Day 152 06:18 — First Light, First Cut — cut crown panel and ear flaps from hare pelt; began crown seam with bone needle and bark cord; fur hat IN PROGRESS
 2026-11-22 Day 152 07:18 — Crown seam closed; fur hat dome holding shape; ear flaps rough-cut, brim drawstring yet to fit.
+Day 152, 08:18 — Trimmed and hemmed both ear flaps; hat nearly complete; brim drawstring to fit next.
