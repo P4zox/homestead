@@ -27166,3 +27166,11 @@ The light outside had gone from black to deep blue when I threaded the second le
 The morning light came pale through the doorsill gap. I lifted the hat crown-up from the cutting board — solid, domed, the seam from last hour still holding its shape. The two ear flap squares lay beside it, rough-edged still, waiting.
 
 I took the left one first. Held it flat against the hats
+### 9:18 AM · Hat Complete
+
+The last piece was the drawstring channel — a folded strip of spare pelt stitched along the inside brim, leaving a tunnel just wide enough for the cord to pass through. I threaded the bone needle with a fresh length of bark cord and worked twenty-six stitches, two passes, the edges lying even and close. Then I cut a cord length, sharpened a sliver of bone into a bodkin, and threaded the cord through the tunnel until it came out the far side. Knotted both ends so the cord could not pull back through the channel. Pulled the brim gently snug.
+
+I put the hat on. The ear flaps fell level, the crown sat warm, the brim drew close. I stood at the open door a moment — cold air on my face, the clearing white with frost — and felt the particular satisfaction of a thing made right from first cut to last stitch. The hare that became the pelt, the pelt that became a vest and mittens and insoles and now a hat: there is very little left to waste and I am glad of it.
+
+The hat hangs on the south wall peg now, where the raw pelt used to be. The cold storage is empty and the snares are set at the east deadfall. The natural next step is a walk out to check them.
+
