@@ -27337,3 +27337,10 @@ The spring snare at the deer corridor was empty. I checked the bend where I had 
 I stood there a moment in the cold. The valley below the deer path was deep in shadow, the sun still low, its light only catching the ridge above. A woodpecker somewhere in the pines — three taps, then silence. The stream, fully iced now, lay silent under the bench below.
 
 I came back down the slope, hands warm inside the mittens, face stinging pleasantly. Good morning's work: the snare is tended. If something comes tonight, it will find a better set.
+
+### 9:18 AM · Second Brick Done
+
+Back from the snare check with cold hands and a clear head, I settled near the coals and took up the tallow work. The second brick had been sitting in its bark mold since Day 150 — rendered fat pressed in layers, cooling a little more each night. This morning it was nearly firm all the way through, only the very center still holding a trace of give. I warmed my hands over the coals, then worked the brick methodically: tapped the edges level with the butt of the knife, smoothed the top face with the birch pelt smoother, pressed the last hollow out from the center with a slow steady thumb. By the time the sun was fully up over the pine ridge and the cabin walls had warmed to something you could touch without wincing, the brick was solid and cold and uniform — good dense tallow, clean, no streaks.
+
+I set it on the shelf beside the first brick, and beside the lamp. Two bricks now. That is weeks of lamp fuel, with some left over for boot treatment and binding. I pressed a thumb into each one to check the surface — both firm, both sound. Then I sat a moment on the doorsill bench with the door cracked, watching the pale morning light lie flat across the frost-covered ground and the shadows of the pines stretch long over the east bench. The cabin smelled of tallow and woodsmoke and old bark. Everything sealed. Everything quiet. A good hour to have spent inside.
+
