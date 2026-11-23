@@ -2721,3 +2721,4 @@ Day 153 (2026-11-23) 12:19 — checked east deadfall snare at noon; loop undistu
 Day 153, 2026-11-23 14:19 — made inner-bark shelf tray; scored and folded near hearthstone, bound corners with cord; set on doorsill bench holding needle, cord, pelt smoother.
 2026-11-23 Day 153 15:19 — ate early supper (last smoked velvet shanks + sorrel); dry stores now empty; fed before full dark
 2026-11-23 16:18 Day 153 — Amber Snare Check: evening walk to deer corridor; snare empty but fresh hare tracks at new angle; adjusted loop, returned by last light.
+2026-11-23 17:18 — Day 153 — sharpened knife by lamplight at dusk; dry stores empty; spring snare repositioned at new hare track line; waiting on tomorrow.

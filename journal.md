@@ -27414,3 +27414,14 @@ I crouched and read the prints for a moment. Not spooked — just angled differe
 
 By the time I started back down, the pines had gone dark against an orange sky. The cabin smoke rose straight up into still air. I got inside with fingers stinging, set my mittens by the hearthstone, and settled near the coals. The lamp threw steady light. Tomorrow, maybe.
 
+
+### 5:18 PM · Knife by Lamplight
+
+The sky had already gone from amber to deep blue-grey by the time I latched the door and fed a dry birch split to the coals. I took the knife from the doorsill bench and found the flat river stone I have kept since early autumn — good grit, smooth weight — and set to sharpening.
+
+The rhythm of it is settling work. The blade catches the lamplight as I draw it across the stone; a small scraping sound, steady and low, while the fire breathes behind me. Full dark outside now. The pines invisible except as a black edge against a sky that holds a little purple still.
+
+Dry stores empty after this evening's supper. Tomorrow I will check the spring snare at first light. The hare tracks were crossing at the new angle, and the loop is repositioned as well as I can judge. Some nights the waiting feels like uncertainty; tonight it does not. The cabin is warm, the coals will hold, and the day's work sits finished around me — boots treated, all four walls sealed, bark tray on the doorsill bench, pine resin in reserve.
+
+I will keep the blade moving until it catches the light the way I want. Then bank the coals, roll into the sleeping bag, let the dark have the rest.
+
