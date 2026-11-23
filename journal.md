@@ -27404,3 +27404,13 @@ The sorrel I stripped into ribbons and let sit near the coals until they wilted 
 
 There is something right about eating before the dark comes — a small act of readiness. The lamp is lit, coals are good, and now I am fed. The last of the velvet shanks is gone; the east bench sorrel is still producing, small handful by small handful. It is something.
 
+### 4:18 PM · Amber Snare Check
+
+The light was going amber when I decided I had time for one last look at the spring snare before full dark. The cabin was warm, coals settled, lamp already burning on the shelf — but the dry stores are empty now, and tomorrow I will want to know the corridor.
+
+I pulled on the fur hat and mittens and walked up the slope. The snow held footprints well in the cold; I could see my own tracks from the morning visit still sharp and clean beside newer ones. The snare itself was untouched — loop in position, trigger sound, nothing taken. But there in the approach, a fresh set of hare prints crossing at an angle I had not expected, well clear of the loop corridor. The animal had come near enough and veered off.
+
+I crouched and read the prints for a moment. Not spooked — just angled differently. I shifted the loop two finger-widths toward the natural line of the new tracks, repositioned the guide sticks, cleared a smear of ice from the trigger notch. It felt like a conversation more than a trap.
+
+By the time I started back down, the pines had gone dark against an orange sky. The cabin smoke rose straight up into still air. I got inside with fingers stinging, set my mittens by the hearthstone, and settled near the coals. The lamp threw steady light. Tomorrow, maybe.
+
