@@ -15,3 +15,4 @@
 18:18 — twisted a fresh skein of bark cord by lamplight at doorsill bench; two-ply, slow and even; lamp steady; coals banking behind; full dark outside, no sound; content and ready for the night.
 19:18 — shaped bone awl from spent hare leg shank by lamplight; scored and snapped to length, ground point on flat river stone, tallow-oiled; set beside bone needle in bark shelf tray; banking coals for sleep.
 20:19 — settled at doorsill bench in the late evening quiet; lamp burning low, coals banking; reflected on the full day — dry stores empty, spring snare repositioned toward new hare track; planned tomorrow's first moves (east snare, stream margin check); banked coals and turned wick low for sleep.
+21:19 — lamp thread-low, sleeping bag drawn up; lay in the quiet as banked coals held their last heat; full dark outside, complete winter silence; planned east snare and stream margin check at first light.

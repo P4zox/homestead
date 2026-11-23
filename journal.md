@@ -27454,3 +27454,16 @@ The cold is not going anywhere. Neither am I. That is the balance of winter: hol
 
 I will bank the coals to a long slow glow, turn the wick low, and sleep. The day was full. The night will be cold and good.
 
+
+### 9:19 PM · Night Silence Falls
+
+The lamp is down to its thinnest flame. I have moved from the doorsill bench into the sleeping bag, pulling the fur hat low over my ears and drawing the collar wrap up. The cabin smells of tallow and old smoke and the faint resin of pine — smells that have become, in a hundred and fifty-three days, the smell of home.
+
+Outside: nothing. No wind. The cold has gone so complete it has become a kind of silence all its own. I press my back against the birch plank floor and feel the last warmth rising from the hearthstone through the boards.
+
+The bone awl sits in the bark tray. Bone needle beside it. Pelt smoother. Things made and placed, waiting for tomorrow. Dry stores are empty, but the belly is not — the smoked shanks and the wilted sorrel sat well. Tomorrow: east snare, stream margin walk, and the spring snare on the deer corridor will want checking before the light goes flat again.
+
+I think there is a rhythm to all of this. Not one I invented but one I found — the rhythm of waking before dawn, moving through the cold, doing what the day asks, and lying down full and tired when dark comes. It was not always easy to trust that rhythm. It is easier now.
+
+The flame drops another hair. I let it go out on its own.
+
