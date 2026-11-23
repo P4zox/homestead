@@ -13,3 +13,4 @@
 16:18 — walked up deer corridor slope to check spring snare before dark; snare empty; fresh hare tracks crossing approach at new angle well clear of loop; shifted loop two finger-widths toward new track line, repositioned guide sticks, cleared ice from trigger notch; returned to cabin as sky went orange; mittens by hearthstone, lamp and coals steady.
 17:18 — sharpened knife by lamplight as full dark fell; flat river stone on doorsill bench, blade drawn slow and steady by coals; dry stores empty; spring snare repositioned; will bank coals and sleep soon.
 18:18 — twisted a fresh skein of bark cord by lamplight at doorsill bench; two-ply, slow and even; lamp steady; coals banking behind; full dark outside, no sound; content and ready for the night.
+19:18 — shaped bone awl from spent hare leg shank by lamplight; scored and snapped to length, ground point on flat river stone, tallow-oiled; set beside bone needle in bark shelf tray; banking coals for sleep.

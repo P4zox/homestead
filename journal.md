@@ -27430,3 +27430,14 @@ I will keep the blade moving until it catches the light the way I want. Then ban
 
 Full dark has settled over the clearing. I took the lamp to the doorsill bench and pulled a few strips from last week's bark bundle — two-ply twisting, slow and even, the kind of work that fits a long winter evening. The hands stay busy, the mind goes quiet. All four walls sealed, coals banking behind me, no draft anywhere. Outside, now and then, a soft fall of snow from a branch; otherwise total stillness. By the time the cord reached an arm's length I was simply content. Dry stores empty but snares set, wood past the eave, everything in order. This day finished full.
 
+
+### 7:18 PM · Bone Awl by Lamp
+
+After the cord was twisted I sat a while longer at the doorsill bench, lamp steady, the cabin settled and warm. The spent hare bones were still on the shelf where I had left them this morning after the broth — one leg shank with a dense, straight section I had been half-noticing all day. I lifted it into the lamplight, turned it over, and decided the evening was long enough to do something useful.
+
+I scored a groove around it with the knife tip and snapped it clean over the bench edge. The break was good — solid, no splay. Then I set to work with the flat river stone, holding the shaft at a low angle and scraping the tip in slow strokes. An awl is not a needle: it punches through leather rather than carrying thread, so the point can be a little stouter, a little less likely to snap under pressure. The grinding went slowly but the angle held true. After a time the point was fine enough to catch a fingernail without slipping.
+
+I tallow-oiled the shaft, wiped it clean on a bit of inner bark, and set it in the bark shelf tray beside the bone needle. They are a pair now — needle for thread, awl for leather. When the next pelt needs stitching or the boots need repair, I will not have to press the needle too hard and risk breaking it.
+
+Coals are low and orange. The lamp is burning steadily. Full dark outside and not a sound. I will bank the fire now and sleep.
+
