@@ -27425,3 +27425,8 @@ Dry stores empty after this evening's supper. Tomorrow I will check the spring s
 
 I will keep the blade moving until it catches the light the way I want. Then bank the coals, roll into the sleeping bag, let the dark have the rest.
 
+
+### 6:18 PM · Cord by Lamplight
+
+Full dark has settled over the clearing. I took the lamp to the doorsill bench and pulled a few strips from last week's bark bundle — two-ply twisting, slow and even, the kind of work that fits a long winter evening. The hands stay busy, the mind goes quiet. All four walls sealed, coals banking behind me, no draft anywhere. Outside, now and then, a soft fall of snow from a branch; otherwise total stillness. By the time the cord reached an arm's length I was simply content. Dry stores empty but snares set, wood past the eave, everything in order. This day finished full.
+
