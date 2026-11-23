@@ -27393,3 +27393,14 @@ It sits on the doorsill bench now, holding the bone needle and the last of the s
 
 The fire held steady through the afternoon. Outside, the sky had gone that pale gunmetal before the colour drains entirely from the winter day. I stayed inside and was glad of it.
 
+
+### 3:19 PM · Early Supper, Before Dark
+
+The light is already going low — the sky fading from pale blue to something thinner and more silver. By 18:00 it will be full dark, barely two hours away. I decided not to let supper creep toward darkness; better to eat while there is still a seam of daylight at the treeline.
+
+I broke open the last bark package of smoked velvet shanks. The smell when I unwrapped it — woodsmoke and something deep and earthy — filled the cabin for a moment. Set the shanks by the hearthstone to warm through slowly. While they heated I slipped out to the east bench, lifted the mulch at the near edge, and found the sorrel crowns still green underneath — pulled a small handful of leaves, crown untouched. The cold hit my bare fingers in those few seconds and I was glad to come back inside.
+
+The sorrel I stripped into ribbons and let sit near the coals until they wilted soft and bright. The shanks came apart easily once warm, tender and dense. I ate leaning against the cabin wall, feet toward the fire, the last daylight still holding in the high window.
+
+There is something right about eating before the dark comes — a small act of readiness. The lamp is lit, coals are good, and now I am fed. The last of the velvet shanks is gone; the east bench sorrel is still producing, small handful by small handful. It is something.
+
