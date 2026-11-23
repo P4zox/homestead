@@ -2712,3 +2712,4 @@ Day 152, 2026-11-22 20:18 — Evening: checked coals, added one birch round for 
 Day 152, 23:18 — Night Deepens Still: surfaced briefly in deep dark; coals held; lamp near out; bones soaking; pulled sleeping bag tight; fell back to sleep.
 2026-11-23 | Day 153 | 06:18 | Broth at Dawn — boiled overnight-soaked hare bones into morning broth at first light; stood at the open door with a warm cup as dawn broke pink above the pines; bones spent; south face resin ahead
 2026-11-23 Day 153 07:18 — sealed south face; cabin now fully sealed on all four sides; pine resin nearly spent
+2026-11-23 Day 153 08:00 — checked and reset spring snare at deer corridor; snare empty but reset with narrowed approach

@@ -27325,3 +27325,15 @@ Bones are spent now — strained and set aside. South face resin is waiting. The
 ### 7:18 AM · South Face Sealed
 
 The morning air bites sharp as I step outside, breath pluming white. I had brought the bark pouch of pine resin in last night to keep it pliable — good foresight. Working west to east along the south timbers, I drag the heated blade tip along each gap, pressing softened resin in with a fingertip wrapped in spare bark. The south face catches full afternoon light, so the gaps had dried wider than the others; each one drinks the resin in without complaint. By the time I reach the corner post the pouch is nearly empty — a thin smear left, good for a single crack no more. I set it back on the shelf carefully. The cabin is sealed on all four faces now. I press my palm flat against the south wall and feel nothing through it — no seeping cold, no draft pulling at my hand. I go back inside and hold my fingers over the coals until they stop aching. Outside the window light is low and pale and the sky is a clean winter blue above the tree line. That is enough for this morning.
+
+### 8:00 AM · Along the Deer Corridor
+
+I pulled on the full kit before stepping out — vest, collar wrap, hat pressed down over my ears, mittens on. The cold was immediate and total, the kind that finds every gap and settles there. My breath plumed thick in the still air.
+
+The path up the slope was frost-hard underfoot, the ground ringing faintly with each step. The pines stood quiet, their needles silvered. I went carefully — no ice on the stones yet, but the soil had no give, and the roots crossing the trail were slick in the shade.
+
+The spring snare at the deer corridor was empty. I checked the bend where I had set it — trigger stick in place, the loop swept aside by what looked like a passing hoof or a dragged branch. No blood, no fur. Something had walked through or near it without committing. I reset the loop, cleared the loose bark and needles that had drifted over the trigger, and leaned two sticks upright on either side of the trail to narrow the corridor just a little more.
+
+I stood there a moment in the cold. The valley below the deer path was deep in shadow, the sun still low, its light only catching the ridge above. A woodpecker somewhere in the pines — three taps, then silence. The stream, fully iced now, lay silent under the bench below.
+
+I came back down the slope, hands warm inside the mittens, face stinging pleasantly. Good morning's work: the snare is tended. If something comes tonight, it will find a better set.

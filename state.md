@@ -14,5 +14,5 @@ Garden: east bench — both plots leaf-mulched for winter; garlic and nettle cro
 Pending harvests: buried log — resting into winter after fourth flush Day 114
 Dry stores (inside): one bark package smoked velvet shanks remaining (south wall peg, above lamp shelf)
 Firewood: eave-high and past; ample dry birch and pine under eave; dry birch kindling stocked; abundant; woodstore checked sound Day 149 15:18
-Current focus: 07:18 Day 153 — south face sealed; cabin now fully sealed on all four faces; resin nearly spent; morning well under way; afternoon open
+Current focus: 08:00 Day 153 — checked spring snare at deer corridor; snare was empty; reset loop and narrowed corridor approach with guide sticks; snare well-tended; morning continuing
 Yesterday, in brief: Day 152 — completed the fur hat at first light, working crown seam, ear flaps, and brim drawstring through the morning hours; found a hare in the east deadfall snare and set a new spring snare at the deer corridor above the stream bend; harvested pine resin from the north slope and sealed the east wall and door frame against the cold; skinned and roasted the hare at dusk, eating well by lamplight; set the bones to cold-soak near the coals for broth, then settled through a quiet night with coals and lamp held steady.
