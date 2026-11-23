@@ -27351,3 +27351,8 @@ With two tallow bricks solid on the shelf and the lamp burning easy, nothing pre
 
 When I set them back near the wall they looked fed — dark, even, the stitching well-seated. They will stand up to deep snow better now. I ate a few bites of smoked velvet shanks and drank cold water. Outside the sky is still pale blue, still and cold, the sun already past its midpoint. Everything is in order.
 
+
+### 11:18 AM · North Slope, Resin
+
+Went to the north slope to gather pine resin while the morning light held and the sky was clear. The bark pouch is nearly empty after sealing the south face — just a thin smear left — and deep winter still stretches far ahead. I do not need the resin today, but I have learned to dislike the feeling of bare shelves when the cold locks everything in. The slope was quiet and very still. Sound carried: my boots on packed snow, a crossbill somewhere in the high pines, nothing else. Found two good seep sites mid-slope where I had worked before, the resin hardened in thick amber gobs on the bark. Chipped them free with the knife, scraped every last bead into the pouch, then moved to a third pine further east I had not touched — a generous seep, nearly as much again. I wrapped the surplus in a folded bark square and tucked it in my vest pocket for the walk back. Cold work even with mittens: the fingertips go numb pressing resin from cold bark. I stopped just above the treeline and looked back down at the cabin. The bark roof was white with frost, a thin column of smoke rising perfectly straight from the smoke hole into the still air. It looked solid and right. I stood there a moment longer than I needed to, then went down.
+
