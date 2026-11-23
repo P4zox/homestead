@@ -27480,3 +27480,14 @@ The cold outside is deep and still. No wind. Through the door seam, nothing move
 
 I let myself be glad. Dry stores empty, yes, but boots treated, all four walls sealed, awl made, cord wound, hat on the peg. A full day done cleanly. Sleep comes in around the edges. I let it.
 
+
+### 11:18 PM · Deep Winter Dark
+
+Midnight in the cabin, and I am nearly all the way gone into sleep. The lamp has been cold for over an hour — no glow at all from the wick now, nothing but the coal-smell lingering in the air. I surfaced once from first sleep, just briefly, the way you do when it is very cold and very quiet and something in your body checks before letting go entirely.
+
+Outside: nothing. No wind. The pines absolutely still. The kind of winter silence that feels less like absence and more like the land pressing close, holding its breath. Inside, the coals are banked far under their ash — not visible, not needed to look for — but the warmth they left in the floor planks comes up faintly through the sleeping bag. Months of work, and this is what it amounts to: a body warm in a cold world, walls that hold, a door latched on the dark.
+
+Fur hat pulled low, collar wrap tucked to the bridge of my nose. I ran through the day once quickly in the dark — boots treated, cabin sealed on all four faces, awl made, snares checked twice, dried stores eaten and gone, one good meal of velvet shanks and wilted sorrel. A full day, done. East snare at dawn. Stream margin after.
+
+Sleep draws me back down. I let it.
+

@@ -17,3 +17,4 @@
 20:19 — settled at doorsill bench in the late evening quiet; lamp burning low, coals banking; reflected on the full day — dry stores empty, spring snare repositioned toward new hare track; planned tomorrow's first moves (east snare, stream margin check); banked coals and turned wick low for sleep.
 21:19 — lamp thread-low, sleeping bag drawn up; lay in the quiet as banked coals held their last heat; full dark outside, complete winter silence; planned east snare and stream margin check at first light.
 22:00 — lamp went out quietly on its own; lay still in sleeping bag in full dark, coals deep under ash; reflected on the full day — boots treated, cabin sealed, awl made, all snares checked; let sleep come in around the edges.
+23:18 — midnight brief waking; lamp cold, coals deep under ash; full dark and silence; fur hat and collar wrap tucked close; let sleep draw me back down; east snare and stream margin walk at first light.

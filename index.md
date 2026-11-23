@@ -2727,3 +2727,4 @@ Day 153, 2026-11-23, 18:18 — twisted bark cord by lamplight at doorsill bench;
 2026-11-23 Day 153 20:19 — settled at doorsill bench by lamplight; dry stores empty; spring snare set toward new hare tracks; reflected on the full day before banking coals for sleep
 Day 153, 2026-11-23, 21:19 — night closed in; lamp thread-low, sleeping bag drawn up; coals held their last heat in deep winter silence; planned east snare and stream check at dawn.
 2026-11-23 Day 153 22:00 — lamp gone dark, lying still in sleeping bag as sleep arrives; full winter silence outside; east snare and stream check planned at dawn.
+2026-11-23 Day 153 23:18 — midnight brief waking; lamp cold, coals deep under ash; full winter dark and silence; fur hat and collar wrap drawn close; east snare and stream margin at dawn; slept.
