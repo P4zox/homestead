@@ -2716,3 +2716,4 @@ Day 152, 23:18 — Night Deepens Still: surfaced briefly in deep dark; coals hel
 Day 153, 09:18 — finished second tallow brick; set beside first on lamp shelf; two bricks now for weeks of lamp fuel and boot treatment.
 2026-11-23 Day 153 10:18 — boot leather treated with tallow; boots darkened and fed; cabin warm and in order
 2026-11-23 Day 153 11:18 — gathered pine resin from north slope; bark pouch filled and bark reserve packet stowed on shelf
+Day 153 (2026-11-23) 12:19 — checked east deadfall snare at noon; loop undisturbed, no catch; raised loop above settled crust, cleared drifted needles, reset; returned to cabin.

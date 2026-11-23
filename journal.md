@@ -27356,3 +27356,18 @@ When I set them back near the wall they looked fed — dark, even, the stitching
 
 Went to the north slope to gather pine resin while the morning light held and the sky was clear. The bark pouch is nearly empty after sealing the south face — just a thin smear left — and deep winter still stretches far ahead. I do not need the resin today, but I have learned to dislike the feeling of bare shelves when the cold locks everything in. The slope was quiet and very still. Sound carried: my boots on packed snow, a crossbill somewhere in the high pines, nothing else. Found two good seep sites mid-slope where I had worked before, the resin hardened in thick amber gobs on the bark. Chipped them free with the knife, scraped every last bead into the pouch, then moved to a third pine further east I had not touched — a generous seep, nearly as much again. I wrapped the surplus in a folded bark square and tucked it in my vest pocket for the walk back. Cold work even with mittens: the fingertips go numb pressing resin from cold bark. I stopped just above the treeline and looked back down at the cabin. The bark roof was white with frost, a thin column of smoke rising perfectly straight from the smoke hole into the still air. It looked solid and right. I stood there a moment longer than I needed to, then went down.
 
+
+### 12:19 PM · Noon Snare Walk
+
+The cabin was in full order and the noon light — low and sideways even at midday, throwing long shadows — was the right time to get out before the cold deepened again. I pulled on the full kit: vest, collar wrap, mittens, hat with the flaps down. Stepped out into the still air.
+
+The snow-crust had set overnight and held underfoot — each step a sharp creak but no breaking through. I followed my own worn track east along the treeline, past the birch stand, to where the deadfall log sits wedged between two roots.
+
+Empty. The loop hung exactly as I had left it, undisturbed. I crouched and checked the trigger — still set, dry, the toggle clean. No prints in the crust nearby. No tuft of fur caught on bark. Whatever range the hare from yesterday traveled, nothing had moved through here today.
+
+I adjusted the loop anyway: raised it one finger-width higher off the crust, which has settled a few finger-widths since I last calibrated it. Cleared a small windrow of pine needles that had drifted against the support stick. Then I stood and looked around — east toward the tree shadows, north toward the stream, the whole clearing flat and white under the pale winter sun.
+
+Nothing. But a tended snare is better than a neglected one. I turned back west, the low sun at my back, and came home to the coals.
+
+The broth from this morning still sits in the bark vessel by the hearthstone. Lamp burning. All four walls sealed against the cold. I simply have no hare today — but the trap is set and the day is long.
+

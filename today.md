@@ -6,3 +6,4 @@
 09:18 — finished second tallow brick; worked near the coals after snare check; tapped edges level, smoothed surface with pelt smoother, pressed out last hollow; brick firm and cold and solid; set on shelf beside first brick and lamp; two bricks now — weeks of fuel with surplus for boot treatment.
 10:18 — treated boots with tallow at hearthstone; pressed wedge of second brick into seams, toecap, and heel; leather darkened and softened; smoothed with pelt smoother; boots now tallow-treated against deep snow; ate smoked velvet shanks; cabin quiet, sky pale blue and still.
 11:18 — gathered pine resin from north slope; bark pouch filled, bark reserve packet stowed on shelf inside.
+12:19 — checked east deadfall snare at noon; loop undisturbed, no catch; raised loop one finger above settled snow crust, cleared pine needles drifted against support stick, reset; returned to cabin by low noon sun; broth still warm by hearthstone.
