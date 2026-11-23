@@ -7,3 +7,4 @@
 10:18 — treated boots with tallow at hearthstone; pressed wedge of second brick into seams, toecap, and heel; leather darkened and softened; smoothed with pelt smoother; boots now tallow-treated against deep snow; ate smoked velvet shanks; cabin quiet, sky pale blue and still.
 11:18 — gathered pine resin from north slope; bark pouch filled, bark reserve packet stowed on shelf inside.
 12:19 — checked east deadfall snare at noon; loop undisturbed, no catch; raised loop one finger above settled snow crust, cleared pine needles drifted against support stick, reset; returned to cabin by low noon sun; broth still warm by hearthstone.
+13:18 — walked to frozen stream; observed ice fully locked, hare tracks near willow stub and cattail stand (seventy paces from east snare); animals still moving in the area, shifting deeper and later; bird track crossing the ice; returned before light dropped; cabin smoke visible straight up from clearing.

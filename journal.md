@@ -27371,3 +27371,12 @@ Nothing. But a tended snare is better than a neglected one. I turned back west, 
 
 The broth from this morning still sits in the bark vessel by the hearthstone. Lamp burning. All four walls sealed against the cold. I simply have no hare today — but the trap is set and the day is long.
 
+
+### 1:18 PM · Along the Frozen Stream
+
+The light at noon was brief and low, and by one the shadows were already reaching across the snow from the tree line. I laced my tallow-treated boots and went out to the stream — not to do anything in particular, just to look.
+
+The ice is fully locked now, blue-white and matte where the snow has not settled on it. I stood at the bank and watched where the bubbles show deep under the surface, the current still moving below. A bird track ran in a double line across the ice to the far bank — some small thing, perhaps a wren, testing the crossing. I followed the edge upstream a little. Near where the cattail stand went dry in autumn, I found a fresh hare run in the snow: two sets of tracks, one coming down to the ice edge and retreating, another smaller set circling the base of a willow stub. The east snare sits maybe seventy paces back through the pines — the animals are still moving here, I think, only deeper in the shadows now, and later in the morning than before.
+
+I walked back slowly. The cold was bracing but not cruel. The cabin chimney sent a thin line of smoke straight up into the still air — I could see it from halfway across the clearing. That smoke, that straightness — something about it made me feel lucky. I am inside this life instead of watching it from somewhere else.
+
