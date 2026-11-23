@@ -27507,3 +27507,12 @@ I cleared the snare, reset the trigger, and walked the stream margin back toward
 
 Back at the cabin the hare hangs from the door peg now, stiff with cold, good for the day. Coals are breathing up into flame. First light is fully over the ridge and the sky is going pale blue above the pines, everything still and cold and mine.
 
+
+### 7:00 AM · Hare on the Board
+
+The hare had stiffened slightly in the cold by the time the light was proper for close work. I took it from the door peg and laid it on the cutting board at the doorsill bench — the bone awl and needle already there on the bark shelf tray beside me. The skinning went smoothly; the pelt came off whole, almost clean, belly fur thick and pale. I stretched it over a spare bark strip and hung it on the south wall peg, alongside the cured pelt already there.
+
+The meat is in the birch bowl now — hindquarters full and good. I will broth the spine and ribcage at midday, roast the haunches over the coals this evening. The bones will go a second round if I am patient, which I usually am.
+
+The cabin smells of raw fur and clean cold. Outside, the frost has not shifted. Good working weather, if you are inside.
+
