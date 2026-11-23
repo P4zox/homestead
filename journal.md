@@ -27467,3 +27467,16 @@ I think there is a rhythm to all of this. Not one I invented but one I found —
 
 The flame drops another hair. I let it go out on its own.
 
+
+### 10:00 PM · Lamp Gone Dark
+
+The lamp went out on its own — not a gutter, just a quiet end. The wick reached the last of the tallow and that was that, no fuss. I noticed it only by the absence of flicker on the ceiling. The coals are still there in the low light, banked deep under ash, letting off a dull orange around the edges that is almost nothing but enough to know the fire is not quite gone.
+
+I am lying still. Fur hat pulled low, collar wrap up over my chin, sleeping bag heavy across my chest. The whole cabin smells of pine resin and tallow and the faint sweetness of earlier broth. It is a good smell — lived-in, warm enough, proof that today happened.
+
+I think about the east snare. I think about the hare tracks near the willow stub, seventy paces away, the loop shifted this afternoon toward the new track line. Tomorrow at first light I will find out. That is the whole of my plan and it is enough — one walk at dawn, one check, and whatever the snare has to say.
+
+The cold outside is deep and still. No wind. Through the door seam, nothing moves. The pines must be standing absolutely motionless in the dark. I picture them: black shapes, frost on every needle, the whole slope silent under a hard sky. Somewhere out there the hare is moving, or not. Somewhere the stream is locked in ice, holding still until spring.
+
+I let myself be glad. Dry stores empty, yes, but boots treated, all four walls sealed, awl made, cord wound, hat on the peg. A full day done cleanly. Sleep comes in around the edges. I let it.
+
