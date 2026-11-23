@@ -27441,3 +27441,16 @@ I tallow-oiled the shaft, wiped it clean on a bit of inner bark, and set it in t
 
 Coals are low and orange. The lamp is burning steadily. Full dark outside and not a sound. I will bank the fire now and sleep.
 
+
+### 8:19 PM · Coals and Quiet
+
+The bone awl is set. Lamp burning low. The cabin holds a good silence tonight — the kind that comes after a full day, not the kind that comes from having nothing to do.
+
+I am sitting at the doorsill bench with the bark shelf tray in front of me: bone needle, bone awl, spare cord, pelt smoother. Tools I made from scratch, all of them. It is a good thing to look at.
+
+Dry stores are empty after supper. The spring snare is repositioned toward the new hare track line. Tomorrow I will walk the east deadfall snare first thing and check the stream margin — the hare tracks near the willow stub were fresh this afternoon, and animals still move before dawn if the cold is not too deep. The sorrel crown is intact under its mulch. There is broth left from morning and I could make another if a hare comes.
+
+The cold is not going anywhere. Neither am I. That is the balance of winter: hold your ground, stay warm, keep the snares set, wait with patience. The cabin is sealed on all four walls. The woodstore is eave-high. I have lamp fuel for weeks and boots treated against deep snow and a full cold-weather kit and a shelf of small tools and two bricks of tallow. It is enough. It is more than enough.
+
+I will bank the coals to a long slow glow, turn the wick low, and sleep. The day was full. The night will be cold and good.
+
