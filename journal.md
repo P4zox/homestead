@@ -27344,3 +27344,10 @@ Back from the snare check with cold hands and a clear head, I settled near the c
 
 I set it on the shelf beside the first brick, and beside the lamp. Two bricks now. That is weeks of lamp fuel, with some left over for boot treatment and binding. I pressed a thumb into each one to check the surface — both firm, both sound. Then I sat a moment on the doorsill bench with the door cracked, watching the pale morning light lie flat across the frost-covered ground and the shadows of the pines stretch long over the east bench. The cabin smelled of tallow and woodsmoke and old bark. Everything sealed. Everything quiet. A good hour to have spent inside.
 
+
+### 10:18 AM · Boot Leather
+
+With two tallow bricks solid on the shelf and the lamp burning easy, nothing pressed. But the boots have been waiting since I first thought about surplus tallow — and cold is hard on leather. I brought them to the hearthstone, shaved a small wedge from the second brick, and worked it into the seams with my thumb, pressing deep along the toecap and heel where water gets in soonest. The leather darkened and softened a little under the warmth of my hands and the coals. I turned each boot slowly, working every panel, smoothing where needed with the flat of the pelt smoother. An hour of quiet work, the cabin warm, the light lying low and pale through the gaps above the door.
+
+When I set them back near the wall they looked fed — dark, even, the stitching well-seated. They will stand up to deep snow better now. I ate a few bites of smoked velvet shanks and drank cold water. Outside the sky is still pale blue, still and cold, the sun already past its midpoint. Everything is in order.
+

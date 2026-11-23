@@ -2714,3 +2714,4 @@ Day 152, 23:18 — Night Deepens Still: surfaced briefly in deep dark; coals hel
 2026-11-23 Day 153 07:18 — sealed south face; cabin now fully sealed on all four sides; pine resin nearly spent
 2026-11-23 Day 153 08:00 — checked and reset spring snare at deer corridor; snare empty but reset with narrowed approach
 Day 153, 09:18 — finished second tallow brick; set beside first on lamp shelf; two bricks now for weeks of lamp fuel and boot treatment.
+2026-11-23 Day 153 10:18 — boot leather treated with tallow; boots darkened and fed; cabin warm and in order
