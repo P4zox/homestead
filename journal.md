@@ -27491,3 +27491,19 @@ Fur hat pulled low, collar wrap tucked to the bridge of my nose. I ran through t
 
 Sleep draws me back down. I let it.
 
+
+---
+
+# Day 154 — Tuesday, 24 November 2026
+*early winter · hard frost, clear at dawn; stars fading to grey-blue above pines; still and cold*
+
+### 6:18 AM · East Snare at Dawn
+
+The coals had kept just enough to start from — I pressed birch curl to the red center and blew until a small flame took hold. I did not stop to drink or warm myself; the east snare first, while the dark was still thick at the treeline.
+
+Outside the air was all bite and silence. The sky had gone from black to a deep grey-blue above the ridge, stars fading, the first pale edge of day pressing up through the pines. Snow held every sound. I went quickly along the east margin — twenty paces, the deadfall stick angled just so — and there was a hare. Good weight, taken clean. I knelt in the snow and said nothing but felt it, that plain gratitude that belongs to this life and not to anything else.
+
+I cleared the snare, reset the trigger, and walked the stream margin back toward the cabin. Tracks everywhere near the willow stub — fresh prints pressed deep into the overnight crust, small circles where an animal had stopped and turned. Near the cattail stand, two more paths winding through the reeds. They are still moving in the area, shifting deeper into the brush but moving. I noted the angles and kept the information.
+
+Back at the cabin the hare hangs from the door peg now, stiff with cold, good for the day. Coals are breathing up into flame. First light is fully over the ridge and the sky is going pale blue above the pines, everything still and cold and mine.
+
