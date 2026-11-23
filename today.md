@@ -8,3 +8,4 @@
 11:18 — gathered pine resin from north slope; bark pouch filled, bark reserve packet stowed on shelf inside.
 12:19 — checked east deadfall snare at noon; loop undisturbed, no catch; raised loop one finger above settled snow crust, cleared pine needles drifted against support stick, reset; returned to cabin by low noon sun; broth still warm by hearthstone.
 13:18 — walked to frozen stream; observed ice fully locked, hare tracks near willow stub and cattail stand (seventy paces from east snare); animals still moving in the area, shifting deeper and later; bird track crossing the ice; returned before light dropped; cabin smoke visible straight up from clearing.
+14:19 — made bark storage tray from inner birch bark reserve; scored fold lines, softened near hearthstone, folded edges, bound corners with bark cord strips; scraped edges smooth, tallow-rubbed face; tray set on doorsill bench holding bone needle, spare bark cord, and pelt smoother.

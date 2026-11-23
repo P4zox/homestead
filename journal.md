@@ -27380,3 +27380,16 @@ The ice is fully locked now, blue-white and matte where the snow has not settled
 
 I walked back slowly. The cold was bracing but not cruel. The cabin chimney sent a thin line of smoke straight up into the still air — I could see it from halfway across the clearing. That smoke, that straightness — something about it made me feel lucky. I am inside this life instead of watching it from somewhere else.
 
+
+### 2:19 PM · Afternoon Bark Tray
+
+By two in the afternoon the sun had already swung low behind the pines, and the light inside the cabin had gone amber and flat — the colour of late November mid-afternoon that never quite becomes noon. I had done my walking for the day. The stream, the snare rounds, the north slope. My legs knew it.
+
+I pulled one of the flat inner bark sheets from the reserve packet on the shelf. I have been meaning to make a small tray for the doorsill bench — a place to keep the bone needle, the spare cord, the pelt smoother, without them rolling onto the floor every time I open the door. The inner bark bends without cracking when it has been near warmth; I set the sheet face-down on the hearthstone for a few minutes to soften, then marked fold lines with the knife tip and bent the edges up, each corner notched so the fold would sit square.
+
+Binding the corners with strips of outer bark and a short length of two-ply cord, pressing each joint tight while the bark was still pliable. It cooled into shape in a quarter of an hour: a low, flat-sided tray, about the width of two hands. I scraped the rough edges smooth with the knife, rubbed a little tallow into the face.
+
+It sits on the doorsill bench now, holding the bone needle and the last of the spare cord and the pelt smoother, all in one place. A small thing. But there is a kind of order that makes a space feel kept rather than merely occupied, and that matters through a long winter.
+
+The fire held steady through the afternoon. Outside, the sky had gone that pale gunmetal before the colour drains entirely from the winter day. I stayed inside and was glad of it.
+
