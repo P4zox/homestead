@@ -27650,3 +27650,14 @@ I did not press deeply tonight. This was just the first conversation with it —
 
 The cabin is warm. Outside it is cold and absolutely dark and the pines are still. The lamp burns. I will finish the grain side tomorrow in full morning light when I can see the whole surface clearly. Tonight I only made a beginning.
 
+
+### 8:18 PM · Tools by Lamplight
+
+The lamp makes a small country of its own — warm and contained, smelling faintly of tallow and pine resin. Outside, the cold has gone absolute; not even wind comes through the chinking. The two pelts hang grain-side up on their south wall pegs, waiting. I will finish them in morning light, when my eyes are fresh and the angles read clearly.
+
+For now I drew the knife and axe close to the lamp. The knife edge still bites clean — good, no work needed beyond a wipe. The axe has worked hard wood all autumn and there is a small nick near the toe of the bit. I set it to the flat river stone with a little cold water, counting my strokes, keeping the angle steady. Twenty passes. I drag a thumbnail across the edge — the nick is gone, the line even again. Six more strokes each side on the finer face of the stone, then a draw along the rounded side to true the bevel. Both blades wiped. A thin smear of tallow along the iron to ward off the frost-damp that settles in the cabin walls before dawn.
+
+Good tools are half the work. When deep winter bears down and you need to drop a tree fast for warmth, the axe has to bite the first time — there is no patience left for a bad edge. So I do this in the quiet evenings, while there is time and the lamp is burning anyway.
+
+Coals banked deep. Both pelts hanging. Tomorrow morning: grain-side finish in full light. I will be up before the cabin warms.
+
