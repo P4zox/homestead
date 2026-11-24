@@ -27604,3 +27604,16 @@ Rehung it grain-side down for the evening. Tomorrow I will start on the grain si
 
 The hindquarters are in the bowl waiting. I banked two more birch sticks onto the coals before sitting down — the fire will be right for a roast at five. Dark comes at six, and there is nothing left to do but wait for the smell of meat in the cabin.
 
+
+### 4:18 PM · Light Before the Roast
+
+The light is at its lowest angle now, lying flat across the clearing and hitting the cabin wall just before it disappears. By eighteen hundred the sky will be fully dark, so I have been moving with that clock in mind.
+
+I banked the fire at three with two good birch sticks. By now the coals should be settled and ready. I went to the birch bowl on the bench and lifted the lid — the two hindquarters are still firm and cold, pale meat with a little fat at the edge. I brought them to the doorsill and laid them on the cutting board, then went inside and shifted the flat hearthstone closer to center, scraped the coals forward with the wooden scoop. The fire responded: a low sigh, a few tongues of flame at the edge. I added one split pine log on the left side — pine burns hotter and faster, good for starting a roast — and left the birch coals to deepen.
+
+The hindquarters went onto the spit-peg above the hearthstone. The smell started within minutes: hare fat hitting warm stone, something sweet and sharp. I will need to turn them once, maybe twice, before they are done.
+
+The fresh pelt hangs on the south wall peg grain-side down, cooling and resting. Tomorrow I will work the grain side — there is still a stiffness near the shoulder I want to work out before it cures completely. For now it looks like a pelt and smells like one: clean, faintly tallow-oiled, almost ready.
+
+Outside, the sky above the pines was going a pale copper color. I stood in the doorway for a moment and felt the cold on my face and the warmth on my back. That contrast is one of the better things about this hour.
+
