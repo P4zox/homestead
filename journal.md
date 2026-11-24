@@ -27697,3 +27697,14 @@ I rehung it on the second south wall peg beside the cured one. Two hare pelts, b
 
 The first thing I wanted to do this morning is done. The day can open from here.
 
+
+### 7:18 AM · Ice and Water
+
+The fire from the first hour still had good coals, and I fed it two more birch sticks before pulling on the fur vest and mittens and stepping out. Hard frost — every blade of dead grass white, every flat surface rimed. The sky had gone from pink to pale gold above the pines, and the air was absolutely still. Cold like this settles on you in layers. First the face, then the ears through the hat flaps, then the fingers even inside the mittens.
+
+The stream is fully iced now — has been for weeks — but the ice at the fetch-spot is thin enough that I know where to work. I brought the axe handle and used the butt-end to crack through, three careful strikes, until a dark opening appeared and cold water welled up. Filled both birch cups to the brim and carried them back without spilling, one in each hand, mittens off for the last few yards so I could feel what I was doing.
+
+Back inside, I set one cup near the edge of the fire and drank from the other cold — sharp and clean. There is a particular satisfaction to water that cost something. The frozen stream, the dark opening in the ice, the careful walk back. It is a small errand but it is real.
+
+The snare check is still ahead, mid-morning. I will give the fire another stick and let the second cup warm before I head out.
+
