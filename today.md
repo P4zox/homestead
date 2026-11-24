@@ -5,3 +5,4 @@
 08:00 — broke spine into sections, packed snow for meltwater, set bone broth on coals to simmer; spine and ribcage in pot; midday broth preparing slowly.
 09:18 — tended broth: skimmed foam with wooden scoop; harvested three sorrel leaves from east bench (mulch replaced over crown); added chopped sorrel to pot; fed fire two birch sticks; fresh pelt drying on south wall peg.
 10:18 — took fresh pelt from south wall peg; began membrane-side softening with birch pelt smoother on doorsill bench; long strokes from spine outward; rehung on south wall peg membrane-out to continue drying; broth stirred and tended.
+11:18 — strained bone broth (spine and ribcage, with sorrel); drank midday meal from birch serving bowl; bones left at tree line; continued fresh pelt membrane-side softening on doorsill bench (long and circular strokes); rehung pelt membrane-out on south wall peg; fed fire two birch sticks.

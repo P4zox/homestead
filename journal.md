@@ -27545,3 +27545,14 @@ There is something satisfying about this kind of work. The broth murmurs behind 
 
 The cured pelt hanging beside it — finished Day 151 — has gone a warm, even tan. That is what this new one is working toward. I rehung it on the south wall peg, membrane out to keep drying, then went back to stir the broth.
 
+
+### 11:18 AM · Broth at Midday
+
+By mid-morning the cabin was full of it — that deep, slightly sweet smell of bone broth, sorrel lifting through it like something waking up. I took the pot off the coals with both mittened hands, set it on the doorsill bench, and let it settle a moment before straining it through a fold of inner bark into the birch serving bowl. The bones came out soft-looking, colorless. I carried them out to the tree line and left them for whatever moves at night.
+
+Back inside I sat at the bench with the bowl cradled between my palms and drank it slowly, in small sips. It was hot enough that I had to wait between them. The sorrel had gone dark and soft, barely there, but you could taste it — a faint greenness against all that warmth. Three sorrel leaves does a lot for a pot of water and bones.
+
+After, I took the fresh pelt down from the south peg again and worked the membrane side with the smoother for another half hour — long strokes from the spine toward the edges, then circular passes over the haunches where the skin bunches. It is coming along. Not as supple as the cured one yet, but the membrane is thinning, the skin less stiff. I rehung it and fed the fire two more birch sticks. The hindquarters and haunches sit in the birch bowl, waiting for evening.
+
+The lamp is burning steady. The cabin holds its warmth well today — no draft from any corner. I noticed, turning back from the door, how even and solid it looks inside: the shelf tray, the tools in a row, the two pelts on the south peg, the floor planks pale in the firelight. It occurred to me that I have made a real interior here. Not just shelter. Something to come back to.
+
