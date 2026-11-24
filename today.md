@@ -16,3 +16,4 @@
 19:18 — took down fresh pelt (grain-side down since 15:18); began grain-side work by lamplight with birch pelt smoother; long strokes spine-outward, ~20 minutes; found tight spots at shoulder and rump; rehung grain-side up on second south wall peg; cabin warm and quiet.
 20:18 — drew knife and axe to lamplight; checked edges; worked axe nick out on flat stone (twenty passes, water, consistent angle); knife edge true; wiped both blades; rubbed thin tallow along iron against frost-damp; tools in order on shelf beside bone awl and needle; coals banked deep; pelts resting grain-side up for morning finish.
 21:18 — sat by lamp on doorsill bench; pelts resting grain-side up for morning; tools in order on shelf; coals banked; quiet before sleep.
+22:19 — settled into sleeping bag against log wall; lamp burning low; coals banked deep; pelts resting grain-side up on south wall pegs; tools in order on shelf; sleep close.

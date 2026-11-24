@@ -2744,3 +2744,4 @@ Day 154, 2026-11-24, 16:18 — Tended fire for evening roast; hindquarters on sp
 2026-11-24 19:18 Day 154 — began grain-side work on fresh pelt by lamplight; found tight spots at shoulder and rump; first pass done, rehung grain-side up for the night
 2026-11-24 20:18 Day 154 — sharpened axe (worked out nick on flat stone) and wiped knife by lamplight; tallow-rubbed both blades; tools in order on shelf; pelts resting grain-side up for morning finish.
 Day 154, 2026-11-24, 21:18 — Lamp-quiet before sleep; pelts grain-side up on pegs; tools in order; cabin warm and still.
+2026-11-24 22:19 Day 154 — settled in sleeping bag by lamplight; coals banked, pelts resting grain-side up, tools in order; quiet before sleep
