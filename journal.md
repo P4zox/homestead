@@ -27584,3 +27584,12 @@ Walked back through the clearing in the tilted afternoon light. Cold is deepenin
 
 For now — back inside. Bench, fire, the quiet turn of the afternoon.
 
+
+### 2:18 PM · Third Peg
+
+The afternoon has gone still and amber. Through the window gap the pines catch the light at a low angle now — by four it will be gone completely, the clearing going blue and cold.
+
+I turned a knot of birch I had kept on the shelf all week, working the small end down to a taper with the bone awl: score, press, rotate, score again. Twenty minutes of that and I had a peg worth driving. I found a gap in the south wall chinking high enough to clear the cured pelt and the new one both — knocked it in with the back of the axe, three measured taps, flush and snug. Now both pelts hang side by side on the south wall: the finished one dark and soft, the fresh one still pale and membrane-out, absorbing its tallow slowly. Tomorrow the grain-side work begins.
+
+The hindquarters are still in the birch bowl on the bench. In a few hours I will stoke the fire high and set them on the flat stone near the coals. That is the whole of the evening. The snares are where I left them. The cabin is as tight as I can make it. There is not much more to do before the dark comes down.
+
