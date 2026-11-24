@@ -2739,3 +2739,4 @@ Day 154, 13:18 — Afternoon snare walk; east snare empty but clean; two hare tr
 Day 154, 14:18 — drove third south-wall peg from birch knot; both pelts hanging side by side; grain-side work tomorrow; evening roast ~17:00.
 2026-11-24 15:18 Day 154 — final membrane-side pelt softening pass; fire banked for evening roast
 Day 154, 2026-11-24, 16:18 — Tended fire for evening roast; hindquarters on spit-peg above hearthstone; fresh pelt resting grain-side down; pale copper sky before dark.
+2026-11-24 17:00 — Day 154 — Evening roast done; ate both hare hindquarters in doorway as dark gathered; full and warm; pelt grain-side down, grain-work tomorrow.

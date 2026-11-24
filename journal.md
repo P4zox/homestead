@@ -27617,3 +27617,14 @@ The fresh pelt hangs on the south wall peg grain-side down, cooling and resting.
 
 Outside, the sky above the pines was going a pale copper color. I stood in the doorway for a moment and felt the cold on my face and the warmth on my back. That contrast is one of the better things about this hour.
 
+
+### 5:00 PM · Fat Dripping, Then Done
+
+Forty minutes over the coals. I turned the hindquarters once at the half-hour mark and again at five — skin gone dark and tight, pulling away from the joint, fat hissing into the hearthstone. I cut the near joint free with my knife and tested it: meat pulls clean and pale, the way it should. Done.
+
+Set both haunches in the birch serving bowl. Sat in the cabin doorway while they rested — cold pressing at my back, fire warmth pressing forward. The sky above the pines had gone from copper to deep blue by the time I stripped the first haunch to bone. Quick sky in winter. Full dark by the second piece.
+
+I ate the second one slowly, with a rolled sorrel leaf held against the last bite. That small green thing, still alive under the mulch while everything else is frost — I am glad I checked the east bench this morning.
+
+Full now. Genuinely full. Birch sticks banked over the coals, door bar dropped, lamp burning low. Fresh pelt hanging grain-side down on the south wall peg — tomorrow I begin that side, see what it wants to become. Tonight I do not need it to be anything.
+
