@@ -2731,3 +2731,4 @@ Day 153, 2026-11-23, 21:19 — night closed in; lamp thread-low, sleeping bag dr
 2026-11-24 Day 154 06:18 — East Snare at Dawn — found hare in east deadfall snare at first light; stream margin walked; fresh tracks at willow stub and cattail stand; hare hanging on door peg.
 Day 154, 07:00 — skinned morning hare on doorsill bench; pelt stretched on south wall peg; meat in birch bowl; plan midday broth and evening roast
 Day 154, 08:00 — set bone broth on coals to simmer; spine broken, snow-melt water in pot; midday meal preparing.
+2026-11-24 Day 154 09:18 — tended bone broth (skimmed, sorrel added from east bench); fire fed; fresh pelt drying on south wall

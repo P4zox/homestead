@@ -27525,3 +27525,12 @@ Two packed handfuls of snow from just outside the door, melted in the birch cup 
 
 The cabin already smells of warming bone and wood smoke. I laid a pine chip across the pot lip as a loose lid and let it go. No salt, never has been. You stop minding after a while. The marrow comes out into the broth and that is warmth enough.
 
+
+### 9:18 AM · Skimming the Broth
+
+The pot had been going since eight, and when I lifted the pine chip lid the cabin filled with a pale rising steam. The liquid had shifted from clear snow-melt to something amber and faintly clouded — good sign. A skim of foam had gathered at the edge. I drew it off carefully with the wooden scoop, tilting the bowl against the pot rim and pulling it back slow. The bones underneath sat quiet.
+
+I went out briefly to check the east bench. The sorrel is still alive under its leaf mulch — I never stop marveling at that. Three dark leaves, puckered and tough from repeated frost, pulled up clean. I tucked the mulch back around the crown and went inside before the cold settled into my wrists. Chopped the leaves small on the cutting board, let them fall into the pot. They will soften into almost nothing, but the flavor will stay.
+
+Fed the fire two sticks of dry birch and set the lid back. The fresh pelt on the south wall is drying well — the membrane side still cool to the touch but no longer cold. By evening it should be supple enough for a first pass with the smoother. The hindquarters sit in the bowl. Everything is ordered toward a good midday bowl and a proper roast at dark. The light is low and clean through the door crack, the kind of winter morning that feels almost like a gift.
+
