@@ -27569,3 +27569,18 @@ Rehung the pelt membrane-out on the south wall peg. It moves differently now whe
 
 Hindquarters still in the bowl. Fire steady. Afternoon ahead.
 
+
+### 1:18 PM · Afternoon Snare Walk
+
+The tallow needs time to work into the membrane, so I left the pelt hanging and stepped outside.
+
+The air hits immediately — that dry, biting cold of a clear winter noon, the kind that smells like stone and nothing else. Pale blue sky, sun already angling south and low, shadow of the pines reaching long across the clearing. Light all winter here comes in tilted, like it means to pass through rather than stay.
+
+Walked to the east snare first. No new catch — the trap reset clean from this morning, trigger still taut, bait untouched. Good. Tracks pressed into the snow around it, old ones and fresh ones overlaid. The hares are still moving in this area; they have not shifted further into the birch stand yet.
+
+Followed the stream margin toward the willow stub where I had noted the deep overnight tracks. The snow there is wind-scoured thin over frozen ground, and the prints are clear — two hares, different sizes, same general line. They work the edge where the cattail stalks break the wind, browsing the dried seed heads. The two snares I repositioned there are set at browse height, loop wide. I adjusted one slightly — the loop had caught on a willow twig and was no longer hanging free. Reset it, stepped back, checked the approach angle. It is right now.
+
+Walked back through the clearing in the tilted afternoon light. Cold is deepening already; the sun drops fast this time of year. Full dark will come around six. By then I will want the fire stoked, the hindquarters on to roast, the pelt brought down for another work session if the tallow has soaked in.
+
+For now — back inside. Bench, fire, the quiet turn of the afternoon.
+
