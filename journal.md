@@ -27516,3 +27516,12 @@ The meat is in the birch bowl now — hindquarters full and good. I will broth t
 
 The cabin smells of raw fur and clean cold. Outside, the frost has not shifted. Good working weather, if you are inside.
 
+
+### 8:00 AM · Broth on Early
+
+The cabin is warm and the hare sorted — hindquarters and haunches in the birch bowl, spine and ribcage set to one side of the bench. Outside the sky has gone from pink to pale blue, still and cold, frost absolute on every surface. I broke the spine into three short lengths with the back of the axe. It cracks clean in winter; the cold has set every joint tight.
+
+Two packed handfuls of snow from just outside the door, melted in the birch cup at the hearthstone, then tipped into the pot with the bones. The ribcage went in whole. I fed two dry birch splits to the coals, let them catch slowly, and set the pot level on the stones. It will take most of the morning — three hours at least before the marrow has given itself over to the water and the smell shifts from raw to something worth drinking.
+
+The cabin already smells of warming bone and wood smoke. I laid a pine chip across the pot lip as a loose lid and let it go. No salt, never has been. You stop minding after a while. The marrow comes out into the broth and that is warmth enough.
+
