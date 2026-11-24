@@ -27661,3 +27661,7 @@ Good tools are half the work. When deep winter bears down and you need to drop a
 
 Coals banked deep. Both pelts hanging. Tomorrow morning: grain-side finish in full light. I will be up before the cabin warms.
 
+
+### 9:18 PM · Lamp-Quiet
+
+The cabin is warm. Coals banked under their ash coat, the lamp flame barely moving in the still air. Both pelts hang on their pegs — the cured one resting, the fresh one grain-side up and ready for tomorrows
