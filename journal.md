@@ -27593,3 +27593,14 @@ I turned a knot of birch I had kept on the shelf all week, working the small end
 
 The hindquarters are still in the birch bowl on the bench. In a few hours I will stoke the fire high and set them on the flat stone near the coals. That is the whole of the evening. The snares are where I left them. The cabin is as tight as I can make it. There is not much more to do before the dark comes down.
 
+
+### 3:18 PM · Last Light, Pelt Work
+
+The cabin was warm and still at three. Light was already coming in flat through the south wall — that low winter angle that stretches shadows long and makes everything look farther than it is. The fresh pelt had been hanging membrane-out since midday, pulling in the tallow slowly. I took it down from the peg and brought it to the doorsill bench.
+
+It is coming along. The membrane side has gone from stiff and grey to something more pliable — still pale and chalky at the shoulder, but yielding when I press it with the smoother. I drew long strokes from the spine outward, then circles where the last stiffness sat. Twenty minutes, maybe more. When I held it up to the remaining south light the skin had a faint sheen that was not there this morning.
+
+Rehung it grain-side down for the evening. Tomorrow I will start on the grain side. That work is slower, more careful, but the pelt is close to ready.
+
+The hindquarters are in the bowl waiting. I banked two more birch sticks onto the coals before sitting down — the fire will be right for a roast at five. Dark comes at six, and there is nothing left to do but wait for the smell of meat in the cabin.
+

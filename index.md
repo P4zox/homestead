@@ -2737,3 +2737,4 @@ Day 154 10:18 — began membrane-side softening on fresh hare pelt with birch pe
 2026-11-24 12:19 Day 154 — Noon: tallow-oiled membrane patches on fresh pelt, worked with pelt smoother; pelt gaining drape; hindquarters in bowl for evening; fire steady.
 Day 154, 13:18 — Afternoon snare walk; east snare empty but clean; two hare tracks at willow stub / cattail stand; adjusted loop on repositioned snare; returned before light fades.
 Day 154, 14:18 — drove third south-wall peg from birch knot; both pelts hanging side by side; grain-side work tomorrow; evening roast ~17:00.
+2026-11-24 15:18 Day 154 — final membrane-side pelt softening pass; fire banked for evening roast
