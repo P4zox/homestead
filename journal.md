@@ -27556,3 +27556,16 @@ After, I took the fresh pelt down from the south peg again and worked the membra
 
 The lamp is burning steady. The cabin holds its warmth well today — no draft from any corner. I noticed, turning back from the door, how even and solid it looks inside: the shelf tray, the tools in a row, the two pelts on the south peg, the floor planks pale in the firelight. It occurred to me that I have made a real interior here. Not just shelter. Something to come back to.
 
+
+### 12:19 PM · Tallow and Membrane
+
+Took the fresh pelt down again at noon. The membrane side is making real progress — this morning's work at ten and eleven thinned it noticeably, the skin less stiff under my thumb, the surface starting to take on a chalky pale color instead of the tight translucent sheen of raw hide. That chalk is what I want. It means the fibers are loosening.
+
+I warmed a small amount of tallow against the lamp glass — just enough to soften it on my fingertips — and worked it in thin smears across the driest patches of membrane, the shoulder and rump areas where hide is thickest. Not much. Too much at this stage and the pelt takes grease before it has fully opened, and it sets stiff anyway from the inside. A light feed. Then the smoother again, long slow strokes from spine line outward, putting my weight into it at the hip and shoulder where the skin is densest. Twenty minutes, maybe more.
+
+The light outside is beautiful at this hour in late November — the sun so low it comes in almost sideways through the door gap, pale gold on the split-plank floor, cutting sharp shadows from every knot and grain line. I noticed it while I worked. That is the gift of slow hand work: the world has time to get in.
+
+Rehung the pelt membrane-out on the south wall peg. It moves differently now when I handle it — not stiff resistance but a slight give, the beginning of drape. Tomorrow or the next day I'll start working the grain side. If I keep this pace, it should be ready for use by the end of the week.
+
+Hindquarters still in the bowl. Fire steady. Afternoon ahead.
+

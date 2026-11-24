@@ -2734,3 +2734,4 @@ Day 154, 08:00 — set bone broth on coals to simmer; spine broken, snow-melt wa
 2026-11-24 Day 154 09:18 — tended bone broth (skimmed, sorrel added from east bench); fire fed; fresh pelt drying on south wall
 Day 154 10:18 — began membrane-side softening on fresh hare pelt with birch pelt smoother; broth simmering steadily toward midday.
 2026-11-24 11:18 — Day 154: strained and drank midday bone broth with sorrel; continued fresh pelt softening on doorsill bench; rehung pelt; cabin warm and in good order.
+2026-11-24 12:19 Day 154 — Noon: tallow-oiled membrane patches on fresh pelt, worked with pelt smoother; pelt gaining drape; hindquarters in bowl for evening; fire steady.
