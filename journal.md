@@ -27677,3 +27677,23 @@ I am full, I am not cold, and both pelts are drying properly. Tomorrow morning t
 
 Sleep.
 
+
+---
+
+# Day 155 — Wednesday, 25 November 2026
+*early winter · hard frost, clear at dawn; sky going pink above pines*
+
+### 6:18 AM · Grain-Side Done
+
+The fire had been breathing through the night. I could feel the warmth when I woke — not the cold-shock I sometimes got earlier in the season, but a steady held heat, coals doing their work. First light grey through the door crack.
+
+Both pelts were hanging grain-side up where I had left them, the fresh one still faintly damp at the rump seam. I took it down and carried it to the doorsill bench. The cabin was warm enough that my hands stayed supple, which matters for this work.
+
+Birch smoother, long strokes spine-outward. The grain side came alive fast — it had been resting all night, the tallow already worked in from last evening, and now under the smoother's weight it was giving. Shoulder patch softened by the eighth or ninth pass. I circled the rump stiffness until it went chalky-smooth, then ran the long strokes again from center out.
+
+I pressed a last thin smear of tallow into the rump seam with my thumb and finished with the smoother. The pelt lay draped over my knees with a slight waxy sheen — same look the cured one has. Done.
+
+I rehung it on the second south wall peg beside the cured one. Two hare pelts, both finished, hanging even on the wall. I fed the fire two birch sticks, then stood in the doorway with the cold on my face and the warmth at my back. Sky going pink above the ridge. Frost on every surface flat enough to hold it. Clear and still.
+
+The first thing I wanted to do this morning is done. The day can open from here.
+
