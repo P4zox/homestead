@@ -27534,3 +27534,14 @@ I went out briefly to check the east bench. The sorrel is still alive under its 
 
 Fed the fire two sticks of dry birch and set the lid back. The fresh pelt on the south wall is drying well — the membrane side still cool to the touch but no longer cold. By evening it should be supple enough for a first pass with the smoother. The hindquarters sit in the bowl. Everything is ordered toward a good midday bowl and a proper roast at dark. The light is low and clean through the door crack, the kind of winter morning that feels almost like a gift.
 
+
+### 10:18 AM · Working the Hide
+
+The broth has been going two hours now — coals set right, a steady simmer, the smell of hare and sorrel filling the cabin. I do not need to watch it every moment.
+
+I took the fresh pelt down from the south wall peg. The membrane side was still slightly cool to the touch — damp in a good way, still pliable. This is the window you want: not so wet it tears, not so dry it will not give. I settled onto the doorsill bench with the birch pelt smoother and worked in long strokes from the spine line outward, pressing the membrane flat and even. The smoother is exactly right for this — the flat edge moves the fibers without catching or stretching.
+
+There is something satisfying about this kind of work. The broth murmurs behind me. The light comes in low and pale through the door gap, lying flat across the bench. The first pelt took days of patience, and plenty of wrong passes before I understood the grain of it. This one I know better. The hide will need several sessions before it is truly soft, but beginning now, while it is still fresh, is what makes the difference between something stiff and something that moves.
+
+The cured pelt hanging beside it — finished Day 151 — has gone a warm, even tan. That is what this new one is working toward. I rehung it on the south wall peg, membrane out to keep drying, then went back to stir the broth.
+

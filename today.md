@@ -4,3 +4,4 @@
 07:00 — skinned the morning hare on the doorsill bench; pelt stretched and hanging on south wall peg alongside the cured one; meat in birch bowl (hindquarters, haunches, spine, ribcage); spine and ribcage set aside for midday broth, haunches for evening roast.
 08:00 — broke spine into sections, packed snow for meltwater, set bone broth on coals to simmer; spine and ribcage in pot; midday broth preparing slowly.
 09:18 — tended broth: skimmed foam with wooden scoop; harvested three sorrel leaves from east bench (mulch replaced over crown); added chopped sorrel to pot; fed fire two birch sticks; fresh pelt drying on south wall peg.
+10:18 — took fresh pelt from south wall peg; began membrane-side softening with birch pelt smoother on doorsill bench; long strokes from spine outward; rehung on south wall peg membrane-out to continue drying; broth stirred and tended.
