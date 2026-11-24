@@ -27668,3 +27668,12 @@ The cabin is warm. Coals banked under their ash coat, the lamp flame barely movi
 ### 10:19 PM · Coals and Quiet
 
 Ten o'clock. The lamp is a low orange eye at the center of the cabin, burning down slow. I am in the sleeping bag with my back against the log wall, watching the coal-glow pulse through the hearthstone gap — orange, fading, steady. Everything is in its place: both pelts grain-side up on the south wall pegs, tools on the shelf, the door bar dropped, the woodstore full under the eave. The day held more than I expected when it began at first light — a hare taken clean, broth and roast, membrane work and grain-side work by lamplight, the cord braided, the axe nick worked out on flat stone. It is enough. It is more than enough. Outside, frost will seal the clearing overnight. By morning the pelt will be ready for its last pass, and the day will come in cold and bright. I am tired in the way that is not trouble. The lamp will burn down on its own. Sleep is close.
+
+### 11:18 PM · Last of the Light
+
+The lamp is nearly out. I can hear the coals settle — a low tick in the quiet. Cold presses at the door, but inside it is just warm enough. The pelts hang on the south wall pegs, grain-side up, ready for morning; the tools sit in order on the shelf. Everything is as it should be.
+
+I am full, I am not cold, and both pelts are drying properly. Tomorrow morning the grain-side finish — if they come out right, two softened pelts ready for work. For now the lamp gutters and I let it. The day was long and good and I am glad to have lived it.
+
+Sleep.
+
