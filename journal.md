@@ -27639,3 +27639,14 @@ The two pelts hang side by side on the south wall peg — the cured one settled 
 
 The new cord grows slowly in my hands and that is fine. The lamp flame is low enough that I will not push late tonight. I let myself just sit here and braid and listen to the coals, and feel, quietly, that the day was a good one.
 
+
+### 7:18 PM · Grain Side, Lamplight
+
+Took down the fresh pelt from the south wall peg. It has been hanging grain-side down since the fifteen-o-clock pass, and the membrane work over the course of the day has left it noticeably more supple — when I fold a corner it no longer snaps back stiff, it falls. The lamp makes a small yellow circle on the doorsill bench. I turned the pelt grain-side up and sat with it in that circle.
+
+The grain side still has remnants of dried follicle along the spine ridge and a thin whitish film where the fur roots run thickest at the rump. I took the birch pelt smoother and began working in long strokes from the spine outward — the same motion I know from the membrane side, only lighter. What you are after on the grain side is different: not thinning so much as opening. The skin needs to brighten from its dull raw color to something warmer, more even. I found the tight spots quickly: the shoulder where the hide was thickest on the carcass, and a patch just below the rump where the drying pulled it slightly uneven.
+
+I did not press deeply tonight. This was just the first conversation with it — finding where it wants to hold and where it will give. By lamplight you feel as much as see. After perhaps twenty minutes I rehung it grain-side up on the second south wall peg and sat back.
+
+The cabin is warm. Outside it is cold and absolutely dark and the pines are still. The lamp burns. I will finish the grain side tomorrow in full morning light when I can see the whole surface clearly. Tonight I only made a beginning.
+

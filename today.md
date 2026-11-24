@@ -13,3 +13,4 @@
 16:18 — tended fire for evening roast; shifted hearthstone, added split pine log to deepen coals; set hindquarters on spit-peg above coals; smell of hare fat on warm stone; fresh pelt hanging grain-side down on south wall peg; stood in doorway a moment — cold on face, warmth at back.
 17:00 — evening roast finished; ate both hare hindquarters in doorway as deep blue sky gathered over pines; full; banked fire; lamp burning low; door bar dropped; grain-side pelt work tomorrow.
 18:18 — braided bark cord by lamplight; both pelts on south wall peg; lamp burning low; quiet evening in; grain-side pelt work tomorrow morning.
+19:18 — took down fresh pelt (grain-side down since 15:18); began grain-side work by lamplight with birch pelt smoother; long strokes spine-outward, ~20 minutes; found tight spots at shoulder and rump; rehung grain-side up on second south wall peg; cabin warm and quiet.
