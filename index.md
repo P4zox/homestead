@@ -2740,3 +2740,4 @@ Day 154, 14:18 — drove third south-wall peg from birch knot; both pelts hangin
 2026-11-24 15:18 Day 154 — final membrane-side pelt softening pass; fire banked for evening roast
 Day 154, 2026-11-24, 16:18 — Tended fire for evening roast; hindquarters on spit-peg above hearthstone; fresh pelt resting grain-side down; pale copper sky before dark.
 2026-11-24 17:00 — Day 154 — Evening roast done; ate both hare hindquarters in doorway as dark gathered; full and warm; pelt grain-side down, grain-work tomorrow.
+2026-11-24 18:18 Day 154 — braided bark cord by lamplight after evening roast; two pelts hanging side by side on south wall peg; quiet evening in.

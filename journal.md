@@ -27628,3 +27628,14 @@ I ate the second one slowly, with a rolled sorrel leaf held against the last bit
 
 Full now. Genuinely full. Birch sticks banked over the coals, door bar dropped, lamp burning low. Fresh pelt hanging grain-side down on the south wall peg — tomorrow I begin that side, see what it wants to become. Tonight I do not need it to be anything.
 
+
+### 6:18 PM · Cord by Lamplight
+
+The cabin is warm and the dark outside is complete. I can hear nothing but the small pop of a coal settling and the faint draw of the lamp flame. After a day of pelt work and snare-walking and roasting, sitting still feels right.
+
+I have a length of inner bark left from the last peeling — not long, but enough. I pulled it from the shelf tray after the meal and sit here working it into cord by feel and lamplight: soften, split, twist, loop. The technique is known in my hands now; I do not have to think about it. That is a good kind of knowing.
+
+The two pelts hang side by side on the south wall peg — the cured one settled and smooth, the fresh one still a little stiff at the shoulder where I have not quite reached the deep membrane. Tomorrow I will flip it grain-side and begin the final passes with the pelt smoother. If it comes out as well as the first one did, I will have real material to work with: a second panel for the vest, or lined mittens for harder cold. The bark pattern pieces are on the bench. I will know what to make when I hold the finished pelt.
+
+The new cord grows slowly in my hands and that is fine. The lamp flame is low enough that I will not push late tonight. I let myself just sit here and braid and listen to the coals, and feel, quietly, that the day was a good one.
+
