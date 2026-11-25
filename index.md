@@ -2750,3 +2750,4 @@ Day 154, 2026-11-24, 21:18 — Lamp-quiet before sleep; pelts grain-side up on p
 2026-11-25 07:18 Day 155 — broke stream ice; drew water in both birch cups; fire fed; snare check mid-morning
 Day 155, 08:18 — Snare check mid-morning: willow stub loop disturbed by hare (tracks, no catch; reset and approach twig placed); cattail stand untouched; no game.
 Day 155, 2026-11-25, 09:18 — Made birch bark lidded storage box for cold storage; fold-and-score inner bark, laced corners, tallow-rubbed exterior, snug-fitting tab lid; on doorsill bench.
+2026-11-25 Day 155 10:18 — walked cabin perimeter; checked all four wall base insulation layers; small frost-heave gap at west front corner pressed back and repacked; north/east/south faces intact; structure looks solid from clearing.

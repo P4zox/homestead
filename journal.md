@@ -27730,3 +27730,14 @@ By mid-morning it was sitting on the doorsill bench beside the shelf tray and cu
 
 Mid-afternoon I will check the snares. Until then the fire holds, the cabin is warm enough, and the morning is quietly good.
 
+
+### 10:18 AM · Walking the Walls
+
+After the box was finished and the fire settled to coals, I pulled on the mittens — still faintly damp at the cuffs but wearable — and went outside to walk the cabin perimeter. The air was sharp and absolutely still, frost unlifted on the north slope, sky pale blue above the treeline.
+
+I worked slow around all four walls, crouching at the base to press fingers into the moss and deadfall leaf layer. East face: solid. The leaves had compacted over the past weeks into a dense, slightly frozen mat — exactly what I want. South face the same, undisturbed. West face, near the front corner, one spot where frost had heaved a small gap, maybe two fingers wide at ground level. I pressed the moss back and tamped deadfall leaves in tight with my heel; it held. North face — the exposed wall, the one that worried me most coming into winter — intact. Chinking firm, insulation packed, no gaps. Everything I put in on Days 143 and 144 is still doing its work.
+
+I stood back at the edge of the clearing and looked at the cabin from the outside for the first time in days. Low and solid, bark roof catching the morning light at a flat angle, the woodstore full under the eave. It looked like something that would last a winter. That matters more to me right now than I would have expected it to.
+
+Back inside, mittens back on the drying rack. Fire needs two sticks.
+
