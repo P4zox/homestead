@@ -27840,3 +27840,12 @@ Back inside, I ran the bark cord one last time through my fingers — habit now,
 
 I settled onto the sleeping bag. The lamp is guttering, burning down on its own. Tomorrow will be cold and clear again. I am ready for it.
 
+
+### 10:18 PM · Lamp's Last Light
+
+The lamp has burned down to a low amber glow, the flame trembling just above the oil — barely enough to see the third pelt hanging still on its peg, the tallow soaking in quietly through the night. I am on the sleeping bag with my eyes half-open, watching the flame. The cabin holds its heat; the banked fire ticks somewhere under the ash. Outside the frost is absolute and the pines stand black and still against the dark. In here the walls do exactly what they were built to do.
+
+Tomorrow: grain-side on the third pelt at first light. That is all I need to carry into sleep.
+
+The flame blinks out. I let it.
+
