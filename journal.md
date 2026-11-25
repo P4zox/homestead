@@ -27741,3 +27741,13 @@ I stood back at the edge of the clearing and looked at the cabin from the outsid
 
 Back inside, mittens back on the drying rack. Fire needs two sticks.
 
+### 11:18 AM · Cattail Roots, Cold Mud
+
+The morning quieted after the perimeter walk. By eleven the sun was low but present, casting long pale shadows across the clearing. I decided it was time to try the cattail stand for roots.
+
+The cattail stand sits at the bend where the stream widens into a shallow marshy tongue before the main ice takes hold. I took the axe and the new bark box and walked down through the birch. The frost was absolute on the grass but softer near the water's edge where the shelf ice insulates the mud below.
+
+I worked the axe-butt through the shelf ice, then pulled roots freehand. Cold work — both hands in the icy muck, feeling for the rhizomes. I found a good handful: pale, starchy sections, dense and weighty, smelling of cold mud and winter marsh. Enough for a few meals.
+
+Rinsed them in the open water just upstream, packed them into the bark box, and carried everything back. The lid holds snug; the tallow rubbing has tightened the bark just right. I set the box outside the door in the cold — it works as a natural cold-larder, the first real use. Hands ached the whole walk back. Warm again now by the fire. I will slice the roots thin and simmer them this evening.
+
