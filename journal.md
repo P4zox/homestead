@@ -27751,3 +27751,7 @@ I worked the axe-butt through the shelf ice, then pulled roots freehand. Cold wo
 
 Rinsed them in the open water just upstream, packed them into the bark box, and carried everything back. The lid holds snug; the tallow rubbing has tightened the bark just right. I set the box outside the door in the cold — it works as a natural cold-larder, the first real use. Hands ached the whole walk back. Warm again now by the fire. I will slice the roots thin and simmer them this evening.
 
+
+### 12:18 PM · Root Work, Noon
+
+The bark box sat outside all morning in the frost, the cattail roots resting cold in their own mud rinse. At noon I brought half the bundle inside and settled on the doorsill bench. The bone awl edge strips the outer skin easily — the flesh underneath is pale ivory, firm, faintly sweet. I pulled the cores lengthwise and laid them in the birch bowl to drain. There is real starch in them; you can feel the density when you press a thumbnail in, see the cut face catch the lamplight with a faint sheen. The other half stays in the bark box outside — the frost is a better larder than any shelf by the fire. The lamp glows steady. Outside the sky has held pale blue all morning, frost unshifted, the sun lying low and slow across the pines. Dark comes early now. I will simmer the cores tonight with a cup of stream water and see what the mid-afternoon snare check adds to the pot.
