@@ -9,3 +9,4 @@
 12:18 — brought half cattail rhizomes inside at noon; stripped outer skins with bone awl edge; pale starchy cores laid in birch bowl; other half cold-stored in bark box outside door; roots ready for evening simmer.
 13:18 — mid-afternoon snare check: willow stub undisturbed; hare found at cattail stand snare — small, clean neck catch; carried back and hung from eave peg to bleed out in the frost; evening simmer planned with hare cuts and stripped cattail cores.
 14:18 — butchered hare at doorsill bench; pelt stretched on third south wall peg; hind legs and saddle plus cattail cores in birch bowl warming near fire; evening simmer ready to begin after dark.
+15:18 — started evening simmer; hind legs, saddle, and stripped cattail cores in vessel over coals; first bubbles rising; light going low outside; full dark by 18:00; fire needs two sticks in an hour to hold the heat.

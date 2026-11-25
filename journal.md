@@ -27777,3 +27777,14 @@ The fire had burned down to coals while I worked at the bench. Fed it back up wi
 
 Content, I think, is the word. A caught hare and a bowlful of cattail root on a hard frost day is a solid inventory.
 
+
+### 3:18 PM · Evening simmer begun
+
+The birch bowl has been sitting near the fire since the butchering — the hind legs and saddle gone from bone-cold to just warm, the fat on the saddle catching the firelight with a faint sheen. I lifted the vessel from its spot beside the hearthstones, poured in a fresh birch cup of water, and laid the pieces in: hind legs first to anchor the bottom, then the saddle on top, then the stripped cattail cores nestled around them like pale ribs. The whole thing fit neatly, nothing crowding.
+
+I moved the vessel over the coals and watched. The first small bubbles rose from the bottom inside a few minutes — not a boil, just the quiet beginning of things. That is how I like a simmer to start. I will feed the fire two sticks in an hour to keep the heat steady, and by the time full dark comes at six the broth should be deep and the meat pulling from the bone.
+
+The light outside is already laying low. The sky over the pines has gone from blue to that flat, fading almost-grey that late November does in the last hour before dusk — the sun not so much setting as giving up. I stood in the doorway for a moment and watched the clearing: the woodstore full under the eave, the bark box sitting outside the door with the remaining hare pieces and the last of the cattail reserve, the frost still holding on every surface it touched at dawn. It looked settled. It looked like enough.
+
+I noticed the fresh pelt on the third south wall peg while I passed — the pale edges where the membrane is still drying, the slight stiffness of a hide that has not yet been worked. Days of softening ahead. But it is on the peg, and that is where the work begins. For now, the simmer. The cabin smells of wet meat and woodsmoke, and outside everything is frost and silence.
+
