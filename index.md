@@ -2759,3 +2759,4 @@ Day 155, 14:18 — Butchered hare at doorsill bench; pelt stretched on third peg
 Day 155, 2026-11-25 16:18 — began membrane-side scraping on fresh third hare pelt while evening simmer runs over coals; amber dusk, full dark by 18:00.
 2026-11-25 Day 155 17:18 — simmer ready; ate hare hind cuts and cattail stew by lamplight; third pelt membrane-side advanced, shoulder patch remains; pelt resting on south wall peg
 Day 155, 18:18 — banked overnight fire; hare front portions on coals edge for slow morning hold; ash over main coals; third pelt resting on south wall peg; lamp steady; settled in for the night.
+2026-11-25 19:18 Day 155 — applied tallow to third pelt shoulder patch by lamplight; pelt rehung to soak overnight

@@ -27815,3 +27815,10 @@ The lamp burns small and steady on the bark shelf. I checked the bone needle, th
 
 Outside it is full dark and silent. Cold pressing at every wall, but the chinking holds and the birch plank floor does not breathe. I sat on the doorsill bench for a while just being inside with all of it — the lamp, the fire, the two finished pelts on their pegs, the vessel ticking as it cools to its slow hold. A quiet end to a full day.
 
+
+### 7:18 PM · Tallow by Lamplight
+
+Took the third pelt down from the south wall peg and brought it close to the lamp. The shoulder patch was still dry and a little stiff — I could feel it resisting when I pressed with my thumb. Worked a small smear of tallow into the patch in slow circles, thumb-pad pressure, until the leather went from pale to amber and the stiffness began to give. Not much tallow, just enough to feed the fibers through the dark hours. Rehung the pelt carefully on the peg. By first light it should be ready for the smoother — that last resistance gone, the grain-side work able to run clean all the way shoulder to rump.
+
+Outside is very still. Full dark, hard frost, not a sound from the trees. The lamp holds the room small and warm. The front portions are barely simmering at the coals edge. I am not ready to sleep yet — just sitting, hands resting, listening to nothing.
+
