@@ -2761,3 +2761,4 @@ Day 155, 2026-11-25 16:18 — began membrane-side scraping on fresh third hare p
 Day 155, 18:18 — banked overnight fire; hare front portions on coals edge for slow morning hold; ash over main coals; third pelt resting on south wall peg; lamp steady; settled in for the night.
 2026-11-25 19:18 Day 155 — applied tallow to third pelt shoulder patch by lamplight; pelt rehung to soak overnight
 2026-11-25 20:18 — Day 155 — inspected bark cord by lamplight, re-braided one soft spot; sat quiet with tools in order; pelt soaking, fire banked, all set for morning
+Day 155, 21:18 — quiet night close; stars bright over frost-rimed pines; bark cord final check; settled on sleeping bag; third pelt soaking, fire banked, front portions holding.

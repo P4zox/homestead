@@ -27831,3 +27831,12 @@ After that I simply sat. Tools on the bark tray in order: bone needle, bone awl,
 
 There is a satisfaction in a day that ends with everything in its place. I did not plan this life out carefully — I arrived with almost nothing and kept going — but most evenings now there is order: the wood under the eave, the food sorted, the tools tended, the lamp trimmed. That order took months to build. It still feels like something small and good to notice.
 
+
+### 9:18 PM · Night Stars, Still Cold
+
+Lamp burning low. Before I pulled the door fully closed, I stepped onto the doorsill and looked up. No moon yet. Stars very bright — the kind of clear that only comes with hard frost. The pines on the ridge had frost on every needle, faint silver against the dark. I stood there longer than I meant to.
+
+Back inside, I ran the bark cord one last time through my fingers — habit now, a final check before sleep. All firm and even. The front portions are holding at the coals edge, slow and steady. Third pelt soaking on the south wall peg in the dark, waiting for first light and grain-side work.
+
+I settled onto the sleeping bag. The lamp is guttering, burning down on its own. Tomorrow will be cold and clear again. I am ready for it.
+
