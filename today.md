@@ -17,3 +17,4 @@
 20:18 — inspected bark cord coil by lamplight; found one soft spot mid-length, re-braided a hand-length; rest of cord firm and even; tools checked on bark tray (needle, awl, smoother, spare cord — all in order); sat quietly; pelt soaking on peg, fire banked, front portions on coals edge; settled for the night.
 21:18 — stepped to doorway before sleep; stars very bright over frost-rimed pines, no moon; bark cord final check through fingers, all firm; settled on sleeping bag; lamp burning low to burn down on its own; third pelt grain-side at first light.
 22:18 — lamp burned down to last amber glow and blinked out; lying on sleeping bag in full dark; banked fire ticking under ash; third pelt grain-side at first light.
+23:18 — settled into sleep; lamp out; banked fire ticking under ash; sleeping bag warm; third pelt soaking on south wall peg; grain-side finish at first light.

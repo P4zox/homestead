@@ -27849,3 +27849,9 @@ Tomorrow: grain-side on the third pelt at first light. That is all I need to car
 
 The flame blinks out. I let it.
 
+### 11:18 PM · Into the Dark
+
+No lamp. No stars — the door is latched, the dark complete. The fire settles under ash, its slow ticking the only sound in the cabin. The sleeping bag is already warm from the hours before. Somewhere on the south wall peg, the third pelt soaks tallow into its shoulder through the night, slow and patient. It will be ready for the grain-side at first light.
+
+A day that filled itself cleanly: snares, a hare taken and butchered, simmer, bark cord, pelt work by lamplight. All of it done and resting. The dark asks nothing now, and I am glad of that. I close my eyes.
+
