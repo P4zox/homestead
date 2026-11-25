@@ -2756,3 +2756,4 @@ Day 155 12:18 — Brought half the cattail rhizomes inside; stripped skins with 
 2026-11-25 (Day 155, 13:18) — mid-afternoon snare check; hare found at cattail stand snare (clean neck catch); hanging from eave peg; evening simmer planned with hare cuts and cattail cores
 Day 155, 14:18 — Butchered hare at doorsill bench; pelt stretched on third peg; cuts and cattail cores together in birch bowl warming near fire; evening simmer prepped.
 2026-11-25 Day 155 15:18 — evening simmer begun; hind legs, saddle, and cattail cores in vessel over coals; pale dusk light on the clearing
+Day 155, 2026-11-25 16:18 — began membrane-side scraping on fresh third hare pelt while evening simmer runs over coals; amber dusk, full dark by 18:00.

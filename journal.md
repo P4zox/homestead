@@ -27788,3 +27788,12 @@ The light outside is already laying low. The sky over the pines has gone from bl
 
 I noticed the fresh pelt on the third south wall peg while I passed — the pale edges where the membrane is still drying, the slight stiffness of a hide that has not yet been worked. Days of softening ahead. But it is on the peg, and that is where the work begins. For now, the simmer. The cabin smells of wet meat and woodsmoke, and outside everything is frost and silence.
 
+
+### 4:18 PM · Pelt Work by the Simmer
+
+The stew has been rolling low since the last hour — fat rising, the smell shifting from raw to something richer. I have kept the fire steady with two sticks and left the vessel alone. It knows what it is doing.
+
+I took down the fresh third pelt from its peg and laid it grain-side down on the doorsill bench. It is only a few hours old, still supple — the membrane side slightly tacky where I had not touched it yet. I worked it with the birch smoother and the tip of the bone awl, pulling long strokes from the spine outward, the membrane coming away in thin sheets where it had not dried. The pelt goes taut, then releases. Cold and raw-smelling. Good.
+
+Amber light outside now, low and horizontal. The pines have gone dark silhouettes. In another hour it will be full night, and the meal will be ready. I will hang the pelt back when my hands cool too much to work it cleanly.
+
