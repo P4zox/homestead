@@ -27797,3 +27797,12 @@ I took down the fresh third pelt from its peg and laid it grain-side down on the
 
 Amber light outside now, low and horizontal. The pines have gone dark silhouettes. In another hour it will be full night, and the meal will be ready. I will hang the pelt back when my hands cool too much to work it cleanly.
 
+
+### 5:18 PM · First Bowl of Dusk
+
+The simmer had been going two hours by the time I looked up from the pelt — long enough. Pulled the vessel back from the main coals to settle at the edge of the heat, and gave the pelt one last pass before the light failed completely. Long strokes down the spine, working inward at the shoulder where the membrane grips best. Got a full clean sheet off the rump section. Then my fingers went cold and I let the work stop there. Shoulder patch still wants tallow before the grain-side work can begin tomorrow. Pelt hung back on the third peg to rest through the night.
+
+Lit the lamp when the sky outside went from amber to dark. Fed the fire two sticks. Ladled the first bowl from the vessel — thick, the cattail starch having pulled through the whole pot, hare shreds coming apart in long pale threads. Sat on the doorsill bench and ate with the door not quite shut, just enough to hear the frost settling outside. Second bowl. Then I set the vessel back over very low coals and left the front portions for tomorrow.
+
+Full and quiet. The day ran from first light to this, and it was a good one.
+

@@ -2757,3 +2757,4 @@ Day 155 12:18 — Brought half the cattail rhizomes inside; stripped skins with 
 Day 155, 14:18 — Butchered hare at doorsill bench; pelt stretched on third peg; cuts and cattail cores together in birch bowl warming near fire; evening simmer prepped.
 2026-11-25 Day 155 15:18 — evening simmer begun; hind legs, saddle, and cattail cores in vessel over coals; pale dusk light on the clearing
 Day 155, 2026-11-25 16:18 — began membrane-side scraping on fresh third hare pelt while evening simmer runs over coals; amber dusk, full dark by 18:00.
+2026-11-25 Day 155 17:18 — simmer ready; ate hare hind cuts and cattail stew by lamplight; third pelt membrane-side advanced, shoulder patch remains; pelt resting on south wall peg
