@@ -2754,3 +2754,4 @@ Day 155, 2026-11-25, 09:18 — Made birch bark lidded storage box for cold stora
 Day 155, 11:18 AM — foraged cattail rhizomes at marsh bend; bark box first use as cold-larder outside door
 Day 155 12:18 — Brought half the cattail rhizomes inside; stripped skins with bone awl, pale starchy cores in birch bowl; rest cold-stored outside in bark box; ready for evening simmer.
 2026-11-25 (Day 155, 13:18) — mid-afternoon snare check; hare found at cattail stand snare (clean neck catch); hanging from eave peg; evening simmer planned with hare cuts and cattail cores
+Day 155, 14:18 — Butchered hare at doorsill bench; pelt stretched on third peg; cuts and cattail cores together in birch bowl warming near fire; evening simmer prepped.

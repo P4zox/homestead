@@ -27764,3 +27764,16 @@ Found a hare at the cattail stand snare — small, clean neck catch, still. Carr
 
 The clearing was still and sharp and the sky enormous overhead. Good afternoon, as these cold afternoons go.
 
+
+### 2:18 PM · Dressed Out
+
+Took the hare down from the eave peg just past two. It had hung a full hour in the frost — firm, blood drawn clean through the neck catch, not a mark on the pelt. Good catch.
+
+I worked on the doorsill bench in the pale afternoon light. Knife through the fur at the hind legs first, then the peel — same motion I have done enough times now that my hands know the order. The cold makes the membrane taut, which helps. Pelt off in maybe five minutes. I stretched it loose over the third peg to look at later; it is a good one, clean and even.
+
+Butchered by quarters: hind legs and saddle for the simmer pot, the front legs and ribcage for now or tomorrow. The offal I set aside — liver and heart, both sound. Rinsed the cuts in the last of the morning water and laid them in the birch bowl with the stripped cattail cores. Everything ready for the fire after dark.
+
+The fire had burned down to coals while I worked at the bench. Fed it back up with two dry birch sticks. The light outside is already going low — that four o'clock slant that says the afternoon is finishing. Inside feels warm by contrast. I set the full birch bowl near the hearth to bring the meat and roots up from cold before simmering.
+
+Content, I think, is the word. A caught hare and a bowlful of cattail root on a hard frost day is a solid inventory.
+
