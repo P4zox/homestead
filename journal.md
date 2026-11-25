@@ -27806,3 +27806,12 @@ Lit the lamp when the sky outside went from amber to dark. Fed the fire two stic
 
 Full and quiet. The day ran from first light to this, and it was a good one.
 
+
+### 6:18 PM · Fire Banked, Night Set
+
+The cabin is warm and still. I moved the vessel — front portions still in the broth — to the cooler edge of the coals, away from the direct heat. Tomorrow's breakfast is set for a slow night hold. Then I drew the ash forward over the main coals, banking them low, just enough to hold through the dark hours without feeding. A night-fire like this keeps enough warmth in the logs that morning starts from an ember, not a flint.
+
+The lamp burns small and steady on the bark shelf. I checked the bone needle, the awl, the pelt smoother — all on the shelf tray where they belong. The third pelt hangs quiet on the south wall peg, resting. Shoulder patch still needs tallow before the grain-side work can start. That is tomorrow's first task, with good light.
+
+Outside it is full dark and silent. Cold pressing at every wall, but the chinking holds and the birch plank floor does not breathe. I sat on the doorsill bench for a while just being inside with all of it — the lamp, the fire, the two finished pelts on their pegs, the vessel ticking as it cools to its slow hold. A quiet end to a full day.
+
