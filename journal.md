@@ -27871,3 +27871,16 @@ Three pelts now. I hung the third between the other two on the south wall — th
 
 Fed the fire two birch sticks and stood in the doorway. Pink sky above the pines. Frost on every flat surface. The stream somewhere under its ice, invisible and silent. Day 156 beginning like the others — quiet, clear, cold, and mine.
 
+
+### 7:18 AM · Morning Broth, Still Cold
+
+The cabin was warm by the time I thought about eating — I had kept the fire high since first light, mostly for the pleasure of the heat as much as any task. But the body has its own clock. I pulled on the mittens and stepped out to the cold box.
+
+The bark lid was rimmed with frost where it meets the edge — a good seal. The front legs and ribcage from yesterday's hare were firm and cold-packed, exactly as they should be. I brought them inside, tucked the lid back down, and held the door closed a moment against the chill.
+
+Into the pot: the front legs split at the joint, the ribcage broken, water ladled from the morning's draw. While it came to a simmer I sliced two cattail rhizomes from the cold bundle, scraped off the outer fiber, and added them in chunks. They soften well with heat and add a starchy thickness to the broth.
+
+It did not take long. The cabin smelled of the forest — sweet wood smoke, meat, something almost earthy from the cattails. I ate from the birch bowl with the broth spoon, sitting near the fire. Warm all the way through.
+
+Three pelts on the south wall overhead, the fire steady, food in my stomach. Day 156, and the morning still young.
+

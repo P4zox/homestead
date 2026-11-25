@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — grain-side finish on third hare pelt; shoulder tallow soaked overnight, leather amber and supple; long strokes spine-outward with birch smoother, smooth grain throughout; third pelt complete; rehung on south wall peg between the other two; three full pelts on south wall now; fed fire two birch sticks; stood in doorway — pink sky above pines, hard frost on every surface.
+07:18 — morning meal; brought hare front legs and ribcage in from cold box; simmered with two cattail rhizomes; ate from birch bowl by the fire; cold box now holds remaining cattail rhizomes only; snare check still mid-morning.

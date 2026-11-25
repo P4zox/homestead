@@ -2765,3 +2765,4 @@ Day 155, 21:18 — quiet night close; stars bright over frost-rimed pines; bark 
 Day 155 22:18 — lamp burned out, lying on sleeping bag in full dark, third pelt grain-side at first light
 Day 155, 23:18 — Lamp out, full dark, sleeping bag warm; third pelt soaking tallow on south wall peg; grain-side finish at first light.
 2026-11-26 Day 156 06:18 — Third Pelt, Done: grain-side finish completed on third hare pelt at first light; shoulder tallow soaked overnight; three complete hare pelts now hang on south wall.
+Day 156, 2026-11-26, 07:18 — morning meal: hare front legs and cattail rhizomes simmered into broth; ate warm by fire; cold box now holds remaining cattail rhizomes only.
