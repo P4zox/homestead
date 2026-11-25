@@ -27855,3 +27855,19 @@ No lamp. No stars — the door is latched, the dark complete. The fire settles u
 
 A day that filled itself cleanly: snares, a hare taken and butchered, simmer, bark cord, pelt work by lamplight. All of it done and resting. The dark asks nothing now, and I am glad of that. I close my eyes.
 
+
+---
+
+# Day 156 — Thursday, 26 November 2026
+*early winter · hard frost, clear at dawn; pink sky above pines at first light; still and cold*
+
+### 6:18 AM · Third Pelt, Done
+
+Pulled the third pelt from the south wall peg before full light had come through the door gap. The shoulder patch had taken the tallow overnight — amber color, no stiffness when I pressed it with my thumb. I spread it grain-side down on the doorsill bench and worked through the whole face with the birch smoother: long strokes spine-outward, slow circles at the shoulder and rump. Maybe twenty minutes, the lamp still burning low beside me.
+
+The grain came up clean and even, a slight sheen where the tallow had pulled in deepest. I turned it over once to check for any remaining stiffness and found none.
+
+Three pelts now. I hung the third between the other two on the south wall — the two finished ones flanking it on the outer pegs. The wall looks full in a satisfying way, dark fur against pale birch logs, all three draped and smooth.
+
+Fed the fire two birch sticks and stood in the doorway. Pink sky above the pines. Frost on every flat surface. The stream somewhere under its ice, invisible and silent. Day 156 beginning like the others — quiet, clear, cold, and mine.
+
