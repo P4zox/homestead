@@ -2748,3 +2748,4 @@ Day 154, 2026-11-24, 21:18 — Lamp-quiet before sleep; pelts grain-side up on p
 2026-11-24 23:18 Day 154 — settled in sleeping bag; lamp nearly out; coals banked; pelts grain-side up drying; tools in order; end of a long and good day.
 [2026-11-25 06:18] Day 155 — Grain-Side Done: completed fresh hare pelt grain-side finish at first light; both pelts cured and hanging on south wall pegs.
 2026-11-25 07:18 Day 155 — broke stream ice; drew water in both birch cups; fire fed; snare check mid-morning
+Day 155, 08:18 — Snare check mid-morning: willow stub loop disturbed by hare (tracks, no catch; reset and approach twig placed); cattail stand untouched; no game.

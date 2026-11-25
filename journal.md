@@ -27708,3 +27708,12 @@ Back inside, I set one cup near the edge of the fire and drank from the other co
 
 The snare check is still ahead, mid-morning. I will give the fire another stick and let the second cup warm before I head out.
 
+
+### 8:18 AM · Morning Rounds
+
+The frost was absolute — every pine bough chalked white, every flat surface rimed. I followed the stream path south to the willow stub with my breath pluming steady ahead of me. Found the snare loop shifted: sitting at a tilt, the trigger nudged askew. Hare tracks pressed in the frost all around it, small neat prints circling the spot and then veering away. It had come that close and balked.
+
+I knelt, reset the loop level, bent a dry twig across the approach to narrow the path in. Then continued to the cattail stand — undisturbed, loop clean, no sign of passage nearby. The ground there stays open between the stripped stems and I wonder if it is too exposed now. I will give it another day before moving it.
+
+Back before the frost had fully lifted. Fed the fire two birch sticks, set the mittens near the warmth to dry the frost from the cuffs. The willow stub is the better spot. They are moving out there.
+
