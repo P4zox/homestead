@@ -27755,3 +27755,12 @@ Rinsed them in the open water just upstream, packed them into the bark box, and 
 ### 12:18 PM · Root Work, Noon
 
 The bark box sat outside all morning in the frost, the cattail roots resting cold in their own mud rinse. At noon I brought half the bundle inside and settled on the doorsill bench. The bone awl edge strips the outer skin easily — the flesh underneath is pale ivory, firm, faintly sweet. I pulled the cores lengthwise and laid them in the birch bowl to drain. There is real starch in them; you can feel the density when you press a thumbnail in, see the cut face catch the lamplight with a faint sheen. The other half stays in the bark box outside — the frost is a better larder than any shelf by the fire. The lamp glows steady. Outside the sky has held pale blue all morning, frost unshifted, the sun lying low and slow across the pines. Dark comes early now. I will simmer the cores tonight with a cup of stream water and see what the mid-afternoon snare check adds to the pot.
+
+### 1:18 PM · Catch at the Cattail Stand
+
+Went out for the mid-afternoon snare check as the low winter light was already tipping long and gold against the pines. The frost never lifts from the shaded spots in this season — north faces of every birch still white at this hour, the air biting enough to sting the cheeks above the collar wrap. Willow stub snare undisturbed; the reset loop from this morning still level, no fresh sign around it. Moved through the alder stand toward the cattail marsh.
+
+Found a hare at the cattail stand snare — small, clean neck catch, still. Carried it back over my shoulder, the cold keeping it firm, mittens warm. Hung it from the eave peg to bleed out in the frost. Third hare this week, though only two pelts cured so far on the south wall — this one will want working in a day or two, but tonight it is the cook that matters. The cattail cores already stripped and waiting pale in the birch bowl. Hare cuts into the simmer this evening, broth and starch together — a real supper.
+
+The clearing was still and sharp and the sky enormous overhead. Good afternoon, as these cold afternoons go.
+
