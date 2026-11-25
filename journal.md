@@ -27822,3 +27822,12 @@ Took the third pelt down from the south wall peg and brought it close to the lam
 
 Outside is very still. Full dark, hard frost, not a sound from the trees. The lamp holds the room small and warm. The front portions are barely simmering at the coals edge. I am not ready to sleep yet — just sitting, hands resting, listening to nothing.
 
+
+### 8:18 PM · Cord and Quiet
+
+The lamp makes a small amber world of the shelf and the pelt and my hands. Outside it is full dark and hard frost — not a sound except the occasional pop from the coals under their ash blanket. I pulled out the bark cord coil and sat with it on the doorsill bench, running lengths through my fingers to feel where the two-ply twist holds and where it wants to loosen. Found one soft spot about halfway through and re-braided a hand-length back. The rest is good — firm, even, the kind of cord that does not surprise you mid-task.
+
+After that I simply sat. Tools on the bark tray in order: bone needle, bone awl, pelt smoother, spare bits of cord. The third pelt hanging on its peg above, shoulder patch dark with tallow, soaking in. Front portions still on the coals edge, slow and low. Tomorrow morning: grain-side finish on the pelt at first light, check the snares, eat well.
+
+There is a satisfaction in a day that ends with everything in its place. I did not plan this life out carefully — I arrived with almost nothing and kept going — but most evenings now there is order: the wood under the eave, the food sorted, the tools tended, the lamp trimmed. That order took months to build. It still feels like something small and good to notice.
+
