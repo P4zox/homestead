@@ -27717,3 +27717,16 @@ I knelt, reset the loop level, bent a dry twig across the approach to narrow the
 
 Back before the frost had fully lifted. Fed the fire two birch sticks, set the mittens near the warmth to dry the frost from the cuffs. The willow stub is the better spot. They are moving out there.
 
+
+### 9:18 AM · Bark Box, Morning Fire
+
+Quiet after the snare round. The fire has settled to coals and I fed it two more birch sticks before sitting down. The light through the doorsill is flat and pale — the frost will not lift before early afternoon. The mittens hang near the fire drying. Both pelts are on their pegs, smooth-grained, finished. Everything in order.
+
+I keep turning over a small problem. When I catch a hare I eat it in one or two sittings, every piece used as it comes. That is fine, but if the snares run well — two in a day, or something heavier — I want to hold a portion overnight without it freezing into something I cannot work with. A bark box with a tight lid, set outside the doorsill in the cold and covered with a folded pelt, would let me do exactly that.
+
+I pulled a piece from the bark reserve packet and worked it near the fire while it was still pliable. Fold-and-score construction: knife lines for the creases, bone awl for the corner holes, bark cord laced and knotted at each corner. The body took close to forty minutes — four walls, a floor panel, corners pulled snug. Then a lid blank scored to match the opening, with a small tab fold at the front edge that catches on the rim when pressed down. I rubbed the outside face lightly with tallow to shed any melt-water.
+
+By mid-morning it was sitting on the doorsill bench beside the shelf tray and cutting board — small enough to hold a full hare portion, the lid closing firm. I set it there and looked at the row of birchwork: cups, bowls, spoon, scoop, smoother, tray, board, and now the box. Everything made from what the land offers, nothing wasted.
+
+Mid-afternoon I will check the snares. Until then the fire holds, the cabin is warm enough, and the morning is quietly good.
+
