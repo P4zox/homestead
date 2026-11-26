@@ -28024,3 +28024,12 @@ The marten snare is out there in the dark, upstream at the downed spruce. I'll k
 ### 9:00 PM · Outer Seams, Lamplight
 
 After laying the joined center pair aside at the last lamp trimming, I found I could not quite put the work down yet. The night is early enough — barely past nine — and the lamp flame is clean and steady. I drew the outer pelts in and pressed them membrane-side-up against the center join, checking the alignment by touch as much as by eye. The left outer seam went in easily; the edge matched clean and I whipstitched from top to hem with the bone needle and bark cord, working a rhythm that settled the cabin into quiet. By the time I reached the hem of the left side the join was solid. I spread the half-panel flat on my knee and checked it against the lamp — four pelts wide across the left and center now, only the right outer pelt remaining. I pinned the right edge loosely with a strand of bark cord to hold it overnight. Tomorrow's first light will close the panel completely. The fire is banked, the marten snare is upstream, and the lap panel lies flat on the bench beside me, nearly done.
+
+### 10:18 PM · Panel Closed
+
+The right outer pelt was waiting for morning, but it was not morning yet, and my hands were still warm from the lamp and the last seam had gone fast. I unpinned the bark cord, pressed the outer pelt membrane-down to the joined center, and drew the needle through. Twenty-two stitches, top to hem, pulling snug at each pass. The thread holds.
+
+I laid the finished panel across both knees and held it toward the lamp. Four pelts, four seams, all running true. The grain side is smooth and unmarked. I folded it once and set it on the doorsill bench beside the other tools — it looks like a thing that was made, which is what it is.
+
+It has been a long day of small steady work: the third pelt finished at dawn, the snare set before the cold found my fingers, the scraping and the notch-cutting and the stitching all the way to now. Everything lands in its place. The fire is banked and ticking down. Marten snare upstream in the dark, the spruce roots quiet over it. I will check at first light.
+
