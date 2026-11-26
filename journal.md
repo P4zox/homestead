@@ -28044,3 +28044,23 @@ Marten snare upstream at the downed spruce. Check at first light. I set it caref
 
 I blew the lamp.
 
+
+---
+
+# Day 157 — Friday, 27 November 2026
+*Early winter · hard frost, clear dawn, pink sky*
+
+### 6:18 AM · First Light at the Spruce
+
+Woke before full light, sleeping bag still warm around me, the cabin holding the banked fire's heat well. The folded lap panel caught my eye on the doorsill bench — four pelts joined, grain side smooth, all of it done — and then I remembered the marten snare upstream.
+
+Pulled on the full cold kit fast: boots, mittens, fur vest, hat. The cabin door opened on a hard frost morning, sky going pink-gold above the pines, the air so still it hurt to breathe through. Snow crystals catching the first light on the frozen stream. Everything quiet.
+
+Walked upstream along the frost-hard bank trail. Thirty paces to the downed spruce. Already I could see it — the trigger had fired. The entrance cord hung loose.
+
+And the marten was in the snare.
+
+A small male, dark brown with a pale chest patch, stiff with the cold. I dispatched him quickly, respectfully. Crouched there at the spruce root ball for a moment in the stillness before full light came — first catch of a new kind, the snare working exactly as I had hoped. Reset the trigger with the leftover bait, rebuilt the bark-chip roof where my hands had knocked it. The site still looks good; a fresh marten might find it tonight.
+
+Wrapped him in a fold of inner bark and carried him home. The sky was fully pink by the time I crossed the ice shelf at the stream bend.
+
