@@ -27991,3 +27991,12 @@ I tapped a fourth peg above the row on the south wall and hung it there. Four co
 
 Outside, full dark has arrived. The pine marten snare is set and resting in the frost upstream. The cold box holds hare portions and cattail rhizomes. The fire is fed. I let the quiet of a provisioned evening settle around me and thought of nothing pressing until morning.
 
+
+### 6:18 PM · Evening Broth, Four Pelts
+
+Full dark came on while the lamp was still lit from trimming at four — it always does now, comes fast and certain, sky gone lead then black before the work is done. I brought the hare front legs and ribcage in from the cold box, the meat cold and stiff, and laid them in the pot with the last of the cattail rhizomes from the remaining bundle. The broth took its time coming up. I ate from the birch bowl by the lamp, standing then sitting, the cabin warm around me.
+
+The four pelts hang in a row on the south wall — first hare, second, third, fourth — each one smoother than the last, something learned by hand each time. By the time I finished eating I found myself looking at them together, wondering at their combined span. A pelt panel — lap-width, seated-length — has been forming quietly in the back of my mind. Four hare pelts stitched together would cover something real, would add a layer I don't yet have. I didn't start stitching tonight. But I pulled two pelts from their pegs and laid them side by side on the floor to see. The thought is there now, working.
+
+The marten snare is upstream in the dark, set against the spruce roots. I'll know in the morning.
+
