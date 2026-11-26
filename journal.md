@@ -27892,3 +27892,18 @@ I reset the loop and walked back through the frost with the hare over one should
 
 Three finished pelts on the south wall, and a fourth begun. The cold box has meat again. It's a good mid-morning.
 
+
+### 9:18 AM · Walk to the Ice
+
+Needed water. The birch cups were nearly empty and I had not been to the stream since yesterday morning. I pulled on the fur vest and mittens and went out into the frost.
+
+The cold was absolute — the kind with no wind, no movement at all, just the air pressing in from every side. The ground rang underfoot where the soil had frozen through. I followed the path down through the birch run to the stream.
+
+Ice clear and thick at the edges, an inch at least. I found the breaking stone wedged where I left it under the alder root, struck three times, opened a hole wide enough to dip. Filled both cups. The water came up black and silent, still and cold as anything on earth.
+
+I looked around while I let the cups settle. Tracks in the frost along the bank — two sets of hare, the same birch run I snare — and a third I had to study: five toes, claw tips pressed clean into the frost skin. Pine marten. The tracks led upstream and vanished into the pines. Something else is hunting here.
+
+I stood longer than I meant to. The sky was pale blue all the way up, not a cloud. The pines along the slope were absolutely still. In deep winter the silence here has texture — not emptiness but weight, as if the cold holds everything in place and nothing is allowed to move without permission.
+
+Carried both cups back level, careful on the icy path. The fresh pelt still pinned flat on the block by the door. I will stretch it this evening when the fire is steady and the light is gone.
+
