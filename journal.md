@@ -27918,3 +27918,12 @@ I kept thinking about the pine marten tracks upstream. They ran along the bank i
 
 I did not go back out. That thought is for later days. For now: half the fourth pelt membrane-scraped, shoulder left for evening. The fire is low but warm. The morning is spending itself quietly.
 
+
+### 11:18 AM · Marten Sign, Upstream
+
+The shoulder of the pelt can wait — the hide needs rest before the next pass, and I had an itch to follow those tracks. I banked the fire, pulled my mittens on, and went back to the stream.
+
+The marten's trail was still there in the frost, pressed sharp into the crust. It had come down from the ridge timber, skipped across the iced narrows, and looped into the tall pines on the far bank. The stride was light and bounding — the way weasel-kin moves, covering ground fast, hunting along snags and root mounds. I followed it thirty paces upstream until it ducked under the roots of a downed spruce. That is the territory center.
+
+If I set a cubby there — a narrow box of bark and sticks funneling into a snare loop — the marten might walk into it on its own rounds. The setup would take half a morning. Good site. I turned back when the cold found my fingers even through the mittens.
+

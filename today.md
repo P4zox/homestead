@@ -4,3 +4,4 @@
 08:18 — mid-morning snare check; walked birch run; one hare caught in third snare between two birches at the run's narrowing; reset snares; gutted at chopping block; front legs and ribcage in cold box; pelt pinned flat on block for evening stretching; warm and provisioned.
 09:18 — walked to stream; broke ice, filled both birch cups; found pine marten tracks in frost along bank upstream from hare snares; carried water back; fresh pelt still pinned flat for evening stretching.
 10:18 — membrane-side scraping on fourth hare pelt; spine and flap end clean, shoulder left for evening; pine marten territory noted upstream; warm cabin work by the fire.
+11:18 — upstream scouting; followed pine marten tracks thirty paces from stream narrows to downed spruce; territory center under spruce roots; good cubby snare site identified; returned when cold found fingers through mittens.
