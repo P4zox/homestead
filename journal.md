@@ -27964,3 +27964,14 @@ I stand back three paces. The whole thing disappears into the spruce shadow as i
 
 Walked home fast to get warm again. The shoulder work on the fourth pelt is still waiting for lamplight this evening. The marten snare will answer at first light tomorrow, one way or another.
 
+
+### 3:18 PM · Last of the Membrane
+
+Sat by the fire with the fourth pelt across my knees. The shoulder patch had stiffened a little while I was away setting the snare — not badly, just the way cold leather goes tight when it has been ignored for a few hours. The light at this time of day comes through the door low and flat, the sun already angled toward the treeline, but it was good enough for close work.
+
+I took the bone awl handle-end and worked the shoulder slowly, pressing and pulling at the dried membrane, feeling for where it was still holding. The shoulder patch is thinner than the flank, more stubborn, wants patience over force. I went row by row with overlapping strokes, the same way I did the spine and flap this morning, until the last of the membrane lifted clean. Quarter of an hour, maybe a little more.
+
+Membrane side is fully done now. I pinned the pelt back on the block to flex and cool. Tonight by lamplight I will do the grain-side finish — long strokes spine-outward with the birch smoother, same as the other three. The fourth pelt should be complete before sleep.
+
+There is maybe an hour of useful daylight left. I will split a little kindling and top the lamp before it goes.
+

@@ -2773,3 +2773,4 @@ Day 156 (2026-11-26) 11:18 — scouted pine marten territory upstream; downed sp
 Day 156, 12:18 — Prepared cubby snare trigger components (birch pegs, notched cross-piece) by fire; ready for pine marten set at downed spruce upstream.
 2026-11-26 13:18 Day 156 — Finished cubby snare trigger; second notch complete, full assembly bundled and ready for upstream pine marten set at downed spruce.
 2026-11-26 14:18 Day 156 — Set pine marten cubby snare at downed spruce upstream; trigger clean, hare gut bait inside; home fast before cold took fingers.
+2026-11-26 15:18 Day 156 — shoulder scraping on fourth pelt complete; membrane side fully clean; grain-side finish set for lamplight
