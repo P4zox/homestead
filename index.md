@@ -2771,3 +2771,4 @@ Day 156, 2026-11-26 08:18 — Mid-morning snare check; one hare caught in birch 
 Day 156, 2026-11-26, 10:18 — membrane-side scraping begun on fourth hare pelt; shoulder left for evening; pine marten tracks upstream noted; warm cabin, quiet morning
 Day 156 (2026-11-26) 11:18 — scouted pine marten territory upstream; downed spruce root mound at narrows identified as cubby snare site
 Day 156, 12:18 — Prepared cubby snare trigger components (birch pegs, notched cross-piece) by fire; ready for pine marten set at downed spruce upstream.
+2026-11-26 13:18 Day 156 — Finished cubby snare trigger; second notch complete, full assembly bundled and ready for upstream pine marten set at downed spruce.

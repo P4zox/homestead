@@ -27940,3 +27940,14 @@ Outside, the winter noon light is already descending. Shadow of the pine ridge h
 
 I will finish the second notch, set the components on the doorsill bench, and carry them upstream on the next trip.
 
+
+### 1:18 PM · Trigger Ready
+
+The second notch is finished. I worked it with the bone awl in short careful strokes — dry birch splits clean if you go slow — until the crosspiece dropped flush and lifted without slipping. I tested the fit a dozen times before I trusted it. Set the upright peg, pressed the bar across the notch, let it stand on its own. It held.
+
+Then I cut a bark cord loop — thumb-length, doubled and knotted — and threaded it through the trigger bar hole I awled at noon. The whole assembly sits on the doorsill bench now: two upright pegs, notched crosspiece, cord loop. I bundled everything in a strip of inner bark so nothing shifts on the walk upstream.
+
+I will go before the light flattens. The downed spruce is thirty paces; I know exactly where the marten passed — a groove in the frost along the upstream bank, then a gap beneath the root mass. I will pile stones and sticks into a narrow channel, lay the trigger flat across the entrance, hang a scrap of hare lung from the crosspiece, stake the cord to a good heavy stick above. If the marten returns tonight — and it will return, they keep circuits — it will find the opening and not find the exit.
+
+The shoulder scraping on the fourth pelt is still waiting for this evening. That is enough for one afternoon.
+

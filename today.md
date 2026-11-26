@@ -6,3 +6,4 @@
 10:18 — membrane-side scraping on fourth hare pelt; spine and flap end clean, shoulder left for evening; pine marten territory noted upstream; warm cabin work by the fire.
 11:18 — upstream scouting; followed pine marten tracks thirty paces from stream narrows to downed spruce; territory center under spruce roots; good cubby snare site identified; returned when cold found fingers through mittens.
 12:18 — notch work by fire; dry birch sapling from door-stack; scored two upright pegs and notched cross-piece trigger with bone awl; first notch clean, second notch half-done; cubby snare components set aside on doorsill bench for upstream pine marten set.
+13:18 — finished second notch with bone awl; tested trigger assembly (peg, crosspiece, cord loop all fit); bundled in inner bark strip on doorsill bench; ready for upstream set before dark.
