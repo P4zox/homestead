@@ -2778,3 +2778,4 @@ Day 156, 12:18 — Prepared cubby snare trigger components (birch pegs, notched 
 Day 156 (2026-11-26) 17:18 — fourth hare pelt grain-side finish by lamplight; four complete pelts on south wall; evening provisioned and quiet
 2026-11-26 18:18 Day 156 — Evening broth simmered and eaten; four hare pelts laid out by lamplight; pelt lap panel taking shape in mind.
 2026-11-26 19:18 Day 156 — began center join on four-pelt lap panel by lamplight; first whipstitches clean; halfway down first seam
+2026-11-26 20:18 Day 156 — finished first center seam on four-pelt lap panel; outer joins remain.

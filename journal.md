@@ -28011,3 +28011,12 @@ I got halfway down the center join before I stopped to rest my eyes from the lam
 
 The lamp is steady. The fire is good. The marten snare waits upstream. I will sleep content.
 
+
+### 8:18 PM · First Seam Closed
+
+The cabin was quiet except for the small sounds of the lamp and the fire. I pressed both middle pelts flat on the floor, edges touching, and stitched down the second half of the center seam — matching each hole to its pair, pulling the bark cord snug but not tight enough to cut. By the time the join reached the hem, the stitch line was even all the way through. I pressed it flat with my thumb and held it up toward the lamp. Two pelts as one, the seam nearly invisible on the grain side.
+
+Laid them aside and looked at the remaining two. The outer joins will go in from both sides — the first pelt to the left edge of the joined center, the fourth to the right. Same method, same cord. The panel is coming together in my hands now; it has shape and weight.
+
+The marten snare is out there in the dark, upstream at the downed spruce. I'll know what it found at first light.
+
