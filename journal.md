@@ -27980,3 +27980,14 @@ There is maybe an hour of useful daylight left. I will split a little kindling a
 
 The light gave out early, as it always does in late November — by quarter past four the pines had gone to silhouette and the frost on the doorsill turned grey. I brought in three birch rounds from the woodstore, stacked them against the wall beside the fire stone. Then topped the lamp from the left tallow brick; the flame caught low, wandered once, and steadied. Trimmed the wick a touch with the knife-tip and the pool sharpened to a clean oval across the plank floor. Everything is laid in for the evening: the fourth pelt pinned flat and cooling, shoulder smooth and dry now after this afternoon's scraping, the birch smoother oiled and waiting on the shelf tray. I stood in the open door for a minute in the cold, watching the sky go pink-grey above the ridge. Hard frost already settling on the chopping block. The marten snare is in and I will not know anything till first light. The hares are caught and stored. For now there is only the warm cabin, the lamp, and work I know how to do. That is enough for a Thursday afternoon in deep November.
 
+
+### 5:18 PM · Fourth Pelt Finished
+
+The lamp made the whole cabin amber when I unpinned the fourth pelt from the chopping block and laid it grain-side-up on the cutting board. The membrane side had been finished this afternoon; now I owed the grain side the same long work.
+
+I ran the birch smoother in strokes from spine outward. The pelt was cooler than I'd have liked — the shoulder patch a little stiff against the flat — but after the first few passes it began to give. I worked a small amount of tallow into that shoulder area and kept going until all resistance left. By the time I finished, the grain was even and smooth, carrying the same slight sheen as the other three.
+
+I tapped a fourth peg above the row on the south wall and hung it there. Four complete pelts now in a line. Standing back to look at them in the lamplight, I let myself register what that means: a full season's patient work hanging dry and finished, against whatever the winter brings.
+
+Outside, full dark has arrived. The pine marten snare is set and resting in the frost upstream. The cold box holds hare portions and cattail rhizomes. The fire is fed. I let the quiet of a provisioned evening settle around me and thought of nothing pressing until morning.
+
