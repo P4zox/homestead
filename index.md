@@ -2766,3 +2766,4 @@ Day 155 22:18 — lamp burned out, lying on sleeping bag in full dark, third pel
 Day 155, 23:18 — Lamp out, full dark, sleeping bag warm; third pelt soaking tallow on south wall peg; grain-side finish at first light.
 2026-11-26 Day 156 06:18 — Third Pelt, Done: grain-side finish completed on third hare pelt at first light; shoulder tallow soaked overnight; three complete hare pelts now hang on south wall.
 Day 156, 2026-11-26, 07:18 — morning meal: hare front legs and cattail rhizomes simmered into broth; ate warm by fire; cold box now holds remaining cattail rhizomes only.
+Day 156, 2026-11-26 08:18 — Mid-morning snare check; one hare caught in birch run third snare; gutted and cold-stored; pelt pinned for evening stretching.

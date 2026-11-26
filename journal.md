@@ -27884,3 +27884,11 @@ It did not take long. The cabin smelled of the forest — sweet wood smoke, meat
 
 Three pelts on the south wall overhead, the fire steady, food in my stomach. Day 156, and the morning still young.
 
+### 8:18 AM · Hare on the Line
+
+The mid-morning snare walk took a quarter-hour — along the birch run with the pines pressing quiet on either side, every bootprint sharp in the crusted frost. First snare empty, cord still set. The willow stub had a fresh print beside it; a hare had circled, thought better of it, moved on. Third snare, the one I wedged between two birches at the run's narrowing, had caught one. It lay still, already cold.
+
+I reset the loop and walked back through the frost with the hare over one shoulder. At the chopping block I gutted it quickly while my hands were still limber, then slid the front legs and ribcage into the cold box. The pelt I've pinned out flat on the block for now — in this cold it'll set before I move it to the working peg this evening.
+
+Three finished pelts on the south wall, and a fourth begun. The cold box has meat again. It's a good mid-morning.
+
