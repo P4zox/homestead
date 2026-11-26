@@ -28000,3 +28000,14 @@ The four pelts hang in a row on the south wall — first hare, second, third, fo
 
 The marten snare is upstream in the dark, set against the spruce roots. I'll know in the morning.
 
+
+### 7:18 PM · First Stitches
+
+After the broth I left the four pelts on the floor and sat with them awhile, just looking. Four hares, four mornings, four careful scrapings by the fire. Laid out fur-down in lamplight they form a rough square — slightly wider than my lap, long enough to drape past my knees. That is the panel I want.
+
+I started from the center join. Pressed the two middle pelts edge-to-edge, membrane sides up, and ran a finger along the seam to find where they married cleanest. Then I took needle and cord and began the whipstitch — small bites, pulled snug but not tight, working heel-to-tip down the join. The first few stitches were uncertain; by the tenth my fingers remembered the rhythm.
+
+I got halfway down the center join before I stopped to rest my eyes from the lamplight. The seam is clean where it is done. Tomorrow by lamplight — or when cold keeps me inside — I will finish the center join and begin the outer two. Four panels will become one. The idea of it, draped over my lap on a hard-frost evening, feels almost luxurious.
+
+The lamp is steady. The fire is good. The marten snare waits upstream. I will sleep content.
+
