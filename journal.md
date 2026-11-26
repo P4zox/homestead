@@ -28064,3 +28064,12 @@ A small male, dark brown with a pale chest patch, stiff with the cold. I dispatc
 
 Wrapped him in a fold of inner bark and carried him home. The sky was fully pink by the time I crossed the ice shelf at the stream bend.
 
+
+### 7:19 AM · First Butchering
+
+The lamp threw an orange circle on the floor as I unrolled the bark bundle. The marten was still almost warm — not stiff yet, which is what I had hoped for. I hung it by the hocks from the ridgepole peg and started at the ankles, working the hide away with slow careful strokes. Pine marten fur is something else: a dense underfur that traps air like a small cloud, and long guard hairs that caught the lamplight amber. I kept the blade low and angled out, let the tip do the separating rather than pressing. It came away clean — no nicks in the hide and none in the meat.
+
+The carcass is lean but honest. I portioned it on the cutting board: two hindquarters and the backstrap, all into the cold box outside the door. The offal and bones I carried to the treeline and buried at the frost line — a brief errand in the sharp morning air, sky going pale blue above the pines, breath coming out in plumes. The pelt is laid grain-side-up on the doorsill bench now, worked open and cooling. I need to carve a stretcher frame before it sets — a task for the next hour or so, while the wood and hide are both cooperating.
+
+There is something satisfying about butchering cleanly. No waste, no torn hide, the work ending tidy. The cabin smells a little of fresh game now but the lamp and the pine push it back. A good morning.
+

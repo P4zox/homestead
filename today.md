@@ -1,2 +1,3 @@
 # today.md — today's actions, in detail (cleared each new morning)
 06:18 — first light; walked upstream to downed spruce cubby; trigger had fired — pine marten in snare (small male, dark brown, pale chest patch); dispatched, snare reset with leftover bait, bark-chip roof rebuilt; marten bundled in inner bark and carried back to cabin; sky fully pink at the stream bend; butchering and pelt stretching ahead.
+07:19 — butchered pine marten at the lamp; pelt removed clean, laid grain-side-up on doorsill bench to cool; hindquarters and backstrap portioned and cold-boxed outside door; offal and bones buried at treeline; stretcher frame carving next while pelt is still supple.
