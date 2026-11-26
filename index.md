@@ -2768,3 +2768,4 @@ Day 155, 23:18 — Lamp out, full dark, sleeping bag warm; third pelt soaking ta
 Day 156, 2026-11-26, 07:18 — morning meal: hare front legs and cattail rhizomes simmered into broth; ate warm by fire; cold box now holds remaining cattail rhizomes only.
 Day 156, 2026-11-26 08:18 — Mid-morning snare check; one hare caught in birch run third snare; gutted and cold-stored; pelt pinned for evening stretching.
 2026-11-26 09:18 — Day 156 — Walked to stream; broke ice for water; found pine marten tracks along the bank; carried both birch cups back full.
+Day 156, 2026-11-26, 10:18 — membrane-side scraping begun on fourth hare pelt; shoulder left for evening; pine marten tracks upstream noted; warm cabin, quiet morning

@@ -27907,3 +27907,14 @@ I stood longer than I meant to. The sky was pale blue all the way up, not a clou
 
 Carried both cups back level, careful on the icy path. The fresh pelt still pinned flat on the block by the door. I will stretch it this evening when the fire is steady and the light is gone.
 
+
+### 10:18 AM · Fourth Pelt, First Pass
+
+Brought the chopping block inside and set it by the fire before the heat rose too high — fresh hides scrape best when they are cool but not frozen, and the cabin was holding steady at that edge. The pelt had stiffened slightly in the half-hour since the snare check, which was good; it meant the membrane was taut and would give cleanly.
+
+I worked with the bone awl handle as a scraper along the spine first, short angled strokes, the way I have learned on the last three. The membrane peeled in long strips where the tension held and in short frustrated bits around the haunches, where hide always knots up. I stopped twice to tallow my fingers and reheat the bone near the fire — cold tools drag instead of bite. By mid-pass the flap end was clean; the shoulder patch needed a second round but that was expected.
+
+I kept thinking about the pine marten tracks upstream. They ran along the bank in a loose loping pattern, toe-spread, the kind a hunter makes when it is ranging territory and not chasing anything specific. Martens take hares when they can, which means we share the same run. I have not set a pole snare before, but the thought sat in me while I scraped: a pelt like that, chestnut-toned and dense, would be something for a hat lining or collar facing. Something finer than hare.
+
+I did not go back out. That thought is for later days. For now: half the fourth pelt membrane-scraped, shoulder left for evening. The fire is low but warm. The morning is spending itself quietly.
+
