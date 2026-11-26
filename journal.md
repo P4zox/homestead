@@ -27975,3 +27975,8 @@ Membrane side is fully done now. I pinned the pelt back on the block to flex and
 
 There is maybe an hour of useful daylight left. I will split a little kindling and top the lamp before it goes.
 
+
+### 4:18 PM · Before Dark
+
+The light gave out early, as it always does in late November — by quarter past four the pines had gone to silhouette and the frost on the doorsill turned grey. I brought in three birch rounds from the woodstore, stacked them against the wall beside the fire stone. Then topped the lamp from the left tallow brick; the flame caught low, wandered once, and steadied. Trimmed the wick a touch with the knife-tip and the pool sharpened to a clean oval across the plank floor. Everything is laid in for the evening: the fourth pelt pinned flat and cooling, shoulder smooth and dry now after this afternoon's scraping, the birch smoother oiled and waiting on the shelf tray. I stood in the open door for a minute in the cold, watching the sky go pink-grey above the ridge. Hard frost already settling on the chopping block. The marten snare is in and I will not know anything till first light. The hares are caught and stored. For now there is only the warm cabin, the lamp, and work I know how to do. That is enough for a Thursday afternoon in deep November.
+
