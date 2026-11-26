@@ -28020,3 +28020,7 @@ Laid them aside and looked at the remaining two. The outer joins will go in from
 
 The marten snare is out there in the dark, upstream at the downed spruce. I'll know what it found at first light.
 
+
+### 9:00 PM · Outer Seams, Lamplight
+
+After laying the joined center pair aside at the last lamp trimming, I found I could not quite put the work down yet. The night is early enough — barely past nine — and the lamp flame is clean and steady. I drew the outer pelts in and pressed them membrane-side-up against the center join, checking the alignment by touch as much as by eye. The left outer seam went in easily; the edge matched clean and I whipstitched from top to hem with the bone needle and bark cord, working a rhythm that settled the cabin into quiet. By the time I reached the hem of the left side the join was solid. I spread the half-panel flat on my knee and checked it against the lamp — four pelts wide across the left and center now, only the right outer pelt remaining. I pinned the right edge loosely with a strand of bark cord to hold it overnight. Tomorrow's first light will close the panel completely. The fire is banked, the marten snare is upstream, and the lap panel lies flat on the bench beside me, nearly done.
