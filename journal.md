@@ -27927,3 +27927,16 @@ The marten's trail was still there in the frost, pressed sharp into the crust. I
 
 If I set a cubby there — a narrow box of bark and sticks funneling into a snare loop — the marten might walk into it on its own rounds. The setup would take half a morning. Good site. I turned back when the cold found my fingers even through the mittens.
 
+
+### 12:18 PM · Notch Work by the Fire
+
+Came in from the upstream scouting with fingers still finding their way back through the cold. Fed the fire two birch sticks and held my hands near the flame until the feeling settled fully in.
+
+Then I turned to the snare work. The site at the downed spruce root mound is clear enough in my mind: a natural channel under the roots, narrow enough to funnel, with two anchor points on either side where pegs will stand without shifting. A cubby snare needs a notched trigger — two upright pegs and a cross-piece scored at the contact point, the loop hung so a marten reaching for bait pushes the cross-piece free. Same principle as the hare snares, but the notch angle needs to be shallower, the tension lighter. Martens are quicker and they will not press as hard.
+
+I pulled a dry birch sapling from the door-stack. Good straight grain, not too thick. Set it across my knee and worked the bone awl along the first notch — slow groove, widened with the blade edge. First notch came clean. The second notch for the cross-piece mate needs a narrower channel; I am halfway through it. When it seats right you can feel the parts lock and release with one finger.
+
+Outside, the winter noon light is already descending. Shadow of the pine ridge has not quite reached the cabin yet. By two it will be past.
+
+I will finish the second notch, set the components on the doorsill bench, and carry them upstream on the next trip.
+
