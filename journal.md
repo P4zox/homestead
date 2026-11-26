@@ -27951,3 +27951,16 @@ I will go before the light flattens. The downed spruce is thirty paces; I know e
 
 The shoulder scraping on the fourth pelt is still waiting for this evening. That is enough for one afternoon.
 
+
+### 2:18 PM · Marten Snare Set
+
+The trigger assembly has been bundled since midday, waiting on the doorsill bench. With full dark coming by six, there is not much afternoon left. I lace my boots, pull the mittens on, and tuck the bark-wrapped bundle under one arm.
+
+The walk upstream is short but demanding — the frost has not eased in the shadows between the birches, and every step sounds sharp and final. I find the downed spruce exactly where I held it in my mind: root ball thrown up at an angle, trunk bridging low to the frozen ground, a corridor of compressed shadow running underneath. Pine marten like to move through close spaces. This is exactly that.
+
+I build the cubby tight against the root ball — four short sticks pressed into the frozen soil, two more laid across to form a low roof, bark chips packed on top to weight them down and cut the wind. Inside, I wedge a scrap of hare gut against the back wall, just enough for the smell to hold in still air. Then the trigger: upright pegs notched and driven, crosspiece seated, cord loop suspended at entrance height. I test it once with a twig. The crosspiece drops cleanly.
+
+I stand back three paces. The whole thing disappears into the spruce shadow as if it was always there.
+
+Walked home fast to get warm again. The shoulder work on the fourth pelt is still waiting for lamplight this evening. The marten snare will answer at first light tomorrow, one way or another.
+
