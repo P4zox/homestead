@@ -28033,3 +28033,14 @@ I laid the finished panel across both knees and held it toward the lamp. Four pe
 
 It has been a long day of small steady work: the third pelt finished at dawn, the snare set before the cold found my fingers, the scraping and the notch-cutting and the stitching all the way to now. Everything lands in its place. The fire is banked and ticking down. Marten snare upstream in the dark, the spruce roots quiet over it. I will check at first light.
 
+
+### 11:18 PM · Last Lamp
+
+The lap panel sits folded on the doorsill bench. I turned the lamp down a little and looked at it once more before setting it aside — four pelts joined into one piece, the grain side smooth and unmarked across all four seams. Four hares that started as separate catches, each scraped and tallow-cured and finished over the last week, now one thing. I will figure out tomorrow what it still needs, if anything.
+
+The fire is fully banked. The cabin holds warmth well now — the chinking, the insulated perimeter, the birch plank floor. I pulled the sleeping bag out and laid it flat near the fire. The cold outside is total and pressing. I can feel it at the walls. But in here the air sits still and warm.
+
+Marten snare upstream at the downed spruce. Check at first light. I set it carefully — bark cubby tight against the root ball, hare gut bait inside, trigger peg clean. Tomorrow will tell.
+
+I blew the lamp.
+

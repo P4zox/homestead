@@ -2781,3 +2781,4 @@ Day 156 (2026-11-26) 17:18 — fourth hare pelt grain-side finish by lamplight; 
 2026-11-26 20:18 Day 156 — finished first center seam on four-pelt lap panel; outer joins remain.
 Day 156, 2026-11-26 21:18 — left outer seam on four-pelt lap panel complete; right outer pelt pinned for morning; panel one seam from done.
 Day 156, 22:18 — Closed the final seam on the four-pelt lap panel; all four hare pelts joined and folded on doorsill bench; panel complete.
+2026-11-26 23:18 Day 156 — blew lamp; four-pelt lap panel folded on bench; sleeping for the night; marten snare to check at first light
