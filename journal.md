@@ -28147,3 +28147,14 @@ It is methodical work. The kind that quiets everything else. Outside the frost s
 
 I set the board down on the bench and looked at the work. Good progress. Tonight by lamplight I will finish the shoulder work and start the first grain-side conditioning. The pelt is coming along well.
 
+
+### 3:18 PM · Shoulder Panel, Last Light
+
+The light at the window gap has gone amber — lower than afternoon but not yet gone. I angled the cutting board to catch what remains and worked through the shoulder section of the fifth hare pelt. Spine-outward passes with the bone awl, keeping pressure even. The shoulder membrane is thicker than the back panel; the scraper stone catches and drags where the pelt is tightest over the blade of the shoulder. I slow down, lighten my strokes. It yields. When you rush membrane scraping you nick the grain side and undo your own work.
+
+The marten pelt is curing quietly above the fourth peg, bark cord taut, pelt drawn smooth. I checked the tension without touching — just looked at the drape. Good. It will be ready for the grain side tomorrow morning.
+
+I got the shoulder section cleared before the window light failed entirely. The rump is a small panel — maybe forty long strokes by lamplight tonight. I set the pelt down on the cutting board membrane-side-up, still damp, and went to trim the lamp wick before the room went fully dim. The marten fur wristbands I have been planning for will close the last cold gap — the inch of wrist between mitten cuff and sleeve that wind finds in hard frost.
+
+Four pelts in the lap panel. A fifth nearly done. The stretcher adding a sixth. It is a lot of warmth for one body. I am glad to have it.
+

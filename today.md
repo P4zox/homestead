@@ -8,3 +8,4 @@
 12:18 — ate noon broth (hare carcass + marten backstrap piece + three sorrel leaves; broth clear and amber; marrow pressed from joints and eaten); marten pelt curing steadily on stretcher; fifth hare pelt on cutting board awaiting tonight's lamplight scraping
 13:18 — broke through stream ice with axe heel at the root gap; filled both birch cups; water set near coals; lamp trimmed; fifth hare pelt still on cutting board, scraping tonight by lamplight
 14:18 — began membrane scraping on fifth hare pelt by fading afternoon light; angled cutting board to window gap; bone awl and scraper stone; spine-to-flank passes; back panel mostly cleared; shoulder and rump remaining for tonight by lamplight
+15:18 — continued membrane scraping by last afternoon light; shoulder section cleared; rump remaining for lamplight tonight; lamp wick trimmed; marten pelt curing steadily on stretcher
