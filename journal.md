@@ -28103,3 +28103,14 @@ The hare had been hanging inside the door since the morning snare check, and by 
 The carcass I jointed and set to broth over the coals — bark-and-clay pot, stream water melted from the morning bucket, one piece of marten backstrap from the cold box to enrich it, the three remaining sorrel leaves torn in last. The broth is on now. Ready by noon, maybe a little after.
 
 Outside the sky is a pale winter blue from edge to edge, no cloud, no wind, no sound except the occasional crack from the pines settling in the cold. Light comes in flat through the open door. I am warm. Everything is in reach. There is something deeply settling about a clear cold day when the shelter holds and something is cooking.
+
+### 11:18 AM · Steam Before Noon
+
+The broth has been murmuring on the coals since mid-morning and I can smell the marrow working free from the hare bones now — that deep, round smell that tells you the heat has done its job. I lifted the lid and let the steam rise past my face, then set it back. Not quite yet.
+
+The marten pelt hangs on the stretcher above the fourth pelt peg, fur-side-in and drying even. I keep glancing at it. It is a small animal, dark brown, dense coat — different from hare in every way. Hare fur is loose and soft, almost fluffy; marten is tight, smooth, with real weight to it. I have been turning over what it might become.
+
+Mittens are good as they are, but there is a gap at the cuff when my arm is raised — a half-inch of wrist exposed where the mitten sleeve does not quite meet the coat sleeve. Cold air finds that gap. The marten's fur, cut into two narrow bands and stitched with the bone needle, would seal it. Wristbands, essentially — not glamorous, but practical. I will cut them once the pelt finishes curing, maybe in a day or two.
+
+For now: the fire, the steam, the waiting.
+
