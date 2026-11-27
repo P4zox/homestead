@@ -28250,3 +28250,10 @@ The marten is still hanging on the south wall above the fourth peg. I glanced at
 
 Good start to a morning.
 
+
+### 7:18 AM · Fifth Pelt Done
+
+The light cleared as I hoped — pale winter sun crossing the doorsill bench before the hour was out. I took up the smoother and worked the rump section: long strokes pushing outward toward the leg joints, the tallow warming as I went. The hide came smooth and even, same give as the fourth pelt and the third. One full final pass, spine-out, shoulder to haunch, and it was done — same grain sheen, same soft drape when I lifted it from the cutting board.
+
+I pressed a small fifth peg into the south wall just above the fourth and hung the pelt there on a bark cord loop. Five in a row now. The marten stretcher hangs above them all, still curing; I pressed the belly strip with a thumb — firm and dry at the edges, center still drawing. Tomorrow it will be ready to cut. For now I set the smoother back on the shelf tray and sat a moment on the doorsill bench with the lamp burning steady, looking at the row. Good morning.
+
