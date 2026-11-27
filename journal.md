@@ -28114,3 +28114,14 @@ Mittens are good as they are, but there is a gap at the cuff when my arm is rais
 
 For now: the fire, the steam, the waiting.
 
+
+### 12:18 PM · Broth at Noon
+
+Lifted the lid at noon. The broth had gone clear and amber, the hare carcass fallen to pieces at the joints, the small square of marten backstrap pale and tender in the bottom. Three sorrel leaves had dissolved to green threads. I ladled it into the birch bowl — both hands around the warmth — and carried it to the doorsill bench.
+
+The door cracked open to let in the light. Outside: flat white, pale sky, the pine shadows long and thin even at midday. Ate slowly. The marten backstrap gives the broth something different from plain hare — a faint wildness, deeper than the forest usually hands me. Ate the solids first, then drank the broth off. Then I went back for the marrow in the leg joints, pressed it out on the cutting board, ate it straight. Good fat on a cold day.
+
+The marten pelt is curing steadily on the stretcher. Firm at the edges where it has dried first, still supple at the center. Another day, maybe two. I have not decided exactly how to cut the wristbands yet — narrow strips from the belly panels, sewn in a fold over the cuff seam. A small piece of work, but that quarter-inch gap at the cuffs is the one place the cold still finds my hands.
+
+Fifth hare pelt still membrane-side-up on the cutting board. Tonight by lamplight, I will scrape it.
+
