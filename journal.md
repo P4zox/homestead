@@ -28194,3 +28194,14 @@ The day was long but clean. Caught the marten at dawn, hare mid-morning, broth a
 ### 7:18 PM · Belly Strip by Lamp
 
 I unhooked the marten stretcher from the south wall peg and carried it to the doorsill bench, into the full circle of the lamp. The pelt is still firm — day two of curing, not yet supple — but I could already see the belly strip would run long. I pressed my left mitten cuff against it, edge to edge. The strip is wide enough for both wristbands with a finger of margin to spare. I turned the stretcher once in the light, checking the shoulder seam for any thin spots, then hung it back and sat with that for a while. The plan is sound. When the pelt softens on day five or six, I will cut two narrow strips from the belly, stitch a fold along each edge, and sew them closed at the cuff gap where cold finds the wrist. For now it hangs and cures. Outside: no wind, no sound, full dark, the cold absolute. Inside: the coals have settled to a low even burn, the lamp steady, the cabin warm and tight. The day has given a lot. I am content to let the evening be quiet.
+
+### 8:18 PM · Fire and Quiet
+
+The cabin is as warm as it gets. Coals have settled to their steady red, two split birch laid across the top holding slow heat through the night. Lamp steady on the shelf. I checked the marten pelt one more time — not because anything needed checking, only because it was hanging there in the lamplight and it was pleasant to look at. Dark brown fur, pale chest patch, shoulders lying flat on the stretcher. It will be ready in a few days.
+
+Outside is very cold. I can hear nothing through the walls — no wind, no branch-crack, only the occasional tick of cooling wood in the fire frame. This is the deep still of a hard winter night.
+
+It has been a full day. The marten was in the snare at first light. By noon I had broth on and a fifth pelt scraping. By evening the cord was braided and the plan confirmed. That kind of day — where everything lines up — does not feel earned so much as given. Tomorrow is simpler: grain-side work on the fifth pelt. Maybe the snares come up empty and the morning is quiet. I would be glad of that.
+
+I will sit here until sleep comes. No particular hurry.
+
