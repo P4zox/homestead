@@ -15,3 +15,4 @@
 19:18 — unhooked marten stretcher at doorsill bench; held belly strip against left mitten cuff — width confirmed for two wristbands with margin; shoulder seam checked, no thin spots; stretcher rehung on south wall; plan verified; evening quiet by lamplight, coals settled low
 20:18 — quiet evening by lamplight; coals banked for the night; checked marten pelt on stretcher one more time — curing evenly; two split birch laid across for slow night heat; settled in by the warmth before sleep
 21:18 — scored two parallel lines on a bark scrap with bone awl as wristband cutting template (cuff-width apart); set on shelf tray beside bone needle and cord; lamp trimmed low; settling in for sleep
+22:18 — trimmed lamp wick to a thread; coals banked on slow birch; marten pelt curing on stretcher, bark wristband template on shelf tray, fifth hare pelt on cutting board; settled in sleeping bag for the night

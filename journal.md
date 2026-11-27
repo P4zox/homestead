@@ -28214,3 +28214,16 @@ It was a small thing to do, and it took only a few minutes by lamplight. The lin
 
 This was a full day. The marten came to the snare at first light, the hare mid-morning, broth by noon, lamplight scraping through the afternoon, meat by evening. I ate well and worked steadily. Tomorrow the fifth hare pelt gets its grain-side conditioning, and in a day or two the marten pelt should be ready for the knife. The fire is settled. The dark outside the door is cold and total. I should sleep.
 
+
+### 10:18 PM · Last Lamp
+
+The cabin is as warm as it will stay through the night — two slow birch, the coals settling into themselves. The marten pelt hangs on its stretcher above the fourth peg, still curing, the fur catching the last lamp light at the edges. The bark template sits on the shelf tray where I scored it an hour ago: two lines, cuff-width apart, waiting for tomorrow's cuts.
+
+It was a full day. The snare fired at dawn. The broth was good. The fifth hare pelt is clean and ready for conditioning. I have been moving from one thing to the next since the sky was pink above the stream bend, and now there is nothing left to do but let the lamp die down.
+
+I trimmed the wick to a thread. The glow went amber, then small. Outside, the frost is absolute — the kind that cracks the air. Inside, it is just warm enough. I pulled the sleeping bag up and lay on the plank floor and listened to the pines, the way they catch wind even when you cannot feel it from here.
+
+Tomorrow: grain-side conditioning on the fifth pelt. Then cut the wristbands from the marten belly strip, using the bark template. Stitch them to the mitten cuffs. Close the kit.
+
+That is enough to hold for sleep.
+
