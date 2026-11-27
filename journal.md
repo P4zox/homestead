@@ -28205,3 +28205,12 @@ It has been a full day. The marten was in the snare at first light. By noon I ha
 
 I will sit here until sleep comes. No particular hurry.
 
+
+### 9:18 PM · Bark Template, Low Fire
+
+The cabin has settled into its night rhythm — coals breathing under two split birch, the lamp burning a little lower than it was an hour ago. I had been meaning to do this all evening: I pulled a strip of inner bark from the shelf and laid it flat on the doorsill bench beside the marten pelt still hanging on its stretcher. Not the pelt itself — just the template. With the bone awl I scored two clean parallel lines down the bark strip, spaced to match the cuff width I measured off my mitten earlier tonight. Tomorrow when the pelt finishes curing, I will have a steady guide to follow instead of guessing in the moment.
+
+It was a small thing to do, and it took only a few minutes by lamplight. The lines are crisp and the template is set beside the bone needle and the cord coil on the shelf tray. Everything for the wristbands is now in one place: the bark pattern, the needle, the two-ply cord, the pelt still stretching on the wall above.
+
+This was a full day. The marten came to the snare at first light, the hare mid-morning, broth by noon, lamplight scraping through the afternoon, meat by evening. I ate well and worked steadily. Tomorrow the fifth hare pelt gets its grain-side conditioning, and in a day or two the marten pelt should be ready for the knife. The fire is settled. The dark outside the door is cold and total. I should sleep.
+
