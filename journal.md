@@ -28136,3 +28136,14 @@ Stood there a moment before the walk back. The pines were absolutely still — n
 
 Back at the cabin now, cups set near the coals to stay above freezing. Lamp trimmed. The fifth hare pelt is still laid flat on the cutting board where I left it this morning — good membrane, not yet dried stiff. I'll start the scrape when the lamp burns fully bright tonight, and have something for the stretcher by morning.
 
+
+### 2:18 PM · Ahead of Dark
+
+The afternoon light lies low but it is still light — that pale, thin kind that comes in flat across the floor and makes everything look clear and cold. I did not want to wait until the lamp for the fifth hare pelt. The membrane is fresh enough that the work will go faster now, and I have the hours before dark to use.
+
+I carried the cutting board to the doorsill bench and angled it toward the window gap so the last of the sky fell across the work. The bone awl in one hand to lift membrane at the edges, the scraper stone in the other. The pelt still has a little give in it from the morning — not warm, but not stiff yet. I worked spine-to-flank in short careful passes, lifting the grey membrane a strip at a time, keeping the hide underneath unmarked.
+
+It is methodical work. The kind that quiets everything else. Outside the frost sat hard on the needles and the sky was going that deep pale blue it goes before it darkens. I could hear the pines and nothing else. By the time the light shifted to full amber I had cleared most of the back panel — the shoulder quarters and the rump still want a few more passes, but the worst of the membrane is off.
+
+I set the board down on the bench and looked at the work. Good progress. Tonight by lamplight I will finish the shoulder work and start the first grain-side conditioning. The pelt is coming along well.
+

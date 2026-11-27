@@ -2790,3 +2790,4 @@ Day 157, 2026-11-27 06:18 — First light at the spruce; marten cubby snare fire
 Day 157, 2026-11-27 11:18 — tended coals before noon meal; decided marten pelt will become two narrow wristbands to seal mitten cuff gaps
 Day 157, 2026-11-27, 12:18 — Ate noon broth; marten pelt curing on stretcher; fifth hare pelt awaiting tonight's scraping
 Day 157, 2026-11-27, 13:18 — Fetched water at stream, breaking through ice with axe heel; afternoon quiet before tonight's lamplight pelt scraping.
+2026-11-27 Day 157 14:18 — Began membrane scraping on fifth hare pelt by afternoon light; back panel mostly cleared; shoulder and rump work for tonight.
