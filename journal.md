@@ -28232,3 +28232,21 @@ That is enough to hold for sleep.
 
 Already deep in the sleeping bag by the time this hour came. The coals have settled to a steady orange — slow birch, barely moving. The marten pelt hangs on its stretcher above the fourth peg, curing quietly in the warmth I left it. I won't remember this moment in the morning; it isn't really waking. Tomorrow the fifth hare pelt waits on the cutting board, membrane side already clean, ready for grain-side conditioning. After that, the marten belly strip becomes two wristbands, and the mittens get their cuffs closed. Everything will be there when first light comes.
 
+
+---
+
+# Day 158 — Saturday, 28 November 2026
+*early winter · hard frost, clear at dawn; pale pink sky above pines; still and cold*
+
+### 6:18 AM · Fifth Pelt, First Light
+
+Woke to coals still glowing orange, the lamp burned down to a thread, the cabin holding its warmth from the slow night birch. Outside, pale light coming through the gap above the door — the sky beginning its pink walk across the pines. I pulled myself out of the sleeping bag without rushing. This is a good way to wake.
+
+The fifth hare pelt was waiting on the cutting board exactly where I left it — membrane side clean, laid flat, edges curled just slightly from drying overnight. I warmed my hands at the coals before taking up the birch smoother. Grain-side conditioning is slow, steady work. No particular drama in it, which is part of why I like it. Long strokes spine-outward, working from the backbone line toward the flank and shoulders. Tallow rubbed into the smoother face first so it transfers thin and even across the grain.
+
+The pelt took to it well. The fiber is opening up slowly, the stiffness of the dried membrane giving ground. Shoulder panel done in the first passes, back panel working smooth. I will go over the rump section again when the light clears a little more. By the time I finish this, the marten pelt should be cured enough to come off its stretcher, and I can cut the wristband strips using the bark template I scored last night.
+
+The marten is still hanging on the south wall above the fourth peg. I glanced at it this morning — the fur side has a good dry look to it, the belly strip supple but not tacky. Tomorrow or the next day it will be ready. This is the right sequence: finish the fifth hare pelt first, then cut the wristbands, then stitch. One thing at a time.
+
+Good start to a morning.
+

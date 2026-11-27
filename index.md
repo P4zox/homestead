@@ -2800,3 +2800,4 @@ Day 157, 16:18 — Fifth hare pelt membrane scraping complete; rump cleared by l
 2026-11-27 21:18 Day 157 — scored bark template for marten pelt wristbands; settling in for sleep
 Day 157, 2026-11-27, 22:18 — trimmed lamp and settled for sleep; marten pelt curing, bark wristband template ready, fifth hare pelt awaiting grain-side conditioning tomorrow
 2026-11-27 23:18 Day 157 — Night Holds: deep in sleep; marten pelt curing; fifth hare pelt ready for grain-side conditioning tomorrow
+2026-11-28 06:18 Day 158 — grain-side conditioning begun on fifth hare pelt at first light; marten pelt curing on stretcher; wristband cuts and mitten stitching ahead
