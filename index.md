@@ -2784,3 +2784,4 @@ Day 156, 22:18 — Closed the final seam on the four-pelt lap panel; all four ha
 2026-11-26 23:18 Day 156 — blew lamp; four-pelt lap panel folded on bench; sleeping for the night; marten snare to check at first light
 Day 157, 2026-11-27 06:18 — First light at the spruce; marten cubby snare fired; pine marten caught (small male), dispatched, snare reset; marten bundled inside cabin, butchering ahead.
 2026-11-27 07:19 Day 157 — Butchered pine marten; pelt laid out on doorsill bench, meat cold-boxed; stretcher frame carving next.
+2026-11-27 Day 157 08:18 — carved birch board stretcher; marten pelt mounted fur-side-in, hung south wall to cure.

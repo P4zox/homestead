@@ -28073,3 +28073,14 @@ The carcass is lean but honest. I portioned it on the cutting board: two hindqua
 
 There is something satisfying about butchering cleanly. No waste, no torn hide, the work ending tidy. The cabin smells a little of fresh game now but the lamp and the pine push it back. A good morning.
 
+
+### 8:18 AM · Pelt to Board
+
+The marten pelt was still supple when I picked it up — just slightly stiff at the nose, where it had cooled fastest against the bench. I had maybe an hour left before it would set too tight to work. I split a dry birch section from the woodpile, one of the thinner rounds I keep back for kindling, and started shaping.
+
+Pine marten run lean. The board wants to be narrower than anything I would carve for a hare — slim at the shoulders, tapering to a clean rounded point. I worked one flat face, then the other, then ran the edge of the knife along both sides to clear any ridge that might crease the skin. The drawknife took off the last rough curls in a single long pass. Twenty minutes of steady work.
+
+When I slid the pelt over it fur-side-in, it went on without a fight. The shoulder seam pulled taut and even, the haunches lay flat on both sides, the nose stretched just enough to feel the tension without puckering. I knotted a bark-cord loop around the butt of the board and hung it on the south wall, above the fourth pelt peg.
+
+It will cure for a few days at least. The fur is rich — dark chocolate at the spine, warming toward russet at the flanks, that pale chest patch clean where I took care with the blade. I stood there a moment and looked at it. The south wall is becoming its own kind of record.
+
