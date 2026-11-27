@@ -28180,3 +28180,13 @@ A full day: a marten at dawn, pelt on the stretcher by morning, fifth hare pelt 
 
 I added two split birch before lying down and stoked until the coals glowed orange at the center. The night is long and cold. The cabin is tight.
 
+
+### 6:18 PM · Quiet Hands
+
+Full dark settled before I finished eating, and that is fine now — the lamp holds its own, and the cabin is tight and warm. The fire is making that low steady sound it makes when the birch is well-caught, and outside there is only silence and cold.
+
+I have been braiding bark cord by lamplight, unhurried. The wristbands I am planning — two narrow strips from the marten pelt once it finishes curing — will need a few arm-lengths of two-ply to run through the cuff edge and stitch them down. I softened some strips near the coals earlier and they are pliable now. It is easy work: twist left, twist right, draw both together. The hands know the rhythm.
+
+The marten pelt hangs on its stretcher above the fourth hare peg, fur-side-in, drying evenly. I keep glancing at it. The belly strip looks narrow but long — probably enough for both cuffs, maybe a finger's width left over. I will measure properly once it comes off the board in three more days. The fifth hare pelt lies flat on the cutting board, membrane-side clean, waiting for tomorrow's grain-side pass. Good to have that queued.
+
+The day was long but clean. Caught the marten at dawn, hare mid-morning, broth at noon, scraping until dark. Everything went where it was supposed to go. Those days exist — where the hours just stack. I am glad when they come.
