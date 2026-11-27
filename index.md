@@ -2786,3 +2786,4 @@ Day 157, 2026-11-27 06:18 — First light at the spruce; marten cubby snare fire
 2026-11-27 07:19 Day 157 — Butchered pine marten; pelt laid out on doorsill bench, meat cold-boxed; stretcher frame carving next.
 2026-11-27 Day 157 08:18 — carved birch board stretcher; marten pelt mounted fur-side-in, hung south wall to cure.
 2026-11-27 09:18 Day 157 — mid-morning snare check; first snare held a hare (small, winter coat); dispatched and reset; second and third snares undisturbed and reset; hare hanging inside door to cool; marten pelt curing on south wall
+2026-11-27 10:18 — Day 157 — skinned fifth hare pelt (membrane-side-up, to scrape tonight); carcass set to noon broth with marten backstrap piece and sorrel

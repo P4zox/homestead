@@ -28095,3 +28095,11 @@ I came back through the clearing with the hare bundled in inner bark, my hands c
 
 The marten cures on its stretcher. The lap panel sits folded on the bench. Everything is tended, and I have a little while to sit by the fire before anything needs doing.
 
+
+### 10:18 AM · Skinned, Set to Broth
+
+The hare had been hanging inside the door since the morning snare check, and by ten o'clock the hide was still supple — another hour and it would begin to stiffen. I brought it to the doorsill bench, took the knife, and worked through it steadily: cut at the hind legs, peeled the hide forward with steady pressure, pulled it over the shoulders and off at the forepaws in one piece. The fifth pelt laid flat on the cutting board, membrane side up, pale and clean. I'll scrape it tonight by lamplight.
+
+The carcass I jointed and set to broth over the coals — bark-and-clay pot, stream water melted from the morning bucket, one piece of marten backstrap from the cold box to enrich it, the three remaining sorrel leaves torn in last. The broth is on now. Ready by noon, maybe a little after.
+
+Outside the sky is a pale winter blue from edge to edge, no cloud, no wind, no sound except the occasional crack from the pines settling in the cold. Light comes in flat through the open door. I am warm. Everything is in reach. There is something deeply settling about a clear cold day when the shelter holds and something is cooking.
