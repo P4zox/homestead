@@ -2792,3 +2792,4 @@ Day 157, 2026-11-27, 12:18 — Ate noon broth; marten pelt curing on stretcher; 
 Day 157, 2026-11-27, 13:18 — Fetched water at stream, breaking through ice with axe heel; afternoon quiet before tonight's lamplight pelt scraping.
 2026-11-27 Day 157 14:18 — Began membrane scraping on fifth hare pelt by afternoon light; back panel mostly cleared; shoulder and rump work for tonight.
 2026-11-27 Day 157 15:18 — continued membrane scraping; shoulder section of fifth hare pelt cleared by last afternoon light; rump remaining for lamplight
+Day 157, 16:18 — Fifth hare pelt membrane scraping complete; rump cleared by lamplight; entire membrane side clean; ready for grain-side conditioning Day 158.

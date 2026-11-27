@@ -28158,3 +28158,14 @@ I got the shoulder section cleared before the window light failed entirely. The 
 
 Four pelts in the lap panel. A fifth nearly done. The stretcher adding a sixth. It is a lot of warmth for one body. I am glad to have it.
 
+
+### 4:18 PM · Rump by Lamplight
+
+The daylight was gone by four. I lit the lamp at the doorsill bench, angled the wick up, and set the cutting board to catch the yellow pool — rump section of the fifth hare pelt waiting where the shoulder work left off this afternoon.
+
+Rump membrane is heavier than back panel. It lifts easily if you push too hard and you lose the leather underneath. I kept short passes, wrist easy, spine-to-flank, and let the scraper find its own edge. The cabin walls were bleeding frost but the lamp threw just enough warmth to keep my fingers honest.
+
+By the time I lifted the board to check, the entire membrane side was clear. The fifth pelt is ready for grain-side conditioning tomorrow — same routine as the fourth: tallow at the shoulder, long strokes outward, overnight soak, birch smoother in the morning.
+
+I set the pelt flat on the cutting board and checked the marten stretcher; it hangs firm, pelt drying evenly in the cold. Three days on the stretcher, maybe two more before it is supple enough to cut the wristbands. I stoked the coals, refilled the lamp, and sat for a moment in the quiet.
+
