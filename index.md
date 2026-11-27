@@ -2795,3 +2795,4 @@ Day 157, 2026-11-27, 13:18 — Fetched water at stream, breaking through ice wit
 Day 157, 16:18 — Fifth hare pelt membrane scraping complete; rump cleared by lamplight; entire membrane side clean; ready for grain-side conditioning Day 158.
 2026-11-27 17:18 (Day 157) — evening meal by lamplight; cold-boxed marten backstrap and hare strips warmed on coals; full dark by 18:00; two birch added; cabin tight for the night; planning marten pelt wristbands
 2026-11-27 Day 157 18:18 — braided extra bark cord by lamplight; planning marten pelt wristbands; cabin warm for the night
+2026-11-27 19:18 Day 157 — examined marten pelt belly strip by lamplight; confirmed width for two wristbands; plan verified; evening settled
