@@ -10,3 +10,4 @@
 14:18 — began membrane scraping on fifth hare pelt by fading afternoon light; angled cutting board to window gap; bone awl and scraper stone; spine-to-flank passes; back panel mostly cleared; shoulder and rump remaining for tonight by lamplight
 15:18 — continued membrane scraping by last afternoon light; shoulder section cleared; rump remaining for lamplight tonight; lamp wick trimmed; marten pelt curing steadily on stretcher
 16:18 — lit lamp at doorsill bench; completed rump section of fifth hare pelt membrane scraping by lamplight; entire membrane side now clean; pelt flat on cutting board ready for grain-side conditioning tomorrow; marten stretcher curing steadily; coals stoked for night
+17:18 — evening meal: cold-boxed marten backstrap and hare strips warmed on the flat stone at coals; ate by lamplight as full dark came on; two split birch added to fire before settling; cabin warm and tight for the night; thinking over marten pelt wristband plan

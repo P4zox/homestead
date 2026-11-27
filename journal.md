@@ -28169,3 +28169,14 @@ By the time I lifted the board to check, the entire membrane side was clear. The
 
 I set the pelt flat on the cutting board and checked the marten stretcher; it hangs firm, pelt drying evenly in the cold. Three days on the stretcher, maybe two more before it is supple enough to cut the wristbands. I stoked the coals, refilled the lamp, and sat for a moment in the quiet.
 
+
+### 5:18 PM · Lamp and Last Light
+
+The sky was already deep blue-grey by the time I slid the cold box in from outside the door — that particular winter dark that comes on fast once the sun drops behind the pines. I set two pieces of the remaining marten backstrap directly on the flat stone at the edge of the coals and cut a few thin strips of cold hare to warm alongside. The lamp threw a steady orange pool over the doorsill bench, the fifth hare pelt flat and clean on the cutting board, the marten stretcher hanging above.
+
+By the time I ate — meat off the stone, careful with the fingers — the last light had gone completely from the window gap. Full dark. The cabin held its warmth. Outside was absolute stillness, the frost pressing in without wind.
+
+A full day: a marten at dawn, pelt on the stretcher by morning, fifth hare pelt scraped clean by lamplight afternoon. I settled back and watched the coals and thought about the wristbands — how narrow to cut from the shoulder, whether the fur will lie right at the mitten cuff, how many stitches to run the seam. Nothing needs deciding tonight. Just let the idea settle while the fire holds.
+
+I added two split birch before lying down and stoked until the coals glowed orange at the center. The night is long and cold. The cabin is tight.
+
