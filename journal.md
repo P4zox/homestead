@@ -28084,3 +28084,14 @@ When I slid the pelt over it fur-side-in, it went on without a fight. The should
 
 It will cure for a few days at least. The fur is rich — dark chocolate at the spine, warming toward russet at the flanks, that pale chest patch clean where I took care with the blade. I stood there a moment and looked at it. The south wall is becoming its own kind of record.
 
+
+### 9:18 AM · Hare at First Snare
+
+I went out to check the three snare lines while the frost still held — my breath rising white, the pines absolutely still, no wind, no birds, just the soft crunch underfoot. The marten was behind me on the south wall peg and ahead was the birch stand where I had set the first loop.
+
+First snare: a hare. Small, pale winter coat nearly complete, perfectly still. I dispatched it quickly, reset the loop, anchored the cord fresh, and moved on. The second and third snares were undisturbed — stakes sound, trigger-sticks untouched — I checked each one and left them standing.
+
+I came back through the clearing with the hare bundled in inner bark, my hands cold even inside the mittens. The sky was that shallow winter blue, the light already lying low though it was barely mid-morning. I hung the hare just inside the door to cool and freeze. Fresh meat tonight, most likely — or another pelt if the weather holds. For now it is enough just to have it.
+
+The marten cures on its stretcher. The lap panel sits folded on the bench. Everything is tended, and I have a little while to sit by the fire before anything needs doing.
+
