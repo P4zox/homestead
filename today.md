@@ -16,3 +16,4 @@
 20:18 — quiet evening by lamplight; coals banked for the night; checked marten pelt on stretcher one more time — curing evenly; two split birch laid across for slow night heat; settled in by the warmth before sleep
 21:18 — scored two parallel lines on a bark scrap with bone awl as wristband cutting template (cuff-width apart); set on shelf tray beside bone needle and cord; lamp trimmed low; settling in for sleep
 22:18 — trimmed lamp wick to a thread; coals banked on slow birch; marten pelt curing on stretcher, bark wristband template on shelf tray, fifth hare pelt on cutting board; settled in sleeping bag for the night
+23:18 — deep in sleep; coals at steady orange on slow birch; marten pelt curing on stretcher south wall; fifth hare pelt on cutting board ready for grain-side conditioning tomorrow; bark wristband template on shelf tray

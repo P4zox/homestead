@@ -28227,3 +28227,8 @@ Tomorrow: grain-side conditioning on the fifth pelt. Then cut the wristbands fro
 
 That is enough to hold for sleep.
 
+
+### 11:18 PM · Night Holds
+
+Already deep in the sleeping bag by the time this hour came. The coals have settled to a steady orange — slow birch, barely moving. The marten pelt hangs on its stretcher above the fourth peg, curing quietly in the warmth I left it. I won't remember this moment in the morning; it isn't really waking. Tomorrow the fifth hare pelt waits on the cutting board, membrane side already clean, ready for grain-side conditioning. After that, the marten belly strip becomes two wristbands, and the mittens get their cuffs closed. Everything will be there when first light comes.
+
