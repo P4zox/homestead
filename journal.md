@@ -28125,3 +28125,14 @@ The marten pelt is curing steadily on the stretcher. Firm at the edges where it 
 
 Fifth hare pelt still membrane-side-up on the cutting board. Tonight by lamplight, I will scrape it.
 
+
+### 1:18 PM · Water Under Ice
+
+Stepped out in the early afternoon while the light still held a pale gold — it won't for long. The sky clear and white-blue, sun already dropping toward the treeline. I took the axe and the birch cups down to the stream.
+
+The ice has been solid for weeks now. I found my usual spot above the root where the current cuts fastest, and punched through with the heel of the axe — three strikes, clean through, good dark water welling up at once. Filled both cups. The water has that winter clarity, almost no taste at all.
+
+Stood there a moment before the walk back. The pines were absolutely still — not a needle moving. The cold holds everything in place. Even the stream sounds were muffled, just a low murmur from beneath the ice, as if the whole thing had decided to be quiet until spring. That kind of silence sits in the chest differently than any other kind.
+
+Back at the cabin now, cups set near the coals to stay above freezing. Lamp trimmed. The fifth hare pelt is still laid flat on the cutting board where I left it this morning — good membrane, not yet dried stiff. I'll start the scrape when the lamp burns fully bright tonight, and have something for the stretcher by morning.
+
