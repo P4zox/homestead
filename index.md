@@ -2805,3 +2805,4 @@ Day 158, 07:18 (Sat 28 Nov 2026) — Fifth hare pelt grain-side conditioning com
 Day 158, 2026-11-28 08:19 — cut both marten wristband strips from belly panel; edges even on cutting board; hole-punching and mitten cuff stitching next
 Day 158, 09:18 — Marten wristband strips hole-punched and stitched to both mitten cuffs; wrist gap sealed; full cold-weather kit now complete with fur-lined wrists.
 2026-11-28 Day 158 10:18 — snare round; one hare on east slope, three empty; marten cubby upstream untouched and reset; hare hung at eave
+2026-11-28 11:18 Day 158 — Marten Fur, Mid-Morning: grain-side conditioning on marten pelt body; shoulders firm after overnight frost; six passes neck-to-rump and four flank-outward with birch smoother; flank patch left to firm; hare at eave for afternoon dressing

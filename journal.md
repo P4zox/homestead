@@ -28288,3 +28288,12 @@ The marten cubby upstream was untouched. Bait still present, trigger wire level 
 
 I hung the hare at the eave to firm up in the cold before dressing this afternoon. Inside: lamp burning steady, woodstove warm at my back. Five pelts on the south wall, full cold-kit in use, meat in the box, snares reset. For a moment, standing in the doorway with the cold at my back and the warmth reaching out from inside, something that might be called ease came and sat beside me.
 
+
+### 11:18 AM · Marten Fur, Mid-Morning
+
+The hare hangs stiff at the eave by now — good, that means the frost is doing its job, firming the carcass before I dress it this afternoon. I came in and bent over the marten stretcher. The shoulders had gone solid overnight, the back panel tight to the frame. Only a small patch at the flank still held a little give — I pressed it once and left it. The drying is almost done.
+
+What was ready I worked. Poured a few drops of tallow onto the birch smoother and drew it from neck to rump along the grain of the fur — long strokes, no hurry. Marten fur is different from hare. It lays flatter, denser, and when the light catches it at an angle there is a warmth to it, almost amber. The pile lifted a little under the first pass and settled back neatly under the second. I did six passes, turned the stretcher, did four more from the flank outward.
+
+The fire held well through the morning and the cabin was warm enough to work without mittens on. I will give the pelt another long session by lamplight this evening, once the flank patch has firmed in the afternoon cold. The hare dressing will come first, mid-afternoon, when the carcass has set properly. For now the pelt is laid back on the stretcher, smoother returned to the shelf, and I am content with how the morning has gone.
+
