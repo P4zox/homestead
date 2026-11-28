@@ -2808,3 +2808,4 @@ Day 158, 09:18 — Marten wristband strips hole-punched and stitched to both mit
 2026-11-28 11:18 Day 158 — Marten Fur, Mid-Morning: grain-side conditioning on marten pelt body; shoulders firm after overnight frost; six passes neck-to-rump and four flank-outward with birch smoother; flank patch left to firm; hare at eave for afternoon dressing
 Day 158, 12:18 PM — noon broth from marten hindquarter; ate by the fire; hare still at eave to dress mid-afternoon; marten pelt flank firming on stretcher.
 2026-11-28 Day 158 13:18 — Dressed the hare from eave; sixth pelt on stretcher; marten flank checked firm; full conditioning by lamplight this evening.
+2026-11-28 14:00 Day 158 — Strained foreleg broth on doorsill bench; marten pelt waiting for lamplight conditioning

@@ -28315,3 +28315,16 @@ The hare had been hanging at the eave for three hours, and when I lifted it down
 
 I checked the marten pelt flank on my way back inside. The patch that had been slow to firm this morning was solid now, the full frost having done its work. One pass with the birch smoother, laid it back on the stretcher, and left it. By lamplight this evening I will run the full grain-side conditioning — long strokes, tallow worked in carefully — and have the pelt properly along before dark. The cold box is well stocked. The workshop bench is tidy. The afternoon light is already leaning low.
 
+
+### 2:00 PM · Clear Broth, Low Light
+
+The forelegs had been simmering since I dressed the hare — a little over half an hour by the time I lifted the pot off the coals. I rested it on the flat river stone, let it settle, then strained through a fold of dry bark into the birch cup: pale straw-colored broth, thin but clean-smelling, a wisp of steam off the surface. I carried the cup to the doorsill bench and sat.
+
+The afternoon is completely still. The sky has gone from pink at dawn to that flat pale blue that means the frost is locked in and not moving. Pine shadows lie long across the clearing. The cold is dry and total — no wind, no bird, nothing from the trees. Just the small sound of broth cooling in the cup.
+
+I drank slowly. The hare foreleg meat came away from the bone easily after the simmer; I stripped it and set it aside for the snare bait pouch. The broth itself is thin but it carries warmth. These small cups in the middle of the day are part of how winter is managed — not in dramatic quantities, just steadily, a little warmth added back to the body each time.
+
+The marten pelt is waiting on the stretcher inside. When the lamp is lit and the fire rebuilt tonight, I will do the full grain-side conditioning: shoulders first, then back, then belly and flanks in long even passes. The sixth hare pelt sits membrane-side up on its own stretcher; that is tomorrow morning's first task at first light. I am not rushing anything.
+
+I stayed on the bench a few minutes after the cup was empty. The shadows are already two or three handspans longer than they were at noon. By four they will reach the treeline. By five the sky will be low and gray. Full dark by six, then the lamp and the work and the fire.
+
