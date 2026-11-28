@@ -11,3 +11,5 @@
 15:18 — took hare offal to snare circuit before dark; pressed fresh scraps near third and fourth east-slope snare sites; added liver scraps beside marten cubby bait upstream at downed spruce; all snares undisturbed; returned as light failed; marten pelt full grain-side conditioning by lamplight this evening
 
 16:18 — full grain-side conditioning on marten pelt by lamplight; warmed tallow against lamp glass; long neck-to-rump strokes across grain side — four dorsal passes, three flank passes per side; pile lifted and settled level; faint sheen across grain; marten pelt COMPLETE
+
+17:18 — evening meal by lamplight as full dark settled; marten backstrap strip and hare hindquarter from cold box; simmered broth with sorrel; ate on doorsill bench with lap panel across knees; afterward laid conditioned marten pelt flat beside lap panel to study proportions by lamplight; likely collar or hat crown from it tomorrow; trimmed wick, two birch splits on fire, coals banked

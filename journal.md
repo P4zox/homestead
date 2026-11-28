@@ -28345,3 +28345,16 @@ Marten fur is different from hare. Denser, tighter-lying; each pass of the smoot
 
 Full dark outside by then. Fire holding. Lamp steady. The pelt done and ready. It feels like a good thing to have made — trim, tight-furred, the whole skin from one animal worked through without waste.
 
+
+### 5:18 PM · Before Full Dark
+
+The lamp was already burning when I brought the food in — I had it lit for the pelt work, and by the time I set the smoother down and folded the marten fur away, the sky outside had gone from pale grey to blue-black. Full dark by eighteen hundred; it comes fast now, and there is nothing to do but accept it and build the fire up.
+
+I fetched a strip of marten backstrap and a hare hindquarter from the cold box — the bark lid iced around its rim and I had to press it free. Inside, the meat was solid and clean. I brought it to the fire and let it thaw in the iron air near the coals before setting it in the pot with a little water from the skin and two sorrel leaves stripped from the crown under the garden mulch. The broth came up slow and smelled of pine smoke and something deeper — the marten has a richer scent than hare, almost sweet.
+
+Ate on the doorsill bench with the door cracked a finger's width. Outside: nothing. No wind, no owl, no branch creak. Just the cold pressing in and the dark absolute beyond the lamp radius. I pulled the lap panel across my knees and ate until the bowl was empty.
+
+Afterward I laid the conditioned marten pelt flat on the bench beside the lap panel — just to look. The marten grain is finer than hare, the pile shorter and denser, and by lamplight it has a faint copper sheen along the spine. The lap panel is four joined hares: big, warm, serviceable. The marten is small and exact. There is probably a collar or a hat crown in it. I will know better in the morning light.
+
+Trimmed the wick. Fed the fire two birch splits. Banked coals. Sat a moment with both pelts in my hands and the lamp between them, and thought about nothing much at all.
+

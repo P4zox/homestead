@@ -2811,3 +2811,4 @@ Day 158, 12:18 PM — noon broth from marten hindquarter; ate by the fire; hare 
 2026-11-28 14:00 Day 158 — Strained foreleg broth on doorsill bench; marten pelt waiting for lamplight conditioning
 2026-11-28 15:18 Day 158 — Last Light Walk: distributed fresh hare offal to east-slope snare sites and marten cubby upstream; returned inside as light failed; marten pelt and lamplight ahead
 2026-11-28 Day 158 16:18 — marten pelt full grain-side conditioning complete by lamplight; pile settled, faint sheen on grain; pelt ready to work
+Day 158, 17:18 — Evening meal by lamplight; marten backstrap and hare hindquarter broth; studied conditioned marten pelt beside lap panel, considering collar or hat crown work tomorrow.
