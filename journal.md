@@ -28369,3 +28369,12 @@ The template is on the shelf tray now beside the bone needle and cord. Tomorrow 
 
 I trimmed the wick and put two more splits on the fire. The doorsill bench is warm through the floor. Outside — silence, and hard frost on the clearing. It is good to be inside with something ready to make.
 
+
+### 7:18 PM · Collar Cuts by Lamplight
+
+The fire had settled to a low steady bed of coals. I unfolded the marten pelt across the cutting board and laid the bark collar template along the dorsal strip — the marks I scored an hour ago still crisp. The knife went through cleanly: one long draw at the center-back line, then the gentle taper toward each shoulder end. Two collar halves, grain-side up on the board, cut edges even. I held them together at the scored center-back marks and they met without a gap. Good alignment.
+
+I folded the two halves grain-side-in and set the bundle on the shelf tray beside the bone needle. The offcuts — the flanks trimmed away from the collar strip — went to the far corner of the bench. They are still marten fur; they will stuff a gap somewhere, or warm a boot tongue, or patch a seam. Nothing from an animal like this gets wasted.
+
+Fire tended. Wick left untrimmed — still burning steady. Coals banked for the night. Tomorrow morning: clean the collar edges with the bone awl and begin pinning the halves to the collar wrap to find the stitch line.
+
