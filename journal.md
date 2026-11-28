@@ -28378,3 +28378,12 @@ I folded the two halves grain-side-in and set the bundle on the shelf tray besid
 
 Fire tended. Wick left untrimmed — still burning steady. Coals banked for the night. Tomorrow morning: clean the collar edges with the bone awl and begin pinning the halves to the collar wrap to find the stitch line.
 
+
+### 8:18 PM · Edge by Lamplight
+
+The two collar halves lie on the cutting board, grain-side up, smelling faintly of tallow. I take the bone awl and run its blunt side along each cut edge — pressing the fiber flat, feeling where it catches. Then the knife: short shaving strokes to clean the taper at each end, keeping the curve honest where it will meet the front of the collar wrap. The lamp is steady. The fire has settled to a deep orange bed of coals.
+
+This is the kind of work that suits the hour — no forcing, no decisions, just the edge coming clean under the hands. The marten fur has a tightness to it that hare pelts lack; the dorsal strip is firmer, almost stiff at the center back, and the edges hold their shape after each pass. By the time I set the pieces back on the shelf tray I can run a fingernail along every edge without catching a loose fiber.
+
+Tomorrow morning I will stitch these to the collar wrap. Tonight the work is done. I add a split to the fire, trim the lamp wick, and sit for a moment on the doorsill bench with the door closed against the dark.
+
