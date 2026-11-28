@@ -28257,3 +28257,14 @@ The light cleared as I hoped — pale winter sun crossing the doorsill bench bef
 
 I pressed a small fifth peg into the south wall just above the fourth and hung the pelt there on a bark cord loop. Five in a row now. The marten stretcher hangs above them all, still curing; I pressed the belly strip with a thumb — firm and dry at the edges, center still drawing. Tomorrow it will be ready to cut. For now I set the smoother back on the shelf tray and sat a moment on the doorsill bench with the lamp burning steady, looking at the row. Good morning.
 
+
+### 8:19 AM · Wristbands Cut Free
+
+The marten belly strip has been on the stretcher through two full nights of hard frost. This morning I let the cabin warm a few degrees before touching it — not from any rule, just instinct; cold leather cuts cleaner but I wanted to feel it first with bare fingers.
+
+It was ready. The center had firmed overnight, all the give gone out of it, just dry leather with a faint waxy surface where the tallow worked in during scraping. I pressed it at the thickest point and it held without denting.
+
+I took the bark wristband template from the shelf tray and laid it lengthwise along the belly panel, checking the cord marks on either side. It fit cleanly — room for two full cuff-width strips with a narrow margin between. I scored the first line with the bone awl, pressed along it twice to deepen the groove, then ran the knife through. The leather parted smooth, no jagging. The second strip came off the same way.
+
+Both strips are on the cutting board now — edges even, pale membrane-side up, smelling faintly of tallow and cold. I will punch the attachment holes next and begin stitching them to the mitten cuffs. The marten gave a lot: three meals of meat, a pelt still curing on the stretcher, and now these two strips that will close the gap at my wrists where the cold gets in. That feels like enough from one animal.
+
