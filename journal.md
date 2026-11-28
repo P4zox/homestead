@@ -28358,3 +28358,14 @@ Afterward I laid the conditioned marten pelt flat on the bench beside the lap pa
 
 Trimmed the wick. Fed the fire two birch splits. Banked coals. Sat a moment with both pelts in my hands and the lamp between them, and thought about nothing much at all.
 
+
+### 6:18 PM · Collar Pattern by Lamplight
+
+The marten pelt is finished and folded on the bench beside the lap panel, and the lamp is burning steady. Full dark settled early tonight — by the time I banked the coals and ate, the clearing had gone completely black outside the door.
+
+I picked up the marten pelt again after the meal and held it in both hands in the lamp's small circle. The belly and flanks are the most supple — the dorsal strip, where the fur is thickest, runs neck to rump with a slight natural taper. For a collar, I want that strip laid along the neckline, fur turned outward, edges stitched to the collar wrap's upper opening. I pulled a scrap of inner bark from the shelf and traced the shape with the bone awl: a curved band, two fingers wide at center back and tapering gently toward the front. Cut it. Held it to my neck. It sits well — just covers the gap at the collar wrap's upper edge without bunching. I scored two alignment marks where the pelt's center back should lie.
+
+The template is on the shelf tray now beside the bone needle and cord. Tomorrow morning, in first light, I will lay it flat on the marten pelt's dorsal strip and cut.
+
+I trimmed the wick and put two more splits on the fire. The doorsill bench is warm through the floor. Outside — silence, and hard frost on the clearing. It is good to be inside with something ready to make.
+
