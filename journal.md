@@ -28337,3 +28337,11 @@ I went east first, up the slope to the four hare snares. All four were as I had 
 
 I came back as the trees darkened and the stream ice caught the last pinkish light from the western horizon. The cabin was waiting, lamp unlit. Cold supper from the box first, then I will light the lamp and settle in for the marten pelt work.
 
+### 4:18 PM · Marten by Lamplight
+
+Lit the lamp at the bench as the last daylight left the clearing. The marten pelt had been waiting on the stretcher since afternoon — flanks firmed after the brief pass at thirteen-eighteen, body ready for a full run. I warmed a thin smear of tallow against the lamp glass and ran it across the smoother's flat face, the same way I do every time.
+
+Marten fur is different from hare. Denser, tighter-lying; each pass of the smoother catches differently, and you can feel when the pile begins to open and settle. I started at the neck and worked toward the rump — long strokes, the full length of the spine. At the shoulders the skin runs thickest and I let the smoother press a little longer, let the warmth from the lamp and the tallow work in. Four passes down the dorsal. Then flanks, outward from the spine, three passes each side. By the time Id finished, the fur was sitting level across the whole pelt and the grain showed a faint, even sheen under the lamp.
+
+Full dark outside by then. Fire holding. Lamp steady. The pelt done and ready. It feels like a good thing to have made — trim, tight-furred, the whole skin from one animal worked through without waste.
+
