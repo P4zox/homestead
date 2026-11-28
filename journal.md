@@ -28308,3 +28308,10 @@ The broth was thin but hot and fat pooled at the surface as it should. I ate slo
 
 The marten pelt is still on the stretcher. Flank patch firming in the cold. I will check it at mid-afternoon, run the smoother across it again, and work the full body by lamplight this evening. Everything in its time.
 
+
+### 1:18 PM · Hare on the Board
+
+The hare had been hanging at the eave for three hours, and when I lifted it down this afternoon the flesh was firm and cold — good butchering weather. I carried it to the doorsill bench and worked through it with the knife: peel the hide back from the legs, ease it over the haunches, run it over the back and shoulders and off close to the ears. Clean work. The frost tightens everything neatly. The pelt I stretched onto a fresh birch frame; I will scrape it membrane-side tomorrow in full morning light. The carcass I portioned — hindquarters and backstrap to the bark cold box outside the door, offal set aside for snare bait. The fore-legs have little on them this late in the season; I simmered them briefly and drank the thin broth standing at the fire, more warmth than food.
+
+I checked the marten pelt flank on my way back inside. The patch that had been slow to firm this morning was solid now, the full frost having done its work. One pass with the birch smoother, laid it back on the stretcher, and left it. By lamplight this evening I will run the full grain-side conditioning — long strokes, tallow worked in carefully — and have the pelt properly along before dark. The cold box is well stocked. The workshop bench is tidy. The afternoon light is already leaning low.
+
