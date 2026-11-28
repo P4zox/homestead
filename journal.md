@@ -28268,3 +28268,12 @@ I took the bark wristband template from the shelf tray and laid it lengthwise al
 
 Both strips are on the cutting board now — edges even, pale membrane-side up, smelling faintly of tallow and cold. I will punch the attachment holes next and begin stitching them to the mitten cuffs. The marten gave a lot: three meals of meat, a pelt still curing on the stretcher, and now these two strips that will close the gap at my wrists where the cold gets in. That feels like enough from one animal.
 
+
+### 9:18 AM · Wristbands Stitched
+
+The two marten strips had been lying membrane-side up on the cutting board since morning, edges clean from yesterday's cuts. I warmed the bone awl in my palm before starting — cold bone slips — and then worked down each strip, punching five evenly-spaced holes along each long edge, thumb-spaced to match the cord channels already at the top of the mitten cuffs. The first strip went cleanly. The second had dried tighter overnight in the frost and needed more pressure, but it held.
+
+I threaded bark cord through each strip — two passes per side, running outer edge to inner — then laid each strip flat against its mitten cuff and pressed to check the fit before sewing. Left wristband to left mitten; right to right. The overlap was good: about two finger-widths of marten fur folding over the top edge of the cuff, covering the gap at the wrist exactly. I ran the bone needle through in a close running stitch, four passes per strip, pulling the cord snug but not tight enough to bunch. Even and secure.
+
+When both were done I tried the mittens on, standing at the cabin door. The fur closed against my wrist. No gap. The warmth was immediate — not just the fur, but knowing the last exposed piece of the cold-weather kit was now closed. I stood there with my mittened hands in front of me and felt quietly pleased: not with myself exactly, but with the work, and with winter being slightly less of a threat than it was an hour ago.
+
