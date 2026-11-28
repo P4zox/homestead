@@ -20,3 +20,4 @@
 21:18 — rested by lamplight; ran thumb along marten collar edges one last time — taper clean, fiber flat; shelf tray set; sixth pelt waiting for morning scraping; coals banked, lamp at last trim; sleep
 
 22:18 — woke briefly in the night; laid one dry birch split on banked coals; fire caught and steadied; back to sleep; collar halves on shelf tray ready for morning
+23:18 — deep night; coals holding steady from birch split laid at 22:18; cabin warm and quiet; marten collar halves on shelf tray grain-side up, edges finished, ready to stitch at first light; sixth hare pelt taut on stretcher for morning scraping; full sleep

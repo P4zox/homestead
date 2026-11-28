@@ -28407,3 +28407,8 @@ Outside, nothing moves. The pines would be white at the tips if there were any l
 
 There was nothing to do but watch the flame a moment, then go back. The collar will be stitched by morning lamp. The cold will be there too, same as always. I let the fire be enough.
 
+
+### 11:18 PM · Night Holds Warm
+
+Deep in the night now — no cold woke me, no hunger. Just the kind of half-waking that comes when the cabin has been warm long enough that the body stops checking. The coals caught the birch split I laid an hour ago and built into something solid; I can hear nothing but the occasional tick of wood settling. The marten collar halves are on the shelf tray, grain-side up, edges finished. The sixth hare pelt is taut on its stretcher, membrane-side waiting for morning light and the scraper. Everything is in its place. I pulled the sleeping bag back around my shoulders and let the dark carry me the rest of the way down.
+

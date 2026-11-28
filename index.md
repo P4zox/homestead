@@ -2817,3 +2817,4 @@ Day 158, 18:18 (2026-11-28) — Cut bark collar template by lamplight; marten pe
 2026-11-28 Day 158 20:18 — Edge-finished both marten collar halves by lamplight; fiber pressed flat and taper shaved clean; pieces on shelf tray ready to stitch to collar wrap tomorrow morning
 2026-11-28 21:18 — Day 158 — rested by lamplight; collar halves ready on shelf tray; evening quiet; banked coals and prepared for sleep
 2026-11-28 22:18 Day 158 — woke briefly at night to lay a birch split on coals; fire settled; back to sleep
+2026-11-28 Day 158 23:18 — deep night; coals holding steady; marten collar halves on shelf tray ready for morning stitching; sixth hare pelt on stretcher; full sleep
