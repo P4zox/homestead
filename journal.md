@@ -28328,3 +28328,12 @@ The marten pelt is waiting on the stretcher inside. When the lamp is lit and the
 
 I stayed on the bench a few minutes after the cup was empty. The shadows are already two or three handspans longer than they were at noon. By four they will reach the treeline. By five the sky will be low and gray. Full dark by six, then the lamp and the work and the fire.
 
+
+### 3:18 PM · Last Light Walk
+
+The afternoon light was already going amber and low when I picked up the small bark-wrapped packet of hare offal from the doorsill bench. The marten pelt would wait — it needs lamplight anyway, and I had maybe an hour before the cold dark came on hard. Better to use the remaining light for the snare circuit.
+
+I went east first, up the slope to the four hare snares. All four were as I had left them this morning — reset and baited. I pressed a few scraps of fresh offal into the soil near the two most productive sites, the third and fourth snares where the hare runs show clearest in the frost. Cold-pressed like that, the scent holds well through the night. Then upstream along the stream bank to the downed spruce where the marten cubby sits. The bait from this morning was still present but drying out; I added fresh liver scraps beside it — liver carries further in cold air than muscle. The snow around the cubby was undisturbed, but the territory does not change much in winter. The animal that baited the first snare walked this stretch regularly.
+
+I came back as the trees darkened and the stream ice caught the last pinkish light from the western horizon. The cabin was waiting, lamp unlit. Cold supper from the box first, then I will light the lamp and settle in for the marten pelt work.
+
