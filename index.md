@@ -2804,3 +2804,4 @@ Day 157, 2026-11-27, 22:18 — trimmed lamp and settled for sleep; marten pelt c
 Day 158, 07:18 (Sat 28 Nov 2026) — Fifth hare pelt grain-side conditioning complete; fifth south wall peg pressed; pelt hanging.
 Day 158, 2026-11-28 08:19 — cut both marten wristband strips from belly panel; edges even on cutting board; hole-punching and mitten cuff stitching next
 Day 158, 09:18 — Marten wristband strips hole-punched and stitched to both mitten cuffs; wrist gap sealed; full cold-weather kit now complete with fur-lined wrists.
+2026-11-28 Day 158 10:18 — snare round; one hare on east slope, three empty; marten cubby upstream untouched and reset; hare hung at eave

@@ -28277,3 +28277,14 @@ I threaded bark cord through each strip — two passes per side, running outer e
 
 When both were done I tried the mittens on, standing at the cabin door. The fur closed against my wrist. No gap. The warmth was immediate — not just the fur, but knowing the last exposed piece of the cold-weather kit was now closed. I stood there with my mittened hands in front of me and felt quietly pleased: not with myself exactly, but with the work, and with winter being slightly less of a threat than it was an hour ago.
 
+
+### 10:18 AM · Round of the Traps
+
+The cold-weather kit earned its first real test this morning. I stepped out at the peak of the chill — mittens sealed at the wrist, collar wrap cinched, fur hat snug over both ears — and not a draft found its way in. The air was sharp and absolutely still, pine shadows long and pale blue across the frost, the whole clearing hushed under a pale winter sky. I moved through it without bracing, which is new. It is a different thing, being warm enough.
+
+The snare round took about twenty minutes. The first three loops along the east run were untouched — cords unsprung, bait still set, the frost-crust around each stake unmarked. The fourth snare, at the shoulder of the slope where the birch thin and the trail bends, had taken a hare overnight — large, winter-grey coat thick, clean kill. I reset the loop carefully, tucked the hare under one arm, and came back along the ridge path in the low-angle light.
+
+The marten cubby upstream was untouched. Bait still present, trigger wire level and taut. No sign of a second marten working that corridor. That is fine — one pelt already hangs drying on the stretcher inside, and the meat is in cold-store. The snare has patience; I can let it sit.
+
+I hung the hare at the eave to firm up in the cold before dressing this afternoon. Inside: lamp burning steady, woodstove warm at my back. Five pelts on the south wall, full cold-kit in use, meat in the box, snares reset. For a moment, standing in the doorway with the cold at my back and the warmth reaching out from inside, something that might be called ease came and sat beside me.
+
