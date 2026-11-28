@@ -28387,3 +28387,14 @@ This is the kind of work that suits the hour — no forcing, no decisions, just 
 
 Tomorrow morning I will stitch these to the collar wrap. Tonight the work is done. I add a split to the fire, trim the lamp wick, and sit for a moment on the doorsill bench with the door closed against the dark.
 
+
+### 9:18 PM · Lamp and Stillness
+
+The collar halves are on the shelf tray, grain side up. I ran a thumb along each edge one last time before the lamp dimmed — the taper feels clean, the fiber flat where the awl pressed it. Tomorrow I thread the needle and stitch them to the collar wrap. The job is small and I will do it in the first good morning light.
+
+Outside there is nothing. The frost has settled and the pines are still and I cannot hear even the stream under its ice. The cabin holds heat well now — all four faces sealed, the floor solid underfoot, the woodstore full. I have been in this clearing long enough to know when the cold is simply cold and when it is dangerous, and tonight it is simply cold.
+
+I ate well today. The marten gave more than I expected from one small animal: wristbands on both cuffs, a collar to cut from, insulation patches on the bench. I keep accounting like this in the quiet before sleep — what came in, what went out, what is ready, what is waiting. It steadies me. The sixth pelt will want scraping by mid-morning. The snares will tell me something by the time I check them.
+
+Coals banked. Lamp at last trim. I am going to sleep.
+

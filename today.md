@@ -16,3 +16,5 @@
 18:18 — cut bark collar template by lamplight; traced curved band on inner bark scrap with bone awl, two fingers wide at center back tapering toward front; test-held to neck — covers collar wrap upper gap without bunching; two alignment marks scored; template on shelf tray beside bone needle; marten pelt folded on bench ready to cut from tomorrow morning
 19:18 — cut both marten collar halves from dorsal strip using bark collar template; two halves grain-side up, center-back aligned, folded and set on shelf tray; offcuts to bench (insulation); edge-finishing and stitching to collar wrap tomorrow morning
 20:18 — edge-finished both marten collar halves by lamplight; bone awl along each edge to press fiber flat, knife shaving taper clean at each end; both pieces on shelf tray, ready to stitch to collar wrap tomorrow morning
+
+21:18 — rested by lamplight; ran thumb along marten collar edges one last time — taper clean, fiber flat; shelf tray set; sixth pelt waiting for morning scraping; coals banked, lamp at last trim; sleep

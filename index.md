@@ -2815,3 +2815,4 @@ Day 158, 17:18 — Evening meal by lamplight; marten backstrap and hare hindquar
 Day 158, 18:18 (2026-11-28) — Cut bark collar template by lamplight; marten pelt proportions confirmed; ready to cut collar from dorsal strip tomorrow morning.
 2026-11-28 Day 158 19:18 — Cut both marten collar halves from dorsal strip using bark template; grain-side up, center-back aligned; folded on shelf tray; edge-finishing tomorrow.
 2026-11-28 Day 158 20:18 — Edge-finished both marten collar halves by lamplight; fiber pressed flat and taper shaved clean; pieces on shelf tray ready to stitch to collar wrap tomorrow morning
+2026-11-28 21:18 — Day 158 — rested by lamplight; collar halves ready on shelf tray; evening quiet; banked coals and prepared for sleep
