@@ -18,3 +18,5 @@
 20:18 — edge-finished both marten collar halves by lamplight; bone awl along each edge to press fiber flat, knife shaving taper clean at each end; both pieces on shelf tray, ready to stitch to collar wrap tomorrow morning
 
 21:18 — rested by lamplight; ran thumb along marten collar edges one last time — taper clean, fiber flat; shelf tray set; sixth pelt waiting for morning scraping; coals banked, lamp at last trim; sleep
+
+22:18 — woke briefly in the night; laid one dry birch split on banked coals; fire caught and steadied; back to sleep; collar halves on shelf tray ready for morning

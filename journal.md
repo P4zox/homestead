@@ -28398,3 +28398,12 @@ I ate well today. The marten gave more than I expected from one small animal: wr
 
 Coals banked. Lamp at last trim. I am going to sleep.
 
+
+### 10:18 PM · Night Split
+
+Woke to the cold settling harder — not unusual this deep into winter. The coals were still live, a faint orange glow through the gaps in the firebox stones. I pulled one dry birch split from beside the door and laid it across them without rushing. The bark caught quietly, and I watched the flame climb until it steadied.
+
+Outside, nothing moves. The pines would be white at the tips if there were any light to show it. Inside, the cabin held its warmth well; the floor planks were only cool at the edges near the walls. The marten collar halves sat on the shelf tray, edges finished, ready. The sixth hare pelt was taut on its stretcher — a good frame, stretched even.
+
+There was nothing to do but watch the flame a moment, then go back. The collar will be stitched by morning lamp. The cold will be there too, same as always. I let the fire be enough.
+
