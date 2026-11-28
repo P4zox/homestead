@@ -28297,3 +28297,14 @@ What was ready I worked. Poured a few drops of tallow onto the birch smoother an
 
 The fire held well through the morning and the cabin was warm enough to work without mittens on. I will give the pelt another long session by lamplight this evening, once the flank patch has firmed in the afternoon cold. The hare dressing will come first, mid-afternoon, when the carcass has set properly. For now the pelt is laid back on the stretcher, smoother returned to the shelf, and I am content with how the morning has gone.
 
+
+### 12:18 PM · Noon Broth, Still Air
+
+I pulled a piece of marten hindquarter from the bark box — the meat cold and firm from the frost. The fire had been patient all morning; I had not asked much of it. I added wood now, got it breathing again, then set the birch cup over the heat with a measure of water and let the meat settle in. While it came up to a simmer I sat on the doorsill bench and watched the pale winter light cross the floor.
+
+The clearing is still at noon. No wind. The pines across the slope carry a little hoarfrost at their tips that the mid-morning sun has not quite touched. The hare hangs at the eave, weight pulling its legs straight. I will dress it in an hour or two when the cold has firmed the flesh properly — better to be patient than to hurry and have it slip.
+
+The broth was thin but hot and fat pooled at the surface as it should. I ate slowly. After five months here I have learned to take noon quietly. The morning work is done and the afternoon will come on its own.
+
+The marten pelt is still on the stretcher. Flank patch firming in the cold. I will check it at mid-afternoon, run the smoother across it again, and work the full body by lamplight this evening. Everything in its time.
+
